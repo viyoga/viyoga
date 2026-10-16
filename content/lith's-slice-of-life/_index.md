@@ -5,6 +5,6 @@ render = true
 [extra]
 book_number = 13
 author = "Web Novel"
-chapters = "350 ch"
+chapters = "1,000 ch"
 summary = "“Calm down. His name is going to be Lith. Lith Evure.”"
 +++
