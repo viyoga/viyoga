@@ -1,0 +1,32 @@
++++
+title = "Chapter 1118: Intel Is Important"
+weight = 1118
+[extra]
+chapter = 1118
++++
+
+A week passed. Lith's injuries had healed and he was done contemplating on the benefits a certain someone was giving him. Lith wasn't a hot-blooded shounen protagonist to reject such an offer. Real life was not anime. His life, his family's life, his world… everything was at stake. The Evure God Clan and Asura God Clans were forces with hands deep inside every single world of the Shen Ze star system. Battling against them was a challenge as is, and there was no guarantee as to when they would strike him or his family. The past was tragic for Lith's grandmother, and she had to resort to abandoning her only daughter. His grandfather, grand-uncle, and grand-uncle's friend… all three fell in the conflict, and all three were Legendary Ranks. Lith couldn't take any risk when up against such a force. He actually felt thankful to this lady who laid out such a force for him to work with. He thought of talking to her, but eventually decided against it. He was a bit busy right now. It would be best if he talked to her once everything was over. Given how she had laid out everything for him, it won't take too long to finish up with the mess his ancestors had created. It was time to avenge grandma, grandpa, grand-uncle, and his friend Hamza. May their souls rest in peace after the downfall of the Evure God Clan and the Asura God Clan. Lith was currently seated around a study table, in a room with five stunning beauties. It was wang Wei, Qingshan, Jiang Yi, Wu Yan, and Xuan Lan. wang Wei had stopped feeling uncomfortable around such big shots after a few days as contrary to her beliefs, the sect master and the supreme ancestors weren't domineering and scary people, but actually quite gentle and friendly. They had helped her clear her bottleneck when they weren't busy serving the benefactor. Speaking of the benefactor, Lith had asked these ladies to stop calling him that. He hadn't done anything directly to get called that. The five panicked and wondered what they should call Lith then. Calling him lord didn't sound right and neither did senior or master. Lith sighed and asked them to refer to him as young master. There was no other suitable term since these ladies were against calling him via as his real name. "Young master, do you wish to meet the other legendaries of this world?" Yi, the redhead, asked while sitting on a three-seater couch. Lith had some furniture in his space ring. He forgot why he had it, but well, it was useful. Answering Yi, Lith shook his head. "Our priority is to gain intel. Winning the information battle means we're halfway there. Do any of you have any suggestions on this regard?"
+
+Lan looked at Lith and said, "Young master, there is someone called the Silent Nightmare. We do not have him as our direct ally, but one of our closest allies maintains a good relation with him."
+
+Lan opened her palm and a golden scroll formed on it. She gently pushed it towards Lith and continued, "He is a mysterious man whose whereabouts are unknown. It is said that there's nobody who can stop him from spying on them, if he makes up his mind, and even the Evure God Clan and the Asura God Clan stay wary."
+
+"Hm…" Lith looked at the golden scroll and hummed in agreement. It had the achievements of the man and talked about how he ended up making a big organization fall due to its corrupt officials sleeping with the partners of the lower brass. He had also worked once for the Qing Mei Sect in collecting information against one of the powerhouses of this world. This helped them kill the man easily and replace him with a man they had raised themselves. The list was endless, and it signified one thing — capability. The man sure was capable and knew his stuff. He had been caught a few times, but managed to escape from whatever prison he was put in. Currently, his whereabouts are unknown. Some folks say that he could literally be next to you or maybe in a star system far, far away…
+
+"If you can contact him and give him the task, it would be amazing." Lith said. Lan nodded her head and looked at Qingshan, sitting on a bean bag beside wang Wei. "Can you make a visit to the Imperial Palace and meet Tang Tao?" Qingshan put on a pondering expression and said, "It's quite far. If I leave, there would be problems in the sect."
+
+"Hm, that's troublesome then." Lan agreed with Qingshan. "We can send wang Wei, perhaps." Qingshan suggested. Lan shook her head, and so did Yi and Yan. "Tang Tao will not see her due to her strength. He only speaks to the ones of the same strength as him." Yan answered. "That's problematic then." Qingshan frowned. "I'll go." Yi  said and got up. "I'll meet him and get this done at the earliest."
+
+Lith looked at the lady and said, "If you can, make sure to meet the man Silent Nightmare or at least ask them a way through which we can communicate with him. Do not tell the middleman about what we seek. Just ask him to introduce you to Silent Nightmare. Despite being an ally, it's better to be safe than sorry."
+
+Yi nodded her head and bowed slightly while clasping her hands. "Don't worry, young master. He's a close ally of ours and won't cause problems. I'll not speak of anything unnecessarily."
+
+Lith nodded his head in understanding and said, "Then please, go contact him. I leave this to you."
+
+Jiang Yi bowed again and left after bidding farewell to everyone. Lith then looked at the remaining four ladies and said, "Since intel's taken care of, let's talk about how we're going to convince our allies to go against the two clans."
+
+wang Wei reflexively asked, "Why would we need to do that, benefactor? They all loathe those two powers and would be happy to go against them."
+
+wang Wei was allowed to call Lith benefactor since he had actually saved her. She was also made comfortable to say her opinion out loud. Lith shook his head at her questions and replied, "Just loathing doesn't mean anything, Wei. If there's no benefits involved, no one's going to fight. War is no joke. People die and lose a lot before gaining anything. Everyone would try to protect their individual interests while contributing the least in the war."
+
+Qingshan raised her eyebrows in surprise and so did the rest. Lith sure had some wisdom about war and the way people worked. "Then… benefactor is saying…" "I'm saying that we need to give them ambitions." Lith smiled and answered calmly. "It works like this…"
