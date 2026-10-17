@@ -74,23 +74,3 @@ Everyone moved forward, towards the area someone pointed to see what place the s
 “Let’s go outside and see for ourselves and it’ll confirm everything for us. I really hope my senses aren’t playing tricks on and what I am seeing is genuine.” Another person from the crowd said.
 
 Everyone agreed with this statement and they all went out to see who it was.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

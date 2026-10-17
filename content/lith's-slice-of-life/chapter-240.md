@@ -98,23 +98,3 @@ But, since Avelyn could easily teleport in and out of the church, she must defin
 The church had barriers and it ensured that nobody below Saint Rank was able to teleport in or out of the church. It was put there for safety purposes. The churches which had Bishops, Archbishops, Cardinals and the Pope had even more powerful barriers.
 
 The priest had his nerves tensed up this whole time but somehow managed to keep calm and was able to mind his own business. He knew that if he disturbed those people, it wouldn’t end well for him. His years of meeting various different types of people had helped him today.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

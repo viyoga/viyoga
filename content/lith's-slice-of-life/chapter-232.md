@@ -64,23 +64,3 @@ Emilia made them turn to the obelisk and said, “this is the memorial of Minzoi
 The three nodded their heads and did as they were told. Just as they did so, they felt themselves getting pulled in the obelisk. Emilia, noticing them to have gone, put her own spiritual power in the obelisk and got sucked into it.
 
 They were now into Minzoi’s Memorial obelisk and what awaited them was a nice and fun experience.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

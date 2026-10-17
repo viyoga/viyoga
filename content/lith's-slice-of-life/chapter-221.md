@@ -104,23 +104,3 @@ Lith sighed in relief and then thought about what he should do next. To clear th
 After a few seconds of thinking, Lith decided to clear it. He had come this far, might as well clear it.
 
 Lith cast Short Jump and started teleporting once again while having his spiritual sense spread out.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

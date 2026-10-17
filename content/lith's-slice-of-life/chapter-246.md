@@ -124,23 +124,3 @@ nobody bought such a pathetic excuse from him, not even the receptionist who was
 Lith, with disdain visible on his face, said to the man:
 
 “I would’ve called you a dog who eats shit if I wanted to disrespect you. I just want my money, give it to me and I’ll leave. Don’t even bother bickering with me.”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

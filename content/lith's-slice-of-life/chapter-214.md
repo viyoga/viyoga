@@ -66,23 +66,3 @@ However, none of them were able to please us. We thus had them start off from a 
 You are the only one who has managed to please us and thus we have decided to let you be an exception and start off from an easier place to get to the main inheritance. Are you ready to get it?” The old man in white robes said.
 
 Lith listened to the old men explain and after they stopped, he thought to himself, ‘so it’s an inheritance ground and this was a trial and not a trap. Phew, I was worried for nothing. But, if I start from the middle, there will be problems…’
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

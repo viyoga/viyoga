@@ -36,21 +36,3 @@ The person helping Lith had done such a thing by opening up an interesting gate 
 Sighing once again and thinking of how easily he fell into this trap, Lith thought, 'What now? Should I prepare for the war or reject help and look for my own allies? This went easier than I thought and I have no idea what to make of it.'
 
 'Sigh… so troublesome…'
-
-…..
-
-.
-
-.
-
-.
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: /SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:

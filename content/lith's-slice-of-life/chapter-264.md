@@ -140,19 +140,3 @@ Lith could sense the melancholy and he patted Lilith's back. He too was sad when
 The two stay hugging for a while and after a few more minutes, Lith held Lilith's face and said,
 
 "Mama, whatever happens, I'll always be there for you. Always. It's a promise from me. We'll never be separated and I'll fight anyone and anything, even with fate, to let you be with me. I promise, I sincerely do."
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote and show support to the book if you like it.

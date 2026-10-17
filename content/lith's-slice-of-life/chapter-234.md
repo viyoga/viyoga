@@ -58,23 +58,3 @@ General Minzoi’s army was in a diamond shape. The pointy front the army consis
 They may seem to have to have a balanced defense and offense like the Demons and the Humans but when the trio looked closer, they found that it wasn’t balanced. The offense of this army was stronger than their defense. It was almost double.
 
 “Here it comes. The point where the equilibrium is broken.” Lith said calmly as he looked at Minzoi’s army.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

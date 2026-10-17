@@ -154,21 +154,3 @@ Did this cow just understand and respond to him?
 The teen chuckled after having successfully provoked the cow.
 
 “Hehe. Stupid cow. Fell for my trap so easily.”
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

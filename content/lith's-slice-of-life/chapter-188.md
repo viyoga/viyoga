@@ -132,23 +132,3 @@ Lastly, she recalled her time with Lith; how he took care of her when she was in
 So many things happened and she was robbed off of this due to that one man who wanted revenge.
 
 Arya’s rage was intensifying so much that it was now going out of control. However right at this moment…
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

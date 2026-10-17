@@ -80,23 +80,3 @@ Emilia was happy hearing that reply and liked his attitude. His impression in fr
 “You can help that person. But you have to make sure you do it by the end of the day. It’s 9 am, you have time till 11:59 pm. Don’t worry, I’ll be watching over you, so don’t be afraid of things.”
 
 Lith nodded his head and thanked Emilia. He then walked towards Ralph and Dennis and told them the things he was gonna do today.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

@@ -96,21 +96,3 @@ The numbers were in the thousands!
 He turned his head to the cow beside him and said,
 
 “Dumb cow, if we survive this, I’ll treat you to some delicious steak.”
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

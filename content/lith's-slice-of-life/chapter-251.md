@@ -150,25 +150,3 @@ Mayzin was listening to him speak but after a few seconds, she suddenly felt a b
 Without saying anything to the people and thinking further, she vanished from her spot immediately.
 
 The people below were left surprised as they saw her leave so suddenly. But they didn’t think much as they felt she must’ve had some urgent things to do. The people went about their ways and got busy with their work again.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don’t forget to vote and show support to the book if you like it.

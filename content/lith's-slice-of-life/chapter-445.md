@@ -162,25 +162,3 @@ Although I don't take your opinions regarding the flow of the story into conside
 The engagement is pretty good and I hope to see more of your comments.
 
 Have a good day boys :)
-
-.
-
-.
-
-.
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.

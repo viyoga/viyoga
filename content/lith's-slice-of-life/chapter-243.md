@@ -86,25 +86,3 @@ Ralph hit Dennis’s shoulder with the side of his palm and said, “idiot, look
 “Alright, we’ll go sell it tomorrow morning when the market opens up. We should hunt as much as we can today.” Lith said.
 
 The two nodded and they went back to killing monsters and hunting beasts.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/SocialHippo]
-
-Don’t forget to vote and show support to the book if you like it.

@@ -88,19 +88,3 @@ Lith took out his phone and was about to call his mother when he stopped and sai
 Lith felt warm in his heart as he said this. He knew Arya loved him deeply. Even though she had expressed her love to him just once and only for a few minutes, it was enough for Lith to understand how deep it was.
 
 "Anyway, let's call mom again and ask her about the drop. I should've just asked her when she was here yesterday but welp, the timing wasn't good. I'll just bother her again and compensate her with lots of kisses and hugs, hehe."
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote and show support to the book if you like it.

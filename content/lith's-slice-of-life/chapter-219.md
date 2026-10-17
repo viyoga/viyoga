@@ -84,23 +84,3 @@ Lith soon reached the center of the bazaar and waited for Sheng to arrive. This 
 A/N:
 
 *The ‘earth’ mentioned here is the ground, not MC’s previous world. In later chapters, ‘Earth’ would be used to describe MC’s previous world and ‘earth’ for ground if needed.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

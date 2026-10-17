@@ -138,23 +138,3 @@ A/N:
 Or the time when your mom told you to get the chicken out of the freezer or to do the dishes but you didn’t and now she’s just 2 minutes away from coming back home, so you quickly leave everything and go do those things to avoid getting your ass whooped into mondays.
 
 That’s the gist of it. Hope it helps 3
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

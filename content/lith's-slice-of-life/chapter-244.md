@@ -90,25 +90,3 @@ Lith didn’t bother to talk with the guy and walked away, leaving the man dumbf
 Lith walked in an alley and put on a disguise. He was about to go ask people a few things and he couldn’t let them see his true face for it.
 
 He walked back towards the guild vicinity and was about to begin his plans.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don’t forget to vote and show support to the book if you like it.

@@ -82,23 +82,3 @@ Lith was flying over the glaciers and while doing so, halfway through, he found 
 Everything until this point was in no way anything challenging. Whatever the students were going through currently, it was just the academy’s way of having them warm up. There was nothing too challenging for these thirteen-year-olds. The essence of the tournament was yet to come.
 
 The real tournament was yet to begin.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

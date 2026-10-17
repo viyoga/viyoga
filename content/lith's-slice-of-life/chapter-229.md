@@ -106,23 +106,3 @@ Lith looked at Emilia and said with a smile, “teacher, a wise man once said th
 Emilia slightly furrowed her brows and said, “isn’t it, ‘everything is fair in love and war’ ?”
 
 “Same thing, same thing. Anywho, let us start.” Lith tried to cover up his blunder and started shuffling cards.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

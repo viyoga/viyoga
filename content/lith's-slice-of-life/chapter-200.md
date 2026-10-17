@@ -120,23 +120,3 @@ Gunther, Sheng, and Ojas walked towards him and saw footprints on the ground. In
 They followed the footsteps and soon found themselves in front of a lake. Looking at the end of the lake, there seemed to be gloomy darkness of some sort which made Gunther and Ojas be on guard but Sheng and Ji to feel relaxed.
 
 Ojas was about to discuss that atmosphere with the other three but his gaze landed on a small signboard. He walked close to it and noticing him move, the other three followed suit.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

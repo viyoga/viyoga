@@ -72,23 +72,3 @@ The old man then took a sip of tea after saying so much to soothe his dry throat
 The old man paused and leaned forward towards Lith. The seriousness on his face increased and he said:
 
 “…the start of what ended it all.”
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

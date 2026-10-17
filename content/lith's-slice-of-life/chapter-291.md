@@ -100,19 +100,3 @@ Lith packed his things for today and after he was done, he looked at the time an
 "I am on time." Lith said to himself with a smile.
 
 "Now let's go and get some bounty."
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.

@@ -116,19 +116,3 @@ Lilith was about to inscribe the seal on Emilia when she remembered something. S
 Luna got up and said bowing, "As Madam instructs."
 
 She walked towards Lith and squatting down, held onto his pants. She looked up at Lith and said, "Your Highness, if I may…"
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.

@@ -62,23 +62,3 @@ This man was given the right to exercise veto by the eight main races and there 
 Minzoi was there for fifteen thousand years, looking after the Neutral Continent but one fine day, he just vanished without leaving any trace or clue to people. It has been almost a million years now and there are still no traces of him. nobody knows whether he perished, reincarnated or is into seclusion somewhere.
 
 The only thing people know of Minzoi, are his epic tales and greatness.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

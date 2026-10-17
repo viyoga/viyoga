@@ -140,23 +140,3 @@ Mayzin willed the space elements and created a tear near a place the man had jus
 “Hmm… not bad.” Ilyas said as he saw his leg get chopped off and blocking another attack of Mayzin. He then looked a Mayzin with cold glint in his eyes and said,
 
 “But it’s not enough to stop me.”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don’t forget to vote and show support to the book if you like it.

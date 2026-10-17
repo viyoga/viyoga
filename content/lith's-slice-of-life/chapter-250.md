@@ -160,25 +160,3 @@ The door of their suite slammed open and a pink-haired, pink-eyed lady barged in
 She rushed towards Ralph as she saw him and said with enthusiasm,
 
 “Ralph chaaannnnn!~”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don’t forget to vote and show support to the book if you like it.

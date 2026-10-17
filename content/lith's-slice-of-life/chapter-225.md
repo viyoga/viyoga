@@ -114,21 +114,3 @@ Everyone shivered in fear and a cold sweat trickled down their back. Some even c
 Looking at her divine war God-like figure made them recall about the different Angel Kings. And as they recalled about it, realization dawned upon them. They all felt goosebumps and a chill down their spine as they looked at Emilia. It was her… the strongest Angel King…
 
 War Angel Emilia!
-
-.
-
-.
-
-.
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

@@ -84,19 +84,3 @@ Add onto that his constant shameless words made Emilia flustered even further an
 Emilia closed her eyes and raised her fist. She then said with a flushed face and with visible embarrassment,
 
 "I-I… I'll get back to him for it. Surely. Definitely. I will. Humph!"
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.

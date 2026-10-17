@@ -84,19 +84,3 @@ Dennis bought it so that he could become like those pervert anime protagonists a
 Lith used it and reached inside and after coming so, used the dark element and turned himself one with the surrounding and camouflaged himself.
 
 He then went to search for the nephew in a stealthy manner.
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote and show support to the book if you like it.

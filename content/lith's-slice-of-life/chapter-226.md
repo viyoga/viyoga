@@ -90,23 +90,3 @@ Not just him, no one else apart from a few knew about Lucifer and Alex’s relat
 Despite having a bit of curiosity to know who this little girl was, Darren refrained from asking such questions.
 
 “Of course. The girl you’re talking about must be precious to you, I guess. But anyway, that aside, let me just tell you why I wanted to meet you.”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

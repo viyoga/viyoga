@@ -76,21 +76,3 @@ Dennis was shocked when he saw the amount he got. He was about to argue with Lit
 Dennis was in mid-air and the only support it had was Lith’s hand on his shoulder. He wasn’t stable due to this and had to extend his wings out and fly together with Lith. The cow was stable because Lith provided good support to it. He didn’t to Dennis because he wanted Dennis to fly too.
 
 Lith and Dennis, both supported the cow and flew towards their next destination, the desert region which was located in the middle-eastern part of the world. Lith provided a boost to their flying speed by willing the Wind elements around and the three people were flying towards this region at a very fast speed.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-Don’t forget to vote and show support to the book if you like it.

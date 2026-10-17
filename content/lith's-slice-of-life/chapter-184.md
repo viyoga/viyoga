@@ -78,23 +78,3 @@ They had a token on their chest which created a rank 3 protective shield around 
 This was pretty much the gist of their battle, and it had only just started. The two teams, one comprising Lith and Rena and another having Dennis and Ralph, were a thousand meters apart from each other.
 
 Ralph and Dennis made their move first and were closing in on Lith and Rena. Watching them come at him, Lith sent that telepathic message to Rena and waited for them to close in on him.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

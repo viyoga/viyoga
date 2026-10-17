@@ -88,23 +88,3 @@ The trio reached the exit of the village. The exit was a narrow entrance and eve
 The three were about to exit the gate when they were stopped by two guards in metal armour.
 
 “Halt. You can’t enter the forest.”
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary discord link: discordgg/SocialHippo]
-
-Don’t forget to vote with powerstones and golden tickets and show support to the book if you like it.

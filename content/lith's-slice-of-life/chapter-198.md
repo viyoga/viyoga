@@ -112,23 +112,3 @@ They had enough food and water and it was so much that it could last for two to 
 A few hours passed as they marched in the North direction. They were still in the same jungle they previously were but far away from the place they had their lunch.
 
 The four heard some strange footsteps as they were marching forward and hearing them, they halted, separated from each other, and hid. They didn’t hide too far away and were still close to each other and quietly and patiently waited to see who or what it was that was closing in on them and making strange footstep noises.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

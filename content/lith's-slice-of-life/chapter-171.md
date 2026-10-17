@@ -74,13 +74,3 @@ He had no idea who he was or what batch he was in, since there were too many stu
 Lucas, the black-haired, black-eyed teen, lay back in his chair and crossed his legs. He looked at Eric with indifference, as if he was a mere peasant, and said,
 
 “It doesn’t matter who I am. What matters is why I am here.”
-
-…
-
-To support me and have character illustrations, donate here:
-
-patreoncom/socialhippo
-
-Paypalme/authorhippo
-
-Discord: https://discordgg/RBhAbVAvnN

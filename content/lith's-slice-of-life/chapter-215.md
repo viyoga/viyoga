@@ -98,23 +98,3 @@ Meanwhile…
 Lith had arrived in a lush green mountain range. Things would become more difficult for him now. He would need to cross these mountains, avoid traps, fight beasts and search for the students in this trial and have them be eliminated.
 
 He took a deep breath before entering the mountain range and then extended his wings out and flew towards the lush green mountains.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

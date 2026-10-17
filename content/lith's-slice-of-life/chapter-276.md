@@ -78,19 +78,3 @@ She tried to bring her mouth close to his ear but since she was blindfolded and 
 Lith didn't mind it but Emilia sure did and felt a bit embarrassed. But she was a powerful and mature angel and didn't show her embarrassment on her face. Her thoughts went into disarray due to this and she thought,
 
 'I probably kissed his face… but that aside, why do I smell of roses from him? And why is the scent so rich and fragrant? No, no, no, Emilia, what are you thinking!? Think of the situation on hand!'
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote and show support to the book if you like it.

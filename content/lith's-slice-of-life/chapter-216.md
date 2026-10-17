@@ -88,23 +88,3 @@ space fluctuated and soon the teen vanished from his spot after getting sucked i
 One down, three more to go.
 
 Lith made a note. He flew along the flowing water and made his way to meet the next participant.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

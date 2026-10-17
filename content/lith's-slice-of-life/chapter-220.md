@@ -90,23 +90,3 @@ Lith walked out of the hall and arrived back in the wooden pavilion. He left the
 …..
 
 A/N: Many thanks to JPt1 for the Magic Castle. I greatly appreciate it. Much love 3
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

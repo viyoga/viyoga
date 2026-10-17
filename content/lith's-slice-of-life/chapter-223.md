@@ -98,23 +98,3 @@ The staff members wondered why they weren’t allowed to leave but didn’t ques
 Emilia looked at the auditorium and finding every student to have left, she said to the staff present,
 
 “Now… Let’s talk about the tournament. More precisely, the rigging of the tournament.”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

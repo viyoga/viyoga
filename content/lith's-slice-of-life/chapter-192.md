@@ -108,21 +108,3 @@ Lith didn’t show any of such emotions on his face, even though he was thinking
 “Hmm, Miss Emilia, can you tell me a bit about the Angel Continent then?” Lith said, trying to make the conversation flow.
 
 Emilia nodded her head and began explaining to him about the Angel Continent.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

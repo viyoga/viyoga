@@ -74,21 +74,3 @@ Replace him or I am pretty sure there will be a meeting for the Supreme Ranks wh
 Darren clicked his tongue in annoyance. “I’ll see what needs to be done. Good bye.” Darren left the courtyard in the next instant.
 
 “I hope you make the right choice.” Alex softly muttered to himself as he looked at ,the spot Darren was at.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote with powerstones and golden tickets, and show support to the book if you like it.

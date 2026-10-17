@@ -122,19 +122,3 @@ She kept quiet and just waited to see what Lilith would do next and what the imp
 .....
 
 A/N: Hi, sorry for the error in the past chapters. It's not Gold Card Holder but Amethyst Card Holder. So sorry, I'll edit and correct it.
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.

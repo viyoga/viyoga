@@ -74,23 +74,3 @@ Lith couldn’t break the circle as it would mean that the connection of the tee
 Lith had to personally go inside it and clear it and this would result in both of them being out of it. He could then send the teen back to the academy by overriding his identity badge with his spiritual power.
 
 Having made a plan on how to save the teen, Lith got to work and started preparing himself to enter the dream world.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

@@ -96,19 +96,3 @@ Lilith chuckled and said, "no need to feel disheartened. With the way they are d
 "Oh?" Lith was amused knowing how his mother gave such an accurate answer. "How do you know, mom?"
 
 Lilith made a smug expression and said, "because I am your mama."
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.

@@ -120,23 +120,3 @@ In the middle of the pavilion, he saw two old men with long white beards in daoi
 One of the two old man turned his head towards where Lith was standing and said with a smile,
 
 “Come here, child. You are the fated one.”
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

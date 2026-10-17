@@ -104,21 +104,3 @@ Arya nodded her head hearing it and got back to have a look at him as he spoke.
 Lith continued, “the state of my dick is like that because my mom cast a [Time Acceleration] spell on it. It caused it to become like how it would be for the adult me. She also cast a [Time Stop] spell on it and stopped it’s aging process. The spell would instantly be gone as soon as my whole body matches my dick’s age.”
 
 Arya was amused and surprised as she heard this. She now got to know that it wasn’t anything serious and sighed in relief. Her concerns were gone and now all that was left was curiosity. Curiosity to know why the revered Vampire Queen did such a thing to her own son.
-
-.
-
-.
-
-.
-
-…..
-
-If you wanna have character illustrations and support me, you can do so via the follow links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pay palme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN

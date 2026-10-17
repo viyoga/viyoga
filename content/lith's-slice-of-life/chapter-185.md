@@ -96,23 +96,3 @@ Across a vast lush and green expanse of mountains, space fluctuated on top of th
 “I should now hurry and concoct the potion as soon as possible. Concocting would take time and so would drinking it and having it absorbed in the body. My whole constitution is going to change after drinking it. I shouldn’t waste time now.” Lucas muttered to himself once again.
 
 He disappeared from the spot and teleported towards the middle of the middle of the mountain. There was a big cave present here, surrounding it were vines and in front of it was the vast jungle. Lucas walked into the cave and readied himself to concoct the potion.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

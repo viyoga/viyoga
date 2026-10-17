@@ -70,25 +70,3 @@ Lith checked the bag and found there to be twenty bronze coins in it. This… wa
 The man knitted his brows as he heard this. He typed in a few things on the keyboard present in front of him and within a few seconds, three burly men arrived to where Lith was.
 
 The man smiled when he saw them arrive. He pointed at Lith and said, “guards, kick this guy out. He’s causing trouble here.”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don’t forget to vote and show support to the book if you like it.

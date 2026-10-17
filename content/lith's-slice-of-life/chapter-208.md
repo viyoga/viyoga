@@ -160,21 +160,3 @@ Emilia, hearing Lith’s question, sighed in helplessness. Was she supposed to t
 Thinking for a few seconds, Emilia got her answer. It was better to tell the truth. There was no harm in doing so and they were her own students. It was okay to do it. She looked at Lith and said seriously,
 
 “Someone has rigged the tournament.”
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

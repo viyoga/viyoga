@@ -158,23 +158,3 @@ Lucas arrived at a spot that had no mist in its surrounding. He was still in the
 Lucas looked around and saw a tree with black leaves, standing out among the other trees that had grey leaves. He walked closer to the tree and reaching it, he simply sat down, taking support of it.
 
 “Phew. Finally, I can see a little. I should rest a bit.”
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

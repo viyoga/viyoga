@@ -106,23 +106,3 @@ Ralph sighed and gave up. He knew Dennis would keep pestering him until he gave 
 Lith and Dennis smiled knowing it and looked at each other and nodded. They dashed towards the cross and when a few centimetres away from the rabbit, they said,
 
 “Aunt, Ralph does drugs!”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

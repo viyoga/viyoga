@@ -126,23 +126,3 @@ Ojas said on his phone-like device, “Sheng, go underground. Ji, stealthily fol
 “Alright. We are on.” Ji replied.
 
 “Let’s go and get our victory, boys!” Ojas said in the device and cut off the connection.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

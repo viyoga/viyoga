@@ -84,23 +84,3 @@ A firakan’s body burst as Dennis willed the water elements around and crushed 
 Dennis clicked his tongue. “Tsk. Stop asking stupid questions, idiot cow. I am now gonna cast some spells and use those elements, even though I don’t want to. Don’t you dare tell anyone about this. I am gonna turn you to a steak if you do that.”
 
 “MOO!?”
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

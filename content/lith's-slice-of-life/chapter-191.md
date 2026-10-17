@@ -110,23 +110,3 @@ All of this seriousness and build up was for such a thing? Ralph felt his valuab
 This was Dennis’s plan. He wanted to battle but asking Ralph to do it would just mean him getting rejected. Ralph always did the school homework at this time of the day and he knew he wouldn’t agree to such a thing. Thus he resorted to pulling a prank on him.
 
 Lith had a completely different reaction than Ralph. He giggled, noticing Dennis’s prank. He could tell what Dennis was planning and internally commended him for his genius plan. He finished his tea and putting it down, he went over to the arena to join in on the fun together with them.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

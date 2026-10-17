@@ -114,19 +114,3 @@ Alexandra was brought back to reality by Lith's tight slap. She felt clarity ret
 Alexandra sobbed like a little girl again but in the middle of her sobs, she said,
 
 "... Darling… i-it's like this..."
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.

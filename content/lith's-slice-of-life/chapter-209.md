@@ -188,23 +188,3 @@ Fuuuusssshhhhh
 BOOOOOM!
 
 Without waiting to hear any response from them, she shot off to the sky and towards a certain direction, creating beautiful golden streaks of lightning in the sky and a loud sonic boom.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

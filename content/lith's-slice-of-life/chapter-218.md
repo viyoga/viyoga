@@ -64,21 +64,3 @@ Lith’s eyebrows raised in surprise. Not because a weak and frail looking teen 
 Lith, who had plans of helping the kid getting hit, dropped the idea, and now stood as a bystander to see what the teen was upto. His guess was confirmed by the teen. This definitely was the first situation and looking at how the teen was still here, Lith knew that the teen wasn’t able to clear this first situation.
 
 Why was he not able to, that was something Lith wanted to know and was looking forward to.
-
-.
-
-.
-
-.
-
-…
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

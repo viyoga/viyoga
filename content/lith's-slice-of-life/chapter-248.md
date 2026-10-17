@@ -92,25 +92,3 @@ Levesky didn’t bother to answer Utrov and cast a spell on the Magic Core. The 
 Levesky extended his hands out and was about to slash Utrov’s neck but his hand was held by someone and he was stopped. It was a man in his early 30s. The man let go of Levesky’s hand and said,
 
 “Don’t do it, Levesky.”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don’t forget to vote and show support to the book if you like it.

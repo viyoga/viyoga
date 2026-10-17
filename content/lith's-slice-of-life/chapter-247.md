@@ -102,25 +102,3 @@ That was what he wanted to do for so long. He wanted to kill Lith for his insole
 Lith, with the same indifferent tone as before, looked at the Finance Head and said,
 
 “Bark less, bite more, dog.”
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don’t forget to vote and show support to the book if you like it.

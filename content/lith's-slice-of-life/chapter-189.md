@@ -126,23 +126,3 @@ Lith obviously didn’t know that Arya was going through so many things but the 
 Arya stopped giggling after a few seconds and held Lith’s face and kissed him on the lips. Lith’s eyes opened wide in surprise due to such a surprise attack from Arya. But his surprise vanished instantly and he was drowning in happiness due to getting his answer.
 
 He held her face too just like how she did and kissed her back to reciprocate his feelings for her and the teacher and student, sitting in the shower cubicle, started conveying their loving feelings for each other through their actions.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

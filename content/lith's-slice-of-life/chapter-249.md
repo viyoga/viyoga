@@ -138,25 +138,3 @@ A large chunk of these oxes was killed and Ralph and Dennis got the pressure off
 The three grouped up and Dennis asked Lith, “how did it go, Your Highness. What all things did you do in these four hours?”
 
 Lith began explaining all the things that happened while he was in Espat over afternoon tea in the middle of the first level of the Kunlor Forest. Ralph and Dennis rested and listened intently to what he was saying and didn’t interrupt him.
-
-.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don’t forget to vote and show support to the book if you like it.

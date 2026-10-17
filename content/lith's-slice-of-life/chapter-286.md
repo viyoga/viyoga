@@ -92,19 +92,3 @@ Lilith smiled and wanted to pat Lucy but she couldn't.
 Lith cleared his throat and said, "big sis, the rewards aren't less, it's just your sense of money that has become a bit distorted. Anywho, that aside, it's a good mission since I get good experience from it."
 
 Lucy knitted her brows as she heard Lith's reply. She thought to herself, 'is it really the case? But any assassination of a Rank 9 should at least be a hundred amethyst coins or one low grade magic stone. Why is it just fifty? What's the matter? Something doesn't seem right…'
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.

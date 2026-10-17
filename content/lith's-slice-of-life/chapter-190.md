@@ -84,23 +84,3 @@ Arya once again felt warm in her heart as she heard him say that. She kissed him
 She broke the hug and got back off. She waved at him and Lith too waved back at her with a smile. Arya vanished from her spot, leaving the bathroom with just Lith standing in the middle of it.
 
 Now that she was gone, Lith felt empty. In his heart, it seemed like something was missing. He knew what it was but nothing could be done about it. He sighed and got out of the bathroom to do things and start his day.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

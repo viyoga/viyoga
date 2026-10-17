@@ -78,21 +78,3 @@ Lith nodded his head once again. He was thinking of the same thing as her and he
 Lith nodded his head. So one has to be a demon it seems. No worries, he would give this sword to Ralph and check if it accepts him as the master or not. He had no use for a Grade 5 sword like this much anyway.
 
 Emilia held Lith by his waist once again and opened a portal a few meters away from them. She flew into it while carrying Lith and the Blue Haze World was back to being desolate like how it was previously.
-
-.
-
-.
-
-…..
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

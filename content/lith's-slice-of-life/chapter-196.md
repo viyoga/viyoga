@@ -120,23 +120,3 @@ Lucas stopped in his tracks at a certain distance away from the tree’s bark. H
 There was some kind of black sap oozing out of the root and was getting absorbed in the ground. Noticing this, Lucas smiled and thought to himself,
 
 ‘Good. The trap is laid.’
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

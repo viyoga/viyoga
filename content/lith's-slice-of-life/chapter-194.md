@@ -104,23 +104,3 @@ The monkeys yelled loudly and ran towards Lith as they found him to be an outsid
 Looking at a bunch of monkeys coming toward him, Lith had an indifferent expression and said in a neutral tone:
 
 “I just arrived and now I have to deal with a bunch of monkeys. Wow.”
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

@@ -112,23 +112,3 @@ Dennis could feel that Ralph’s glaring at him had gotten more aggressive than 
 Noticing Dennis’s stupid face, Ralph was angry and almost crushed the plastic cup in which his milkshake was present. He, however, controlled himself at the last second since he didn’t want to waste his valuable chocolate milkshake due to this stupid guy’s provocation.
 
 Lith ignored the two’s banter and hummed a song while happily throwing food at the fish and watching them feed on it.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

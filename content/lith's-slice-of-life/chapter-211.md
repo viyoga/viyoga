@@ -126,23 +126,3 @@ Within a few seconds, the spiritual power got wiped off and Lucas felt space flu
 Looking at the spot Lucas was at, the person who just sent his spiritual power, aka Lith, wondered why it took a bit of time to override the badge of this person.
 
 The thought, however, didn’t last long as he had a lot of work to do and he simply inscribed his next destination into his teleportation token and vanished.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

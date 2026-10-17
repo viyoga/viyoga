@@ -178,23 +178,3 @@ Ralph was given a set of clothes by Lith when they met and were talking with Emi
 Ralph looked at a small girl and a giant teen beside her, standing with their mouths open and staring at him, and quickly flew close to them and gave a chop on their necks, knocking them unconscious.
 
 He then imbued his spiritual power in their identity badges and eliminated them from the tournament and teleported to his next destination.
-
-.
-
-.
-
-.
-
-…
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-Don’t forget to vote and show support to the book if you like it.

@@ -124,19 +124,3 @@ Lilith chuckled and said, "it's nothing much really. You just need to go on a da
 Mayzin nodded. "Oh, I see– Huh!? What!?"
 
 "I need to do what!?"
-
-.....
-
-If you want to support me so that I can pay artists to illustrate the characters in my novel, visit the following links:
-
-Pa treon: Pa treoncom/SocialHippo
-
-Pay Pal: Pa ypalme/authorhippo (@authorhippo)
-
-Discord:
-
-https://discordgg/RBhAbVAvnN
-
-[Temporary link: discordgg/socialhippo]
-
-Don't forget to vote with powerstones and Golden Tickets and show support to the book if you like it.
