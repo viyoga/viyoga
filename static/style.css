@@ -152,6 +152,25 @@ html {
   --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--accent) 42%, #ffffff) 55%, transparent);
   --glass-edge-width: 36%;
   --glass-specular: radial-gradient(140% 120% at 0% 0%, color-mix(in srgb, var(--fg) 7%, transparent) 0%, transparent 55%);
+
+  /* Hover sweep: a white-hot core with long dying tails, symmetric in hue
+     and luminance so the center-out reveal never looks lopsided. */
+  --bar-sweep: linear-gradient(90deg,
+    transparent 0%,
+    color-mix(in srgb, var(--bar-a) 28%, transparent) 18%,
+    var(--bar-a) 40%,
+    color-mix(in srgb, var(--bar-a) 55%, #ffffff) 50%,
+    var(--bar-a) 60%,
+    color-mix(in srgb, var(--bar-a) 28%, transparent) 82%,
+    transparent 100%);
+  --bar-sweep-rev: linear-gradient(90deg,
+    transparent 0%,
+    color-mix(in srgb, var(--bar-c) 28%, transparent) 18%,
+    var(--bar-c) 40%,
+    color-mix(in srgb, var(--bar-c) 55%, #ffffff) 50%,
+    var(--bar-c) 60%,
+    color-mix(in srgb, var(--bar-c) 28%, transparent) 82%,
+    transparent 100%);
 }
 
 /* Iosevka runs small, and Maple and Space Mono match its companions here —
@@ -949,8 +968,8 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   background: var(--glass-bg);
   backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
   -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-  border: 1px solid var(--border);
-  box-shadow: 0 4px 14px rgba(0, 0, 0, 0.35), inset 0 1px 0 var(--glass-hi);
+  border: 1px solid color-mix(in srgb, var(--fg) 16%, transparent);
+  box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
   padding: 6px 14px;
   font-size: var(--text-base);
   font-weight: 800;
@@ -978,8 +997,8 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   background: var(--glass-bg);
   backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
   -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-  border: 1px solid var(--border);
-  box-shadow: 0 4px 12px rgba(0, 0, 0, 0.3), inset 0 1px 0 var(--glass-hi);
+  border: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
+  box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
   padding: 4px 10px;
   text-transform: uppercase;
   letter-spacing: 0.08em;
@@ -1011,7 +1030,7 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   transition: transform 0.2s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, border-color 0.2s ease;
 }
 .novel-card:hover {
-  transform: translateY(-2px) !important;
+  transform: translateY(-1px) !important;
   box-shadow: var(--glass-shadow-hover), var(--glass-bevel-top), var(--glass-bevel-bottom);
   border-color: color-mix(in srgb, var(--accent) 40%, var(--border));
 }
@@ -1025,15 +1044,15 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   left: 0;
   right: 0;
   bottom: 0;
-  height: 3px;
+  height: 2px;
   z-index: 2;
   pointer-events: none;
-  background: linear-gradient(90deg, transparent 0%, var(--bar-a, var(--accent)) 10%, var(--bar-b, var(--accent-soft)) 50%, var(--bar-c, var(--accent-dim)) 90%, transparent 100%);
-  transform: translateX(-101%);
-  transition: transform 0.35s cubic-bezier(0.4, 0, 0.2, 1);
+  background: var(--bar-sweep);
+  clip-path: inset(0 50% 0 50%);
+  transition: clip-path 0.26s cubic-bezier(0.16, 1, 0.3, 1);
 }
 .novel-card:hover::after {
-  transform: translateX(0);
+  clip-path: inset(0 0 0 0);
 }
 .novel-card-top {
   display: flex;
@@ -1089,8 +1108,13 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   margin-top: auto;
 }
 @media (min-width: 641px) {
+  /* Odd card out: sit centered at half width instead of stretching full-bleed,
+     so the two-column rhythm never breaks. */
   .novel-card:last-child:nth-child(odd) {
-    grid-column: span 2;
+    grid-column: 1 / -1;
+    justify-self: center;
+    width: 100%;
+    max-width: calc(50% - 8px);
   }
 }
 @media (max-width: 640px) {
@@ -1160,7 +1184,7 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   color: inherit; text-decoration: none;
 }
 .stack-card:hover {
-  transform: translateY(-2px) !important;
+  transform: translateY(-1px) !important;
   box-shadow: var(--glass-shadow-hover), var(--glass-bevel-top), var(--glass-bevel-bottom);
   border-color: color-mix(in srgb, var(--accent) 40%, var(--border));
 }
@@ -1174,15 +1198,15 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   left: 0;
   right: 0;
   bottom: 0;
-  height: 3px;
+  height: 2px;
   z-index: 2;
   pointer-events: none;
-  background: linear-gradient(90deg, transparent 0%, var(--bar-a, var(--accent)) 10%, var(--bar-b, var(--accent-soft)) 50%, var(--bar-c, var(--accent-dim)) 90%, transparent 100%);
-  transform: translateX(-101%);
-  transition: transform 0.35s cubic-bezier(0.4, 0, 0.2, 1);
+  background: var(--bar-sweep);
+  clip-path: inset(0 50% 0 50%);
+  transition: clip-path 0.26s cubic-bezier(0.16, 1, 0.3, 1);
 }
 .stack-card:hover::after {
-  transform: translateX(0);
+  clip-path: inset(0 0 0 0);
 }
 .stack-card .name { font-size: var(--text-sm); font-weight: 700; color: var(--fg); transition: color 0.15s ease; }
 .stack-top {
@@ -1269,7 +1293,7 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   transition: transform 0.2s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, border-color 0.2s ease;
 }
 .stat-card:hover {
-  transform: translateY(-2px) !important;
+  transform: translateY(-1px) !important;
   box-shadow: var(--glass-shadow-hover), var(--glass-bevel-top), var(--glass-bevel-bottom);
   border-color: color-mix(in srgb, var(--accent) 40%, var(--border));
 }
@@ -1283,15 +1307,15 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   left: 0;
   right: 0;
   bottom: 0;
-  height: 3px;
+  height: 2px;
   z-index: 2;
   pointer-events: none;
-  background: linear-gradient(90deg, transparent 0%, var(--bar-c, var(--accent-dim)) 10%, var(--bar-b, var(--accent-soft)) 50%, var(--bar-a, var(--accent)) 90%, transparent 100%);
-  transform: translateX(-101%);
-  transition: transform 0.35s cubic-bezier(0.4, 0, 0.2, 1);
+  background: var(--bar-sweep-rev);
+  clip-path: inset(0 50% 0 50%);
+  transition: clip-path 0.26s cubic-bezier(0.16, 1, 0.3, 1);
 }
 .stat-card:hover::after {
-  transform: translateX(0);
+  clip-path: inset(0 0 0 0);
 }
 .stat-card .value {
   font-size: var(--text-xl);
@@ -1731,8 +1755,8 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   background: var(--glass-bg);
   backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
   -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-  border: 1px solid var(--border);
-  box-shadow: var(--glass-shadow), inset 0 1px 0 var(--glass-hi);
+  border: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
+  box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
   padding: 16px 18px;
   position: relative;
   overflow: hidden;
@@ -1742,13 +1766,13 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   transition: transform 0.15s ease, box-shadow 0.15s ease;
 }
 .chapter-card:hover, .chapter-grid .grid-item:hover {
-  transform: translateY(-2px) !important;
-  box-shadow: var(--glass-shadow-hover), inset 0 1px 0 var(--glass-hi);
-  border-color: var(--border);
+  transform: translateY(-1px) !important;
+  box-shadow: var(--glass-shadow-hover), var(--glass-bevel-top), var(--glass-bevel-bottom);
+  border-color: color-mix(in srgb, var(--accent) 40%, var(--border));
 }
 .chapter-card:active, .chapter-grid .grid-item:active {
   transform: translateY(0) !important;
-  box-shadow: 0 4px 12px rgba(0, 0, 0, 0.4), inset 0 1px 0 var(--glass-hi);
+  box-shadow: 0 4px 12px rgba(0, 0, 0, 0.4), var(--glass-bevel-top);
 }
 .chapter-card::after, .chapter-grid .grid-item::after {
   content: "";
@@ -1756,13 +1780,15 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   left: 0;
   right: 0;
   bottom: 0;
-  height: 3px;
-  background: linear-gradient(90deg, transparent 0%, var(--bar-a, var(--accent)) 10%, var(--bar-b, var(--accent-soft)) 50%, var(--bar-c, var(--accent-dim)) 90%, transparent 100%);
-  transform: translateX(-101%);
-  transition: transform 0.35s cubic-bezier(0.4, 0, 0.2, 1);
+  height: 2px;
+  z-index: 2;
+  pointer-events: none;
+  background: var(--bar-sweep);
+  clip-path: inset(0 50% 0 50%);
+  transition: clip-path 0.26s cubic-bezier(0.16, 1, 0.3, 1);
 }
 .chapter-card:hover::after, .chapter-grid .grid-item:hover::after {
-  transform: translateX(0);
+  clip-path: inset(0 0 0 0);
 }
 .chapter-card-top {
   display: flex;
@@ -1866,6 +1892,10 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   .stack-grid { grid-template-columns: 1fr; }
   .stats-grid { grid-template-columns: 1fr; }
   .terminal-body { padding: 16px; }
+  /* Let the hero tagline wrap on phones instead of ellipsizing mid-sentence.
+     Keep the flex row intact so `$` stays attached to the first line. */
+  .terminal-body .tagline { align-items: flex-start; font-size: 0.75rem; }
+  .typewriter { white-space: normal; overflow: visible; text-overflow: clip; word-break: keep-all; }
   .type-toolbar { flex-wrap: wrap; row-gap: 6px; }
   .dict-meaning-item { padding: 8px 10px; }
   .dict-word-row { gap: 8px; margin-bottom: 10px; }
@@ -3282,7 +3312,7 @@ html.anim-on .reveal.in {
 
 /* button press feedback (emil-design-eng tactile spring compression) */
 .theme-btn:active {
-  transform: scale(0.92) rotate(15deg);
+  transform: scale(0.94) rotate(6deg);
   box-shadow: 0 0 0 var(--accent);
   transition-duration: 80ms;
 }
@@ -3571,14 +3601,40 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
 /* Touch devices: no sticky hover lift. Feedback comes from :active and the
    finger-following spotlight (see spotlight.js). */
 @media (hover: none) {
-  .terminal:hover, .novel-card:hover, .stack-card:hover, .stat-card:hover {
+  .terminal:hover, .novel-card:hover, .stack-card:hover, .stat-card:hover,
+  .chapter-card:hover, .chapter-grid .grid-item:hover {
     transform: none !important;
     border-color: color-mix(in srgb, var(--fg) 14%, transparent);
     box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
   }
-  .novel-card:hover::after, .stack-card:hover::after, .stat-card:hover::after {
-    transform: translateX(-101%);
+  .novel-card:hover::after, .stack-card:hover::after, .stat-card:hover::after,
+  .chapter-card:hover::after, .chapter-grid .grid-item:hover::after {
+    clip-path: inset(0 50% 0 50%);
   }
+}
+
+/* Keyboard parity: focus reads like hover, so tabbing reveals the same
+   affordance (accent rim + sweep bar) instead of only a browser outline. */
+.novel-card:focus-visible,
+.stack-card:focus-visible,
+.stat-card:focus-visible,
+.chapter-card:focus-visible,
+.chapter-grid .grid-item:focus-visible {
+  border-color: color-mix(in srgb, var(--accent) 55%, rgba(255, 255, 255, 0.3));
+  box-shadow: var(--glass-shadow-hover), var(--glass-bevel-top), var(--glass-bevel-bottom);
+}
+/* Nav chrome keeps its own bevel/shadow; focus only warms the rim. */
+nav.top .logo:focus-visible,
+.nav-links a:focus-visible,
+.theme-btn:focus-visible {
+  border-color: color-mix(in srgb, var(--accent) 50%, rgba(255, 255, 255, 0.3));
+}
+.novel-card:focus-visible::after,
+.stack-card:focus-visible::after,
+.stat-card:focus-visible::after,
+.chapter-card:focus-visible::after,
+.chapter-grid .grid-item:focus-visible::after {
+  clip-path: inset(0 0 0 0);
 }
 
 @property --mx {

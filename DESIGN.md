@@ -91,9 +91,13 @@ box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-botto
 `var(--glass-bevel-bottom)`) provide authentic optical glass thickness.
 
 **Cards** (novel/stack/stat/chapter): lift on hover —
-`transform: translateY(-2px)`, shadow → `--glass-shadow-hover`,
-border-color → accent-tinted. Bottom `::after` accent-bar sweep spans
-10–90 (60:40 color-to-fade).
+`transform: translateY(-1px)`, shadow → `--glass-shadow-hover`,
+border-color → accent-tinted. The bottom `::after` sweep is a 2px caustic
+bar with a white-hot core (`40–60%`) and long, symmetric dying tails
+(`--bar-sweep`), revealed from the center outward
+(`clip-path: inset(0 50% 0 50%)` → `inset(0)`): symmetric surfaces must
+not imply a left-to-right direction. Keyboard focus gets the same rim +
+bar via `:focus-visible`.
 
 **Square Flare Buttons** (`.glass-btn`, `.dict-launch-btn`, `.back-btn`,
 `.novel-start-btn`, `.type-action-btn`, `.compress-btn`, `.theme-btn`):
