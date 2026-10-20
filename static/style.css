@@ -3611,6 +3611,22 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
   .chapter-card:hover::after, .chapter-grid .grid-item:hover::after {
     clip-path: inset(0 50% 0 50%);
   }
+  /* A finger press is the touch equivalent of hover: open the bar from the
+     center while the card is held, then close it on release. Faster than
+     the pointer timing because taps are short. */
+  .novel-card:active::after,
+  .stack-card:active::after,
+  .stat-card:active::after,
+  .chapter-card:active::after,
+  .chapter-grid .grid-item:active::after,
+  .novel-card.touching::after,
+  .stack-card.touching::after,
+  .stat-card.touching::after,
+  .chapter-card.touching::after,
+  .chapter-grid .grid-item.touching::after {
+    clip-path: inset(0 0 0 0);
+    transition-duration: 0.12s;
+  }
 }
 
 /* Keyboard parity: focus reads like hover, so tabbing reveals the same

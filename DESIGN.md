@@ -97,7 +97,9 @@ bar with a white-hot core (`40–60%`) and long, symmetric dying tails
 (`--bar-sweep`), revealed from the center outward
 (`clip-path: inset(0 50% 0 50%)` → `inset(0)`): symmetric surfaces must
 not imply a left-to-right direction. Keyboard focus gets the same rim +
-bar via `:focus-visible`.
+bar via `:focus-visible`. Touch has no hover, so a finger press opens the
+same bar from the center while held (`:active` / `.touching`) and releases
+it on lift — never a sticky hover state.
 
 **Square Flare Buttons** (`.glass-btn`, `.dict-launch-btn`, `.back-btn`,
 `.novel-start-btn`, `.type-action-btn`, `.compress-btn`, `.theme-btn`):
