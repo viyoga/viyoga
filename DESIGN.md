@@ -30,12 +30,19 @@ run desaturated neutral at 25% opacity, other themes use their own
 ### Glass tokens (global, auto-derived — work in every theme)
 
 ```css
---glass-bg:        color-mix(in srgb, var(--bg-panel) 62%, transparent);
+--glass-bg:        linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 36%, transparent) 100%);
+--glass-bg-elev:   linear-gradient(135deg, rgba(255, 255, 255, 0.08) 0%, rgba(255, 255, 255, 0.02) 40%, color-mix(in srgb, var(--bg-panel) 48%, transparent) 100%);
 --glass-bg-strong: color-mix(in srgb, var(--bg-panel) 82%, transparent); /* nav, menus */
 --glass-blur:      16px;
---glass-hi:        color-mix(in srgb, var(--fg) 14%, transparent);       /* top rim light */
---glass-shadow:        0 12px 32px rgba(0, 0, 0, 0.38);
---glass-shadow-hover:  0 18px 48px rgba(0, 0, 0, 0.50);
+--glass-hi:        color-mix(in srgb, var(--fg) 28%, transparent);       /* top rim light */
+--glass-bevel-top: inset 0 1px 0 0 var(--glass-hi);
+--glass-bevel-bottom: inset 0 -1px 0 0 rgba(0, 0, 0, 0.45);
+--glass-shadow:        0 1px 2px rgba(0, 0, 0, 0.4), 0 12px 32px rgba(0, 0, 0, 0.42);
+--glass-shadow-hover:  0 2px 4px rgba(0, 0, 0, 0.45), 0 20px 48px rgba(0, 0, 0, 0.52);
+
+/* Hugging Face Flare Tokens */
+--flare-filament:  linear-gradient(90deg, transparent 0%, color-mix(in srgb, var(--accent) 35%, #ffffff) 50%, transparent 100%);
+--flare-bloom:     color-mix(in srgb, var(--accent) 55%, #ffffff);
 ```
 
 If `backdrop-filter` is unsupported, `@supports not` falls every glass
@@ -77,21 +84,27 @@ code-block, dict-result, theme-menu, dict-meaning-item):
 background: var(--glass-bg);
 backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
 -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-border: 1px solid var(--border);
-box-shadow: var(--glass-shadow), inset 0 1px 0 var(--glass-hi);
+border: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
+box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
 ```
-`--glass-hi` is fg at 20% (top rim-light); `--glass-shadow(-hover)` layers
-a contact shadow under the lift shadow.
+`--glass-hi` is fg at 28% (top rim-light); dual bevels (`var(--glass-bevel-top)`,
+`var(--glass-bevel-bottom)`) provide authentic optical glass thickness.
 
 **Cards** (novel/stack/stat/chapter): lift on hover —
 `transform: translateY(-2px)`, shadow → `--glass-shadow-hover`,
 border-color → accent-tinted. Bottom `::after` accent-bar sweep spans
 10–90 (60:40 color-to-fade).
 
-**Buttons / nav links** (controls, press affordance kept):
-hover `translate(1px,1px)` + accent border; active `translate(3px,3px)`
-with shadow collapsing to `0`. Small elements (tags, dots, badges) keep
-their 1px micro-shadows.
+**Square Flare Buttons** (`.glass-btn`, `.dict-launch-btn`, `.back-btn`,
+`.novel-start-btn`, `.type-action-btn`, `.compress-btn`, `.theme-btn`):
+Strict square geometry (`border-radius: 0`). Reverse-engineered Hugging Face
+optical physics:
+- Surface: subtle horizontal specular wash `linear-gradient(90deg, transparent 0%, rgba(255,255,255,0.06) 50%, transparent 100%)`.
+- Top: crisp specular bevel highlight (`var(--glass-bevel-top)`).
+- Bottom edge flare filament (`::after`): 1px razor caustic light line `var(--flare-filament)`, expanding from 50% to 82% width on hover.
+- Bottom ambient bloom (`::before`): Gaussian blur glow `var(--flare-bloom)`, expanding on hover and active.
+- Micro-interaction: responsive `scale(0.97)` on click/tap with spring confirmation.
+- Mobile: visible resting caustic flare filament (62%) and touch-active bloom.
 
 **Cursor spotlight** (`static/js/spotlight.js`): any element with `.spot`
 gets `--mx`/`--my` (px, relative to the element, typed via `@property` so
