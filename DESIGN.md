@@ -106,6 +106,19 @@ optical physics:
 - Micro-interaction: responsive `scale(0.97)` on click/tap with spring confirmation.
 - Mobile: visible resting caustic flare filament (62%) and touch-active bloom.
 
+**Large surfaces are edge-lit, not bloomed** (`.terminal`, `.novel-card`,
+`.stack-card`, `.stat-card`, `.chapter-card`, `.chapter-body`, `.dict-result`,
+`.playlist`, `.code-block`, `.section-heading`, `.section-badge`): a bloom
+under a 700px panel reads as a glowing floor, so the same caustic language is
+scaled down and applied as *background layers* (never pseudo-elements, which
+are reserved for `.spot::before` and the card sweep bars):
+- Top-left specular: `radial-gradient(140% 120% at 0% 0%, fg 7%, transparent 55%)`.
+- Bottom caustic filament: 1px `--glass-edge-line` (accent 42% + white, 55% alpha), `36%` wide, centered on the bottom edge.
+
+Both are visible at rest, so mobile gets the gloss without hover. On mobile
+(≤768px) the filament widens to `46%` and brightens, and panel blur drops to
+10px to keep scrolling cheap.
+
 **Cursor spotlight** (`static/js/spotlight.js`): any element with `.spot`
 gets `--mx`/`--my` (px, relative to the element, typed via `@property` so
 the glow glides) on pointermove; its `::before` overlay paints a static

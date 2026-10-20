@@ -145,6 +145,13 @@ html {
   /* Hugging Face Flare Tokens */
   --flare-filament: linear-gradient(90deg, transparent 0%, color-mix(in srgb, var(--accent) 35%, #ffffff) 50%, transparent 100%);
   --flare-bloom: color-mix(in srgb, var(--accent) 55%, #ffffff);
+
+  /* Large-surface edge lighting: the same caustic language as the button
+     flares, scaled for panels. Applied as background layers so it never
+     collides with ::before (spotlight) or ::after (sweep bars). */
+  --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--accent) 42%, #ffffff) 55%, transparent);
+  --glass-edge-width: 36%;
+  --glass-specular: radial-gradient(140% 120% at 0% 0%, color-mix(in srgb, var(--fg) 7%, transparent) 0%, transparent 55%);
 }
 
 /* Iosevka runs small, and Maple and Space Mono match its companions here —
@@ -503,6 +510,45 @@ nav.top .logo {
   gap: 8px;
   text-shadow: 1px 1px 0 var(--border);
   transition: transform 0.16s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, border-color 0.2s ease, color 0.15s ease;
+}
+.logo-mark {
+  width: 20px;
+  height: 20px;
+  display: inline-block;
+  object-fit: contain;
+  flex-shrink: 0;
+  filter: drop-shadow(1px 1px 0 rgba(0, 0, 0, 0.6));
+}
+/* ── Site logo: pixel kitty (ported from abeyant newtab) ──
+   Chunky pixel shapes drawn with clip-path; colors resolve through theme
+   vars so the cat recolors on every theme switch. Scaled into the 20px slot. */
+.site-cat { overflow: hidden; position: relative; }
+.site-cat .cat-logo { position: relative; display: block; width: 182px; height: 166px; transform: scale(0.11); transform-origin: top left; }
+.site-cat .cat-logo i { position: absolute; display: block; }
+.site-cat .cat-tail { z-index: 1; left: 126px; top: 48px; width: 48px; height: 101px; background: var(--cat-dark); clip-path: polygon(35% 0, 100% 0, 100% 75%, 83% 75%, 83% 100%, 0 100%, 0 76%, 50% 76%, 50% 25%, 35% 25%); }
+.site-cat .cat-body { z-index: 2; left: 69px; top: 86px; width: 83px; height: 63px; background: var(--cat-mid); clip-path: polygon(0 18%, 16% 18%, 16% 0, 66% 0, 66% 12%, 84% 12%, 84% 31%, 100% 31%, 100% 100%, 0 100%); }
+.site-cat .cat-paw { z-index: 5; top: 135px; width: 26px; height: 14px; background: var(--cat-light); }
+.site-cat .cat-paw-one { left: 55px; }
+.site-cat .cat-paw-two { left: 108px; }
+.site-cat .cat-paw::after { content: ""; position: absolute; left: 6px; bottom: 3px; width: 3px; height: 3px; background: var(--cyan-deep); box-shadow: 7px 0 0 var(--cyan-deep), 14px 0 0 var(--cyan-deep); }
+.site-cat .cat-head { z-index: 6; left: 25px; top: 57px; width: 74px; height: 70px; background: var(--cat-base); clip-path: polygon(0 17%, 14% 17%, 14% 0, 31% 16%, 68% 16%, 85% 0, 85% 17%, 100% 17%, 100% 100%, 0 100%); }
+.site-cat .cat-ear { z-index: 7; top: 38px; width: 28px; height: 31px; background: var(--cat-light); }
+.site-cat .cat-ear-left { left: 28px; clip-path: polygon(0 100%, 0 0, 100% 100%); }
+.site-cat .cat-ear-right { left: 70px; clip-path: polygon(0 100%, 100% 0, 100% 100%); }
+.site-cat .cat-ear::after { content: ""; position: absolute; bottom: 0; left: 8px; width: 12px; height: 16px; background: var(--cyan-deep); clip-path: polygon(0 100%, 0 0, 100% 100%); }
+.site-cat .cat-ear-right::after { clip-path: polygon(0 100%, 100% 0, 100% 100%); }
+.site-cat .cat-face { z-index: 9; left: 39px; top: 86px; width: 16px; height: 4px; background: var(--bg); box-shadow: 29px 0 0 var(--bg); }
+.site-cat .cat-nose { z-index: 10; left: 60px; top: 98px; width: 8px; height: 6px; background: var(--cat-dark); clip-path: polygon(0 0, 100% 0, 50% 100%); }
+.site-cat .cat-whiskers { z-index: 9; left: 24px; top: 105px; width: 27px; height: 2px; background: var(--cat-light); box-shadow: 0 7px 0 var(--cat-light); }
+.site-cat .cat-whiskers::after { content: ""; position: absolute; left: 49px; top: 0; width: 27px; height: 2px; background: var(--cat-light); box-shadow: 0 7px 0 var(--cat-light); }
+.logo-text {
+  display: inline-flex;
+  align-items: center;
+}
+.logo-sym {
+  color: var(--accent);
+  margin-right: 4px;
+  font-weight: 800;
 }
 nav.top .logo > *,
 .nav-links a > * {
@@ -962,10 +1008,9 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   overflow: hidden;
   color: inherit;
   text-decoration: none;
-  transition: transform 0.2s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, border-color 0.2s ease, background 0.2s ease;
+  transition: transform 0.2s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, border-color 0.2s ease;
 }
 .novel-card:hover {
-  background: var(--glass-bg);
   transform: translateY(-2px) !important;
   box-shadow: var(--glass-shadow-hover), var(--glass-bevel-top), var(--glass-bevel-bottom);
   border-color: color-mix(in srgb, var(--accent) 40%, var(--border));
@@ -973,6 +1018,22 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
 .novel-card:active {
   transform: translateY(0) !important;
   box-shadow: 0 4px 12px rgba(0, 0, 0, 0.4), var(--glass-bevel-top);
+}
+.novel-card::after {
+  content: "";
+  position: absolute;
+  left: 0;
+  right: 0;
+  bottom: 0;
+  height: 3px;
+  z-index: 2;
+  pointer-events: none;
+  background: linear-gradient(90deg, transparent 0%, var(--bar-a, var(--accent)) 10%, var(--bar-b, var(--accent-soft)) 50%, var(--bar-c, var(--accent-dim)) 90%, transparent 100%);
+  transform: translateX(-101%);
+  transition: transform 0.35s cubic-bezier(0.4, 0, 0.2, 1);
+}
+.novel-card:hover::after {
+  transform: translateX(0);
 }
 .novel-card-top {
   display: flex;
@@ -1095,11 +1156,10 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   padding: 16px;
   position: relative;
   overflow: hidden;
-  transition: transform 0.2s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, border-color 0.2s ease, background 0.2s ease;
+  transition: transform 0.2s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, border-color 0.2s ease;
   color: inherit; text-decoration: none;
 }
 .stack-card:hover {
-  background: var(--glass-bg);
   transform: translateY(-2px) !important;
   box-shadow: var(--glass-shadow-hover), var(--glass-bevel-top), var(--glass-bevel-bottom);
   border-color: color-mix(in srgb, var(--accent) 40%, var(--border));
@@ -1107,6 +1167,22 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
 .stack-card:active {
   transform: translateY(0) !important;
   box-shadow: 0 4px 12px rgba(0, 0, 0, 0.4), var(--glass-bevel-top);
+}
+.stack-card::after {
+  content: "";
+  position: absolute;
+  left: 0;
+  right: 0;
+  bottom: 0;
+  height: 3px;
+  z-index: 2;
+  pointer-events: none;
+  background: linear-gradient(90deg, transparent 0%, var(--bar-a, var(--accent)) 10%, var(--bar-b, var(--accent-soft)) 50%, var(--bar-c, var(--accent-dim)) 90%, transparent 100%);
+  transform: translateX(-101%);
+  transition: transform 0.35s cubic-bezier(0.4, 0, 0.2, 1);
+}
+.stack-card:hover::after {
+  transform: translateX(0);
 }
 .stack-card .name { font-size: var(--text-sm); font-weight: 700; color: var(--fg); transition: color 0.15s ease; }
 .stack-top {
@@ -1190,10 +1266,9 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   padding: 16px;
   text-align: center;
   position: relative; overflow: hidden;
-  transition: transform 0.2s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, background 0.2s ease, border-color 0.2s ease;
+  transition: transform 0.2s cubic-bezier(0.16, 1, 0.3, 1), box-shadow 0.2s ease, border-color 0.2s ease;
 }
 .stat-card:hover {
-  background: var(--glass-bg);
   transform: translateY(-2px) !important;
   box-shadow: var(--glass-shadow-hover), var(--glass-bevel-top), var(--glass-bevel-bottom);
   border-color: color-mix(in srgb, var(--accent) 40%, var(--border));
@@ -1201,6 +1276,22 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
 .stat-card:active {
   transform: translateY(0) !important;
   box-shadow: 0 4px 12px rgba(0, 0, 0, 0.4), var(--glass-bevel-top);
+}
+.stat-card::after {
+  content: "";
+  position: absolute;
+  left: 0;
+  right: 0;
+  bottom: 0;
+  height: 3px;
+  z-index: 2;
+  pointer-events: none;
+  background: linear-gradient(90deg, transparent 0%, var(--bar-c, var(--accent-dim)) 10%, var(--bar-b, var(--accent-soft)) 50%, var(--bar-a, var(--accent)) 90%, transparent 100%);
+  transform: translateX(-101%);
+  transition: transform 0.35s cubic-bezier(0.4, 0, 0.2, 1);
+}
+.stat-card:hover::after {
+  transform: translateX(0);
 }
 .stat-card .value {
   font-size: var(--text-xl);
@@ -1648,10 +1739,9 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   color: inherit;
   text-decoration: none;
   min-height: 86px;
-  transition: transform 0.15s ease, box-shadow 0.15s ease, background 0.15s ease;
+  transition: transform 0.15s ease, box-shadow 0.15s ease;
 }
 .chapter-card:hover, .chapter-grid .grid-item:hover {
-  background: var(--glass-bg);
   transform: translateY(-2px) !important;
   box-shadow: var(--glass-shadow-hover), inset 0 1px 0 var(--glass-hi);
   border-color: var(--border);
@@ -1719,12 +1809,23 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
 /* ── Mobile nav ── */
 /* ── Responsive ── */
 @media (max-width: 768px) {
-  /* Mobile glass-up: theme-adaptive optical highlights + prominent resting flare */
+  /* Mobile glass-up: theme-adaptive optical highlights + prominent resting flare.
+     Blur is reduced to 10px (13 blurred panels scrolling is the real cost on a
+     phone); opacity is raised to compensate so the glass still reads. */
   .terminal, .novel-card, .stack-card, .stat-card, .chapter-card,
   .section-badge, .playlist, .code-block, .dict-result {
+    --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--accent) 46%, #ffffff) 72%, transparent);
     border-color: color-mix(in srgb, var(--fg) 18%, transparent);
     box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
-    background-image: linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 30%, color-mix(in srgb, var(--bg-panel) 42%, transparent) 100%);
+    backdrop-filter: blur(10px) saturate(var(--sat, 155%));
+    -webkit-backdrop-filter: blur(10px) saturate(var(--sat, 155%));
+    background-image:
+      var(--glass-specular),
+      linear-gradient(90deg, transparent 0%, var(--glass-edge-line) 50%, transparent 100%),
+      linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 30%, color-mix(in srgb, var(--bg-panel) 50%, transparent) 100%);
+    background-size: 100% 100%, 46% 1px, 100% 100%;
+    background-position: 0 0, center bottom, 0 0;
+    background-repeat: no-repeat, no-repeat, no-repeat;
   }
 
   /* On mobile touch devices, flare filament and bloom are clearly visible at rest */
@@ -3442,6 +3543,44 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
   color: var(--accent);
 }
 
+/* ── Edge-lit glass for large surfaces ──
+   Small controls get a bloom because they are small; a bloom under a 700px
+   panel reads as a glowing floor. Large surfaces are lit at the edges instead:
+   a faint top-left specular (light source) and a scaled bottom caustic
+   filament (same accent physics as the button flares). Both are background
+   layers — never pseudo-elements — so .spot::before (spotlight) and
+   ::after (sweep bars) stay free. Visible at rest, so mobile gets the gloss
+   without needing hover. */
+.terminal, .novel-card, .stack-card, .stat-card, .chapter-card,
+.chapter-grid .grid-item, .chapter-body, .dict-result, .playlist, .code-block,
+.section-heading, .section-badge {
+  background-image:
+    var(--glass-specular),
+    linear-gradient(90deg, transparent 0%, var(--glass-edge-line) 50%, transparent 100%),
+    var(--glass-bg);
+  background-size: 100% 100%, var(--glass-edge-width) 1px, 100% 100%;
+  background-position: 0 0, center bottom, 0 0;
+  background-repeat: no-repeat, no-repeat, no-repeat;
+}
+
+/* Reading pages intentionally drop the frosted panel on mobile. */
+@media (max-width: 768px) {
+  .chapter-body { background-image: none; }
+}
+
+/* Touch devices: no sticky hover lift. Feedback comes from :active and the
+   finger-following spotlight (see spotlight.js). */
+@media (hover: none) {
+  .terminal:hover, .novel-card:hover, .stack-card:hover, .stat-card:hover {
+    transform: none !important;
+    border-color: color-mix(in srgb, var(--fg) 14%, transparent);
+    box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
+  }
+  .novel-card:hover::after, .stack-card:hover::after, .stat-card:hover::after {
+    transform: translateX(-101%);
+  }
+}
+
 @property --mx {
   syntax: "<length>";
   inherits: true;
@@ -3458,6 +3597,8 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
    Static sheen + cursor glow live on one overlay; skipped entirely under
    prefers-reduced-motion (see spotlight.js). */
 .spot { position: relative; }
+/* Keep panel content above the sheen/glow overlay. */
+.spot > * { position: relative; z-index: 1; }
 .spot::before {
   content: ""; position: absolute; inset: 0; z-index: 0; pointer-events: none;
   border-radius: inherit;
@@ -3467,7 +3608,8 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
   opacity: 0.5; transition: opacity 0.25s ease, background-position 0.7s ease;
   background-position: 0% 0%, 0 0;
 }
-.spot:hover::before {
+.spot:hover::before,
+.spot.touching::before {
   opacity: 1;
   background-position: 100% 0%, 0 0;
 }

@@ -11,11 +11,24 @@
 
   function attach(el) {
     el.classList.add('spot');
-    el.addEventListener('pointermove', (e) => {
+
+    function track(e) {
       const r = el.getBoundingClientRect();
       el.style.setProperty('--mx', (e.clientX - r.left) + 'px');
       el.style.setProperty('--my', (e.clientY - r.top) + 'px');
+    }
+
+    el.addEventListener('pointermove', track);
+    // Touch has no hover: light the panel under the finger and hold it while
+    // pressed (`.touching` forces the overlay to full opacity).
+    el.addEventListener('pointerdown', (e) => {
+      track(e);
+      el.classList.add('touching');
     });
+    const release = () => el.classList.remove('touching');
+    el.addEventListener('pointerup', release);
+    el.addEventListener('pointercancel', release);
+    el.addEventListener('pointerleave', release);
   }
 
   document.querySelectorAll(SEL).forEach(attach);
