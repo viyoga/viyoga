@@ -139,11 +139,14 @@ html.lenis, html.lenis body { height: auto; }
    the animated grid with authentic optical glass refraction, rim bevels,
    and Hugging Face-style caustic edge flares. ── */
 :root {
-  --glass-bg: linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 36%, transparent) 100%);
+  /* Craft-derived glass: 12px blur over a ~60% panel fill. The fill is a
+     background-color layer under the sheen gradient, so every surface that
+     uses --glass-bg picks it up. */
+  --glass-bg: linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 36%, transparent) 100%), color-mix(in srgb, var(--bg-panel) 58%, transparent);
   --glass-bg-subtle: color-mix(in srgb, var(--bg-panel) 24%, transparent);
   --glass-bg-elev: linear-gradient(135deg, rgba(255, 255, 255, 0.08) 0%, rgba(255, 255, 255, 0.02) 40%, color-mix(in srgb, var(--bg-panel) 48%, transparent) 100%);
   --glass-bg-strong: color-mix(in srgb, var(--bg-panel) 82%, transparent);
-  --glass-blur: var(--blur, 16px);
+  --glass-blur: 12px;
   --glass-hi: color-mix(in srgb, var(--fg) 28%, transparent);
   --glass-bevel-top: inset 0 1px 0 0 var(--glass-hi);
   --glass-bevel-ring: inset 0 0 0 1px color-mix(in srgb, var(--fg) 9%, transparent);
@@ -510,9 +513,11 @@ nav.top {
   max-width: 100%;
   box-sizing: border-box;
   padding: 6px 24px;
-  background: color-mix(in srgb, var(--bg-panel) 88%, transparent);
-  backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-  -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
+  background: color-mix(in srgb, var(--bg-panel) 94%, transparent);
+  /* The top bar keeps more opacity and a tighter blur than the panels, so
+     scrolling content smears underneath without turning the bar to mush. */
+  backdrop-filter: blur(8px) saturate(var(--sat, 155%));
+  -webkit-backdrop-filter: blur(8px) saturate(var(--sat, 155%));
   border-bottom: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
   box-shadow: 0 8px 30px rgba(0, 0, 0, 0.4), inset 0 -1px 0 rgba(255, 255, 255, 0.06);
   display: flex; justify-content: space-between; align-items: center;
@@ -3303,23 +3308,40 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
 
 /* Reveal on scroll: Retro 3D Mechanical Stamp / Pop
    (gated on html.anim-on, set by anim.js — pre-JS paint stays fully bright) */
+/* Sections resolve out of a blur instead of sliding in: the content is
+   already in place, it just comes into focus. Filter is dropped at the end
+   (the .in state has filter: none) so descendant backdrop-filter surfaces
+   keep sampling the real page after the animation. */
 html.anim-on .reveal {
+  --reveal-blur: 14px;
   opacity: 0.15;
-  transform: translateY(14px) scale(0.985);
-  transition: opacity 0.3s ease, transform 0.42s cubic-bezier(0.34, 1.35, 0.64, 1);
-  transition-delay: var(--delay, 0ms);
+  filter: blur(var(--reveal-blur));
+  transform: translateY(10px) scale(0.995);
 }
 
 html.anim-on .reveal.in {
   opacity: 1;
-  transform: translateY(0) scale(1);
+  filter: none;
+  transform: none;
+  animation: reveal-clear 0.72s var(--ease-smooth) backwards;
+  animation-delay: var(--delay, 0ms);
+}
+
+@keyframes reveal-clear {
+  from {
+    opacity: 0.15;
+    filter: blur(var(--reveal-blur));
+    transform: translateY(10px) scale(0.995);
+  }
+  to {
+    opacity: 1;
+    filter: blur(0);
+    transform: none;
+  }
 }
 
 @media (max-width: 480px) {
-  html.anim-on .reveal {
-    transform: translateY(8px) scale(0.99);
-    transition-duration: 0.32s;
-  }
+  html.anim-on .reveal { --reveal-blur: 10px; }
 }
 
 /* button press feedback (emil-design-eng tactile spring compression) */
@@ -3364,7 +3386,7 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
     transition-duration: 0.01ms !important;
     scroll-behavior: auto !important;
   }
-  html.anim-on .reveal { opacity: 1; transform: none; }
+  html.anim-on .reveal { opacity: 1; transform: none; filter: none; }
 }
 
 /* ── WTC tool (wallpaper theme converter) ── */
@@ -3640,6 +3662,98 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
     transition-duration: 0.12s;
   }
 }
+
+/* ── Section index rail (right edge, wide screens only) ──
+   A terminal-style lineup of the page's sections: number, name, rule.
+   The current section carries the accent, past sections a dim filament,
+   and a hairline progress bar tracks the whole document. */
+.section-rail {
+  position: fixed;
+  right: 24px;
+  top: 50%;
+  z-index: 900;
+  width: 172px;
+  padding: 12px 12px 10px;
+  background: var(--glass-bg);
+  backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
+  -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
+  border: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
+  box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
+  transform: translateY(-50%);
+  animation: rail-in 0.45s var(--ease-smooth) 0.25s both;
+  display: none;
+}
+@media (min-width: 1500px) { .section-rail { display: block; } }
+@keyframes rail-in {
+  from { opacity: 0; transform: translateY(-50%) translateX(8px); }
+  to   { opacity: 1; transform: translateY(-50%) translateX(0); }
+}
+.rail-head {
+  display: flex; align-items: center; gap: 4px;
+  padding-bottom: 8px; margin-bottom: 6px;
+  border-bottom: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
+  font-size: 10px; font-weight: 700; letter-spacing: 0.16em;
+  text-transform: uppercase; color: var(--fg-muted);
+}
+.rail-sym { color: var(--accent); letter-spacing: 0; }
+.rail-list { display: flex; flex-direction: column; }
+.rail-item {
+  display: grid;
+  grid-template-columns: 18px auto 1fr;
+  align-items: center;
+  gap: 7px;
+  padding: 4px 0;
+  border: 0;
+  background: none;
+  font-family: var(--font-mono);
+  font-size: 10px;
+  letter-spacing: 0.1em;
+  text-transform: uppercase;
+  color: var(--fg-dim);
+  text-align: left;
+  cursor: pointer;
+  transition: color 0.15s ease;
+}
+.rail-num { color: var(--fg-muted); font-variant-numeric: tabular-nums; }
+.rail-name { overflow: hidden; text-overflow: ellipsis; white-space: nowrap; }
+.rail-rule {
+  height: 1px; width: 100%;
+  background: color-mix(in srgb, var(--fg) 16%, transparent);
+  transition: background 0.18s ease, box-shadow 0.18s ease;
+}
+.rail-item:hover { color: var(--fg); }
+.rail-item:hover .rail-rule { background: color-mix(in srgb, var(--accent) 45%, transparent); }
+.rail-item.is-past .rail-rule { background: color-mix(in srgb, var(--accent) 32%, transparent); }
+.rail-item[aria-current="true"] { color: var(--accent); }
+.rail-item[aria-current="true"] .rail-num { color: var(--accent); }
+.rail-item[aria-current="true"] .rail-rule {
+  background: var(--accent);
+  box-shadow: 0 0 6px color-mix(in srgb, var(--accent) 55%, transparent);
+}
+.rail-item:focus-visible {
+  outline: 2px solid var(--focus-ring);
+  outline-offset: 2px;
+}
+.rail-foot {
+  display: flex; align-items: center; gap: 4px;
+  margin-top: 8px; padding-top: 6px;
+  border-top: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
+  font-size: 9px; letter-spacing: 0.12em; color: var(--fg-muted);
+  font-variant-numeric: tabular-nums;
+}
+.rail-sep { color: color-mix(in srgb, var(--fg) 30%, transparent); }
+.rail-progress {
+  position: relative;
+  flex: 1; height: 1px; margin-left: 4px;
+  background: color-mix(in srgb, var(--fg) 14%, transparent);
+}
+.rail-progress i {
+  position: absolute; inset: 0;
+  background: var(--accent);
+  transform: scaleX(0);
+  transform-origin: 0 50%;
+}
+@media print { .section-rail { display: none; } }
 
 /* Keyboard parity: focus reads like hover, so tabbing reveals the same
    affordance (accent rim + sweep bar) instead of only a browser outline. */
