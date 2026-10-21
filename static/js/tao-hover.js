@@ -37,18 +37,6 @@
       glow: '#E2B8FF',
       border: 'rgba(10, 7, 18, 0.9)'
     },
-    'gruvbox-material': {
-      accent: '#a9b665',
-      accent2: '#d8a657',
-      glow: '#fabd2f',
-      border: 'rgba(40, 40, 40, 0.9)'
-    },
-    'gruvbox': {
-      accent: '#a9b665',
-      accent2: '#d8a657',
-      glow: '#fabd2f',
-      border: 'rgba(40, 40, 40, 0.9)'
-    },
     'safelight': {
       accent: '#FF4D6A',
       accent2: '#C9285C',
@@ -60,12 +48,6 @@
       accent2: '#9FB0C4',
       glow: '#FFFFFF',
       border: 'rgba(10, 10, 12, 0.9)'
-    },
-    'coraline': {
-      accent: '#F58F7C',
-      accent2: '#F2C4CE',
-      glow: '#F2C4CE',
-      border: 'rgba(44, 43, 48, 0.9)'
     },
     'nyctophobia': {
       accent: '#EA5562',
