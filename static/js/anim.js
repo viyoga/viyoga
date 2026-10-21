@@ -11,7 +11,8 @@
   function updateBar() {
     var st = window.pageYOffset || doc.documentElement.scrollTop || 0;
     var sh = doc.documentElement.scrollHeight - doc.documentElement.clientHeight;
-    if (bar) bar.style.width = (sh > 0 ? (st / sh) * 100 : 0) + '%';
+    // scaleX keeps the bar on the compositor (no layout/paint per scroll).
+    if (bar) bar.style.transform = 'scaleX(' + (sh > 0 ? st / sh : 0) + ')';
   }
   if (bar) {
     window.addEventListener('scroll', updateBar, { passive: true });

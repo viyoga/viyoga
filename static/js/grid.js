@@ -188,6 +188,13 @@
   }
 
   function tick() {
+    // The canvas is fixed and does not move with the page, so freezing it
+    // during scroll is invisible but frees the entire frame budget for the
+    // compositor. It resumes (catching up its phase) 140ms after scroll ends.
+    if (document.documentElement.classList.contains('is-scrolling')) {
+      requestAnimationFrame(tick);
+      return;
+    }
     const now = performance.now();
     for (let i = 0; i < pts.length; i++) {
       const p = pts[i];
