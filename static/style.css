@@ -3632,8 +3632,15 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
   .chapter-body { background-image: none; }
 }
 
+/* Touch devices: no cursor spotlight. There is no pointer to follow, so the
+   overlay would sit as a static centered glow on every panel — and flash
+   under a finger on tap. Remove it entirely. */
+@media (hover: none), (pointer: coarse) {
+  .spot::before { display: none; }
+}
+
 /* Touch devices: no sticky hover lift. Feedback comes from :active and the
-   finger-following spotlight (see spotlight.js). */
+   press-open sweep bar. */
 @media (hover: none) {
   .terminal:hover, .novel-card:hover, .stack-card:hover, .stat-card:hover,
   .chapter-card:hover, .chapter-grid .grid-item:hover {
@@ -3702,8 +3709,8 @@ nav.top .logo:focus-visible,
 /* ── Cursor spotlight: glossy boxes get a cursor-following highlight ──
    Typed --mx/--my glide smoothly (Chromium/Firefox); elsewhere they snap.
    spotlight.js sets --mx/--my (px, element-relative) on .spot elements.
-   Static sheen + cursor glow live on one overlay; skipped entirely under
-   prefers-reduced-motion (see spotlight.js). */
+   Static sheen + cursor glow live on one overlay; hidden on touch and
+   skipped entirely under prefers-reduced-motion (see spotlight.js). */
 .spot { position: relative; }
 /* Keep panel content above the sheen/glow overlay. */
 .spot > * { position: relative; z-index: 1; }

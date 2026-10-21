@@ -219,7 +219,12 @@
     requestAnimationFrame(tick);
   }
 
-  document.addEventListener('mousemove', (e) => {
+  // Cursor bloom + dot push follow a fine pointer only. On touch there is no
+  // cursor to track; a tap would otherwise leave a glow parked where the
+  // finger landed. The grid keeps its idle animation either way.
+  const finePointer = !(window.matchMedia &&
+    window.matchMedia('(hover: none), (pointer: coarse)').matches);
+  if (finePointer) document.addEventListener('mousemove', (e) => {
     const nx = e.clientX, ny = e.clientY;
     const step = 8;
     const dx = nx - lmx;

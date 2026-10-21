@@ -4,8 +4,11 @@
   // Cursor spotlight for glossy boxes (see .spot in style.css).
   // Tracks the pointer per card and exposes it as --mx/--my; the ::before
   // overlay renders a static sheen plus a cursor-following accent glow.
-  // Skipped entirely under prefers-reduced-motion.
-  if (window.matchMedia && window.matchMedia('(prefers-reduced-motion: reduce)').matches) return;
+  // Skipped entirely on touch devices (no cursor to follow — the CSS also
+  // hides the overlay) and under prefers-reduced-motion.
+  const mq = window.matchMedia ? window.matchMedia.bind(window) : null;
+  if (mq && mq('(hover: none), (pointer: coarse)').matches) return;
+  if (mq && mq('(prefers-reduced-motion: reduce)').matches) return;
 
   const SEL = '.novel-card,.stack-card,.stat-card,.chapter-card,.grid-item,.terminal,.playlist,.code-block,.dict-result,nav.top,.section-heading,.section-badge,.page-header h2,.chapter-body';
 
