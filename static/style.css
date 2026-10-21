@@ -3663,97 +3663,132 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
   }
 }
 
-/* ── Section index rail (right edge, wide screens only) ──
-   A terminal-style lineup of the page's sections: number, name, rule.
-   The current section carries the accent, past sections a dim filament,
-   and a hairline progress bar tracks the whole document. */
-.section-rail {
+/* ── Lineup rail: full-height section index on the right edge ──
+   A tall glass column under the nav, mirroring the reference site's
+   lineup: wordmark on top, numbered section rows, a hairline scroll
+   ruler with per-section ticks, and a small footer. */
+.lineup {
   position: fixed;
-  right: 24px;
-  top: 50%;
+  top: 54px;
+  right: 0;
+  bottom: 0;
+  width: 208px;
   z-index: 900;
-  width: 172px;
-  padding: 12px 12px 10px;
-  background: var(--glass-bg);
+  display: none;
+  flex-direction: column;
+  padding: 20px 18px 16px;
+  background: color-mix(in srgb, var(--bg-panel) 94%, transparent);
   backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
   -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-  border: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
-  box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
-  transform: translateY(-50%);
-  animation: rail-in 0.45s var(--ease-smooth) 0.25s both;
-  display: none;
+  border-left: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
+  box-shadow: -18px 0 44px rgba(0, 0, 0, 0.24);
+  animation: lineup-in 0.5s var(--ease-smooth) 0.2s both;
 }
-@media (min-width: 1500px) { .section-rail { display: block; } }
-@keyframes rail-in {
-  from { opacity: 0; transform: translateY(-50%) translateX(8px); }
-  to   { opacity: 1; transform: translateY(-50%) translateX(0); }
+@media (min-width: 1500px) { .lineup { display: flex; } }
+@media print { .lineup { display: none; } }
+@keyframes lineup-in {
+  from { opacity: 0; transform: translateX(12px); }
+  to   { opacity: 1; transform: translateX(0); }
 }
-.rail-head {
+.lineup-head { flex-shrink: 0; }
+.lineup-kicker {
   display: flex; align-items: center; gap: 4px;
-  padding-bottom: 8px; margin-bottom: 6px;
-  border-bottom: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
-  font-size: 10px; font-weight: 700; letter-spacing: 0.16em;
-  text-transform: uppercase; color: var(--fg-muted);
+  font-size: 10px; letter-spacing: 0.16em; text-transform: uppercase;
+  color: var(--fg-muted);
 }
-.rail-sym { color: var(--accent); letter-spacing: 0; }
-.rail-list { display: flex; flex-direction: column; }
-.rail-item {
+.lineup-sym { color: var(--accent); letter-spacing: 0; }
+.lineup-title {
+  display: block; margin-top: 8px;
+  font-size: 28px; font-weight: 800; line-height: 1;
+  letter-spacing: 0.02em; color: var(--fg);
+  text-shadow: 1px 1px 0 var(--border);
+}
+.lineup-body {
+  position: relative;
+  flex: 1;
+  min-height: 0;
+  padding-right: 18px;
+  display: flex;
+  flex-direction: column;
+  justify-content: center;
+}
+.lineup-list { display: flex; flex-direction: column; gap: 26px; }
+.lineup-item {
+  position: relative;
   display: grid;
-  grid-template-columns: 18px auto 1fr;
-  align-items: center;
-  gap: 7px;
-  padding: 4px 0;
+  grid-template-columns: 22px 1fr;
+  gap: 8px;
+  align-items: baseline;
+  width: 100%;
+  padding: 0;
   border: 0;
   background: none;
   font-family: var(--font-mono);
-  font-size: 10px;
-  letter-spacing: 0.1em;
+  font-size: 11px;
+  letter-spacing: 0.12em;
   text-transform: uppercase;
   color: var(--fg-dim);
   text-align: left;
   cursor: pointer;
-  transition: color 0.15s ease;
+  transition: color 0.16s ease;
 }
-.rail-num { color: var(--fg-muted); font-variant-numeric: tabular-nums; }
-.rail-name { overflow: hidden; text-overflow: ellipsis; white-space: nowrap; }
-.rail-rule {
-  height: 1px; width: 100%;
-  background: color-mix(in srgb, var(--fg) 16%, transparent);
-  transition: background 0.18s ease, box-shadow 0.18s ease;
+/* tick: reaches over to the scroll ruler */
+.lineup-item::after {
+  content: "";
+  position: absolute;
+  top: 50%;
+  right: -22px;
+  width: 10px;
+  height: 1px;
+  background: color-mix(in srgb, var(--fg) 22%, transparent);
+  transition: background 0.16s ease, box-shadow 0.16s ease;
 }
-.rail-item:hover { color: var(--fg); }
-.rail-item:hover .rail-rule { background: color-mix(in srgb, var(--accent) 45%, transparent); }
-.rail-item.is-past .rail-rule { background: color-mix(in srgb, var(--accent) 32%, transparent); }
-.rail-item[aria-current="true"] { color: var(--accent); }
-.rail-item[aria-current="true"] .rail-num { color: var(--accent); }
-.rail-item[aria-current="true"] .rail-rule {
+.lineup-num { color: var(--fg-muted); font-variant-numeric: tabular-nums; }
+.lineup-item:hover { color: var(--fg); }
+.lineup-item:hover::after { background: color-mix(in srgb, var(--accent) 55%, transparent); }
+.lineup-item[aria-current="true"] { color: var(--accent); }
+.lineup-item[aria-current="true"] .lineup-num { color: var(--accent); }
+.lineup-item[aria-current="true"]::after {
   background: var(--accent);
-  box-shadow: 0 0 6px color-mix(in srgb, var(--accent) 55%, transparent);
+  box-shadow: 0 0 7px color-mix(in srgb, var(--accent) 60%, transparent);
 }
-.rail-item:focus-visible {
-  outline: 2px solid var(--focus-ring);
-  outline-offset: 2px;
+.lineup-item.is-past::after { background: color-mix(in srgb, var(--accent) 35%, transparent); }
+.lineup-item:focus-visible { outline: 2px solid var(--focus-ring); outline-offset: 3px; }
+/* vertical scroll ruler */
+.lineup-ruler {
+  position: absolute;
+  top: 0;
+  bottom: 0;
+  right: 0;
+  width: 1px;
+  background: color-mix(in srgb, var(--fg) 12%, transparent);
 }
-.rail-foot {
-  display: flex; align-items: center; gap: 4px;
-  margin-top: 8px; padding-top: 6px;
-  border-top: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
-  font-size: 9px; letter-spacing: 0.12em; color: var(--fg-muted);
+.lineup-ruler i {
+  position: absolute;
+  inset: 0;
+  background: var(--accent);
+  transform: scaleY(0);
+  transform-origin: 50% 0;
+  box-shadow: 0 0 8px color-mix(in srgb, var(--accent) 45%, transparent);
+}
+.lineup-foot {
+  flex-shrink: 0;
+  display: flex; align-items: center; justify-content: space-between; gap: 10px;
+  margin-top: 14px; padding-top: 10px;
+  border-top: 1px solid color-mix(in srgb, var(--fg) 10%, transparent);
+  font-size: 9px; letter-spacing: 0.14em; text-transform: uppercase;
+  color: var(--fg-muted);
   font-variant-numeric: tabular-nums;
 }
-.rail-sep { color: color-mix(in srgb, var(--fg) 30%, transparent); }
-.rail-progress {
-  position: relative;
-  flex: 1; height: 1px; margin-left: 4px;
-  background: color-mix(in srgb, var(--fg) 14%, transparent);
+.lineup-count b { color: var(--accent); font-weight: 700; }
+.lineup-top {
+  border: 0; background: none; padding: 0;
+  font-family: var(--font-mono); font-size: 9px; letter-spacing: 0.14em;
+  text-transform: uppercase; color: var(--fg-muted); cursor: pointer;
+  transition: color 0.15s ease;
 }
-.rail-progress i {
-  position: absolute; inset: 0;
-  background: var(--accent);
-  transform: scaleX(0);
-  transform-origin: 0 50%;
-}
-@media print { .section-rail { display: none; } }
+.lineup-top:hover { color: var(--accent); }
+.lineup-top:focus-visible { outline: 2px solid var(--focus-ring); outline-offset: 2px; }
 
 /* Keyboard parity: focus reads like hover, so tabbing reveals the same
    affordance (accent rim + sweep bar) instead of only a browser outline. */
