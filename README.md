@@ -74,7 +74,8 @@ Plus a set of personal notes and chapters.
 
 ### Design
 
-Five themes (amber, mallow, gruvbox-material, safelight, tungsten) and three
+Seven themes (amber, mallow, gruvbox-material, safelight, tungsten, coraline,
+nyctophobia) and three
 monospace fonts (maple, iosevka, space), all driven by CSS custom properties and
 persisted to `localStorage`. The mobile layout is deliberately simpler than the
 desktop one — it drops the frosted panels entirely and reads as plain text on the

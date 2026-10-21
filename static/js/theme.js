@@ -2,7 +2,12 @@
   var html = document.documentElement;
   var btn = document.getElementById('theme-btn');
   if (!btn) return;
-  var VALID = ['amber', 'mallow', 'gruvbox-material', 'safelight', 'tungsten'];
+  // The inline boot script ships the authoritative list so a cached copy of
+  // this file can never reject a newly added theme.
+  var VALID = (window.__THEMES__ && window.__THEMES__.length)
+    ? window.__THEMES__.slice()
+    : ['amber', 'mallow', 'gruvbox-material', 'safelight', 'tungsten', 'coraline',
+       'nyctophobia'];
   var DEF = (window.matchMedia && window.matchMedia('(max-width: 768px)').matches) ? 'safelight' : 'amber';
   var current = html.getAttribute('data-theme') || DEF;
   if (current === 'gruvbox' || current === 'slick') current = 'gruvbox-material';

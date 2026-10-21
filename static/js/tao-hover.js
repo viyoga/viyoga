@@ -60,6 +60,18 @@
       accent2: '#9FB0C4',
       glow: '#FFFFFF',
       border: 'rgba(10, 10, 12, 0.9)'
+    },
+    'coraline': {
+      accent: '#F58F7C',
+      accent2: '#F2C4CE',
+      glow: '#F2C4CE',
+      border: 'rgba(44, 43, 48, 0.9)'
+    },
+    'nyctophobia': {
+      accent: '#EA5562',
+      accent2: '#FB8076',
+      glow: '#F6D7D4',
+      border: 'rgba(12, 17, 24, 0.9)'
     }
   };
 

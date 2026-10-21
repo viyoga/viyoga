@@ -201,7 +201,8 @@ html[data-font="space"] {
   --font-read: "Space Mono", "Maple Mono NF", monospace;
 }
 
-/* Themes: amber, mallow, gruvbox-material, safelight, tungsten. */
+/* Themes: amber, mallow, gruvbox-material, safelight, tungsten, coraline,
+   nyctophobia. */
 :root {
   --cat-dark: #5C3410;
   --cat-mid: #9A5A1C;
@@ -463,6 +464,110 @@ html[data-theme="tungsten"] {
   --cat-base: #9FB0C4;
   --cat-light: #F2F5FA;
 }
+
+/* ── coraline — Graphite shell, coral signal, blush highlights. Pulled from
+   the Microsoft "By the Numbers" cover: quiet greys carrying one warm accent. ── */
+html[data-theme="coraline"] {
+  --bg: #2C2B30;
+  --bg-elev: #333237;
+  --fg: #D6D6D6;
+  --fg-dim: #B4B3B9;
+  --accent: #F58F7C;
+  --accent-2: #F2C4CE;
+  --glass: rgba(79, 79, 81, .42);
+  --glass-hi: rgba(79, 79, 81, .62);
+  --line: rgba(214, 214, 214, .14);
+  --line-hi: rgba(245, 143, 124, .48);
+  --sheen: rgba(255, 255, 255, .06);
+  --grid: rgba(245, 143, 124, .07);
+  --glow: rgba(245, 143, 124, .26);
+  --halo-a: rgba(245, 143, 124, .14);
+  --halo-b: rgba(242, 196, 206, .12);
+  --blur: 14px;
+  --sat: 140%;
+  --bg-panel: #35343A;
+  --bg-panel-alt: #3E3D44;
+  --bg-glow: #35343A;
+  --bg-core: #1F1E22;
+  --fg-muted: #9C9BA1;
+  --border: var(--line);
+  --border-strong: var(--line-hi);
+  --accent-bright: #F2C4CE;
+  --accent-soft: #F58F7C;
+  --accent-dim: #B96A5B;
+  --link: #F58F7C;
+  --link-hover: #F2C4CE;
+  --focus-ring: #F58F7C;
+  --grid-fade: #2C2B30;
+  --grid-line: rgba(214, 214, 214, .08);
+  --grid-dot: rgba(245, 143, 124, .28);
+  --bar-a: #F58F7C;
+  --bar-b: #F2C4CE;
+  --bar-c: #D6D6D6;
+  --orange: #F58F7C;
+  --orange-deep: #A24E41;
+  --red: #F58F7C;
+  --red-deep: #A24E41;
+  --cyan: #F2C4CE;
+  --cyan-deep: #B88C96;
+  --yellow: #F2C4CE;
+  --cat-dark: #4F4F51;
+  --cat-mid: #C26A5A;
+  --cat-base: #F58F7C;
+  --cat-light: #F2C4CE;
+}
+
+/* ── nyctophobia — fear of the dark — near-black blue cut by salmon and christmas red. ── */
+html[data-theme="nyctophobia"] {
+  --bg: #0C1118;
+  --bg-elev: #121822;
+  --fg: #F6D7D4;
+  --fg-dim: #D08A8A;
+  --accent: #EA5562;
+  --accent-2: #FB8076;
+  --glass: rgba(12, 17, 24, .45);
+  --glass-hi: rgba(22, 26, 36, .65);
+  --line: rgba(251, 128, 118, .16);
+  --line-hi: rgba(234, 85, 98, .46);
+  --sheen: rgba(251, 128, 118, .08);
+  --grid: rgba(234, 85, 98, .08);
+  --glow: rgba(234, 85, 98, .30);
+  --blur: 14px;
+  --sat: 140%;
+  --halo-a: rgba(234, 85, 98, .16);
+  --halo-b: rgba(73, 17, 28, .35);
+  --bg-panel: #161A24;
+  --bg-panel-alt: #211A24;
+  --bg-glow: #161A24;
+  --bg-core: #05080C;
+  --fg-muted: #B97F82;
+  --border: var(--line);
+  --border-strong: var(--line-hi);
+  --accent-bright: #F6D7D4;
+  --accent-soft: #B01630;
+  --accent-dim: #49111C;
+  --link: #FB8076;
+  --link-hover: #F6D7D4;
+  --focus-ring: #EA5562;
+  --grid-fade: #0C1118;
+  --grid-line: rgba(234, 85, 98, .09);
+  --grid-dot: rgba(251, 128, 118, .30);
+  --bar-a: #EA5562;
+  --bar-b: #B01630;
+  --bar-c: #FB8076;
+  --orange: #FB8076;
+  --orange-deep: #B01630;
+  --red: #EA5562;
+  --red-deep: #B01630;
+  --cyan: #FB8076;
+  --cyan-deep: #B01630;
+  --yellow: #FB8076;
+  --cat-dark: #49111C;
+  --cat-mid: #B01630;
+  --cat-base: #EA5562;
+  --cat-light: #FB8076;
+}
+
 
 /* ── Scrollbar ── */
 ::-webkit-scrollbar { width: 8px; height: 8px; }
