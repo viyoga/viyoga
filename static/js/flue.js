@@ -361,7 +361,7 @@ void main() {
       // cooling term multiplies density down to uCoolFloor, which sits below
       // uMidpoint, so that band is mathematically incapable of lighting up.
       // Breathe the floor over a minute so the whole frame fills and recedes
-      // instead of leaving the top third permanently black.
+      // instead of leaving the upper bands permanently black.
       u1f('uCoolFloor', 0.30 + 0.45 * (0.5 - 0.5 * Math.cos(clock * Math.PI / 30)));
     }
     if (pointerOn) {
