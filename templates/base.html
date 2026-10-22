@@ -18,7 +18,8 @@
 </head>
 <body class="{% block body_class %}{% endblock body_class %}">
 <div id="scroll-bar" aria-hidden="true"></div>
-{% block canvas %}<canvas id="grid-canvas"></canvas>{% endblock canvas %}
+{% block canvas %}<canvas id="flue-canvas" aria-hidden="true"></canvas>
+<canvas id="grid-canvas"></canvas>{% endblock canvas %}
 
 <nav class="top">
   <a href="/" class="logo">{% include "cat-logo.html" %}<span class="logo-text"><span class="logo-sym">~</span>viyoga</span></a>
@@ -49,6 +50,7 @@
 <script defer src="/js/font.js"></script>
 <script defer src="/js/anim.js"></script>
 <script defer src="/js/spotlight.js?v=20261025"></script>
+<script defer src="/js/flue.js?v=20261025"></script>
 {% block extrascripts %}<script defer src="/js/grid.js?v=20261025"></script>{% endblock extrascripts %}
 </body>
 </html>

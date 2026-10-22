@@ -12,6 +12,10 @@
   }
 
   const ctx = c.getContext('2d');
+  // When the Flue layer is present the grid canvas is edge-masked in CSS
+  // instead of being filled with an opaque theme-colour band — otherwise the
+  // band would paint over the smoke.
+  const flue = !!document.getElementById('flue-canvas');
   let mx = -9999, my = -9999, lmx = -9999, lmy = -9999;
   let pts = [];
   const SPACING = 55;
@@ -94,7 +98,7 @@
     ctx.clearRect(0, 0, w, h);
 
     // Amber skips this fill (transparent --grid-fade) so the wallpaper shows.
-    if (fadeSolid) {
+    if (fadeSolid && !flue) {
       const grad = ctx.createLinearGradient(0, 0, 0, h);
       grad.addColorStop(0, clr.fade);
       grad.addColorStop(0.12, hexAlpha(clr.fade, 0));

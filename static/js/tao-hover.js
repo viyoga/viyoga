@@ -26,9 +26,9 @@
   // Known fallback palette maps for the 5 official site themes
   const THEME_PALETTES = {
     'amber': {
-      accent: '#FFB454',
+      accent: '#FF8A4D',
       accent2: '#FF7A3D',
-      glow: '#FFD9A0',
+      glow: '#FFB07A',
       border: 'rgba(10, 8, 6, 0.9)'
     },
     'mallow': {
@@ -141,9 +141,9 @@
     let currentFont = '';
 
     // Active theme colors (strictly extracted from current theme)
-    let colorAccent = '#FFB454';
+    let colorAccent = '#FF8A4D';
     let colorAccent2 = '#FF7A3D';
-    let colorGlow = '#FFD9A0';
+    let colorGlow = '#FFB07A';
     let colorBorder = 'rgba(0,0,0,0.8)';
     let time = 0;
 
