@@ -7,7 +7,7 @@
   var VALID = (window.__THEMES__ && window.__THEMES__.length)
     ? window.__THEMES__.slice()
     : ['amber', 'mallow', 'safelight', 'tungsten', 'nyctophobia'];
-  var DEF = (window.matchMedia && window.matchMedia('(max-width: 768px)').matches) ? 'safelight' : 'amber';
+  var DEF = 'safelight';
   var current = html.getAttribute('data-theme') || DEF;
   if (VALID.indexOf(current) < 0) {
     current = DEF;

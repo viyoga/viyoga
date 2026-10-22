@@ -319,11 +319,14 @@ void main() {
   };
 
   const mq = window.matchMedia ? window.matchMedia.bind(window) : null;
-  const staticMode = !mq ||
-    mq('(prefers-reduced-motion: reduce)').matches ||
-    mq('(hover: none), (pointer: coarse)').matches;
+  // Reduced motion is the only reason to freeze the field. Touch devices keep
+  // the full animation — they simply never aim it, because a finger on glass
+  // is not a cursor and dragging the smoke around under your thumb feels
+  // broken. So motion and pointer are two separate decisions.
+  const staticMode = !mq || mq('(prefers-reduced-motion: reduce)').matches;
+  const pointerOn = !(!mq || mq('(hover: none), (pointer: coarse)').matches);
 
-  if (!staticMode) {
+  if (pointerOn) {
     addEventListener('pointermove', aim, { passive: true });
     addEventListener('pointerdown', aim, { passive: true });
   }
@@ -350,23 +353,31 @@ void main() {
     const s = ms > 36.7 ? 2.2 : ms * 0.06;
     clock += ms * 0.001;
 
-    const kLead = 0.105 * s, kBody = 0.043 * s, kWake = 0.017 * s;
-    mouse.ax += (mouse.tx - mouse.ax) * kLead;
-    mouse.ay += (mouse.ty - mouse.ay) * kLead;
-    mouse.x += (mouse.ax - mouse.x) * kBody;
-    mouse.y += (mouse.ay - mouse.y) * kBody;
-    mouse.wx += (mouse.x - mouse.wx) * kWake;
-    mouse.wy += (mouse.y - mouse.wy) * kWake;
-
     u1f('iTime', clock);
-    if (!SETTINGS.cursor) {
-      if (mouse.rest === undefined) mouse.rest = { x: mouse.tx, y: mouse.ty };
-      mouse.tx = mouse.rest.x;
-      mouse.ty = mouse.rest.y;
+    if (pointerOn) {
+      const kLead = 0.105 * s, kBody = 0.043 * s, kWake = 0.017 * s;
+      mouse.ax += (mouse.tx - mouse.ax) * kLead;
+      mouse.ay += (mouse.ty - mouse.ay) * kLead;
+      mouse.x += (mouse.ax - mouse.x) * kBody;
+      mouse.y += (mouse.ay - mouse.y) * kBody;
+      mouse.wx += (mouse.x - mouse.wx) * kWake;
+      mouse.wy += (mouse.y - mouse.wy) * kWake;
+
+      if (!SETTINGS.cursor) {
+        if (mouse.rest === undefined) mouse.rest = { x: mouse.tx, y: mouse.ty };
+        mouse.tx = mouse.rest.x;
+        mouse.ty = mouse.rest.y;
+      }
+      u2f('iMouse', mouse.x, mouse.y);
+      u2f('iMouseVel', mouse.ax - mouse.x, mouse.ay - mouse.y);
+      u2f('iMouseWake', mouse.wx, mouse.wy);
+    } else {
+      // No pointer to aim with: park the nodes outside the field so the
+      // shader's pointer term contributes nothing and time alone drives it.
+      u2f('iMouse', 0, -9999);
+      u2f('iMouseVel', 0, 0);
+      u2f('iMouseWake', 0, -9999);
     }
-    u2f('iMouse', mouse.x, mouse.y);
-    u2f('iMouseVel', mouse.ax - mouse.x, mouse.ay - mouse.y);
-    u2f('iMouseWake', mouse.wx, mouse.wy);
     gl.drawArrays(gl.TRIANGLES, 0, 3);
   }
 
@@ -377,10 +388,11 @@ void main() {
     document.documentElement.classList.add('flue-live');
     document.addEventListener('themechange', () => { applyColors(); drawStatic(); });
   } else {
+    // Warm frame: start from the resting state the loop will settle into.
     u1f('iTime', 0);
-    u2f('iMouse', 0, 0);
+    u2f('iMouse', 0, pointerOn ? 0 : -9999);
     u2f('iMouseVel', 0, 0);
-    u2f('iMouseWake', 0, 0);
+    u2f('iMouseWake', 0, pointerOn ? 0 : -9999);
     gl.drawArrays(gl.TRIANGLES, 0, 3);
     document.documentElement.classList.add('flue-live');
     document.addEventListener('themechange', applyColors);
