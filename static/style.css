@@ -1423,6 +1423,13 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   font-family: var(--font-read);
   font-size: 1rem; line-height: 1.85; color: var(--fg);
 }
+/* Reading prose sits one step heavier than the UI: regular reads thin across a
+   long column, bold shouts. None of the three reading faces ship a medium, so
+   the weight is synthesised with a hairline stroke — the advance widths and
+   therefore the line breaks stay exactly as they are. */
+body.reading .chapter-body {
+  -webkit-text-stroke: 0.35px currentColor;
+}
 .chapter-body p { margin-bottom: 1.4em; }
 .chapter-body em { font-style: italic; color: inherit; }
 .chapter-body strong { font-weight: 700; color: inherit; }
