@@ -2,6 +2,10 @@
 
 {% block title %}{{ page.title }} — {{ config.title }}{% endblock title %}
 
+{% block head %}
+<link rel="stylesheet" href="/reading-fonts.css?v=20261026">
+{% endblock head %}
+
 {# Marks this as a reading page so the back link can align to the reading column #}
 {% block body_class %}reading{% endblock body_class %}
 

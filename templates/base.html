@@ -3,7 +3,7 @@
 <head>
   <meta charset="UTF-8">
   <meta name="viewport" content="width=device-width, initial-scale=1.0">
-  <script>(function(){var t;try{var p=new URLSearchParams(window.location.search).get('theme');t=p||localStorage.getItem('theme')}catch(e){}var v=['amber','mallow','safelight','tungsten','nyctophobia'];window.__THEMES__=v;var def='safelight';if(v.indexOf(t)<0)t=def;document.documentElement.setAttribute('data-theme',t);var f;try{var pf=new URLSearchParams(window.location.search).get('font');f=pf||localStorage.getItem('font')}catch(e){}var fv=['maple','iosevka','space'];if(fv.indexOf(f)<0)f='iosevka';document.documentElement.setAttribute('data-font',f);document.documentElement.classList.add('js')})();</script>
+  <script>(function(){var t;try{var p=new URLSearchParams(window.location.search).get('theme');t=p||localStorage.getItem('theme')}catch(e){}var v=['amber','mallow','safelight','tungsten','nyctophobia'];window.__THEMES__=v;var def='safelight';if(v.indexOf(t)<0)t=def;document.documentElement.setAttribute('data-theme',t);var f;try{var pf=new URLSearchParams(window.location.search).get('font');f=pf||localStorage.getItem('font')}catch(e){}var fv=['maple','iosevka','space'];if(fv.indexOf(f)<0)f='iosevka';document.documentElement.setAttribute('data-font',f);var rf;try{var pr=new URLSearchParams(window.location.search).get('reading-font');rf=pr||localStorage.getItem('reading-font')}catch(e){}var rv=['literata','libron','opendyslexic'];document.documentElement.setAttribute('data-reading-font',rv.indexOf(rf)>=0?rf:'default');document.documentElement.classList.add('js')})();</script>
   <title>{% block title %}{{ config.title }}{% endblock title %}</title>
   <link rel="stylesheet" href="/style.css">
   <link rel="preload" href="/fonts/SpaceMono-Regular.woff2" as="font" type="font/woff2" crossorigin>
@@ -46,8 +46,9 @@
 <script defer src="/js/vendor/lenis.min.js"></script>
 <script defer src="/js/smooth.js"></script>
 <script defer src="/js/copy.js"></script>
-<script defer src="/js/theme.js?v=20261024"></script>
-<script defer src="/js/font.js"></script>
+<script defer src="/js/picker.js?v=20261026"></script>
+<script defer src="/js/theme.js?v=20261026"></script>
+<script defer src="/js/font.js?v=20261026"></script>
 <script defer src="/js/anim.js"></script>
 <script defer src="/js/spotlight.js?v=20261025"></script>
 <script defer src="/js/flue.js?v=20261025"></script>
