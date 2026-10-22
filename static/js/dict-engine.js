@@ -1,5 +1,5 @@
 // dict-engine.js — Hybrid Dictionary & Pronunciation Engine
-// Built for dict-cli & viyoga.github.io. Zero dependencies.
+// Built for dict-cli & viyoga.pages.dev. Zero dependencies.
 // Works seamlessly in both Node.js and modern Web Browsers.
 // Sources:
 //   1. Free Dictionary API (rich phonetics, direct audio, synonyms/antonyms)

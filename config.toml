@@ -1,6 +1,6 @@
 title = "Viyoga"
 description = "Until we turn to dust, (ﾐゝᆽ╹ﾐ)"
-base_url = "https://viyoga.github.io"
+base_url = "https://viyoga.pages.dev"
 default_language = "en"
 build_search_index = false
 generate_feeds = true

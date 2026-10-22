@@ -46,7 +46,7 @@
   const STORAGE_VERSION = 4;
 
   const DEFAULT_SHORTCUTS = [
-    { name: 'Viyoga', url: 'https://viyoga.github.io' },
+    { name: 'Viyoga', url: 'https://viyoga.pages.dev' },
     { name: 'Proton', url: 'https://mail.proton.me' },
     { name: 'Drive', url: 'https://drive.google.com' },
     { name: 'Gmail', url: 'https://mail.google.com' },
@@ -153,7 +153,7 @@
       const finish = (cache) => {
         faviconCache = cache || {};
         // One-time cache refresh for Viyoga to pick up new logo
-        const viyogaKey = 'https://viyoga.github.io';
+        const viyogaKey = 'https://viyoga.pages.dev';
         if (!faviconCache._viyogaRefreshedV2) {
           delete faviconCache[viyogaKey];
           faviconCache._viyogaRefreshedV2 = true;

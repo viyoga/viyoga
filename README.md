@@ -4,7 +4,7 @@
 
 **Until we turn to dust, (ﾐゝᆽ╹ﾐ)**
 
-**[viyoga.github.io](https://viyoga.github.io/)**
+**[viyoga.pages.dev](https://viyoga.pages.dev/)**
 
 A retro-terminal personal site — novels, notes, and a handful of in-browser tools.
 Static HTML, no tracking, and every tool runs client-side.
@@ -25,12 +25,12 @@ your browser.
 
 | Tool | What it does |
 |---|---|
-| [**dict**](https://viyoga.github.io/dictionary/) | Word lookup — 23 Wiktionary editions, fuzzy matching, pronunciation |
-| [**studio**](https://viyoga.github.io/studio/) | Compress / convert / resize images, PDFs and documents — see below |
-| [**walldiff**](https://viyoga.github.io/walldiff/) | Recolour a wallpaper from 35+ palettes (gowall engine) |
-| [**typing**](https://viyoga.github.io/typing/) | Speed test — time & word modes, live WPM/accuracy, speed-progression graph |
+| [**dict**](https://viyoga.pages.dev/dictionary/) | Word lookup — 23 Wiktionary editions, fuzzy matching, pronunciation |
+| [**studio**](https://viyoga.pages.dev/studio/) | Compress / convert / resize images, PDFs and documents — see below |
+| [**walldiff**](https://viyoga.pages.dev/walldiff/) | Recolour a wallpaper from 35+ palettes (gowall engine) |
+| [**typing**](https://viyoga.pages.dev/typing/) | Speed test — time & word modes, live WPM/accuracy, speed-progression graph |
 
-Also linked from the homepage: an [abeyant](https://viyoga.github.io/abeyant/)
+Also linked from the homepage: an [abeyant](https://viyoga.pages.dev/abeyant/)
 new-tab extension, plus desktop and mobile startpage projects.
 
 ### studio, in detail
