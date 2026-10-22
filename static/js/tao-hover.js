@@ -429,13 +429,32 @@
 
     window.addEventListener('resize', build);
 
-    build();
-    animationId = requestAnimationFrame(loop);
-
-    window.addEventListener('beforeunload', () => {
+    function start() {
       if (animationId) cancelAnimationFrame(animationId);
+      animationId = requestAnimationFrame(loop);
+    }
+
+    // The logo <pre> is hidden and the canvas draws it. Phones can drop the
+    // canvas backing store while a page sits in the back-forward cache, and a
+    // restored page never runs its init path again — so the hero came back
+    // with the pre still hidden and an empty canvas. Rebuild and restart on
+    // every restore; only tear down for a real unload.
+    function revive() {
+      if (document.visibilityState === 'hidden') return;
+      build();
+      start();
+    }
+    window.addEventListener('pageshow', revive);
+    document.addEventListener('visibilitychange', revive);
+    window.addEventListener('pagehide', (e) => {
+      if (e.persisted) return;
+      if (animationId) cancelAnimationFrame(animationId);
+      animationId = null;
       themeObserver.disconnect();
     });
+
+    build();
+    start();
   }
 
   if (document.readyState === 'loading') {
