@@ -1932,6 +1932,12 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
     border: none;
     box-shadow: none;
   }
+  /* Flue is a full-bleed wash and mobile prose has no panel behind it, so it
+     washes out body copy wherever the plume is bright (measured 2.8:1). Dim
+     the field itself so the smoke still reads as ambience, not as a backdrop
+     for text. */
+  body.reading #flue-canvas { opacity: 0.32; }
+  body.reading .chapter-body { text-shadow: 0 1px 3px rgba(0, 0, 0, 0.55); }
 }
 
 @media (max-width: 480px) {
