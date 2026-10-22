@@ -36,6 +36,7 @@ uniform float uScale, uSpeed, uFlow, uRoughness, uLacunarity;
 uniform float uSmokeScale, uCurl, uCurlScale, uRise, uSlender;
 uniform float uWidth, uSpread, uLean, uDensity;
 uniform float uContrast, uMidpoint, uGlow, uSink;
+uniform float uCoolFloor;
 uniform float uGrain, uDither, uVignette;
 uniform float uPointerRadius, uDraft, uPointerStrength, uParallax;
 #define OCTAVES 3
@@ -183,7 +184,7 @@ void main() {
 
   // and it thins as it cools on the way up
   float cool = smoothstep(-0.65, 0.85, uv.y);
-  float smoke = dens * corridor * mix(1.0, 0.30, cool) * uDensity;
+  float smoke = dens * corridor * mix(1.0, uCoolFloor, cool) * uDensity;
 
   // and the stirred air carries a little more of it — an exposure lift, not a
   // shape, so there is nothing following the cursor to point at
@@ -230,7 +231,7 @@ void main() {
     density: 1.4, contrast: 1.85, midpoint: 0.69, glow: 0.48,
     sink: 0.42, grain: 0, grainAnim: 0, dither: 0.43, vignette: 0.15,
     cursor: 1, pointerRadius: 0.38, draft: 4.5, pointerStrength: 0.73,
-    parallax: 0.007, maxDpr: 1
+    parallax: 0.007, coolFloor: 0.30, maxDpr: 1
   };
 
   /* ── theme palette ─────────────────────────────────────────────────────
@@ -324,7 +325,8 @@ void main() {
   // is not a cursor and dragging the smoke around under your thumb feels
   // broken. So motion and pointer are two separate decisions.
   const staticMode = !mq || mq('(prefers-reduced-motion: reduce)').matches;
-  const pointerOn = !(!mq || mq('(hover: none), (pointer: coarse)').matches);
+  const coarsePointer = !!mq && mq('(hover: none), (pointer: coarse)').matches;
+  const pointerOn = !staticMode && !coarsePointer;
 
   if (pointerOn) {
     addEventListener('pointermove', aim, { passive: true });
@@ -354,6 +356,14 @@ void main() {
     clock += ms * 0.001;
 
     u1f('iTime', clock);
+    if (coarsePointer) {
+      // Phones only ever see the warm base of the column: at the top the
+      // cooling term multiplies density down to uCoolFloor, which sits below
+      // uMidpoint, so that band is mathematically incapable of lighting up.
+      // Breathe the floor over a minute so the whole frame fills and recedes
+      // instead of leaving the top third permanently black.
+      u1f('uCoolFloor', 0.30 + 0.45 * (0.5 - 0.5 * Math.cos(clock * Math.PI / 30)));
+    }
     if (pointerOn) {
       const kLead = 0.105 * s, kBody = 0.043 * s, kWake = 0.017 * s;
       mouse.ax += (mouse.tx - mouse.ax) * kLead;
