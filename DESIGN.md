@@ -40,10 +40,17 @@ run desaturated neutral at 25% opacity, other themes use their own
 --glass-shadow:        0 1px 2px rgba(0, 0, 0, 0.4), 0 12px 32px rgba(0, 0, 0, 0.42);
 --glass-shadow-hover:  0 2px 4px rgba(0, 0, 0, 0.45), 0 20px 48px rgba(0, 0, 0, 0.52);
 
-/* Hugging Face Flare Tokens */
---flare-filament:  linear-gradient(90deg, transparent 0%, color-mix(in srgb, var(--accent) 35%, #ffffff) 50%, transparent 100%);
---flare-bloom:     color-mix(in srgb, var(--accent) 55%, #ffffff);
+/* Hugging Face Flare Tokens. Every theme derives its caustic light from
+   --flare-tint (the accent), so one token set covers all five. */
+--flare-tint:       var(--accent);
+--flare-filament:  linear-gradient(90deg, transparent 0%, color-mix(in srgb, var(--flare-tint) 35%, #ffffff) 50%, transparent 100%);
+--flare-bloom:     color-mix(in srgb, var(--flare-tint) 55%, #ffffff);
 ```
+
+Tungsten overrides `--flare-tint` to `#4B8CFF`: its accent is white, and white
+light over grey steel renders as a grey wash rather than a flare. The cool
+tint keeps the theme's steel cast while letting the caustic read as light. The
+other four themes inherit the accent unchanged, so their flare is untouched.
 
 If `backdrop-filter` is unsupported, `@supports not` falls every glass
 surface back to solid `var(--bg-panel)`.

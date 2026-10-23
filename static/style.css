@@ -154,14 +154,17 @@ html.lenis, html.lenis body { height: auto; }
   --glass-shadow: 0 1px 2px rgba(0, 0, 0, 0.4), 0 12px 32px rgba(0, 0, 0, 0.42);
   --glass-shadow-hover: 0 2px 4px rgba(0, 0, 0, 0.45), 0 20px 48px rgba(0, 0, 0, 0.52);
 
-  /* Hugging Face Flare Tokens */
-  --flare-filament: linear-gradient(90deg, transparent 0%, color-mix(in srgb, var(--accent) 35%, #ffffff) 50%, transparent 100%);
-  --flare-bloom: color-mix(in srgb, var(--accent) 55%, #ffffff);
+  /* Hugging Face Flare Tokens. Every theme derives its caustic light from
+     --flare-tint: the accent by default, or the theme's own secondary when a
+     white accent would only render as a grey wash (tungsten). */
+  --flare-tint: var(--accent);
+  --flare-filament: linear-gradient(90deg, transparent 0%, color-mix(in srgb, var(--flare-tint) 35%, #ffffff) 50%, transparent 100%);
+  --flare-bloom: color-mix(in srgb, var(--flare-tint) 55%, #ffffff);
 
   /* Large-surface edge lighting: the same caustic language as the button
      flares, scaled for panels. Applied as background layers so it never
      collides with ::before (spotlight) or ::after (sweep bars). */
-  --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--accent) 42%, #ffffff) 55%, transparent);
+  --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--flare-tint) 42%, #ffffff) 55%, transparent);
   --glass-edge-width: 36%;
   --glass-specular: radial-gradient(140% 120% at 0% 0%, color-mix(in srgb, var(--fg) 7%, transparent) 0%, transparent 55%);
 
@@ -369,6 +372,9 @@ html[data-theme="tungsten"] {
   --fg-dim: #858B97;
   --accent: #F2F5FA;
   --accent-2: #9FB0C4;
+  /* White light on steel reads as grey fog; the caustic keeps the theme's
+     cool cast so the flare still reads as light. */
+  --flare-tint: #4B8CFF;
   --glass: rgba(255, 255, 255, .055);
   --glass-hi: rgba(255, 255, 255, .10);
   --line: rgba(255, 255, 255, .12);
@@ -396,9 +402,9 @@ html[data-theme="tungsten"] {
   --grid-fade: #0A0A0C;
   --grid-line: rgba(255, 255, 255, .09);
   --grid-dot: rgba(190, 205, 230, .22);
-  --bar-a: #F2F5FA;
+  --bar-a: #7FB0FF;
   --bar-b: #9FB0C4;
-  --bar-c: #FFFFFF;
+  --bar-c: #C4DAFF;
   --orange: #9FB0C4;
   --orange-deep: #5C6675;
   --red: #FF6B6B;
@@ -1903,7 +1909,7 @@ body.reading .chapter-body {
      phone); opacity is raised to compensate so the glass still reads. */
   .terminal, .novel-card, .stack-card, .stat-card, .chapter-card,
   .section-heading, .section-badge, .page-header h2, .playlist, .code-block, .dict-result {
-    --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--accent) 46%, #ffffff) 72%, transparent);
+    --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--flare-tint) 46%, #ffffff) 72%, transparent);
     border-color: color-mix(in srgb, var(--fg) 18%, transparent);
     box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
     backdrop-filter: blur(10px) saturate(var(--sat, 155%));
