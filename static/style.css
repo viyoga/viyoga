@@ -1856,9 +1856,15 @@ body.reading .chapter-body {
   font-size: 0.72rem;
   font-weight: 700;
   color: var(--accent);
-  background: var(--bg-panel-alt);
-  border: 1px solid var(--border);
-  box-shadow: 1px 1px 0 var(--border);
+  /* The same glass + caustic language as the buttons, shrunk to a chip:
+     a translucent pane, a top bevel, a bloom rising from the lower edge and
+     a 1px filament sitting on it. */
+  background:
+    radial-gradient(120% 170% at 50% 118%, color-mix(in srgb, var(--flare-bloom) 34%, transparent), transparent 72%) center bottom / 100% 100% no-repeat,
+    linear-gradient(90deg, transparent 0%, var(--flare-bloom) 50%, transparent 100%) center bottom / 72% 1px no-repeat,
+    var(--glass-bg);
+  border: 1px solid color-mix(in srgb, var(--fg) 22%, transparent);
+  box-shadow: inset 0 1px 0 var(--glass-hi), 0 3px 10px rgba(0, 0, 0, 0.4);
   padding: 2px 7px;
   letter-spacing: 0.06em;
 }
@@ -1896,19 +1902,20 @@ body.reading .chapter-body {
      Blur is reduced to 10px (13 blurred panels scrolling is the real cost on a
      phone); opacity is raised to compensate so the glass still reads. */
   .terminal, .novel-card, .stack-card, .stat-card, .chapter-card,
-  .section-badge, .playlist, .code-block, .dict-result {
+  .section-heading, .section-badge, .playlist, .code-block, .dict-result {
     --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--accent) 46%, #ffffff) 72%, transparent);
     border-color: color-mix(in srgb, var(--fg) 18%, transparent);
     box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
     backdrop-filter: blur(10px) saturate(var(--sat, 155%));
     -webkit-backdrop-filter: blur(10px) saturate(var(--sat, 155%));
     background-image:
+      radial-gradient(70% 45% at 50% 108%, color-mix(in srgb, var(--flare-bloom) 38%, transparent), transparent 72%),
       var(--glass-specular),
       linear-gradient(90deg, transparent 0%, var(--glass-edge-line) 50%, transparent 100%),
       linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 30%, color-mix(in srgb, var(--bg-panel) 50%, transparent) 100%);
-    background-size: 100% 100%, 46% 1px, 100% 100%;
-    background-position: 0 0, center bottom, 0 0;
-    background-repeat: no-repeat, no-repeat, no-repeat;
+    background-size: 100% 100%, 100% 100%, 56% 1px, 100% 100%;
+    background-position: 0 0, 0 0, center bottom, 0 0;
+    background-repeat: no-repeat, no-repeat, no-repeat, no-repeat;
   }
 
   /* On mobile touch devices, flare filament and bloom are clearly visible at rest */
@@ -1917,16 +1924,16 @@ body.reading .chapter-body {
   .compress-btn:not(:disabled)::after, .compress-dl-btn::after, .compress-dl-all::after,
   .walldiff-btn::after, .studio-btn:not(:disabled)::after, .dict-submit:not(:disabled)::after,
   .dict-retry::after {
-    width: 68%;
-    opacity: 0.8;
+    width: 62%;
+    opacity: 0.7;
   }
   .glass-btn::before, .dict-launch-btn::before, .back-btn::before, .back-link a::before,
   .back-link .back-btn::before, .novel-start-btn::before, .type-action-btn::before,
   .compress-btn:not(:disabled)::before, .compress-dl-btn::before, .compress-dl-all::before,
   .walldiff-btn::before, .studio-btn:not(:disabled)::before, .dict-submit:not(:disabled)::before,
   .dict-retry::before {
-    opacity: 0.44;
-    width: 54px;
+    opacity: 0.35;
+    width: 48px;
   }
   .stack-grid { grid-template-columns: repeat(2, 1fr); }
   .stats-grid { grid-template-columns: repeat(2, 1fr); }
@@ -3829,29 +3836,45 @@ nav.top .logo:focus-visible,
   }
 }
 
-/* ── Mobile flare pass ──
-   Every surface gets a touch of light under its lower edge. The smaller the
-   panel, the closer the bloom sits and the hotter it reads; the big panes
-   keep theirs to a whisper so they do not glow like buttons. Shadows are
+/* Small flat plates that never got the glass treatment — book/chapter tags,
+   stack kickers, the dictionary's phonetic chip. Same pane, bevel and lower
+   caustic filament as the buttons, just at chip scale. */
+.novel-tag, .stack-card .kicker, .dict-phonetic {
+  background:
+    radial-gradient(120% 170% at 50% 118%, color-mix(in srgb, var(--flare-bloom) 34%, transparent), transparent 72%) center bottom / 100% 100% no-repeat,
+    linear-gradient(90deg, transparent 0%, var(--flare-bloom) 50%, transparent 100%) center bottom / 72% 1px no-repeat,
+    var(--glass-bg);
+  border: 1px solid color-mix(in srgb, var(--fg) 22%, transparent);
+  box-shadow: inset 0 1px 0 var(--glass-hi), 0 3px 10px rgba(0, 0, 0, 0.4);
+}
+
+/* ── Mobile panel flare ──
+   The panels that never had a bloom — section plates, cards, chapter tiles —
+   now carry one under their lower edge. The smaller the pane the hotter it
+   reads; the terminal and playlist keep theirs to a whisper. Shadows are
    restated per family so each surface keeps the bevel it shipped with. */
 @media (max-width: 768px) {
-  /* The top bar holds the smallest objects on screen — at this size the
-     bloom is most of the affordance, so let it burn a little brighter. */
-  nav.top .logo::before,
-  .theme-btn::before {
-    opacity: 0.50;
-    width: 32px;
-    filter: blur(10px);
+  /* A card's caustic bar opens on hover; phones have no hover, so the middle
+     of the bar stays lit at rest and still opens fully on touch. */
+  .novel-card::after, .stack-card::after, .stat-card::after,
+  .chapter-card::after, .chapter-grid .grid-item::after {
+    clip-path: inset(0 30% 0 30%);
+    opacity: 0.7;
   }
-  nav.top .logo::after,
-  .theme-btn::after {
-    width: 74%;
-    opacity: 0.82;
+  .novel-card:hover::after, .novel-card:focus-visible::after,
+  .stack-card:hover::after, .stack-card:focus-visible::after,
+  .stat-card:hover::after, .stat-card:focus-visible::after,
+  .chapter-card:hover::after, .chapter-card:focus-visible::after, .chapter-card.touching::after,
+  .chapter-grid .grid-item:hover::after, .chapter-grid .grid-item:focus-visible::after,
+  .chapter-grid .grid-item.touching::after {
+    clip-path: inset(0 0 0 0);
+    opacity: 1;
   }
 
-  /* Chapter prev/next are small enough to glow like nav chrome. */
-  .page-nav a::before { opacity: 0.46; width: 48px; }
-  .page-nav a::after { width: 70%; opacity: 0.78; }
+  /* The small section plates carry a wider filament than the big panes. */
+  .section-heading, .section-badge {
+    background-size: 100% 100%, 100% 100%, 70% 1px, 100% 100%;
+  }
 
   .novel-card, .stack-card, .stat-card, .chapter-card,
   .chapter-grid .grid-item, .dict-result, .section-heading {
