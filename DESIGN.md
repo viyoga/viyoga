@@ -30,7 +30,7 @@ run desaturated neutral at 25% opacity, other themes use their own
 ### Glass tokens (global, auto-derived — work in every theme)
 
 ```css
---glass-bg:        linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 36%, transparent) 100%);
+--glass-bg:        linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 36%, transparent) 100%), color-mix(in srgb, var(--bg-panel) 54%, transparent);
 --glass-bg-elev:   linear-gradient(135deg, rgba(255, 255, 255, 0.08) 0%, rgba(255, 255, 255, 0.02) 40%, color-mix(in srgb, var(--bg-panel) 48%, transparent) 100%);
 --glass-bg-strong: color-mix(in srgb, var(--bg-panel) 82%, transparent); /* nav, menus */
 --glass-blur:      16px;
@@ -46,6 +46,12 @@ run desaturated neutral at 25% opacity, other themes use their own
 --flare-filament:  linear-gradient(90deg, transparent 0%, color-mix(in srgb, var(--flare-tint) 35%, #ffffff) 50%, transparent 100%);
 --flare-bloom:     color-mix(in srgb, var(--flare-tint) 55%, #ffffff);
 ```
+
+`nav.top` is the one surface that stays denser than the panels: `--bg-panel`
+at 75% with a 12px blur and the bottom hairline. It sits over the brightest
+smoke and has to hold nav text while content smears underneath, so it keeps a
+little more fill than `--glass-bg` (54%) — but no longer the 94% slab it used
+to be.
 
 Tungsten overrides `--flare-tint` to `#4B8CFF`: its accent is white, and white
 light over grey steel renders as a grey wash rather than a flare. The cool

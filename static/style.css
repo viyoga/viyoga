@@ -142,7 +142,7 @@ html.lenis, html.lenis body { height: auto; }
   /* Craft-derived glass: 12px blur over a ~60% panel fill. The fill is a
      background-color layer under the sheen gradient, so every surface that
      uses --glass-bg picks it up. */
-  --glass-bg: linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 36%, transparent) 100%), color-mix(in srgb, var(--bg-panel) 58%, transparent);
+  --glass-bg: linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 36%, transparent) 100%), color-mix(in srgb, var(--bg-panel) 54%, transparent);
   --glass-bg-subtle: color-mix(in srgb, var(--bg-panel) 24%, transparent);
   --glass-bg-elev: linear-gradient(135deg, rgba(255, 255, 255, 0.08) 0%, rgba(255, 255, 255, 0.02) 40%, color-mix(in srgb, var(--bg-panel) 48%, transparent) 100%);
   --glass-bg-strong: color-mix(in srgb, var(--bg-panel) 82%, transparent);
@@ -519,13 +519,14 @@ nav.top {
   max-width: 100%;
   box-sizing: border-box;
   padding: 6px 24px;
-  background: color-mix(in srgb, var(--bg-panel) 94%, transparent);
-  /* The top bar keeps more opacity and a tighter blur than the panels, so
-     scrolling content smears underneath without turning the bar to mush. */
-  backdrop-filter: blur(8px) saturate(var(--sat, 155%));
-  -webkit-backdrop-filter: blur(8px) saturate(var(--sat, 155%));
+  background: color-mix(in srgb, var(--bg-panel) 75%, transparent);
+  /* The bar stays a little more opaque than the panels so the nav holds up
+     over the brightest smoke, but it is no longer a slab: 12px of blur is
+     what keeps scrolling content from reading as mush. */
+  backdrop-filter: blur(12px) saturate(var(--sat, 155%));
+  -webkit-backdrop-filter: blur(12px) saturate(var(--sat, 155%));
   border-bottom: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
-  box-shadow: 0 8px 30px rgba(0, 0, 0, 0.4), inset 0 -1px 0 rgba(255, 255, 255, 0.06);
+  box-shadow: 0 6px 22px rgba(0, 0, 0, 0.3), inset 0 -1px 0 rgba(255, 255, 255, 0.06);
   display: flex; justify-content: space-between; align-items: center;
   gap: 16px;
 }
