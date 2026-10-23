@@ -1,0 +1,52 @@
++++
+title = "Chapter 620"
+weight = 620
+[extra]
+chapter = 620
++++
+
+<p>Sol stayed silent, digesting the information he had just received. Chaos and Order, the two highest goddesses in this world and those who were publicly known as the creators.</p>
+<p>For all their powers, the two goddesses were shrouded in deep mysteries and few people actually directly worshiped them, even the Wing of Freedom and related members prayed first to Ymir, while the people of the Mortal world and Astral world prayed to one of the fourteen goddesses.</p>
+<p>Sol had many questions about them and why they were still asleep even now.</p>
+<p>“I don't know why or how Eve went through the road of separation. This is pretty dangerous and because of the opposite concepts the two halves hold, they are more likely to fight each other. But the situation is what it is.” Adam intoned, his voice a little indifferent. It was quite hard to reconcile the emotions he was showing with the fact that Eve was supposedly his wife.</p>
+<p>“Well, either way, I can’t tell you much more about this. What I can tell you is that, after my Death, Eve should have become the de facto Guardian of this universe. She has the highest authority and her words dictate fate. But this authority was split. Weakening the Crystal wall and allowing the possibility for intruders to enter through a specific means.”</p>
+<p>“…Reincarnation?”</p>
+<p>“Bingo. You are pretty smart, as expected of me.” Adam grinned. “There is a different way to enter a new universe. But you see, universes don’t like intruders and in fact make sure to suppress them as much as possible. A foreign god entering a universe might become only as strong as a demigod and this suppression becomes worse the stronger the universe is. I say if a god tried to enter my universe, they would only be as strong as a King at most. Even the gods from the Prime Universe.”</p>
+<p>There was a clear pride in Adam’s voice and he made no effort to hide it. After being forced to live as a soul body for so long, it feels good to be able to brag even if a little.</p>
+<p>“To avoid this suppression, the best way is Reincarnation. Going through the cycle of life and death in the new universe and getting imprinted by it. In a way, I guess you could say it’s not unlike getting a permanent Visa or a Naturalization. The goddesses have been abusing this system it seems. They took souls from the Prime Universe and brought it here, allowing for reincarnation.”</p>
+<p>Adam's smile twitched a little. Those girls were reckless. They were lucky that no foreign gods managed to slip through and get reincarnated here. But that was because most foreign gods were wise enough to avoid this universe, even after his ‘Death’.</p>
+<p>They would know very well that provoking him would yield nothing but a headache.</p>
+<p>In fact, he started to wonder if Sol's reincarnation here was a coincidence. Some of the gods might have guessed that Sol's previous life was related to Adam so when Luxuria searched for a soul they could have made sure to send Sol in order to get rid of a possible bomb.</p>
+<p>Adam explained his speculation to Sol, leaving him speechless.</p>
+<p>“You are me. But the version of you as a human definitely would have never succeeded in controlling the End. The only possible result was you going berserk and destroying the Prime Universe. Who knows, perhaps one of the gods even has a hand in your death.”</p>
+<p>“This…” Sol did not know what to feel at this moment. Should he be happy? Sad? Angry? In the end, he sighed. All of these were only speculations. There was no need to worsen his mood about this.</p>
+<p>“Well. I believe I have told you more or less everything of importance. But all this is so far away from the current you…You now understand now why sometimes wise people withhold information? You know all this and yet nothing has changed.”</p>
+<p>Support the creativity of authors by visiting Royal Road for this novel and more.</p>
+<p>“So now, let me give you information that will actually affect you and your future going forward. Though you already found the way by stumbling by yourself.” Adam waved his hand and one of those universes appeared closer. From this distance, it looked more like an egg than a planet.</p>
+<p>“Let’s resume things. I have told you that there exist many many universes. But how are those universes born? The thing is…All universes have a creator. You must know the legend of Pangu and how he separated Heaven and Earth, right? It’s something similar albeit different.”</p>
+<p>Adam caressed the egg with a gentle expression, “Some individuals are born with what I call a seed or an egg. Those individuals are beloved by destiny and hold infinite potential. Potential high enough to give birth to a new universe. I was such an individual. I called my Seed [The World]. Back then, I would have never guessed how accurate it was.”</p>
+<p>He chuckled then pointed at Sol, “You also have a seed. What you call the Mirror Dimension or the Inverted World. But your seed is very different. Because it was affected by the laws of this universe, it became a so-called Dimension and mirrored many of the laws of my universe. Normally this would have been pretty bad. But you were lucky. After all, it copied My universe.”</p>
+<p>Adam laughed. Normally a seed should have had nothing. Only pure chaotic energy. Then once the creator started the beginning of time, new laws could be made.</p>
+<p>Back when he was a mortal, Adam’s seed, [The World] was developed in a way that copied the law of the Prime universe. In order to do so, Adam had to personally learn absolutely all the fundamental laws of the world. Gravity, Time, space, Electromagnetism, strong force, and weak force. Just remembering all the efforts he put in this made him want to barf.</p>
+<p>He went even further and incorporated the law of Dream and Reality, thus incorporating the power of Legends.</p>
+<p>This was why the main planet of the Mortal Realm was so similar to Earth in the Prime universe.</p>
+<p>This was also why Names and Legends from Earth had so much influence here and could give birth to kings and demigods and even some gods.</p>
+<p>“You are different and I must say, I am quite jealous.”</p>
+<p>Was it because Sol and Adam shared the same soul origin? Or perhaps because of some unexpected influence? Adam could not say. But in the end, while Adam had to build everything from scratch, Sol was able to start with a full-on template and a world filled with complete law.</p>
+<p>“Of course, everything isn’t without consequence. Because you started in such a way, your control over the Universe is extremely minimal. Not only that. Your universe has no spark of life and no World Will. A dead universe that is nothing more than a copy of a copy. At your current level, this might seem powerful and it is. But only after tasting the power of Fate, you should realize how limited this is.”</p>
+<p>Adam was not trying to insult Sol. He simply stated things as they were. Sol dimension was just that. A dimension. If nothing changed, the highest level it could reach would be something similar to a Divine Territory. This was perhaps the lousiest result someone who had a seed could reach.</p>
+<p>“But fear not. You have three different options.” Adam raised three fingers, “The first one is to do nothing. Really, you don’t need to do anything. It isn’t like you seek to become the strongest. As long as you have no plan of ever leaving this universe what does the strength of your seed even matter? I am sure that you will be able to reach a level similar to Ymir and even surpass it. But that's it. Don’t even dream of fighting Eve. Even if she split her soul and body, she is still this World's guardian. The apex of existence.”</p>
+<p>Sol frowned but continued to listen. If possible, he didn’t wish to fight Order or Chaos. But leaving his future to the whim of those two crazy goddesses left unsure.</p>
+<p>“What about options two and three?” Sol asked.</p>
+<p>“Your second option is to completely separate your universe from mine and start everything from scratch. It will be painful and it will take time, perhaps billions of years really. You will fall into a deep slumber as you fuse with the Origin of the universe in order to bring a new Beginning and ignite Light and life. This way has 100% chances of success and zero dangers.”</p>
+<p>“But…?” Sol knew there was always a but in this kind of situation.</p>
+<p>“But you will also become a foreigner to my universe. In fact, I think as a Universe creator you will be considered the highest level of enemy by my universe so even entering back will be night impossible. As for your women or should I say the women who managed to survive by the time you succeeded, they will also be considered as foreigners in your universe. The only way to not face continuous suppression will be for them to die and reincarnate in your universe.”</p>
+<p>Adam chuckled, “But I know you. There is no way you would choose this option. You should know more than anyone what reincarnation truly means.”</p>
+<p>Sol nodded. Reincarnation was not just somebody's change. One would never be the same after reincarnating, even if they managed to keep their full memories. This applied to Sol and the same would happen to his women. Sol would never choose this option unless he was left with no choice.</p>
+<p>“So, this left us with option three. You already have the gist but you need to think bigger. Grow your dimension, strengthen it to the highest level possible, and finally –fuse it with my universe. Wrestle control from Eve and the goddesses and stand as the new God King!”</p>
+<p>Adam opened his arm wide in a dramatic fashion, shouting those words with emotion as if he could already see the epic battle on the horizon.</p>
+<p>Sol sighed, nonplussed. He could see that Adam was having too much fun with this. “You already knew that I wouldn’t take the first two options. Why not start from here?”</p>
+<p>“Hahaha. What can I say, I like drama after all. So, what will you choose?” Adam asked, his eyes twinkling.</p>
+<p>“Is there any need to ask?” Sol stood up and started walking away, “I guess I need to add universe conquest to my list of things to do.”</p>
+<p>His voice was calm but his decision was made. He had already planned to steal the Mortal realm. So, things didn’t really change all things considered.</p>
+<p>The target only became bigger…Much bigger.</p>
