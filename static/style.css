@@ -1902,7 +1902,7 @@ body.reading .chapter-body {
      Blur is reduced to 10px (13 blurred panels scrolling is the real cost on a
      phone); opacity is raised to compensate so the glass still reads. */
   .terminal, .novel-card, .stack-card, .stat-card, .chapter-card,
-  .section-heading, .section-badge, .playlist, .code-block, .dict-result {
+  .section-heading, .section-badge, .page-header h2, .playlist, .code-block, .dict-result {
     --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--accent) 46%, #ffffff) 72%, transparent);
     border-color: color-mix(in srgb, var(--fg) 18%, transparent);
     box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
@@ -3854,26 +3854,19 @@ nav.top .logo:focus-visible,
    reads; the terminal and playlist keep theirs to a whisper. Shadows are
    restated per family so each surface keeps the bevel it shipped with. */
 @media (max-width: 768px) {
-  /* A card's caustic bar opens on hover; phones have no hover, so the middle
-     of the bar stays lit at rest and still opens fully on touch. */
-  .novel-card::after, .stack-card::after, .stat-card::after,
-  .chapter-card::after, .chapter-grid .grid-item::after {
-    clip-path: inset(0 30% 0 30%);
-    opacity: 0.7;
-  }
-  .novel-card:hover::after, .novel-card:focus-visible::after,
-  .stack-card:hover::after, .stack-card:focus-visible::after,
-  .stat-card:hover::after, .stat-card:focus-visible::after,
-  .chapter-card:hover::after, .chapter-card:focus-visible::after, .chapter-card.touching::after,
-  .chapter-grid .grid-item:hover::after, .chapter-grid .grid-item:focus-visible::after,
-  .chapter-grid .grid-item.touching::after {
-    clip-path: inset(0 0 0 0);
-    opacity: 1;
-  }
-
-  /* The small section plates carry a wider filament than the big panes. */
+  /* The section plates are the smallest panes on the page, so they carry the
+     most gloss: a real diagonal sheen, a hot bloom rising from the lower edge
+     and a wide filament sitting on it. */
   .section-heading, .section-badge {
-    background-size: 100% 100%, 100% 100%, 70% 1px, 100% 100%;
+    background-image:
+      radial-gradient(95% 130% at 50% 118%, color-mix(in srgb, var(--flare-bloom) 55%, transparent), transparent 68%),
+      linear-gradient(105deg, transparent 18%, rgba(255, 255, 255, 0.08) 46%, transparent 64%),
+      var(--glass-specular),
+      linear-gradient(90deg, transparent 0%, var(--glass-edge-line) 50%, transparent 100%),
+      linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 30%, color-mix(in srgb, var(--bg-panel) 50%, transparent) 100%);
+    background-size: 100% 100%, 100% 100%, 100% 100%, 80% 1px, 100% 100%;
+    background-position: 0 0, 0 0, 0 0, center bottom, 0 0;
+    background-repeat: no-repeat;
   }
 
   .novel-card, .stack-card, .stat-card, .chapter-card,

@@ -126,15 +126,16 @@ Both are visible at rest, so mobile gets the gloss without hover. On mobile
 the lower edge from inside the pane, and panel blur drops to 10px to keep
 scrolling cheap.
 
-On phones the surfaces finally get a resting flare: every card keeps the
-middle of its caustic sweep bar lit (there is no hover to open it), plus a
-`box-shadow` bloom under the lower edge and a soft radial lift inside it. It
-scales inversely with size — section plates and chapter tiles read hottest,
-the terminal/playlist almost none — because a big panel under a hot bloom
-reads as a glowing floor. Desktop keeps the edge-light and the hover-opened
-bar only. The flat chips that escaped the glass treatment (chapter/BOOK tags,
-stack kickers, the phonetic chip) now use the same pane, bevel and lower
-filament at chip scale.
+On phones the surfaces get a resting flare they never had: a `box-shadow`
+bloom under the lower edge and a soft radial lift inside the pane. It scales
+inversely with size — the section plates and the chapter-title plate get the
+full gloss (a diagonal sheen, a hot lower bloom and a wide filament), cards a
+faint lift, the terminal/playlist almost none — because a big panel under a
+hot bloom reads as a glowing floor. The caustic sweep bar stays hover-only, so
+cards do not wear a permanent underline. Desktop keeps the edge-light only.
+The flat chips that escaped the glass treatment (chapter/BOOK tags, stack
+kickers, the phonetic chip) now use the same pane, bevel and lower filament at
+chip scale.
 
 **Cursor spotlight** (`static/js/spotlight.js`): any element with `.spot`
 gets `--mx`/`--my` (px, relative to the element, typed via `@property` so
