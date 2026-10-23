@@ -110,7 +110,7 @@ optical physics:
 - Bottom edge flare filament (`::after`): 1px razor caustic light line `var(--flare-filament)`, expanding from 50% to 82% width on hover.
 - Bottom ambient bloom (`::before`): Gaussian blur glow `var(--flare-bloom)`, expanding on hover and active.
 - Micro-interaction: responsive `scale(0.97)` on click/tap with spring confirmation.
-- Mobile: visible resting caustic flare filament (62%) and touch-active bloom.
+- Mobile: visible resting caustic flare filament (68%) and touch-active bloom.
 
 **Large surfaces are edge-lit, not bloomed** (`.terminal`, `.novel-card`,
 `.stack-card`, `.stat-card`, `.chapter-card`, `.chapter-body`, `.dict-result`,
@@ -124,6 +124,14 @@ are reserved for `.spot::before` and the card sweep bars):
 Both are visible at rest, so mobile gets the gloss without hover. On mobile
 (≤768px) the filament widens to `46%` and brightens, and panel blur drops to
 10px to keep scrolling cheap.
+
+On phones the surfaces also get a whisper of flare: a `box-shadow` bloom
+(`color-mix(--flare-bloom 72%, transparent)`, 26–28px blur, negative spread)
+under the lower edge, restated per shadow family so every panel keeps its
+bevel. It scales inversely with size — badges and top-bar controls carry the
+hottest bloom, cards a faint one, and the terminal/playlist almost none —
+because a big panel under a hot bloom reads as a glowing floor. Desktop keeps
+the edge-light only.
 
 **Cursor spotlight** (`static/js/spotlight.js`): any element with `.spot`
 gets `--mx`/`--my` (px, relative to the element, typed via `@property` so
