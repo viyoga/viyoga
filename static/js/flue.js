@@ -37,6 +37,7 @@ uniform float uSmokeScale, uCurl, uCurlScale, uRise, uSlender;
 uniform float uWidth, uSpread, uLean, uDensity;
 uniform float uContrast, uMidpoint, uGlow, uSink;
 uniform float uCoolFloor;
+uniform float uCeiling;
 uniform float uGrain, uDither, uVignette;
 uniform float uPointerRadius, uDraft, uPointerStrength, uParallax;
 #define OCTAVES 3
@@ -184,7 +185,13 @@ void main() {
 
   // and it thins as it cools on the way up
   float cool = smoothstep(-0.65, 0.85, uv.y);
-  float smoke = dens * corridor * mix(1.0, uCoolFloor, cool) * uDensity;
+  // Phones breathe the floor up until the plume fills the frame. Left alone
+  // that can wash the entire screen; hold a band of cool air along the top
+  // so the lit area tops out around four fifths of the height. Desktop keeps
+  // the uniform floor it always had (uCeiling is 0 there).
+  float ceiling = smoothstep(0.30, 0.50, uv.y) * uCeiling;
+  float floorTop = mix(uCoolFloor, 0.30, ceiling);
+  float smoke = dens * corridor * mix(1.0, floorTop, cool) * uDensity;
 
   // and the stirred air carries a little more of it — an exposure lift, not a
   // shape, so there is nothing following the cursor to point at
@@ -289,14 +296,23 @@ void main() {
       if (k === 'maxDpr') continue;
       u1f('u' + k.charAt(0).toUpperCase() + k.slice(1), SETTINGS[k]);
     }
+    // Mobile only: hold the top fifth of the frame below the light.
+    u1f('uCeiling', coarsePointer ? 1 : 0);
     resize();
   }
 
   let dpr = 1;
   function resize() {
     dpr = Math.min(window.devicePixelRatio || 1, SETTINGS.maxDpr);
-    const w = Math.max(1, Math.round(innerWidth * dpr));
-    const h = Math.max(1, Math.round(innerHeight * dpr));
+    // Measure the canvas box, not the window. On a phone the URL bar
+    // collapsing changes innerHeight mid-scroll; backing the canvas with the
+    // window made every one of those ticks reallocate the drawing buffer and
+    // drop a frame (the "the gradient freezes when I scroll" hitch). The
+    // element is 100vh, which is stable, so the buffer stays put.
+    const cw = canvas.clientWidth || innerWidth;
+    const ch = canvas.clientHeight || innerHeight;
+    const w = Math.max(1, Math.round(cw * dpr));
+    const h = Math.max(1, Math.round(ch * dpr));
     if (canvas.width !== w || canvas.height !== h) { canvas.width = w; canvas.height = h; }
     gl.viewport(0, 0, w, h);
     gl.useProgram(program);
@@ -327,6 +343,10 @@ void main() {
   const staticMode = !mq || mq('(prefers-reduced-motion: reduce)').matches;
   const coarsePointer = !!mq && mq('(hover: none), (pointer: coarse)').matches;
   const pointerOn = !staticMode && !coarsePointer;
+
+  // Nothing steers the field on a phone, so its own drift is the only motion
+  // on screen. Ease it back a touch: still alive, no longer a metronome.
+  if (coarsePointer) SETTINGS.speed = 0.28;
 
   if (pointerOn) {
     addEventListener('pointermove', aim, { passive: true });
@@ -360,9 +380,10 @@ void main() {
       // Phones only ever see the warm base of the column: at the top the
       // cooling term multiplies density down to uCoolFloor, which sits below
       // uMidpoint, so that band is mathematically incapable of lighting up.
-      // Breathe the floor over a minute so the whole frame fills and recedes
-      // instead of leaving the upper bands permanently black.
-      u1f('uCoolFloor', 0.30 + 0.45 * (0.5 - 0.5 * Math.cos(clock * Math.PI / 30)));
+      // Breathe the floor over 72 seconds so the frame fills and recedes
+      // instead of leaving the upper bands permanently black. The shader's
+      // uCeiling keeps the last fifth of the height cool at the peak.
+      u1f('uCoolFloor', 0.30 + 0.45 * (0.5 - 0.5 * Math.cos(clock * Math.PI / 36)));
     }
     if (pointerOn) {
       const kLead = 0.105 * s, kBody = 0.043 * s, kWake = 0.017 * s;

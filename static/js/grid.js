@@ -58,8 +58,13 @@
   });
 
   function resize() {
-    c.width = window.innerWidth;
-    c.height = window.innerHeight;
+    // The canvas is 100vh, not the window: using innerHeight made the URL bar
+    // collapsing on a phone resize (and rebuild) the whole grid mid-scroll.
+    const w = c.clientWidth || window.innerWidth;
+    const h = c.clientHeight || window.innerHeight;
+    if (c.width === w && c.height === h) return;
+    c.width = w;
+    c.height = h;
     build();
   }
 
