@@ -5,6 +5,10 @@
 {# Marks this as a reading page so the back link can align to the reading column #}
 {% block body_class %}reading{% endblock body_class %}
 
+{% block extrascripts %}
+<script defer src="/js/tts.js?v=20261026_05"></script>
+{% endblock extrascripts %}
+
 {% block content %}
 <nav class="back-link wrap">
   {% set parent_path = page.ancestors | last %}

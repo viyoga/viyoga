@@ -1,0 +1,8 @@
+name = "viyoga-tts"
+main = "worker.js"
+compatibility_date = "2024-01-01"
+compatibility_flags = ["nodejs_compat"]
+
+# The worker runs on the free plan — no KV, no R2, no paid features needed.
+# Deploy: npx wrangler deploy
+# Custom domain (optional): bind a route like tts.viyoga.pages.dev
