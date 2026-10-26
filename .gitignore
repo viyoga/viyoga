@@ -1,9 +1,8 @@
 public/
 .wrangler/
-node_modules/
+.DS_Store
 __pycache__/
 *.pyc
-.DS_Store
 serve-https.py
 ssl/
 unadded-contents/
