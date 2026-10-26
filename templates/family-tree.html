@@ -5,7 +5,7 @@
 {% block body_class %}reading ft-page{% endblock body_class %}
 
 {% block head %}
-<link rel="stylesheet" href="/family-tree.css?v=1">
+<link rel="stylesheet" href="/family-tree.css?v=3">
 {% endblock head %}
 
 {% block content %}
@@ -22,124 +22,31 @@
 </nav>
 
 <header class="wrap wrap-wide ft-masthead">
-  <div class="ft-hero">
-    <div class="terminal-bar">
-      <span>{{ novel.title | upper }} · READER'S COMPANION</span>
-      <div class="terminal-dots">
-        <span class="dot dot-red"></span>
-        <span class="dot dot-yellow"></span>
-        <span class="dot dot-cyan"></span>
-      </div>
-    </div>
-    <div class="ft-hero-body">
-      <p class="ft-kicker">spoilers through chapter 155</p>
-      <h1 class="ft-title"><span class="ft-title-mark">~/</span>Spoilers <span class="ft-title-dash">—</span> Family Tree</h1>
-      <p class="ft-deck">Seven kingdoms, one empty throne, and a family tree with more hidden branches than a royal garden. Every named character up to chapter 155, sorted by the house, clan, or chosen family they belong to.</p>
-      <div class="ft-meta">
-        <span class="ft-chip"><span class="ft-pip" aria-hidden="true"></span>Spoilers through <b>ch. 155</b></span>
-        <span class="ft-chip"><b>12</b> branches</span>
-        <span class="ft-chip"><b id="ftCount">90</b> named characters</span>
-        <span class="ft-chip"><b>3</b> bloodlines · <b>4</b> duchies</span>
-      </div>
-    </div>
+  <p class="ft-kicker">spoilers through chapter 171</p>
+  <h1 class="ft-title"><span class="ft-title-mark">~/</span>Spoilers <span class="ft-title-dash">—</span> Character List</h1>
+  <p class="ft-deck">Every named character up to chapter 171, in one scrolling list, with the one thing that helps you remember who they are sitting right beside their name.</p>
+  <div class="ft-meta">
+    <span class="ft-chip"><span class="ft-pip" aria-hidden="true"></span>Spoilers through <b>ch. 171</b></span>
+    <span class="ft-chip"><b id="ftTotal">0</b> characters</span>
+    <span class="ft-chip"><b id="ftGroups">0</b> groups</span>
   </div>
 </header>
 
-<nav class="ft-subnav" aria-label="Family tree sections">
-  <div class="wrap wrap-wide ft-subnav-inner">
-    <div class="ft-nav-track" id="ftNavTrack">
-      <a class="glass-btn" href="#luxuria">Luxuria</a>
-      <a class="glass-btn" href="#dragon">Dragon line</a>
-      <a class="glass-btn" href="#highland">Highland</a>
-      <a class="glass-btn" href="#gorfard">Gorfard</a>
-      <a class="glass-btn" href="#milaris">Milaris &amp; Travers</a>
-      <a class="glass-btn" href="#gustav">Gustav</a>
-      <a class="glass-btn" href="#church">Church</a>
-      <a class="glass-btn" href="#witches">Witches</a>
-      <a class="glass-btn" href="#wratharis">Wratharis</a>
-      <a class="glass-btn" href="#phoenix">Phoenix</a>
-      <a class="glass-btn" href="#wings">Wings</a>
-      <a class="glass-btn" href="#bonds">Sol’s bonds</a>
-      <a class="glass-btn" href="#index">Index</a>
-    </div>
-  </div>
-</nav>
-
-<div class="ft-surface">
+<div class="wrap wrap-wide ft-surface">
 <div class="ft-surface-inner">
 
-<section class="ft-intro">
-  <div class="ft-how">
-    <h2 class="section-heading glass-btn"><span class="heading-sym">~/</span>how to read this map</h2>
-    <p><b>Blood runs down, marriages run across.</b> Each panel is one branch, ordered oldest generation at the top. A thin solid line is a parent–child tie; a line with a small diamond is a marriage; a dashed line is a secret, a claim, or a parentage the world has wrong; a dotted line is a bond of oath, mentorship, or chosen family rather than blood.</p>
-    <p>Names are marked <b>†</b> when the character is dead by chapter 155, and gods and divine beasts carry a small <b>◇</b>. Faded cards are cross-references to a person whose full entry lives in another panel. Nothing here goes past the end of chapter 155.</p>
-  </div>
-  <aside class="ft-snapshot" aria-label="Story state at chapter 155">
-    <p class="ft-label">the board at chapter 155</p>
-    <div class="ft-snap-grid">
-      <div class="ft-snap"><h3>The crown</h3><p>Sol rules in all but name. Lilith is dying, her homunculus lifespan measured in weeks, and only the Phoenix trial and Nirvana may save her.</p></div>
-      <div class="ft-snap"><h3>The conspiracy</h3><p>Gorfard is broken and demoted; Loki and Leonard hang. Gerald is exiled. The Holy Sword is gone, taken by the Wings of Freedom.</p></div>
-      <div class="ft-snap"><h3>The war</h3><p>Lupus keeps Wratharis at war. Setsuna, its rightful princess, is in Lustburg — a claimant, a guest, and possibly a royal concubine.</p></div>
-      <div class="ft-snap"><h3>What comes next</h3><p>In six days the Astral realm opens. Sol must win Isis’s contract, survive the Phoenix court, and decide what to do about Camelia.</p></div>
-    </div>
-  </aside>
+<section class="ft-list-head">
+  <label class="ft-search">
+    <svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" aria-hidden="true"><circle cx="10.5" cy="10.5" r="6.5"/><path d="M15.5 15.5 21 21"/></svg>
+    <input id="ftSearch" type="search" placeholder="Search a name, house, or title…" autocomplete="off" spellcheck="false" aria-label="Search characters">
+  </label>
+  <p class="ft-count"><span id="ftShown">0</span> shown</p>
 </section>
 
-<section class="ft-legend-wrap" aria-label="Legend">
-  <div class="ft-legend">
-    <span class="ft-legend-item">
-      <svg viewBox="0 0 42 12" aria-hidden="true"><path d="M21 1v10" stroke="currentColor"/><circle cx="21" cy="11" r="2" fill="none" stroke="currentColor"/></svg>
-      parent · child
-    </span>
-    <span class="ft-legend-item">
-      <svg viewBox="0 0 42 12" aria-hidden="true"><path d="M1 6h40" class="ft-legend-marriage"/><rect x="17.5" y="2.5" width="7" height="7" transform="rotate(45 21 6)" fill="none" class="ft-legend-marriage"/></svg>
-      marriage
-    </span>
-    <span class="ft-legend-item">
-      <svg viewBox="0 0 42 12" aria-hidden="true"><path d="M1 6h40" stroke="currentColor" stroke-dasharray="5 4"/></svg>
-      secret / claimed
-    </span>
-    <span class="ft-legend-item">
-      <svg viewBox="0 0 42 12" aria-hidden="true"><path d="M1 6h40" stroke="currentColor" stroke-dasharray="1 3" stroke-linecap="round"/></svg>
-      oath · mentor · chosen
-    </span>
-    <span class="ft-legend-item"><b>†</b> dead</span>
-    <span class="ft-legend-item"><b>◇</b> divine</span>
-    <span class="ft-hint">Click any name to trace its lines.</span>
-  </div>
-</section>
-
-<main class="ft-charts" id="charts"></main>
-
-<section class="ft-index" id="index">
-  <div class="section-header">
-    <h2 class="section-heading glass-btn"><span class="heading-sym">~/</span>character index</h2>
-    <div class="section-line" aria-hidden="true"></div>
-    <span class="section-badge" id="ftIndexCount">90 entries</span>
-  </div>
-  <div class="ft-index-head">
-    <p class="ft-sub">Everyone named through chapter 155, with the one relationship that matters most. Filter by branch or search a name, title, or house.</p>
-    <label class="ft-search">
-      <svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" aria-hidden="true"><circle cx="10.5" cy="10.5" r="6.5"/><path d="M15.5 15.5 21 21"/></svg>
-      <input id="searchInput" type="search" placeholder="Search names…" autocomplete="off" spellcheck="false" aria-label="Search characters">
-    </label>
-  </div>
-  <div class="ft-filters" id="filters"></div>
-  <div class="ft-table-wrap">
-    <table>
-      <thead>
-        <tr><th>Name</th><th>Branch</th><th>Role</th><th>Key relationship</th><th>Status</th></tr>
-      </thead>
-      <tbody id="indexBody"></tbody>
-    </table>
-    <p class="ft-empty" id="emptyState">No one by that name. Try a house, a title, or a chapter name.</p>
-  </div>
-</section>
+<main class="ft-list" id="charList" aria-label="Character list"></main>
 
 <section class="ft-sources">
-  <p><b>Sources &amp; method.</b> Built from the text of <i>Son of the Hero King</i> by Hikaru Genji, chapters 1–155. Where the serial contradicts itself — Lilith’s parentage, the Highland generation, whether Isis is a betrothal or a contract — the chart shows the version the story repeats most often and the notes name the uncertainty. Secret parentages are marked as the reader knows them, not as the characters do.</p>
-  <p><b>Unnamed but load-bearing:</b> Athena and Ares’s parents (Tyr’s son and Gerald’s daughter) · Aurora’s other parent · Arachne’s niece and heir · Milia’s husband Eric “Bull” · Funf’s rumoured kinship to Nuwa · Tiamat’s consort · Camelia’s parents · the Nightmare Queen’s descendants.</p>
-  <p class="ft-sig">“Never forget who you are.”</p>
+  <p><b>Sources &amp; method.</b> Read from the text of <i>Son of the Hero King</i> by Hikaru Genji, chapters 1–171. Where the serial contradicts itself, the entry gives the version the story repeats most often. Secret parentages are marked as the reader knows them, not as the characters do.</p>
 </section>
 
 </div>
@@ -152,5 +59,5 @@
 {% endblock content %}
 
 {% block extrascripts %}
-<script defer src="/js/family-tree.js?v=1"></script>
+<script defer src="/js/family-tree.js?v=3"></script>
 {% endblock extrascripts %}
