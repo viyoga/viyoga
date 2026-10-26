@@ -988,24 +988,123 @@ body.ft-page .back-link {
   }
 }
 
-@media (max-width: 720px) {
-  .ft-page .branch-head {
-    grid-template-columns: 34px minmax(0, 1fr);
-    gap: 8px;
+/* ── Mobile: flat page (no glass backdrop) + stacked trees ────
+   The novel pages sit straight on the page background at these widths,
+   so the companion page does too, and the charts become a vertical
+   list — no horizontal scrollbar anywhere. */
+@media (max-width: 900px) {
+  .ft-hero {
+    background: none;
+    border: 0;
+    box-shadow: none;
+    backdrop-filter: none;
+    -webkit-backdrop-filter: none;
+  }
+
+  .ft-hero .terminal-bar {
+    display: none;
+  }
+
+  .ft-hero-body {
+    padding: 18px 0 6px;
+  }
+
+  .ft-surface {
+    margin-top: 18px;
+    padding: 0 12px;
+  }
+
+  .ft-surface-inner {
+    padding: 0;
+    background: none;
+    border: 0;
+    box-shadow: none;
+  }
+
+  .ft-intro {
+    padding-top: 28px;
   }
 
   .ft-page .branch {
-    padding: 38px 0 34px;
+    padding: 30px 0 26px;
+  }
+
+  .ft-page .chart-scroll {
+    padding: 10px 0 4px;
+    overflow: visible;
+  }
+
+  .ft-page .chart {
+    width: 100%;
+    padding: 0;
+  }
+
+  .ft-page .links {
+    display: none;
   }
 
   .ft-page .row {
-    gap: 30px;
+    flex-direction: column;
+    flex-wrap: nowrap;
+    gap: 10px;
   }
 
   .ft-page .node {
-    width: 180px;
+    width: 100%;
+    min-height: 0;
   }
 
+  .ft-page .gen {
+    padding-bottom: 24px;
+  }
+
+  .ft-page .gen:last-child {
+    padding-bottom: 0;
+  }
+
+  .ft-page .branch-head {
+    grid-template-columns: 1fr;
+    gap: 4px;
+  }
+
+  .ft-page .branch-num {
+    padding-top: 0;
+  }
+
+  .ft-page .branch-notes {
+    grid-template-columns: 1fr;
+  }
+
+  .ft-page .bond-board {
+    grid-template-columns: 1fr;
+  }
+
+  .ft-snapshot {
+    max-width: none;
+  }
+
+  .ft-page .page-nav {
+    padding-bottom: 30px;
+  }
+}
+
+/* Tighter cards on tablets where the widest row is still side-by-side */
+@media (min-width: 901px) and (max-width: 1140px) {
+  .ft-page .node {
+    width: 170px;
+  }
+
+  .ft-page .row {
+    gap: 26px;
+  }
+
+  .ft-surface-inner {
+    padding-left: 22px;
+    padding-right: 22px;
+  }
+}
+
+@media (max-width: 720px) {
   .ft-snap-grid {
     grid-template-columns: 1fr;
   }
@@ -1019,12 +1118,34 @@ body.ft-page .back-link {
     min-width: 0;
   }
 
+  /* Index table: drop the branch column (filters already cover it) and
+     let the rest wrap so nothing scrolls sideways. */
   .ft-index table {
-    min-width: 760px;
+    min-width: 0;
+    table-layout: fixed;
+  }
+
+  .ft-index thead th:nth-child(2),
+  .ft-index td.house {
+    display: none;
+  }
+
+  .ft-index thead th:first-child { width: 34%; }
+  .ft-index thead th:nth-child(3) { width: 30%; }
+  .ft-index thead th:nth-child(5) { width: 18%; }
+
+  .ft-index td.who,
+  .ft-index td.status {
+    white-space: normal;
+  }
+
+  .ft-index td.rel {
+    min-width: 0;
   }
 
   .ft-table-wrap {
     max-height: none;
+    overflow: visible;
   }
 
   .ft-page .page-nav {
