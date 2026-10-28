@@ -5,7 +5,7 @@
 {% block body_class %}reading ft-page{% endblock body_class %}
 
 {% block head %}
-<link rel="stylesheet" href="/family-tree.css?v=3">
+<link rel="stylesheet" href="/family-tree.css?v=20261028_01">
 {% endblock head %}
 
 {% block content %}
@@ -22,11 +22,11 @@
 </nav>
 
 <header class="wrap wrap-wide ft-masthead">
-  <p class="ft-kicker">spoilers through chapter 171</p>
+  <p class="ft-kicker">spoilers through chapter 861</p>
   <h1 class="ft-title"><span class="ft-title-mark">~/</span>Spoilers <span class="ft-title-dash">—</span> Character List</h1>
-  <p class="ft-deck">Every named character up to chapter 171, in one scrolling list, with the one thing that helps you remember who they are sitting right beside their name.</p>
+  <p class="ft-deck">Every named character in all 861 chapters, in one scrolling list, with the one thing that helps you remember who they are sitting right beside their name.</p>
   <div class="ft-meta">
-    <span class="ft-chip"><span class="ft-pip" aria-hidden="true"></span>Spoilers through <b>ch. 171</b></span>
+    <span class="ft-chip"><span class="ft-pip" aria-hidden="true"></span>Spoilers through <b>ch. 861</b></span>
     <span class="ft-chip"><b id="ftTotal">0</b> characters</span>
     <span class="ft-chip"><b id="ftGroups">0</b> groups</span>
   </div>
@@ -35,18 +35,23 @@
 <div class="wrap wrap-wide ft-surface">
 <div class="ft-surface-inner">
 
-<section class="ft-list-head">
+<section class="ft-list-head" role="search">
   <label class="ft-search">
-    <svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="1.8" aria-hidden="true"><circle cx="10.5" cy="10.5" r="6.5"/><path d="M15.5 15.5 21 21"/></svg>
-    <input id="ftSearch" type="search" placeholder="Search a name, house, or title…" autocomplete="off" spellcheck="false" aria-label="Search characters">
+    <span class="ft-search-key" aria-hidden="true">
+      <svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2"><circle cx="10.5" cy="10.5" r="6.5"/><path d="M15.5 15.5 21 21"/></svg>
+    </span>
+    <input id="ftSearch" type="search" placeholder="Search name, alias, house or title…" autocomplete="off" spellcheck="false" aria-label="Search characters" aria-describedby="ftCount">
+    <button type="button" class="ft-clear" id="ftClear" aria-label="Clear search" hidden>
+      <svg viewBox="0 0 24 24" fill="none" stroke="currentColor" stroke-width="2.2" aria-hidden="true"><path d="M6 6l12 12M18 6 6 18"/></svg>
+    </button>
   </label>
-  <p class="ft-count"><span id="ftShown">0</span> shown</p>
+  <p class="ft-count" id="ftCount" aria-live="polite"><span id="ftShown">0</span> <span class="ft-count-of">of <b id="ftOf">0</b></span> shown</p>
 </section>
 
 <main class="ft-list" id="charList" aria-label="Character list"></main>
 
 <section class="ft-sources">
-  <p><b>Sources &amp; method.</b> Read from the text of <i>Son of the Hero King</i> by Hikaru Genji, chapters 1–171. Where the serial contradicts itself, the entry gives the version the story repeats most often. Secret parentages are marked as the reader knows them, not as the characters do.</p>
+  <p><b>Sources &amp; method.</b> Read from the text of <i>Son of the Hero King</i> by Hikaru Genji, chapters 1–861. Where the serial contradicts itself, the entry gives the version the story repeats most often. Secret parentages are marked as the reader knows them, not as the characters do.</p>
 </section>
 
 </div>
@@ -59,5 +64,5 @@
 {% endblock content %}
 
 {% block extrascripts %}
-<script defer src="/js/family-tree.js?v=3"></script>
+<script defer src="/js/family-tree.js?v=20261028_01"></script>
 {% endblock extrascripts %}
