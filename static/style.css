@@ -1723,6 +1723,110 @@ body.reading .chapter-body {
   padding: 6px 14px;
 }
 
+/* ── Chapter bar: index · title · prev/next ──
+   One rule under the reading column, with the chapter name centred between the
+   index link and the arrow pair. The title no longer sits in its own boxed
+   header, which keeps the first line of prose right below the fold. */
+.chapter-bar {
+  max-width: var(--content-w-read);
+  margin: 26px auto 16px;
+  padding: 12px 0 14px;
+  display: grid;
+  grid-template-columns: minmax(0, 1fr) minmax(0, 2fr) minmax(0, 1fr);
+  align-items: center;
+  gap: 16px;
+  border-bottom: 1px solid color-mix(in srgb, var(--fg) 18%, transparent);
+}
+.chapter-bar-index {
+  justify-self: start;
+  padding: 6px 14px;
+  white-space: nowrap;
+}
+.chapter-bar-title {
+  margin: 0;
+  min-width: 0;
+  max-width: 100%;
+  justify-self: center;
+  overflow: hidden;
+  font-family: var(--font-mono);
+  font-size: 1rem;
+  font-weight: 700;
+  letter-spacing: 0.06em;
+  line-height: 1.2;
+  color: var(--fg);
+  text-align: center;
+  text-overflow: ellipsis;
+  white-space: nowrap;
+}
+.chapter-bar-nav {
+  justify-self: end;
+  display: inline-flex;
+  align-items: center;
+  gap: 8px;
+}
+.chapter-bar-arrow {
+  width: 34px;
+  height: 34px;
+  padding: 0;
+  font-size: 1.125rem;
+  font-weight: 700;
+  letter-spacing: 0;
+  text-transform: none;
+  line-height: 1;
+}
+/* Ends of the novel keep both slots so the title never shifts off-centre. */
+.chapter-bar-arrow.is-off {
+  display: inline-flex;
+  align-items: center;
+  justify-content: center;
+  width: 34px;
+  height: 34px;
+  border: 1px solid color-mix(in srgb, var(--fg) 10%, transparent);
+  color: var(--fg-muted);
+  opacity: 0.35;
+  cursor: default;
+  user-select: none;
+}
+
+@media (max-width: 768px) {
+  .chapter-bar {
+    max-width: 100%;
+    margin: 0;
+    padding: 10px 14px 12px;
+    gap: 10px;
+    background: color-mix(in srgb, var(--bg) 82%, transparent);
+    backdrop-filter: blur(12px) saturate(var(--sat, 155%));
+    -webkit-backdrop-filter: blur(12px) saturate(var(--sat, 155%));
+  }
+  .chapter-bar-index {
+    padding: 6px 10px;
+    font-size: 0.6875rem;
+  }
+  .chapter-bar-title {
+    font-size: 0.875rem;
+    letter-spacing: 0.04em;
+  }
+  .chapter-bar-nav { gap: 6px; }
+  /* Keep the arrows thumb-sized; the footer pair handles the long jumps. */
+  .chapter-bar-arrow,
+  .chapter-bar-arrow.is-off {
+    width: 34px;
+    height: 34px;
+    font-size: 1.0625rem;
+  }
+}
+
+@media (max-width: 380px) {
+  .chapter-bar-index {
+    padding: 6px 6px;
+    font-size: 0.5625rem;
+    letter-spacing: 0.04em;
+  }
+  .chapter-bar-title { font-size: 0.8125rem; }
+  .chapter-bar-arrow,
+  .chapter-bar-arrow.is-off { width: 32px; height: 32px; }
+}
+
 /* ── Novel Hero Terminal ── */
 .novel-hero {
   margin: 0 auto 48px;
@@ -2078,6 +2182,43 @@ body.reading .chapter-body {
 .page-nav a:active {
   transform: translate(3px, 3px);
   box-shadow: 0 0 0 var(--accent);
+}
+
+/* Chapter footer: two equal halves, Previous on the left, the accent-filled
+   Next on the right — the same pair the header arrows mirror. */
+.chapter-nav {
+  gap: 10px;
+}
+.chapter-nav a,
+.chapter-nav span {
+  flex: 1 1 0;
+  min-height: 46px;
+  justify-content: center;
+  font-family: var(--font-mono);
+  font-size: var(--text-xs);
+  font-weight: 700;
+  letter-spacing: 0.08em;
+  text-transform: uppercase;
+}
+.chapter-nav .chapter-nav-next {
+  background: linear-gradient(180deg, rgba(255, 255, 255, 0.16), rgba(255, 255, 255, 0) 52%), var(--accent);
+  border-color: color-mix(in srgb, var(--accent) 70%, var(--fg));
+  color: var(--bg);
+  box-shadow: 0 4px 16px -2px rgba(0, 0, 0, 0.45), inset 0 1px 0 rgba(255, 255, 255, 0.3);
+}
+.chapter-nav .chapter-nav-next::after { display: none; }
+.chapter-nav .chapter-nav-next:hover {
+  background: linear-gradient(180deg, rgba(255, 255, 255, 0.2), rgba(255, 255, 255, 0) 52%), var(--accent-bright);
+  border-color: var(--accent-bright);
+  color: var(--bg);
+  box-shadow: 0 0 18px color-mix(in srgb, var(--accent) 45%, transparent), inset 0 1px 0 rgba(255, 255, 255, 0.35);
+}
+.chapter-nav .is-off {
+  border: 1px dashed color-mix(in srgb, var(--fg) 14%, transparent);
+  color: var(--fg-muted);
+  opacity: 0.4;
+  cursor: default;
+  user-select: none;
 }
 
 /* ── Book cards (home shelves) ── */
