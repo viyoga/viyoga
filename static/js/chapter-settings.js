@@ -83,8 +83,10 @@
   }
 
   /* ── Panel ── */
+  var openAt = 0;
   function isOpen() { return panel.classList.contains('is-open'); }
   function open() {
+    openAt = window.pageYOffset || 0;
     panel.classList.add('is-open');
     panel.setAttribute('aria-hidden', 'false');
     btn.setAttribute('aria-expanded', 'true');
@@ -118,6 +120,12 @@
   /* Following a chapter link with the sheet open would leave it open on the
      next page; the browser restores nothing, but a bfcache return can. */
   window.addEventListener('pagehide', close);
+
+  /* The bar scrolls away with the page, so a sheet hanging off it would be
+     stranded mid-prose. Dismiss it as soon as the reader moves on. */
+  window.addEventListener('scroll', function() {
+    if (isOpen() && Math.abs((window.pageYOffset || 0) - openAt) > 24) close();
+  }, { passive: true });
 
   for (var i = 0; i < fontBtns.length; i++) {
     fontBtns[i].addEventListener('click', function() {

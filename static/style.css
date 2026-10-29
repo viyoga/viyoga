@@ -1798,10 +1798,13 @@ body.reading .chapter-body {
      settings. Five columns, two flexible ends — the arrows and title stay dead
      centre no matter how wide "Index" or "Aa" end up. */
   body.chapter-page nav.top { display: none; }
+  /* The wrapper is the positioning context for the sheet, and sits above the
+     prose. The bar itself never sticks: it scrolls away with the page. */
+  body.chapter-page .chapter-head {
+    position: relative;
+    z-index: 5;
+  }
   body.chapter-page .chapter-bar {
-    position: sticky;
-    top: 0;
-    z-index: 900;
     max-width: 100%;
     margin: 0;
     padding: 8px 12px;
@@ -1809,36 +1812,24 @@ body.reading .chapter-body {
     grid-template-columns: minmax(0, 1fr) auto auto auto minmax(0, 1fr);
     align-items: center;
     column-gap: 6px;
-    border-bottom: 1px solid color-mix(in srgb, var(--fg) 18%, transparent);
-    /* Solid: prose scrolling underneath must not ghost through a strip this
-       short. A whispered sheen keeps it from reading as a flat slab. */
-    background:
-      linear-gradient(180deg, color-mix(in srgb, var(--fg) 4%, transparent), transparent 70%),
-      var(--bg);
-    backdrop-filter: blur(14px) saturate(var(--sat, 155%));
-    -webkit-backdrop-filter: blur(14px) saturate(var(--sat, 155%));
+    border-bottom: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
+    /* Same finish as the site nav: one glass strip, one shadow. */
+    background: var(--glass-bg);
+    backdrop-filter: blur(12px) saturate(var(--sat, 155%));
+    -webkit-backdrop-filter: blur(12px) saturate(var(--sat, 155%));
+    box-shadow: 0 6px 22px rgba(0, 0, 0, 0.3), inset 0 -1px 0 rgba(255, 255, 255, 0.06);
   }
   .chapter-bar-index {
     grid-column: 1;
     justify-self: start;
     max-width: 100%;
-    padding: 6px 2px;
+    padding: 6px 9px;
     overflow: hidden;
-    border-color: transparent;
-    background: none;
-    box-shadow: none;
-    backdrop-filter: none;
-    -webkit-backdrop-filter: none;
-    color: var(--fg-dim);
     font-size: 0.625rem;
-    letter-spacing: 0.08em;
+    letter-spacing: 0.06em;
     text-overflow: ellipsis;
     white-space: nowrap;
   }
-  /* The index link reads as a quiet breadcrumb; the arrows carry the glass. */
-  .chapter-bar-index::before,
-  .chapter-bar-index::after { display: none; }
-  .chapter-bar-index:active { color: var(--accent); }
   /* Let the arrows join the bar's own grid so they can sit either side of
      the title without a second wrapper. */
   .chapter-bar-nav { display: contents; }
@@ -1889,11 +1880,16 @@ body.reading .chapter-body {
     display: block;
     padding: 4px 12px 12px;
     border-bottom: 1px solid color-mix(in srgb, var(--fg) 16%, transparent);
-    /* Opaque: prose must not show through the sheet and fight the labels. */
+    /* Glass, like every other panel: the prose stays a blurred suggestion
+       behind it, never legible enough to fight the labels. */
     background:
-      linear-gradient(180deg, color-mix(in srgb, var(--fg) 5%, transparent), transparent 46%),
-      var(--bg-panel);
-    box-shadow: 0 20px 40px -14px rgba(0, 0, 0, 0.7), var(--glass-bevel-top);
+      var(--glass-specular),
+      linear-gradient(180deg, rgba(255, 255, 255, 0.05), rgba(255, 255, 255, 0) 45%),
+      color-mix(in srgb, var(--bg-panel) 92%, transparent);
+    /* A wide blur turns the prose behind into colour, not competing text. */
+    backdrop-filter: blur(30px) saturate(var(--sat, 155%));
+    -webkit-backdrop-filter: blur(30px) saturate(var(--sat, 155%));
+    box-shadow: 0 24px 44px -16px rgba(0, 0, 0, 0.62), var(--glass-bevel-top), var(--glass-bevel-bottom);
     max-height: calc(100dvh - 80px);
     overflow-y: auto;
     opacity: 0;
@@ -2027,11 +2023,11 @@ body.reading .chapter-body {
 @media (max-width: 380px) {
   body.chapter-page .chapter-bar { padding: 8px 10px; column-gap: 4px; }
   .chapter-bar-index {
-    padding: 6px 0;
+    padding: 6px 6px;
     font-size: 0.5625rem;
-    letter-spacing: 0.06em;
+    letter-spacing: 0.03em;
   }
-  .chapter-bar-title { padding: 0 4px; font-size: 0.8125rem; letter-spacing: 0.03em; }
+  .chapter-bar-title { padding: 0 6px; font-size: 0.75rem; letter-spacing: 0.02em; }
   .chapter-bar-arrow,
   .chapter-bar-arrow.is-off { width: 32px; height: 32px; }
   .chapter-bar-tools { min-width: 32px; height: 32px; padding: 0 6px; font-size: 0.75rem; }
@@ -2394,43 +2390,6 @@ body.reading .chapter-body {
 .page-nav a:active {
   transform: translate(3px, 3px);
   box-shadow: 0 0 0 var(--accent);
-}
-
-/* Chapter footer: two equal halves, Previous on the left, the accent-filled
-   Next on the right — the same pair the header arrows mirror. */
-.chapter-nav {
-  gap: 10px;
-}
-.chapter-nav a,
-.chapter-nav span {
-  flex: 1 1 0;
-  min-height: 46px;
-  justify-content: center;
-  font-family: var(--font-mono);
-  font-size: var(--text-xs);
-  font-weight: 700;
-  letter-spacing: 0.08em;
-  text-transform: uppercase;
-}
-.chapter-nav .chapter-nav-next {
-  background: linear-gradient(180deg, rgba(255, 255, 255, 0.16), rgba(255, 255, 255, 0) 52%), var(--accent);
-  border-color: color-mix(in srgb, var(--accent) 70%, var(--fg));
-  color: var(--bg);
-  box-shadow: 0 4px 16px -2px rgba(0, 0, 0, 0.45), inset 0 1px 0 rgba(255, 255, 255, 0.3);
-}
-.chapter-nav .chapter-nav-next::after { display: none; }
-.chapter-nav .chapter-nav-next:hover {
-  background: linear-gradient(180deg, rgba(255, 255, 255, 0.2), rgba(255, 255, 255, 0) 52%), var(--accent-bright);
-  border-color: var(--accent-bright);
-  color: var(--bg);
-  box-shadow: 0 0 18px color-mix(in srgb, var(--accent) 45%, transparent), inset 0 1px 0 rgba(255, 255, 255, 0.35);
-}
-.chapter-nav .is-off {
-  border: 1px dashed color-mix(in srgb, var(--fg) 14%, transparent);
-  color: var(--fg-muted);
-  opacity: 0.4;
-  cursor: default;
-  user-select: none;
 }
 
 /* ── Book cards (home shelves) ── */

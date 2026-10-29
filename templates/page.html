@@ -74,6 +74,7 @@
   {% set_global next_page = page.higher %}
 {% endif %}
 
+<div class="chapter-head">
 <header class="chapter-bar">
   <a class="back-btn chapter-bar-index" href="{{ index_path }}">&larr; {{ index_label }}</a>
   <h1 class="chapter-bar-title" title="{{ page.title }}">{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}</h1>
@@ -91,6 +92,8 @@
   </nav>
   <button class="back-btn chapter-bar-tools" id="chapter-settings-btn" type="button"
           aria-label="Reading settings" aria-expanded="false" aria-controls="chapter-settings">Aa</button>
+
+</header>
 
   {# Mobile-only reading sheet: the site nav (and its theme/font buttons) is
      hidden on chapter pages, so everything lives here. #}
@@ -122,22 +125,14 @@
       </div>
     </div>
   </div>
-</header>
+</div>
 
 <div class="chapter-body entry-content" itemprop="articleBody">
   {{ page.content | safe }}
 </div>
 
-<nav class="page-nav chapter-nav" aria-label="Chapter navigation">
-  {% if prev_page %}
-    <a class="chapter-nav-prev" href="{{ prev_page.path }}">&lsaquo; Previous</a>
-  {% else %}
-    <span class="chapter-nav-prev is-off" aria-hidden="true">&lsaquo; Previous</span>
-  {% endif %}
-  {% if next_page %}
-    <a class="chapter-nav-next" href="{{ next_page.path }}">Next &rsaquo;</a>
-  {% else %}
-    <span class="chapter-nav-next is-off" aria-hidden="true">Next &rsaquo;</span>
-  {% endif %}
-</nav>
+<div class="page-nav">
+  <div>{% if prev_page %}<a href="{{ prev_page.path }}">&#8592; {% if prev_page.extra.nav_title %}{{ prev_page.extra.nav_title }}{% elif prev_page.extra.chapter %}{{ unit }} {{ prev_page.extra.chapter }}{% else %}{{ prev_page.title }}{% endif %}</a>{% endif %}</div>
+  <div>{% if next_page %}<a href="{{ next_page.path }}">{% if next_page.extra.nav_title %}{{ next_page.extra.nav_title }}{% elif next_page.extra.chapter %}{{ unit }} {{ next_page.extra.chapter }}{% else %}{{ next_page.title }}{% endif %} &#8594;</a>{% endif %}</div>
+</div>
 {% endblock content %}
