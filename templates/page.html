@@ -2,8 +2,11 @@
 
 {% block title %}{{ page.title }} — {{ config.title }}{% endblock title %}
 
-{# Marks this as a reading page so the chapter bar aligns to the reading column #}
-{% block body_class %}reading{% endblock body_class %}
+{# Marks this as a reading page so the chapter bar aligns to the reading column.
+   `chapter-page` additionally swaps the site nav for the chapter bar on phones. #}
+{% block body_class %}reading chapter-page{% endblock body_class %}
+
+{% block extrascripts %}{{ super() }}<script defer src="/js/chapter-settings.js"></script>{% endblock extrascripts %}
 
 {% block content %}
 {% set ancestors = page.ancestors %}
@@ -76,16 +79,49 @@
   <h1 class="chapter-bar-title" title="{{ page.title }}">{% if page.extra.chapter %}{{ unit }} {{ page.extra.chapter }}{% else %}{{ page.title }}{% endif %}</h1>
   <nav class="chapter-bar-nav" aria-label="Chapter navigation">
     {% if prev_page %}
-      <a class="back-btn chapter-bar-arrow" href="{{ prev_page.path }}" title="Previous: {{ prev_page.title }}" aria-label="Previous chapter">&lsaquo;</a>
+      <a class="back-btn chapter-bar-arrow chapter-bar-prev" href="{{ prev_page.path }}" title="Previous: {{ prev_page.title }}" aria-label="Previous chapter">&lsaquo;</a>
     {% else %}
-      <span class="chapter-bar-arrow is-off" aria-hidden="true">&lsaquo;</span>
+      <span class="chapter-bar-arrow chapter-bar-prev is-off" aria-hidden="true">&lsaquo;</span>
     {% endif %}
     {% if next_page %}
-      <a class="back-btn chapter-bar-arrow" href="{{ next_page.path }}" title="Next: {{ next_page.title }}" aria-label="Next chapter">&rsaquo;</a>
+      <a class="back-btn chapter-bar-arrow chapter-bar-next" href="{{ next_page.path }}" title="Next: {{ next_page.title }}" aria-label="Next chapter">&rsaquo;</a>
     {% else %}
-      <span class="chapter-bar-arrow is-off" aria-hidden="true">&rsaquo;</span>
+      <span class="chapter-bar-arrow chapter-bar-next is-off" aria-hidden="true">&rsaquo;</span>
     {% endif %}
   </nav>
+  <button class="back-btn chapter-bar-tools" id="chapter-settings-btn" type="button"
+          aria-label="Reading settings" aria-expanded="false" aria-controls="chapter-settings">Aa</button>
+
+  {# Mobile-only reading sheet: the site nav (and its theme/font buttons) is
+     hidden on chapter pages, so everything lives here. #}
+  <div class="chapter-settings" id="chapter-settings" aria-hidden="true">
+    <div class="chapter-settings-row">
+      <span class="chapter-settings-label" id="cs-font-label">Font</span>
+      <div class="chapter-settings-seg" role="group" aria-labelledby="cs-font-label">
+        <button type="button" data-font-choice="maple">Maple</button>
+        <button type="button" data-font-choice="iosevka">Iosevka</button>
+        <button type="button" data-font-choice="space">Space</button>
+      </div>
+    </div>
+    <div class="chapter-settings-row">
+      <span class="chapter-settings-label" id="cs-size-label">Size</span>
+      <div class="chapter-settings-size" role="group" aria-labelledby="cs-size-label">
+        <button type="button" data-size-step="-1" aria-label="Smaller text">A&minus;</button>
+        <output class="chapter-settings-value" id="cs-size-value" aria-live="polite">100%</output>
+        <button type="button" data-size-step="1" aria-label="Larger text">A+</button>
+      </div>
+    </div>
+    <div class="chapter-settings-row">
+      <span class="chapter-settings-label" id="cs-theme-label">Theme</span>
+      <div class="chapter-settings-themes" role="group" aria-labelledby="cs-theme-label">
+        <button type="button" data-theme-choice="amber"><i class="cs-dot" aria-hidden="true"></i>Amber</button>
+        <button type="button" data-theme-choice="mallow"><i class="cs-dot" aria-hidden="true"></i>Mallow</button>
+        <button type="button" data-theme-choice="safelight"><i class="cs-dot" aria-hidden="true"></i>Safelight</button>
+        <button type="button" data-theme-choice="tungsten"><i class="cs-dot" aria-hidden="true"></i>Tungsten</button>
+        <button type="button" data-theme-choice="nyctophobia" title="Nyctophobia"><i class="cs-dot" aria-hidden="true"></i>Nycto</button>
+      </div>
+    </div>
+  </div>
 </header>
 
 <div class="chapter-body entry-content" itemprop="articleBody">

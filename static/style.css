@@ -1764,6 +1764,9 @@ body.reading .chapter-body {
   align-items: center;
   gap: 8px;
 }
+/* Tools button only exists on phones, where it replaces the site nav. */
+.chapter-bar-tools { display: none; }
+.chapter-settings { display: none; }
 .chapter-bar-arrow {
   width: 34px;
   height: 34px;
@@ -1789,42 +1792,251 @@ body.reading .chapter-body {
 }
 
 @media (max-width: 768px) {
-  .chapter-bar {
+  /* ── Mobile chapter chrome ──
+     The chapter bar replaces the site nav on phones: one sticky strip with the
+     index link, the chapter number flanked by its arrows, and the reading
+     settings. Five columns, two flexible ends — the arrows and title stay dead
+     centre no matter how wide "Index" or "Aa" end up. */
+  body.chapter-page nav.top { display: none; }
+  body.chapter-page .chapter-bar {
+    position: sticky;
+    top: 0;
+    z-index: 900;
     max-width: 100%;
     margin: 0;
-    padding: 10px 14px 12px;
-    gap: 10px;
-    background: color-mix(in srgb, var(--bg) 82%, transparent);
-    backdrop-filter: blur(12px) saturate(var(--sat, 155%));
-    -webkit-backdrop-filter: blur(12px) saturate(var(--sat, 155%));
+    padding: 8px 12px;
+    display: grid;
+    grid-template-columns: minmax(0, 1fr) auto auto auto minmax(0, 1fr);
+    align-items: center;
+    column-gap: 6px;
+    border-bottom: 1px solid color-mix(in srgb, var(--fg) 18%, transparent);
+    /* Solid: prose scrolling underneath must not ghost through a strip this
+       short. A whispered sheen keeps it from reading as a flat slab. */
+    background:
+      linear-gradient(180deg, color-mix(in srgb, var(--fg) 4%, transparent), transparent 70%),
+      var(--bg);
+    backdrop-filter: blur(14px) saturate(var(--sat, 155%));
+    -webkit-backdrop-filter: blur(14px) saturate(var(--sat, 155%));
   }
   .chapter-bar-index {
-    padding: 6px 10px;
-    font-size: 0.6875rem;
+    grid-column: 1;
+    justify-self: start;
+    max-width: 100%;
+    padding: 6px 2px;
+    overflow: hidden;
+    border-color: transparent;
+    background: none;
+    box-shadow: none;
+    backdrop-filter: none;
+    -webkit-backdrop-filter: none;
+    color: var(--fg-dim);
+    font-size: 0.625rem;
+    letter-spacing: 0.08em;
+    text-overflow: ellipsis;
+    white-space: nowrap;
   }
+  /* The index link reads as a quiet breadcrumb; the arrows carry the glass. */
+  .chapter-bar-index::before,
+  .chapter-bar-index::after { display: none; }
+  .chapter-bar-index:active { color: var(--accent); }
+  /* Let the arrows join the bar's own grid so they can sit either side of
+     the title without a second wrapper. */
+  .chapter-bar-nav { display: contents; }
+  .chapter-bar-prev { grid-column: 2; grid-row: 1; }
+  .chapter-bar-next { grid-column: 4; grid-row: 1; }
   .chapter-bar-title {
+    grid-column: 3;
+    grid-row: 1;
+    /* The gap between the number and its arrows, on top of the grid gutter. */
+    padding: 0 6px;
     font-size: 0.875rem;
-    letter-spacing: 0.04em;
+    letter-spacing: 0.05em;
   }
-  .chapter-bar-nav { gap: 6px; }
+  .chapter-bar-tools {
+    grid-column: 5;
+    grid-row: 1;
+    justify-self: end;
+    display: inline-flex;
+    min-width: 36px;
+    height: 36px;
+    padding: 0 8px;
+    font-size: 0.8125rem;
+    letter-spacing: 0.02em;
+    text-transform: none;
+  }
+  .chapter-bar-tools[aria-expanded="true"] {
+    border-color: color-mix(in srgb, var(--accent) 60%, transparent);
+    color: var(--accent);
+  }
   /* Keep the arrows thumb-sized; the footer pair handles the long jumps. */
   .chapter-bar-arrow,
   .chapter-bar-arrow.is-off {
-    width: 34px;
-    height: 34px;
+    width: 36px;
+    height: 36px;
     font-size: 1.0625rem;
+  }
+
+  body.chapter-page .chapter-body {
+    font-size: calc(1rem * var(--read-scale, 1));
+  }
+
+  /* ── Reading settings sheet ── */
+  .chapter-settings {
+    position: absolute;
+    top: calc(100% - 1px);
+    left: 0;
+    right: 0;
+    display: block;
+    padding: 4px 12px 12px;
+    border-bottom: 1px solid color-mix(in srgb, var(--fg) 16%, transparent);
+    /* Opaque: prose must not show through the sheet and fight the labels. */
+    background:
+      linear-gradient(180deg, color-mix(in srgb, var(--fg) 5%, transparent), transparent 46%),
+      var(--bg-panel);
+    box-shadow: 0 20px 40px -14px rgba(0, 0, 0, 0.7), var(--glass-bevel-top);
+    max-height: calc(100dvh - 80px);
+    overflow-y: auto;
+    opacity: 0;
+    visibility: hidden;
+    transform: translateY(-6px);
+    transition: opacity 0.16s ease, transform 0.18s cubic-bezier(0.16, 1, 0.3, 1), visibility 0.16s;
+  }
+  .chapter-settings.is-open {
+    opacity: 1;
+    visibility: visible;
+    transform: translateY(0);
+  }
+  .chapter-settings-row {
+    display: grid;
+    grid-template-columns: 44px minmax(0, 1fr);
+    align-items: center;
+    gap: 10px;
+    padding: 9px 0;
+  }
+  .chapter-settings-row + .chapter-settings-row {
+    border-top: 1px solid color-mix(in srgb, var(--fg) 9%, transparent);
+  }
+  .chapter-settings-label {
+    font-family: var(--font-mono);
+    font-size: 0.625rem;
+    letter-spacing: 0.14em;
+    text-transform: uppercase;
+    color: var(--fg-muted);
+  }
+  /* Controls share one quiet glass chip; the chosen one takes the accent. */
+  .chapter-settings-seg,
+  .chapter-settings-size,
+  .chapter-settings-themes { min-width: 0; }
+  .chapter-settings button {
+    border-radius: 0;
+    border: 1px solid color-mix(in srgb, var(--fg) 13%, transparent);
+    background: color-mix(in srgb, var(--bg) 35%, transparent);
+    color: var(--fg-dim);
+    font-family: var(--font-mono);
+    cursor: pointer;
+    transition: color 0.14s ease, border-color 0.14s ease, background 0.14s ease;
+  }
+  .chapter-settings button:hover { color: var(--fg); border-color: color-mix(in srgb, var(--fg) 26%, transparent); }
+  .chapter-settings button:focus-visible {
+    outline: 2px solid var(--focus-ring);
+    outline-offset: 1px;
+  }
+  .chapter-settings-seg {
+    display: grid;
+    grid-template-columns: repeat(3, minmax(0, 1fr));
+    gap: 4px;
+  }
+  .chapter-settings-seg button {
+    padding: 7px 2px;
+    font-size: 0.6875rem;
+    letter-spacing: 0.01em;
+    white-space: nowrap;
+  }
+  /* Each face is sampled in the face itself. */
+  .chapter-settings-seg button[data-font-choice="maple"] { font-family: "Maple Mono NF", monospace; }
+  .chapter-settings-seg button[data-font-choice="iosevka"] { font-family: "Iosevka", monospace; }
+  .chapter-settings-seg button[data-font-choice="space"] { font-family: "Space Mono", monospace; }
+  .chapter-settings button[aria-pressed="true"] {
+    background: color-mix(in srgb, var(--accent) 12%, transparent);
+    border-color: color-mix(in srgb, var(--accent) 55%, transparent);
+    color: var(--accent);
+  }
+  /* A− · readout · A+ read as one control, like the font segments above. */
+  .chapter-settings-size {
+    display: grid;
+    grid-template-columns: minmax(0, 1fr) minmax(0, 1.15fr) minmax(0, 1fr);
+    gap: 4px;
+  }
+  .chapter-settings-size button {
+    width: 100%;
+    height: 32px;
+    font-size: 0.75rem;
+    line-height: 1;
+  }
+  .chapter-settings-size button:disabled {
+    opacity: 0.35;
+    cursor: default;
+  }
+  .chapter-settings-value {
+    display: flex;
+    align-items: center;
+    justify-content: center;
+    min-width: 0;
+    border: 1px solid color-mix(in srgb, var(--fg) 8%, transparent);
+    background: color-mix(in srgb, var(--bg) 26%, transparent);
+    font-family: var(--font-mono);
+    font-size: 0.75rem;
+    letter-spacing: 0.06em;
+    color: var(--fg);
+    font-variant-numeric: tabular-nums;
+  }
+  .chapter-settings-themes {
+    display: grid;
+    grid-template-columns: repeat(2, minmax(0, 1fr));
+    gap: 4px;
+  }
+  .chapter-settings-themes button {
+    display: inline-flex;
+    align-items: center;
+    gap: 7px;
+    padding: 7px 9px;
+    font-size: 0.625rem;
+    letter-spacing: 0.08em;
+    text-transform: uppercase;
+    text-align: left;
+  }
+  .cs-dot {
+    width: 8px;
+    height: 8px;
+    border-radius: 50%;
+    background: var(--dot, currentColor);
+    box-shadow: 0 0 7px color-mix(in srgb, var(--dot, transparent) 55%, transparent);
+  }
+  .chapter-settings-themes button[data-theme-choice="amber"] { --dot: #FF8A4D; }
+  .chapter-settings-themes button[data-theme-choice="mallow"] { --dot: #C89BFF; }
+  .chapter-settings-themes button[data-theme-choice="safelight"] { --dot: #FF4D6A; }
+  .chapter-settings-themes button[data-theme-choice="tungsten"] { --dot: #F2F5FA; }
+  .chapter-settings-themes button[data-theme-choice="nyctophobia"] { --dot: #EA5562; }
+  .chapter-settings-themes button[aria-pressed="true"] {
+    background: color-mix(in srgb, var(--dot) 13%, transparent);
+    border-color: color-mix(in srgb, var(--dot) 60%, transparent);
+    color: var(--fg);
   }
 }
 
 @media (max-width: 380px) {
+  body.chapter-page .chapter-bar { padding: 8px 10px; column-gap: 4px; }
   .chapter-bar-index {
-    padding: 6px 6px;
+    padding: 6px 0;
     font-size: 0.5625rem;
-    letter-spacing: 0.04em;
+    letter-spacing: 0.06em;
   }
-  .chapter-bar-title { font-size: 0.8125rem; }
+  .chapter-bar-title { padding: 0 4px; font-size: 0.8125rem; letter-spacing: 0.03em; }
   .chapter-bar-arrow,
   .chapter-bar-arrow.is-off { width: 32px; height: 32px; }
+  .chapter-bar-tools { min-width: 32px; height: 32px; padding: 0 6px; font-size: 0.75rem; }
+  .chapter-settings { padding: 4px 10px 10px; }
+  .chapter-settings-row { grid-template-columns: 38px minmax(0, 1fr); gap: 8px; }
 }
 
 /* ── Novel Hero Terminal ── */
