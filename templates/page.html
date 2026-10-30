@@ -98,31 +98,25 @@
   {# Mobile-only reading sheet: the site nav (and its theme/font buttons) is
      hidden on chapter pages, so everything lives here. #}
   <div class="chapter-settings" id="chapter-settings" aria-hidden="true">
-    <div class="chapter-settings-row">
-      <span class="chapter-settings-label" id="cs-font-label">Font</span>
-      <div class="chapter-settings-seg" role="group" aria-labelledby="cs-font-label">
-        <button type="button" data-font-choice="maple">Maple</button>
-        <button type="button" data-font-choice="iosevka">Iosevka</button>
-        <button type="button" data-font-choice="space">Space</button>
-      </div>
+    <div class="cs-size">
+      <span class="cs-a cs-a-min" aria-hidden="true">A</span>
+      <input class="cs-range" id="cs-size" type="range" min="85" max="130" step="5" value="100" aria-label="Text size">
+      <span class="cs-a cs-a-max" aria-hidden="true">A</span>
     </div>
-    <div class="chapter-settings-row">
-      <span class="chapter-settings-label" id="cs-size-label">Size</span>
-      <div class="chapter-settings-size" role="group" aria-labelledby="cs-size-label">
-        <button type="button" data-size-step="-1" aria-label="Smaller text">A&minus;</button>
-        <output class="chapter-settings-value" id="cs-size-value" aria-live="polite">100%</output>
-        <button type="button" data-size-step="1" aria-label="Larger text">A+</button>
-      </div>
+
+    <div class="cs-faces" role="group" aria-label="Typeface">
+      <button type="button" data-font-choice="maple"><b>Aa</b><span>Maple</span></button>
+      <button type="button" data-font-choice="iosevka"><b>Aa</b><span>Iosevka</span></button>
+      <button type="button" data-font-choice="space"><b>Aa</b><span>Space</span></button>
     </div>
-    <div class="chapter-settings-row">
-      <span class="chapter-settings-label" id="cs-theme-label">Theme</span>
-      <div class="chapter-settings-themes" role="group" aria-labelledby="cs-theme-label">
-        <button type="button" data-theme-choice="amber"><i class="cs-dot" aria-hidden="true"></i>Amber</button>
-        <button type="button" data-theme-choice="mallow"><i class="cs-dot" aria-hidden="true"></i>Mallow</button>
-        <button type="button" data-theme-choice="safelight"><i class="cs-dot" aria-hidden="true"></i>Safelight</button>
-        <button type="button" data-theme-choice="tungsten"><i class="cs-dot" aria-hidden="true"></i>Tungsten</button>
-        <button type="button" data-theme-choice="nyctophobia" title="Nyctophobia"><i class="cs-dot" aria-hidden="true"></i>Nycto</button>
-      </div>
+
+    <div class="cs-themes" role="group" aria-label="Theme">
+      <button type="button" data-theme-choice="amber" aria-label="Amber" title="Amber"><i></i></button>
+      <button type="button" data-theme-choice="mallow" aria-label="Mallow" title="Mallow"><i></i></button>
+      <button type="button" data-theme-choice="safelight" aria-label="Safelight" title="Safelight"><i></i></button>
+      <button type="button" data-theme-choice="tungsten" aria-label="Tungsten" title="Tungsten"><i></i></button>
+      <button type="button" data-theme-choice="nyctophobia" aria-label="Nyctophobia" title="Nyctophobia"><i></i></button>
+      <span class="cs-theme-name" id="cs-theme-name" aria-live="polite">Safelight</span>
     </div>
   </div>
 </div>

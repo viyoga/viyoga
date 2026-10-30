@@ -1812,12 +1812,24 @@ body.reading .chapter-body {
     grid-template-columns: minmax(0, 1fr) auto auto auto minmax(0, 1fr);
     align-items: center;
     column-gap: 6px;
-    border-bottom: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
-    /* Same finish as the site nav: one glass strip, one shadow. */
-    background: var(--glass-bg);
+    border-bottom: 1px solid color-mix(in srgb, var(--fg) 12%, transparent);
+    /* Thin glass: the page reads straight through it, like the chapter cards. */
+    background: color-mix(in srgb, var(--bg-panel) 18%, transparent);
     backdrop-filter: blur(12px) saturate(var(--sat, 155%));
     -webkit-backdrop-filter: blur(12px) saturate(var(--sat, 155%));
-    box-shadow: 0 6px 22px rgba(0, 0, 0, 0.3), inset 0 -1px 0 rgba(255, 255, 255, 0.06);
+    box-shadow: 0 6px 22px rgba(0, 0, 0, 0.22);
+  }
+  /* The chips inside drop a pane thinner still, or the two glasses stack into
+     an opaque slab. */
+  .chapter-bar-index,
+  .chapter-bar-arrow,
+  .chapter-bar-tools {
+    background: color-mix(in srgb, var(--bg-panel) 12%, transparent);
+    box-shadow: 0 2px 9px rgba(0, 0, 0, 0.16), var(--glass-bevel-top);
+  }
+  .chapter-bar-arrow.is-off {
+    background: color-mix(in srgb, var(--bg-panel) 8%, transparent);
+    box-shadow: none;
   }
   .chapter-bar-index {
     grid-column: 1;
@@ -1871,25 +1883,24 @@ body.reading .chapter-body {
     font-size: calc(1rem * var(--read-scale, 1));
   }
 
-  /* ── Reading settings sheet ── */
+  /* ── Reading settings sheet ──
+     No labels, no segmented boxes: a size rail, live type samples and five
+     theme discs. Everything is read at a glance instead of parsed. */
   .chapter-settings {
     position: absolute;
     top: calc(100% - 1px);
     left: 0;
     right: 0;
     display: block;
-    padding: 4px 12px 12px;
-    border-bottom: 1px solid color-mix(in srgb, var(--fg) 16%, transparent);
-    /* Glass, like every other panel: the prose stays a blurred suggestion
-       behind it, never legible enough to fight the labels. */
+    padding: 13px 16px 15px;
+    border-bottom: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
     background:
       var(--glass-specular),
       linear-gradient(180deg, rgba(255, 255, 255, 0.05), rgba(255, 255, 255, 0) 45%),
-      color-mix(in srgb, var(--bg-panel) 92%, transparent);
-    /* A wide blur turns the prose behind into colour, not competing text. */
-    backdrop-filter: blur(30px) saturate(var(--sat, 155%));
-    -webkit-backdrop-filter: blur(30px) saturate(var(--sat, 155%));
-    box-shadow: 0 24px 44px -16px rgba(0, 0, 0, 0.62), var(--glass-bevel-top), var(--glass-bevel-bottom);
+      color-mix(in srgb, var(--bg-panel) 62%, transparent);
+    backdrop-filter: blur(26px) saturate(var(--sat, 155%));
+    -webkit-backdrop-filter: blur(26px) saturate(var(--sat, 155%));
+    box-shadow: 0 22px 42px -18px rgba(0, 0, 0, 0.6), var(--glass-bevel-top), var(--glass-bevel-bottom);
     max-height: calc(100dvh - 80px);
     overflow-y: auto;
     opacity: 0;
@@ -1902,121 +1913,175 @@ body.reading .chapter-body {
     visibility: visible;
     transform: translateY(0);
   }
-  .chapter-settings-row {
-    display: grid;
-    grid-template-columns: 44px minmax(0, 1fr);
+
+  /* Size rail */
+  .cs-size {
+    display: flex;
     align-items: center;
-    gap: 10px;
-    padding: 9px 0;
+    gap: 13px;
+    height: 30px;
   }
-  .chapter-settings-row + .chapter-settings-row {
-    border-top: 1px solid color-mix(in srgb, var(--fg) 9%, transparent);
-  }
-  .chapter-settings-label {
+  .cs-a {
     font-family: var(--font-mono);
-    font-size: 0.625rem;
-    letter-spacing: 0.14em;
-    text-transform: uppercase;
-    color: var(--fg-muted);
-  }
-  /* Controls share one quiet glass chip; the chosen one takes the accent. */
-  .chapter-settings-seg,
-  .chapter-settings-size,
-  .chapter-settings-themes { min-width: 0; }
-  .chapter-settings button {
-    border-radius: 0;
-    border: 1px solid color-mix(in srgb, var(--fg) 13%, transparent);
-    background: color-mix(in srgb, var(--bg) 35%, transparent);
     color: var(--fg-dim);
-    font-family: var(--font-mono);
+    line-height: 1;
+    user-select: none;
+  }
+  .cs-a-min { font-size: 0.625rem; }
+  .cs-a-max { font-size: 1.0625rem; }
+  .cs-range {
+    -webkit-appearance: none;
+    appearance: none;
+    flex: 1 1 auto;
+    min-width: 0;
+    height: 26px;
+    margin: 0;
+    background: transparent;
     cursor: pointer;
-    transition: color 0.14s ease, border-color 0.14s ease, background 0.14s ease;
   }
-  .chapter-settings button:hover { color: var(--fg); border-color: color-mix(in srgb, var(--fg) 26%, transparent); }
-  .chapter-settings button:focus-visible {
-    outline: 2px solid var(--focus-ring);
-    outline-offset: 1px;
+  .cs-range:focus-visible { outline: none; }
+  .cs-range::-webkit-slider-runnable-track {
+    height: 1px;
+    background: color-mix(in srgb, var(--fg) 24%, transparent);
   }
-  .chapter-settings-seg {
+  .cs-range::-webkit-slider-thumb {
+    -webkit-appearance: none;
+    appearance: none;
+    width: 3px;
+    height: 17px;
+    margin-top: -8px;
+    border: 0;
+    border-radius: 0;
+    background: var(--accent);
+    box-shadow: 0 0 10px color-mix(in srgb, var(--accent) 65%, transparent);
+  }
+  .cs-range::-moz-range-track {
+    height: 1px;
+    background: color-mix(in srgb, var(--fg) 24%, transparent);
+  }
+  .cs-range::-moz-range-thumb {
+    width: 3px;
+    height: 17px;
+    border: 0;
+    border-radius: 0;
+    background: var(--accent);
+    box-shadow: 0 0 10px color-mix(in srgb, var(--accent) 65%, transparent);
+  }
+  .cs-range:focus-visible::-webkit-slider-thumb {
+    box-shadow: 0 0 0 2px var(--bg-panel), 0 0 0 3px var(--accent);
+  }
+
+  /* Type samples */
+  .cs-faces,
+  .cs-themes {
+    margin-top: 11px;
+    padding-top: 12px;
+    border-top: 1px solid color-mix(in srgb, var(--fg) 8%, transparent);
+  }
+  .cs-faces {
     display: grid;
     grid-template-columns: repeat(3, minmax(0, 1fr));
     gap: 4px;
   }
-  .chapter-settings-seg button {
-    padding: 7px 2px;
-    font-size: 0.6875rem;
-    letter-spacing: 0.01em;
-    white-space: nowrap;
+  .cs-faces button {
+    display: flex;
+    flex-direction: column;
+    align-items: center;
+    gap: 3px;
+    padding: 6px 2px 7px;
+    border: 0;
+    border-bottom: 1px solid transparent;
+    border-radius: 0;
+    background: none;
+    color: var(--fg-muted);
+    cursor: pointer;
+    transition: color 0.15s ease, border-color 0.15s ease;
   }
-  /* Each face is sampled in the face itself. */
-  .chapter-settings-seg button[data-font-choice="maple"] { font-family: "Maple Mono NF", monospace; }
-  .chapter-settings-seg button[data-font-choice="iosevka"] { font-family: "Iosevka", monospace; }
-  .chapter-settings-seg button[data-font-choice="space"] { font-family: "Space Mono", monospace; }
-  .chapter-settings button[aria-pressed="true"] {
-    background: color-mix(in srgb, var(--accent) 12%, transparent);
-    border-color: color-mix(in srgb, var(--accent) 55%, transparent);
-    color: var(--accent);
-  }
-  /* A− · readout · A+ read as one control, like the font segments above. */
-  .chapter-settings-size {
-    display: grid;
-    grid-template-columns: minmax(0, 1fr) minmax(0, 1.15fr) minmax(0, 1fr);
-    gap: 4px;
-  }
-  .chapter-settings-size button {
-    width: 100%;
-    height: 32px;
-    font-size: 0.75rem;
+  .cs-faces b {
+    font-size: 1.1875rem;
+    font-weight: 400;
     line-height: 1;
   }
-  .chapter-settings-size button:disabled {
-    opacity: 0.35;
-    cursor: default;
+  .cs-faces span {
+    font-family: var(--font-mono);
+    font-size: 0.5rem;
+    letter-spacing: 0.13em;
+    text-transform: uppercase;
   }
-  .chapter-settings-value {
+  .cs-faces button[data-font-choice="maple"] b { font-family: "Maple Mono NF", monospace; }
+  .cs-faces button[data-font-choice="iosevka"] b { font-family: "Iosevka", monospace; }
+  .cs-faces button[data-font-choice="space"] b { font-family: "Space Mono", monospace; }
+  .cs-faces button:hover { color: var(--fg-dim); }
+  .cs-faces button { position: relative; }
+  .cs-faces button[aria-pressed="true"] { color: var(--fg); }
+  /* A short rule under the chosen sample, not a full-width tab. */
+  .cs-faces button[aria-pressed="true"]::after {
+    content: "";
+    position: absolute;
+    left: 50%;
+    bottom: 0;
+    width: 30px;
+    height: 1px;
+    margin-left: -15px;
+    background: var(--accent);
+  }
+  .cs-faces button[aria-pressed="true"] span { color: var(--accent); }
+  .cs-faces button:focus-visible,
+  .cs-themes button:focus-visible {
+    outline: 2px solid var(--focus-ring);
+    outline-offset: 2px;
+  }
+
+  /* Theme discs: each one shows its own paper and ink. */
+  .cs-themes {
     display: flex;
     align-items: center;
-    justify-content: center;
-    min-width: 0;
-    border: 1px solid color-mix(in srgb, var(--fg) 8%, transparent);
-    background: color-mix(in srgb, var(--bg) 26%, transparent);
-    font-family: var(--font-mono);
-    font-size: 0.75rem;
-    letter-spacing: 0.06em;
-    color: var(--fg);
-    font-variant-numeric: tabular-nums;
+    gap: 13px;
+    padding-left: 2px;
+    padding-bottom: 1px;
   }
-  .chapter-settings-themes {
-    display: grid;
-    grid-template-columns: repeat(2, minmax(0, 1fr));
-    gap: 4px;
-  }
-  .chapter-settings-themes button {
-    display: inline-flex;
-    align-items: center;
-    gap: 7px;
-    padding: 7px 9px;
-    font-size: 0.625rem;
-    letter-spacing: 0.08em;
-    text-transform: uppercase;
-    text-align: left;
-  }
-  .cs-dot {
-    width: 8px;
-    height: 8px;
+  .cs-themes button {
+    width: 27px;
+    height: 27px;
+    padding: 0;
+    border: 0;
     border-radius: 50%;
-    background: var(--dot, currentColor);
-    box-shadow: 0 0 7px color-mix(in srgb, var(--dot, transparent) 55%, transparent);
+    background: none;
+    cursor: pointer;
+    transition: transform 0.15s cubic-bezier(0.16, 1, 0.3, 1);
   }
-  .chapter-settings-themes button[data-theme-choice="amber"] { --dot: #FF8A4D; }
-  .chapter-settings-themes button[data-theme-choice="mallow"] { --dot: #C89BFF; }
-  .chapter-settings-themes button[data-theme-choice="safelight"] { --dot: #FF4D6A; }
-  .chapter-settings-themes button[data-theme-choice="tungsten"] { --dot: #F2F5FA; }
-  .chapter-settings-themes button[data-theme-choice="nyctophobia"] { --dot: #EA5562; }
-  .chapter-settings-themes button[aria-pressed="true"] {
-    background: color-mix(in srgb, var(--dot) 13%, transparent);
-    border-color: color-mix(in srgb, var(--dot) 60%, transparent);
-    color: var(--fg);
+  /* Paper inside, ink around: each disc previews its own reading room. */
+  .cs-themes i {
+    display: block;
+    width: 100%;
+    height: 100%;
+    border-radius: 50%;
+    background: color-mix(in srgb, var(--sw-ink) 22%, var(--sw-paper));
+    box-shadow: inset 0 0 0 2px var(--sw-ink);
+    transition: box-shadow 0.15s ease, transform 0.15s ease;
+  }
+  .cs-themes button:active { transform: scale(0.92); }
+  .cs-themes button[data-theme-choice="amber"]       { --sw-paper: #0B0906; --sw-ink: #FF8A4D; }
+  .cs-themes button[data-theme-choice="mallow"]      { --sw-paper: #0A0712; --sw-ink: #C89BFF; }
+  .cs-themes button[data-theme-choice="safelight"]   { --sw-paper: #0B0406; --sw-ink: #FF4D6A; }
+  .cs-themes button[data-theme-choice="tungsten"]    { --sw-paper: #0A0A0C; --sw-ink: #F2F5FA; }
+  .cs-themes button[data-theme-choice="nyctophobia"] { --sw-paper: #0C1118; --sw-ink: #EA5562; }
+  /* The two red themes need naming; small and quiet, not a legend. */
+  .cs-theme-name {
+    margin-left: auto;
+    font-family: var(--font-mono);
+    font-size: 0.5625rem;
+    letter-spacing: 0.1em;
+    text-transform: uppercase;
+    color: var(--fg-muted);
+    user-select: none;
+  }
+  .cs-themes button[aria-pressed="true"] i {
+    box-shadow:
+      inset 0 0 0 2px var(--sw-ink),
+      0 0 0 2px color-mix(in srgb, var(--bg-panel) 80%, transparent),
+      0 0 0 3px var(--sw-ink),
+      0 0 13px color-mix(in srgb, var(--sw-ink) 40%, transparent);
   }
 }
 
@@ -2031,8 +2096,11 @@ body.reading .chapter-body {
   .chapter-bar-arrow,
   .chapter-bar-arrow.is-off { width: 32px; height: 32px; }
   .chapter-bar-tools { min-width: 32px; height: 32px; padding: 0 6px; font-size: 0.75rem; }
-  .chapter-settings { padding: 4px 10px 10px; }
-  .chapter-settings-row { grid-template-columns: 38px minmax(0, 1fr); gap: 8px; }
+  .chapter-settings { padding: 11px 12px 13px; }
+  .cs-size { gap: 10px; }
+  .cs-faces b { font-size: 1.125rem; }
+  .cs-themes { gap: 11px; }
+  .cs-themes button { width: 25px; height: 25px; }
 }
 
 /* ── Novel Hero Terminal ── */

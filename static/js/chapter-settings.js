@@ -13,13 +13,15 @@
   var THEMES = (window.__THEMES__ && window.__THEMES__.length)
     ? window.__THEMES__.slice()
     : ['amber', 'mallow', 'safelight', 'tungsten', 'nyctophobia'];
-  var STEPS = [85, 90, 95, 100, 105, 110, 120];
-  var DEF_SIZE = 100;
 
   var fontBtns = panel.querySelectorAll('[data-font-choice]');
   var themeBtns = panel.querySelectorAll('[data-theme-choice]');
-  var sizeBtns = panel.querySelectorAll('[data-size-step]');
-  var sizeOut = document.getElementById('cs-size-value');
+  var range = document.getElementById('cs-size');
+  var themeName = document.getElementById('cs-theme-name');
+  var THEME_LABELS = {
+    amber: 'Amber', mallow: 'Mallow', safelight: 'Safelight',
+    tungsten: 'Tungsten', nyctophobia: 'Nyctophobia'
+  };
 
   function store(key, value) {
     try { localStorage.setItem(key, String(value)); } catch (e) {}
@@ -47,6 +49,7 @@
     for (var i = 0; i < themeBtns.length; i++) {
       themeBtns[i].setAttribute('aria-pressed', themeBtns[i].dataset.themeChoice === name ? 'true' : 'false');
     }
+    if (themeName) themeName.textContent = THEME_LABELS[name] || name;
   }
   function setTheme(name, announce) {
     if (THEMES.indexOf(name) < 0) name = 'safelight';
@@ -57,27 +60,21 @@
   }
 
   /* ── Size ──
-     One CSS variable, scoped to the chapter column on phones. Steps rather
-     than a slider: three or four taps to a comfortable size, no fiddling. */
-  var size = DEF_SIZE;
-  var savedSize = parseInt(load('rsize'), 10);
-  if (!isNaN(savedSize) && STEPS.indexOf(savedSize) >= 0) size = savedSize;
+     One CSS variable, scoped to the chapter column on phones. The rail runs
+     85–130% in 5% steps; the thumb is the readout, so no numbers are needed. */
+  var MIN = 85, MAX = 130, DEF = 100;
+  var size = parseInt(load('rsize'), 10);
+  if (isNaN(size)) size = DEF;
+  size = Math.min(MAX, Math.max(MIN, size));
 
   function paintSize() {
     root.style.setProperty('--read-scale', String(size / 100));
-    if (sizeOut) sizeOut.textContent = size + '%';
-    for (var i = 0; i < sizeBtns.length; i++) {
-      var dir = Number(sizeBtns[i].dataset.sizeStep);
-      var atEnd = dir < 0 ? size <= STEPS[0] : size >= STEPS[STEPS.length - 1];
-      sizeBtns[i].disabled = atEnd;
-    }
+    if (range) range.value = String(size);
   }
-  function stepSize(dir) {
-    var i = STEPS.indexOf(size);
-    if (i < 0) i = STEPS.indexOf(DEF_SIZE);
-    var next = Math.min(STEPS.length - 1, Math.max(0, i + dir));
-    if (next === i) return;
-    size = STEPS[next];
+  function setSize(next) {
+    next = Math.min(MAX, Math.max(MIN, Math.round(next / 5) * 5));
+    if (next === size) return;
+    size = next;
     store('rsize', size);
     paintSize();
   }
@@ -117,8 +114,6 @@
       btn.focus();
     }
   });
-  /* Following a chapter link with the sheet open would leave it open on the
-     next page; the browser restores nothing, but a bfcache return can. */
   window.addEventListener('pagehide', close);
 
   /* The bar scrolls away with the page, so a sheet hanging off it would be
@@ -137,10 +132,9 @@
       setTheme(this.dataset.themeChoice, true);
     });
   }
-  for (var k = 0; k < sizeBtns.length; k++) {
-    sizeBtns[k].addEventListener('click', function() {
-      stepSize(Number(this.dataset.sizeStep));
-    });
+  if (range) {
+    range.addEventListener('input', function() { setSize(Number(this.value)); });
+    range.addEventListener('change', function() { setSize(Number(this.value)); });
   }
 
   // Desktop never shows the sheet; if a resize crosses the breakpoint with it
