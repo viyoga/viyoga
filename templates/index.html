@@ -40,7 +40,7 @@
   <div class="section-header">
     <h2 class="section-heading"><span class="heading-sym">~/</span>novels</h2>
     <div class="section-line" aria-hidden="true"></div>
-    <span class="section-badge">15 books</span>
+    <span class="section-badge">16 books</span>
   </div>
   {% set ri = get_section(path="reverend-insanity/_index.md") %}
   {% set lotm = get_section(path="lord-of-the-mysteries/_index.md") %}
@@ -57,7 +57,8 @@
   {% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
   {% set hos = get_section(path="herald-of-shalia/_index.md") %}
   {% set shotk = get_section(path="son-of-the-hero-king/_index.md") %}
-  {% set shelves = [ri, lotm, chapters, md, wn, idiot, nfu, bk, meta, trial, pride, odyssey, lith, hos, shotk] %}
+  {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
+  {% set shelves = [ri, lotm, chapters, md, wn, idiot, nfu, bk, meta, trial, pride, odyssey, lith, hos, shotk, hearth] %}
   <div class="novels-grid">
     {% for shelf in shelves %}
     <a href="{{ shelf.path }}" class="novel-card">
@@ -209,6 +210,7 @@
     {% set pride = get_section(path="pride-and-prejudice/_index.md") %}
     {% set odyssey = get_section(path="the-odyssey/_index.md") %}
     {% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
+    {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
     {% set_global ri_n = 0 %}
     {% for sub in ri.subsections %}
       {% set vol = get_section(path=sub) %}
@@ -246,8 +248,9 @@
     {% set pride_n = pride.pages | length %}
     {% set odyssey_n = odyssey.pages | length %}
     {% set lith_n = lith.pages | length %}
+    {% set hearth_n = hearth.pages | length %}
     {% set ch_n = chapters.pages | length %}
-    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n %}
+    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + hearth_n %}
     <div class="stat-card">
       <div class="stat-top-bar"><span class="stat-indicator">●</span> ARCHIVE</div>
       <div class="value">13+8</div>
