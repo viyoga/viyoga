@@ -55,7 +55,7 @@ chapter = 8
 
 <p>Sighing heavily, he opened the lust store.</p>
 
-<p>{Lust store}</p>
+<p>&#123;Lust store&#125;</p>
 
 <p>Lust points: 192</p>
 

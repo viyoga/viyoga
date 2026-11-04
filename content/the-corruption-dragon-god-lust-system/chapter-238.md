@@ -41,13 +41,13 @@ chapter = 238
 
 <p>Reward: Incalculable</p>
 
-<p>Cultivation: Peak of the Transcendence Realm. (Fallen from {access denied}.)</p>
+<p>Cultivation: Peak of the Transcendence Realm. (Fallen from &#123;access denied&#125;.)</p>
 
 <p>Spiritual roots: Mortal-level ice spiritual root.</p>
 
-<p>Lineage: Blood of the icy moon (Grade {access denied},)</p>
+<p>Lineage: Blood of the icy moon (Grade &#123;access denied&#125;,)</p>
 
-<p>Constitution: Body of the crystal moon (Grade {access denied},)</p>
+<p>Constitution: Body of the crystal moon (Grade &#123;access denied&#125;,)</p>
 
 <p>Traits: Faithful, loving, gentle, Half-blood mythical beast, fallen immortal, curious little fox, clumsy, torturing loneliness].</p>
 
