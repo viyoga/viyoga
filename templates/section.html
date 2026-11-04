@@ -18,6 +18,16 @@
 {% else %}
   {% set pages = section.pages %}
 {% endif %}
+{% set_global chapter_count = 0 %}
+{% set_global first_chapter_page = false %}
+{% for p in pages %}
+  {% if p.extra.chapter and p.extra.chapter > 0 %}
+    {% set_global chapter_count = chapter_count + 1 %}
+    {% if not first_chapter_page %}
+      {% set_global first_chapter_page = p %}
+    {% endif %}
+  {% endif %}
+{% endfor %}
 
 <div class="novel-hero wrap">
   <div class="terminal novel-hero-terminal">
@@ -42,7 +52,7 @@
               {% endif %}
             </span>
           {% else %}
-            <span class="section-badge">{{ pages | length }} chapters</span>
+            <span class="section-badge">{% if chapter_count > 0 %}{{ chapter_count }}{% else %}{{ pages | length }}{% endif %} chapters</span>
           {% endif %}
           <span class="section-badge badge-accent">complete</span>
         </div>
@@ -58,10 +68,9 @@
         {{ section.content | safe }}
       </div>
       {% endif %}
-      {% if not section.subsections and pages | length > 0 %}
-        {% set first_page = pages | first %}
+      {% if not section.subsections and first_chapter_page %}
         <div class="novel-hero-action">
-          <a href="{{ first_page.path }}" class="novel-start-btn">
+          <a href="{{ first_chapter_page.path }}" class="novel-start-btn">
             start reading &rarr;
           </a>
         </div>
@@ -82,7 +91,7 @@
           {{ section.subsections | length }} books
         {% endif %}
       {% else %}
-        {{ pages | length }} chapters
+        {% if chapter_count > 0 %}{{ chapter_count }}{% else %}{{ pages | length }}{% endif %} chapters
       {% endif %}
     </span>
   </div>
