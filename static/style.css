@@ -837,6 +837,7 @@ nav.top .logo:active {
    reallocation mid-scroll). Falls back to 100vh where lvh is unsupported. */
 #grid-canvas, #flue-canvas { height: 100vh; height: 100lvh; }
 html.flue-live #flue-canvas { opacity: 0.82; }
+html.flue-restore #flue-canvas { transition: none; }
 /* The smoke is a full-bleed field, so the reading surfaces get a little more
    fill than usual — the panels stay glassy, but body copy keeps its contrast. */
 html.flue-live {
@@ -872,6 +873,7 @@ body:has(#grid-canvas)::before {
   transition: opacity 0.4s ease;
 }
 html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
+html.grid-restore body:has(#grid-canvas)::before { transition: none; }
 
 
 /* ── Terminal window ── */

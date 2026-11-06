@@ -34,6 +34,10 @@
       document.head.appendChild(link);
     }
     root.classList.add('js');
+    try {
+      if (sessionStorage.getItem('bgFlueSeen')) root.classList.add('flue-restore');
+      if (sessionStorage.getItem('bgGridSeen')) root.classList.add('grid-restore');
+    } catch (e) {}
   })();</script>
   <title>{% block title %}{{ config.title }}{% endblock title %}</title>
   <link rel="stylesheet" href="/style.css">
@@ -79,7 +83,7 @@
 <script defer src="/js/font.js"></script>
 <script defer src="/js/anim.js"></script>
 <script defer src="/js/spotlight.js?v=20261025"></script>
-<script defer src="/js/flue.js?v=20261025"></script>
-{% block extrascripts %}<script defer src="/js/grid.js?v=20261025"></script>{% endblock extrascripts %}
+<script defer src="/js/flue.js?v=20261106"></script>
+{% block extrascripts %}<script defer src="/js/grid.js?v=20261106"></script>{% endblock extrascripts %}
 </body>
 </html>
