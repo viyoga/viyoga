@@ -1,12 +1,12 @@
 @font-face {
   font-family: "Maple Mono NF";
   src: url("/fonts/MapleMono-NF-Regular.woff2") format("woff2");
-  font-weight: 400; font-style: normal; font-display: swap;
+  font-weight: 400; font-style: normal; font-display: block;
 }
 @font-face {
   font-family: "Maple Mono NF";
   src: url("/fonts/MapleMono-NF-Bold.woff2") format("woff2");
-  font-weight: 700; font-style: normal; font-display: swap;
+  font-weight: 700; font-style: normal; font-display: block;
 }
 @font-face {
   font-family: "Maple Mono NF";
@@ -21,12 +21,12 @@
 @font-face {
   font-family: "Iosevka";
   src: url("/fonts/Iosevka-Regular.woff2") format("woff2");
-  font-weight: 400; font-style: normal; font-display: swap;
+  font-weight: 400; font-style: normal; font-display: block;
 }
 @font-face {
   font-family: "Iosevka";
   src: url("/fonts/Iosevka-Bold.woff2") format("woff2");
-  font-weight: 700; font-style: normal; font-display: swap;
+  font-weight: 700; font-style: normal; font-display: block;
 }
 @font-face {
   font-family: "Iosevka";
@@ -36,12 +36,12 @@
 @font-face {
   font-family: "Space Mono";
   src: url("/fonts/SpaceMono-Regular.woff2") format("woff2");
-  font-weight: 400; font-style: normal; font-display: swap;
+  font-weight: 400; font-style: normal; font-display: block;
 }
 @font-face {
   font-family: "Space Mono";
   src: url("/fonts/SpaceMono-Bold.woff2") format("woff2");
-  font-weight: 700; font-style: normal; font-display: swap;
+  font-weight: 700; font-style: normal; font-display: block;
 }
 @font-face {
   font-family: "Space Mono";
@@ -195,13 +195,13 @@ html[data-font="maple"] {
 }
 html[data-font="iosevka"] {
   font-size: 115%;
-  --font-mono: "Iosevka", "Maple Mono NF", monospace;
-  --font-read: "Iosevka", "Maple Mono NF", monospace;
+  --font-mono: "Iosevka", monospace;
+  --font-read: "Iosevka", monospace;
 }
 html[data-font="space"] {
   font-size: 110%;
-  --font-mono: "Space Mono", "Maple Mono NF", monospace;
-  --font-read: "Space Mono", "Maple Mono NF", monospace;
+  --font-mono: "Space Mono", monospace;
+  --font-read: "Space Mono", monospace;
 }
 
 /* Themes: amber, mallow, safelight, tungsten, nyctophobia. */
