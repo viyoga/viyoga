@@ -81,39 +81,25 @@ chapter = 597
 
 <p>“Yes.” Qingyi nodded nonchalantly, stretching and walking past the young Master Chen, who remained in shock. “What are you waiting for? Master Shen won’t be happy if we’re late.”</p>
 
-<p>Chen Wei stood frozen for another moment before sighing, running</p>
+<p>Chen Wei stood frozen for another moment before sighing, running after Qingyi.</p>
 
-<p>after Qingyi.</p>
-
-<p>As the two crossed the ship, they could see, through the large</p>
-
-<p>windows, the planet they were approaching.</p>
+<p>As the two crossed the ship, they could see, through the large windows, the planet they were approaching.</p>
 
 <p>It was slightly larger than Earth, surrounded by spiritual matrices that covered the entire planet.</p>
 
 <p>At the heart of its supercontinent, in a region of endless greenery, lay the main base of the Cosmic Dawn Sect, with over a million disciples and endless pavilions and walls dotting the dense forest.</p>
 
-<p>At the center of all these pavilions stood the pavilion of the sect</p>
-
-<p>leader, a Stellar Sovereign and the most powerful expert in the entire</p>
+<p>At the center of all these pavilions stood the pavilion of the sect leader, a Stellar Sovereign and the most powerful expert in the entire</p>
 
 <p>Aurora star system.</p>
 
-<p>Qingyi and Chen Wei took in that sight for just a moment before</p>
-
-<p>quickening their pace.</p>
+<p>Qingyi and Chen Wei took in that sight for just a moment before quickening their pace.</p>
 
 <p>This would be their new home for quite some time, and it would be wrong to say they weren’t excited.</p>
 
-<p>It didn’t take long before they reached a spacious hall, the same one where they had been gathered as soon as they entered the</p>
+<p>It didn’t take long before they reached a spacious hall, the same one where they had been gathered as soon as they entered the teleportation ship.</p>
 
-<p>teleportation ship.</p>
-
-<p>There, nearly a thousand newly recruited outer disciples and all the</p>
-
-<p>elders were already waiting for the ship to dock, their feet firmly</p>
-
-<p>planted on the ground.</p>
+<p>There, nearly a thousand newly recruited outer disciples and all the elders were already waiting for the ship to dock, their feet firmly planted on the ground.</p>
 
 <p>Soon, a tremor spread across the steel floor as the ship entered the atmosphere of the planet of the Rising Aurora.</p>
 
@@ -121,16 +107,12 @@ chapter = 597
 
 <p>After another five minutes, the elders finally moved, taking the lead and guiding the disciples out.</p>
 
-<p>The moment the transport ship’s main hatches opened, Qingyi felt a cool, sweet breeze hit his face, his long black hair fluttering in the</p>
-
-<p>wind.</p>
+<p>The moment the transport ship’s main hatches opened, Qingyi felt a cool, sweet breeze hit his face, his long black hair fluttering in the wind.</p>
 
 <p>In an orderly fashion, everyone left the interior of the ship, arriving at a vast courtyard surrounded by statues of fallen heroes. Each statue was the size of a building, with an outstretched hand.</p>
 
 <p>Beneath those hands stood the disciples recruited alongside Qingyi, as well as several others from other worlds.</p>
 
-<p>In total, there were one hundred elders guiding ten thousand</p>
-
-<p>disciples. Everyone’s eyes were raised, staring at the hands above them.</p>
+<p>In total, there were one hundred elders guiding ten thousand disciples. Everyone’s eyes were raised, staring at the hands above them.</p>
 
 <p>Among them, a small orb of light appeared, splitting into nine. The nine quickly split once more, one for each disciple. Qingyi looked at it strangely at first, but soon raised his hand, taking one of the orbs of light into his palm.</p>

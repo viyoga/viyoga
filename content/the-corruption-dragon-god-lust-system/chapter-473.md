@@ -79,17 +79,13 @@ chapter = 473
 
 <p>With nothing else to settle there, he simply left for one of the many cargo and personnel carriers in that city.</p>
 
-<p>He wanted to take a simple carriage and move forward unnoticed, so he went to one of the smallest establishments of its kind in the city of</p>
-
-<p>Nighthall.</p>
+<p>He wanted to take a simple carriage and move forward unnoticed, so he went to one of the smallest establishments of its kind in the city of Nighthall.</p>
 
 <p>He had barely taken a single step inside before he regretted it.</p>
 
 <p>A beastly roar echoed as a huge blue-scaled beast advanced toward him. Its mouth was open, ready to tear off one of Qingyi’s arms. It was a dragon, and the saddle on its back revealed that it had a rider.</p>
 
-<p>This rider was a young man sitting in a corner, drinking from a glass of wine, his beautiful blue eyes watching Qingyi with amusement. ‘Oh… an arrogant young master?’ Qingyi exclaimed internally, noticing</p>
-
-<p>the white hair, pointed ears, and blue horns on the young man’s head.</p>
+<p>This rider was a young man sitting in a corner, drinking from a glass of wine, his beautiful blue eyes watching Qingyi with amusement. ‘Oh… an arrogant young master?’ Qingyi exclaimed internally, noticing the white hair, pointed ears, and blue horns on the young man’s head.</p>
 
 <p>He was, without a doubt, a Draconic Elf.</p>
 
@@ -97,9 +93,7 @@ chapter = 473
 
 <p>Immediately, the voracious beast hesitated, a tremor spreading through its body. It was insignificant compared to Khaedryss, just enough to carry its rider and no one else.</p>
 
-<p>Its claws tore into the concrete floor, and the beast barely stopped in</p>
-
-<p>time.</p>
+<p>Its claws tore into the concrete floor, and the beast barely stopped in time.</p>
 
 <p>Looking at Qingyi with curiosity and a little fear, the beast took a few steps back, returning to its rider, who was definitely not happy.</p>
 
@@ -107,9 +101,7 @@ chapter = 473
 
 <p>“What’s going on here?” Suddenly, an angry old voice echoed. A grumpy man left the main building.</p>
 
-<p>He was short, leaning on a wooden cane and wearing old, shabby</p>
-
-<p>clothes.</p>
+<p>He was short, leaning on a wooden cane and wearing old, shabby clothes.</p>
 
 <p>“Damn it, Lucas! I told you to take care of that damn beast of yours! Damn it… our next customers should be arriving soon!” The old man looked at the hole in the floor, angrily kicking a stone.</p>
 
@@ -117,17 +109,11 @@ chapter = 473
 
 <p>He didn’t even seem to care about the old man.</p>
 
-<p>In Lucas’s mind, that old man was lucky to even be graced with his</p>
+<p>In Lucas’s mind, that old man was lucky to even be graced with his presence in that miserable place.</p>
 
-<p>presence in that miserable place.</p>
+<p>He was the prince of a superior race, after all. ‘Ugh… escorting filthy mortals… if it weren’t for my father’s insistence… Lucas grumbled mentally, unable to hide his own dissatisfaction.</p>
 
-<p>He was the prince of a superior race, after all. ‘Ugh… escorting filthy mortals… if it weren’t for my father’s</p>
-
-<p>insistence… Lucas grumbled mentally, unable to hide his own dissatisfaction.</p>
-
-<p>In the end, he could only bow his head in defeat, his eyes flowing to</p>
-
-<p>Qingyi.</p>
+<p>In the end, he could only bow his head in defeat, his eyes flowing to Qingyi.</p>
 
 <p>The handsome young man seemed to look at him as if he were nothing more than an ant… no, an insignificant cockroach. That damn commoner… how dare he look at him that way?</p>
 

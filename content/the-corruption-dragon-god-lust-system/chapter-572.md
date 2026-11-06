@@ -51,9 +51,7 @@ chapter = 572
 
 <p>And so,</p>
 
-<p>“Let’s stop here.” Noah interrupted, bringing immediate silence</p>
-
-<p>between them, “Red, her soul transformation is now complete.”</p>
+<p>“Let’s stop here.” Noah interrupted, bringing immediate silence between them, “Red, her soul transformation is now complete.”</p>
 
 <p>It was like that was the only thing Red was waiting for. She didn’t even linger, walking slowly towards Esmeray.</p>
 
@@ -73,35 +71,23 @@ chapter = 572
 
 <p>So he sat there, sitting comfortably, watching Red squat down, fisting a lump of green-black hair of Esmeray and yank it out with enough strength to make a world turn into dust and smoke.</p>
 
-<p>That was when Noah noticed the change in the appearance of Esmeray. Her hair was now green mixed with strands of black-</p>
+<p>That was when Noah noticed the change in the appearance of Esmeray. Her hair was now green mixed with strands of black-smooth, shiny and long.</p>
 
-<p>smooth, shiny and long.</p>
+<p>Her ears were extra elongated, her eyes were white irises with slitted green pupils made of leaves. Her face was now green with black tattoos covering her chest – her breasts and stomach — in a mesmerizing tapestry of something tribal.</p>
 
-<p>Her ears were extra elongated, her eyes were white irises with slitted</p>
-
-<p>green pupils made of leaves. Her face was now green with black tattoos covering her chest – her breasts and stomach — in a mesmerizing tapestry of something tribal.</p>
-
-<p>Her beauty was now in a way never seen before. Noah sensed the</p>
-
-<p>power of both elves and dragons and another more subtle one mixing</p>
-
-<p>with each other seamlessly inside of her.</p>
+<p>Her beauty was now in a way never seen before. Noah sensed the power of both elves and dragons and another more subtle one mixing with each other seamlessly inside of her.</p>
 
 <p>Even with her transformation slightly incomplete, her power was enough to kill Red a billion times over.</p>
 
 <p>However, Noah’s drop of blood was hindering Esmeray’s power inside of her, and his enhancement on his wife was never before seen. And with all that reunited, they obtained the harrowing scene playing in front of Noah and Diatah.</p>
 
-<p>Red was holding the silky hair of Esmeray, smashing her head against the ground continuously. Cracking and crushing sounds chillingly flooded the room, accompanied by the sharp shrieks of anger of</p>
-
-<p>Esmeray.</p>
+<p>Red was holding the silky hair of Esmeray, smashing her head against the ground continuously. Cracking and crushing sounds chillingly flooded the room, accompanied by the sharp shrieks of anger of Esmeray.</p>
 
 <p>The Paragon of War didn’t care. With the blood of Esmeray smearing the ground, she used her power to control the blood and created spikes coated with the power of death and war.</p>
 
 <p>With her power of war, she had control over the aspects of war like never-ending sorrow, terror, dread and helplessness.</p>
 
-<p>And she continued to smash the head of the new Paragon of Dragons and Elves on those spikes. Esmeray’s face was torn open, her eyes pierced and exploded, her nose split into pieces then flattened, her lips cut off, her teeth broken, her long ears bitten off by Red’s teeth</p>
-
-<p>herself.</p>
+<p>And she continued to smash the head of the new Paragon of Dragons and Elves on those spikes. Esmeray’s face was torn open, her eyes pierced and exploded, her nose split into pieces then flattened, her lips cut off, her teeth broken, her long ears bitten off by Red’s teeth herself.</p>
 
 <p>The sight was horrific, and Red was crying bloody tears all this time, her mind thinking of her daughter, but also of her son-in-law and Aurelia and the calm but reliable Eric.</p>
 
@@ -109,35 +95,21 @@ chapter = 572
 
 <p>The sight inside was a wonder, but the Paragon of War punched mercilessly inside with her fist coated in her cursed power.</p>
 
-<p>By the 8th punch, Esmeray’s head completely turned into a mess of</p>
+<p>By the 8th punch, Esmeray’s head completely turned into a mess of gore. And after hours of pure rage, everything was over, the sound halting but a thick scent blossomed.</p>
 
-<p>gore. And after hours of pure rage, everything was over, the sound halting but a thick scent blossomed.</p>
-
-<p>Red Vaelgrim sat there on her knees, face and body tainted by blood,</p>
-
-<p>her eyes crying, body trembling as she looked at the still body of</p>
-
-<p>Esmeray.</p>
+<p>Red Vaelgrim sat there on her knees, face and body tainted by blood, her eyes crying, body trembling as she looked at the still body of Esmeray.</p>
 
 <p>The Primordial was dead.</p>
 
-<p>And Red’s wrath did not disappear. She ducked her head low, weeping</p>
+<p>And Red’s wrath did not disappear. She ducked her head low, weeping like a child, holding her face in her bloodied hands.</p>
 
-<p>like a child, holding her face in her bloodied hands.</p>
+<p>However, she suddenly froze, feeling the warm arms of Noah closing around her.</p>
 
-<p>However, she suddenly froze, feeling the warm arms of Noah closing</p>
-
-<p>around her.</p>
-
-<p>She didn’t look up and wept harder, clinging to him with all her</p>
-
-<p>strength. Noah said nothing at first, but then raised his hand, caressing her hair gently.</p>
+<p>She didn’t look up and wept harder, clinging to him with all her strength. Noah said nothing at first, but then raised his hand, caressing her hair gently.</p>
 
 <p>“She will come back.” He said, “I promise.”</p>
 
-<p>Right at that point, all his wives returned back, their bodies either</p>
-
-<p>pristine or filled with blood.</p>
+<p>Right at that point, all his wives returned back, their bodies either pristine or filled with blood.</p>
 
 <p>They had done their tasks.</p>
 

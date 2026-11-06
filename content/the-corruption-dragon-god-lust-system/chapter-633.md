@@ -33,9 +33,7 @@ chapter = 633
 
 <p>That brief moment was all he needed.</p>
 
-<p>With his draconic eyes active, time around him seemed to slow down</p>
-
-<p>as he analyzed the formation surrounding him.</p>
+<p>With his draconic eyes active, time around him seemed to slow down as he analyzed the formation surrounding him.</p>
 
 <p>It took him only an instant to identify over a hundred weak points.</p>
 
@@ -71,9 +69,7 @@ chapter = 633
 
 <p>Qingyi retrieved the needles and coughed up a mouthful of blood.</p>
 
-<p>He had sustained some internal injuries, but nothing serious enough</p>
-
-<p>to worry him.</p>
+<p>He had sustained some internal injuries, but nothing serious enough to worry him.</p>
 
 <p>With a cruel smile, his body vanished.</p>
 
@@ -89,13 +85,9 @@ chapter = 633
 
 <p>In just a second, all his companions had been killed.</p>
 
-<p>Bodies torn apart, throats ripped open, heads torn off with nothing</p>
+<p>Bodies torn apart, throats ripped open, heads torn off with nothing but sheer brute force.</p>
 
-<p>but sheer brute force.</p>
-
-<p>Peng Tao, who had watched the fight in shock, couldn’t help but</p>
-
-<p>shudder.</p>
+<p>Peng Tao, who had watched the fight in shock, couldn’t help but shudder.</p>
 
 <p>Qingyi was too brutal.</p>
 
@@ -123,19 +115,11 @@ chapter = 633
 
 <p>“You know, I have a very beautiful wife who’s very good with healing pills. She made some truly miraculous ones recently.</p>
 
-<p>They can keep you alive for weeks, even with your body constantly</p>
+<p>They can keep you alive for weeks, even with your body constantly being destroyed.”</p>
 
-<p>being destroyed.”</p>
+<p>Qingyi didn’t want to waste Feiyan’s precious pills like that, but finding out where that demonic Qi formation had come from was also important.</p>
 
-<p>Qingyi didn’t want to waste Feiyan’s precious pills like that, but</p>
-
-<p>finding out where that demonic Qi formation had come from was also</p>
-
-<p>important.</p>
-
-<p>He highly doubted it originated from the Heavenly Demon, but it</p>
-
-<p>could have come from some other demon that led back to him.</p>
+<p>He highly doubted it originated from the Heavenly Demon, but it could have come from some other demon that led back to him.</p>
 
 <p>Obviously, he wouldn’t throw himself like an idiot against something like that, but knowing its movements would still be valuable. “F-fuck you, you…” A punch silenced the leader of the henchmen, violently flinging his head to the side.</p>
 

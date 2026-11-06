@@ -55,9 +55,7 @@ chapter = 668
 
 <p>The air froze around him as he approached.</p>
 
-<p>It was a palace. Grand and opulent, the sort that made Qingyi wonder</p>
-
-<p>if the phoenix was, in truth, an icy beauty rather than a monster.</p>
+<p>It was a palace. Grand and opulent, the sort that made Qingyi wonder if the phoenix was, in truth, an icy beauty rather than a monster.</p>
 
 <p>But upon sensing the danger emanating from within, he quickly dismissed that thought.</p>
 
@@ -73,41 +71,27 @@ chapter = 668
 
 <p>Qingyi wouldn’t be this serious without reason.</p>
 
-<p>His eyes narrowed, and from the forest surrounding the clearing</p>
-
-<p>where the lair stood, a figure emerged.</p>
+<p>His eyes narrowed, and from the forest surrounding the clearing where the lair stood, a figure emerged.</p>
 
 <p>Large, with white fur and a powerful body, displaying sharp teeth that gleamed even from a distance.</p>
 
 <p>Behind it, the trembling figure of Longwei.</p>
 
-<p>“Bai Hu Lie, did you come here after the ice phoenix?” Qingyi smiled</p>
-
-<p>calmly. “I’m sorry, but I’ll have to disappoint you and force you to</p>
-
-<p>choose another prey.”</p>
+<p>“Bai Hu Lie, did you come here after the ice phoenix?” Qingyi smiled calmly. “I’m sorry, but I’ll have to disappoint you and force you to choose another prey.”</p>
 
 <p>Many others, in the presence of that enormous tiger, would tremble with fear, but Qingyi merely stared at it with calm indifference.</p>
 
-<p>Bai Hu Lie roared with laughter at those words, yet he did not</p>
-
-<p>respond to Qingyi immediately.</p>
+<p>Bai Hu Lie roared with laughter at those words, yet he did not respond to Qingyi immediately.</p>
 
 <p>Instead, he addressed Longwei.</p>
 
 <p>“Are you going to get off my back or not? Coward. If you want to stay there while I fight Long Qingyi, fine, but I can’t guarantee your life.”</p>
 
-<p>Hearing that, Longwei didn’t hesitate. He jumped off the tiger’s back and stumbled away, nearly tripping on the uneven ground of the</p>
-
-<p>clearing.</p>
+<p>Hearing that, Longwei didn’t hesitate. He jumped off the tiger’s back and stumbled away, nearly tripping on the uneven ground of the clearing.</p>
 
 <p>Pointing a trembling finger at Xue Hua, he declared:</p>
 
-<p>“Xue Hua, you worthless wife! I, Longwei, will bring about the death</p>
-
-<p>of this damned Qingyi today and show you the true power of your husband! Get ready, because tonight, I will consummate our</p>
-
-<p>marriage!”</p>
+<p>“Xue Hua, you worthless wife! I, Longwei, will bring about the death of this damned Qingyi today and show you the true power of your husband! Get ready, because tonight, I will consummate our marriage!”</p>
 
 <p>Xue Hua’s face twisted in disgust. She was about to retort when Rou’er leaned forward and stuck out her tongue.</p>
 
@@ -121,14 +105,8 @@ chapter = 668
 
 <p>The little beauty just gave him a thumbs-up in return, but then, remembering they were enemies, she flipped him off.</p>
 
-<p>Bai Hu Lie naturally didn’t care about something so small. Quite the</p>
-
-<p>opposite.</p>
+<p>Bai Hu Lie naturally didn’t care about something so small. Quite the opposite.</p>
 
 <p>Seeing that adorable little thing being so defiant in the face of a figure as intimidating as him filled him with amusement.</p>
 
-<p>“You unfaithful bitch, you’ll see!” Longwei shouted, but upon receiving</p>
-
-<p>a deadly glare from the flushed Xue Hua, all arrogance died in his</p>
-
-<p>voice.</p>
+<p>“You unfaithful bitch, you’ll see!” Longwei shouted, but upon receiving a deadly glare from the flushed Xue Hua, all arrogance died in his voice.</p>

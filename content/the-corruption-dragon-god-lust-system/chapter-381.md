@@ -29,15 +29,9 @@ chapter = 381
 
 <p>Despite its low cultivation, that attack was still terrifying, more than enough to seriously injure an unprotected Qianyao.</p>
 
-<p>The beast noticed the sword flying towards it and tried to dodge, but</p>
+<p>The beast noticed the sword flying towards it and tried to dodge, but it was too late. The blade penetrated its head, the Qi of thunder destroying its brain and killing it instantly.</p>
 
-<p>22-57</p>
-
-<p>it was too late. The blade penetrated its head, the Qi of thunder destroying its brain and killing it instantly.</p>
-
-<p>“Ah…” Qingyi sighed, falling backwards onto the forest floor,</p>
-
-<p>immediately feeling Qianyao’s weight above him, the position forcing her breasts against his face.</p>
+<p>“Ah…” Qingyi sighed, falling backwards onto the forest floor, immediately feeling Qianyao’s weight above him, the position forcing her breasts against his face.</p>
 
 <p>The hand on her ass squeezed a little harder, eliciting a soft, muffled moan from Qianyao’s rosy lips.</p>
 
@@ -59,9 +53,7 @@ chapter = 381
 
 <p>Qianyao tried to resist, grabbing Qingyi’s shoulders, but failed miserably. Her body was seized by a deep sense of well-being, a strange pleasure dominating her entire being.</p>
 
-<p>After a brief moment, Qingyi finally released her lips, letting his palm fall on her ass, feeling the voluptuous flesh ripple under the thin</p>
-
-<p>fabric of her dress.</p>
+<p>After a brief moment, Qingyi finally released her lips, letting his palm fall on her ass, feeling the voluptuous flesh ripple under the thin fabric of her dress.</p>
 
 <p>“Ah!~~ You… shameless young master…” Qianyao gave a high-pitched, cute squeal. “My father won’t-“</p>
 
@@ -73,9 +65,7 @@ chapter = 381
 
 <p>[Long Qianyao’s Lust increased by 20%!]</p>
 
-<p>[Long Qianyao’s Corruption increased by 15 points, +300 million lust</p>
-
-<p>points!]</p>
+<p>[Long Qianyao’s Corruption increased by 15 points, +300 million lust points!]</p>
 
 <p>[You touched a woman of a much higher origin than yours in an extremely inappropriate way! +150 million lust points]</p>
 
@@ -83,23 +73,15 @@ chapter = 381
 
 <p>Her father was already talking about marriage and she knew that she would soon be forced to choose a partner.</p>
 
-<p>Still, she had many doubts in her young heart, her eyes closing softly</p>
-
-<p>as she searched for a way out of the situation.</p>
+<p>Still, she had many doubts in her young heart, her eyes closing softly as she searched for a way out of the situation.</p>
 
 <p>“Ah…” Qingyi sighed, moving his hands and grabbing her huge tits, squeezing them together.</p>
 
-<p>Although incomparable in size to Isabel or even Ruxue, they were still enormous, more than enough to cover Qingyi’s vision, his hands</p>
+<p>Although incomparable in size to Isabel or even Ruxue, they were still enormous, more than enough to cover Qingyi’s vision, his hands unable to fully encapsulate them.</p>
 
-<p>unable to fully encapsulate them.</p>
+<p>“Your tits are beautiful,” Qingyi said, planting a kiss on the right pink nipple, sucking gently, delighting in Qianyao’s confused and cute moans.</p>
 
-<p>“Your tits are beautiful,” Qingyi said, planting a kiss on the right pink nipple, sucking gently, delighting in Qianyao’s confused and cute</p>
-
-<p>moans.</p>
-
-<p>As he sucked, he rubbed his hands around the pale, round mountains, massaging and milking them, curious to know what that dragon</p>
-
-<p>woman would taste like.</p>
+<p>As he sucked, he rubbed his hands around the pale, round mountains, massaging and milking them, curious to know what that dragon woman would taste like.</p>
 
 <p>It didn’t take him more than a moment to find out.</p>
 
@@ -107,30 +89,20 @@ chapter = 381
 
 <p>It was a similar sweetness to Elize’s, only a little softer, losing the intensity of the taste of Xueyao’s breasts, for example.</p>
 
-<p>“Just like all the rest of you…” Qingyi released Qianyao’s nipple, lifting her own torso and sitting down, feeling her nails sink into his</p>
+<p>“Just like all the rest of you…” Qingyi released Qianyao’s nipple, lifting her own torso and sitting down, feeling her nails sink into his shoulders.</p>
 
-<p>shoulders.</p>
+<p>His hands left her breasts, went down to her waist and grabbed her dress, pulling it up and revealing her intimacy.</p>
 
-<p>His hands left her breasts, went down to her waist and grabbed her</p>
-
-<p>dress, pulling it up and revealing her intimacy.</p>
-
-<p>She was already soaking wet, the plump, puffy mound of her vulva pressed against the bulge in Qingyi’s pants, moistening the fabric with</p>
-
-<p>her fluids.</p>
+<p>She was already soaking wet, the plump, puffy mound of her vulva pressed against the bulge in Qingyi’s pants, moistening the fabric with her fluids.</p>
 
 <p>Qianyao instinctively moved her hips gently, rubbing against the bulge, seeking more contact, even without realizing it.</p>
 
-<p>“It’s beautiful too…” Qingyi smiled, raising his face and kissing Qianyao once more. “Tell me, would you allow your husband to fuck</p>
-
-<p>that cute, plump, virgin pussy?”</p>
+<p>“It’s beautiful too…” Qingyi smiled, raising his face and kissing Qianyao once more. “Tell me, would you allow your husband to fuck that cute, plump, virgin pussy?”</p>
 
 <p>“You… don’t have to talk like that… it’s…” she blushed, looking away, her whole body shuddering as thousands of possibilities surrounded her mind. “I… I allow…”</p>
 
 <p>[Qianyao’s lust increased by 30%!]</p>
 
-<p>[Qianyao’s corruption increased by 10 points, +200 million lust</p>
-
-<p>points!]</p>
+<p>[Qianyao’s corruption increased by 10 points, +200 million lust points!]</p>
 
 <p>[You touched a woman of a much higher origin than yours in an extremely inappropriate way! +100 million lust points]</p>

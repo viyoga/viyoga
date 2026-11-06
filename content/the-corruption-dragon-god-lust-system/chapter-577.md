@@ -69,27 +69,19 @@ chapter = 577
 
 <p>The things she held dear were running out, and now even her power had been reduced to nothing.</p>
 
-<p>‘Shit… is she trying to kill herself?’ Qingyi’s eyes widened and he</p>
+<p>‘Shit… is she trying to kill herself?’ Qingyi’s eyes widened and he gritted his teeth, moving his Mana.</p>
 
-<p>gritted his teeth, moving his Mana.</p>
-
-<p>Immediately, he imbued it into Auranys’ body, hijacking her meridians</p>
-
-<p>and blocking her ability to move her own mana.</p>
+<p>Immediately, he imbued it into Auranys’ body, hijacking her meridians and blocking her ability to move her own mana.</p>
 
 <p>He moved to a nearby flying island that had not collapsed.</p>
 
 <p>Stopping there, he sat down, with Auranys on his lap.</p>
 
-<p>The two bodies moved apart, the weight of Auranys’ breasts on</p>
-
-<p>Qingyi’s chest disappearing.</p>
+<p>The two bodies moved apart, the weight of Auranys’ breasts on Qingyi’s chest disappearing.</p>
 
 <p>He grabbed her rounded, delicate chin, making her teary eyes focus on his.</p>
 
-<p>“Won’t you even allow me to end it? Are you so angry that I got in your way and tried to curse you?” Auranys whispered, her voice</p>
-
-<p>trembling and weak.</p>
+<p>“Won’t you even allow me to end it? Are you so angry that I got in your way and tried to curse you?” Auranys whispered, her voice trembling and weak.</p>
 
 <p>“I-I’m sorry… for everything. Just let me embrace death-” Auranys stammered, even more ashamed.</p>
 
@@ -99,31 +91,21 @@ chapter = 577
 
 <p>It was hard to see a woman as beautiful as her suffering so much.</p>
 
-<p>“I’m not here simply because I desire you, not just because I want to</p>
-
-<p>have you.”</p>
+<p>“I’m not here simply because I desire you, not just because I want to have you.”</p>
 
 <p>Despite his many flaws, Qingyi still knew a woman’s heart very well.</p>
 
-<p>“I’m here because I promised someone I would be here, that I would save you, that I would give you and her a life of eternal happiness,</p>
-
-<p>together.”</p>
+<p>“I’m here because I promised someone I would be here, that I would save you, that I would give you and her a life of eternal happiness, together.”</p>
 
 <p>Qingyi did not allow Auranys to close her eyes or look away.</p>
 
-<p>His eyes, purple and beautiful like an eternal cosmos, and hers,</p>
-
-<p>golden and full of pain.</p>
+<p>His eyes, purple and beautiful like an eternal cosmos, and hers, golden and full of pain.</p>
 
 <p>Neither of them left the other’s gaze for a moment.</p>
 
-<p>“Celestia cares for you and loves you deeply. She dreams of the day</p>
+<p>“Celestia cares for you and loves you deeply. She dreams of the day when you will be together, for all eternity.</p>
 
-<p>when you will be together, for all eternity.</p>
-
-<p>As you promised it to her, I also promised that I would make this day</p>
-
-<p>come.”</p>
+<p>As you promised it to her, I also promised that I would make this day come.”</p>
 
 <p>Qingyi paused for a moment, hesitating before finally moving forward.</p>
 
@@ -131,27 +113,19 @@ chapter = 577
 
 <p>“I am Long Qingyi, heir to the dragon god of corruption and also to the primordial seed of creation.</p>
 
-<p>And I promise, before you, before Celestia, and before all my wives, that I will not break this promise. But first, I need you to allow me to</p>
-
-<p>fulfill it.</p>
+<p>And I promise, before you, before Celestia, and before all my wives, that I will not break this promise. But first, I need you to allow me to fulfill it.</p>
 
 <p>Allow me to love and protect you, as I love and protect Celestia.”</p>
 
-<p>Auranys was barely able to process the words that left Qingyi’s</p>
+<p>Auranys was barely able to process the words that left Qingyi’s mouth.</p>
 
-<p>mouth.</p>
-
-<p>The heir to the primordial seed of creation? Did he know what he was</p>
-
-<p>talking about?</p>
+<p>The heir to the primordial seed of creation? Did he know what he was talking about?</p>
 
 <p>She had many feelings in her heart, her mind clouded with thoughts incomprehensible to the mortal mind.</p>
 
 <p>Her eyes closed, and she no longer tried to kill herself.</p>
 
-<p>Clinging to Qingyi, she hugged him, buried her face in his chest, and</p>
-
-<p>then cried.</p>
+<p>Clinging to Qingyi, she hugged him, buried her face in his chest, and then cried.</p>
 
 <p>Suddenly, she was no longer a goddess, divine, arrogant, and proud.</p>
 
@@ -159,29 +133,17 @@ chapter = 577
 
 <p>But something she couldn’t deny that wasn’t bad.</p>
 
-<p>That man, who was supposed to be her end, who was supposed to be</p>
+<p>That man, who was supposed to be her end, who was supposed to be her downfall, who was supposed to throw her honor in the trash and who she believed would turn her into a mere doll for his own pleasure.</p>
 
-<p>her downfall, who was supposed to throw her honor in the trash and who she believed would turn her into a mere doll for his own pleasure.</p>
-
-<p>It was he who caressed her golden hair and embraced her with the</p>
-
-<p>love of someone who saw her as everything in the world, a treasure he would never dare to hurt.</p>
+<p>It was he who caressed her golden hair and embraced her with the love of someone who saw her as everything in the world, a treasure he would never dare to hurt.</p>
 
 <p>“I…” Auranys’ lips parted as she remembered her Celestia.</p>
 
-<p>The only mortal she had loved and cared for since the day she fell and</p>
+<p>The only mortal she had loved and cared for since the day she fell and was forced to hide like this.</p>
 
-<p>was forced to hide like this.</p>
+<p>“I allow it…” Auranys moved away from Qingyi and looked him in the eyes. Of her own free will, this time.</p>
 
-<p>“I allow it…” Auranys moved away from Qingyi and looked him in the</p>
-
-<p>eyes. Of her own free will, this time.</p>
-
-<p>A man so beautiful he could bring down a nation with a single smile, a</p>
-
-<p>man who would be the source of envy and desire for anyone, man or</p>
-
-<p>woman.</p>
+<p>A man so beautiful he could bring down a nation with a single smile, a man who would be the source of envy and desire for anyone, man or woman.</p>
 
 <p>And a man capable of sacrificing everything for those he loved.</p>
 
@@ -191,8 +153,6 @@ chapter = 577
 
 <p>“I allow you to fulfill this promise. And…” Auranys looked away, her lips approaching Qingyi’s. “I allow you to love me…” Auranys’s art is already in the characters tab!</p>
 
-<p>The art available here is an extremely censored version! You can</p>
-
-<p>access the uncensored version on my discord:</p>
+<p>The art available here is an extremely censored version! You can access the uncensored version on my discord:</p>
 
 <p>.gg/ZMhMj7Dawz</p>

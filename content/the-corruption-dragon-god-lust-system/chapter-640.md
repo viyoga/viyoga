@@ -91,9 +91,7 @@ chapter = 640
 
 <p>With a confused expression, Chen Wei obeyed, and his eyes filled with shock as he saw the items Qingyi had placed in his spatial ring.</p>
 
-<p>“Cultivate well and defeat that young Master Yao with your own</p>
-
-<p>power.”</p>
+<p>“Cultivate well and defeat that young Master Yao with your own power.”</p>
 
 <p>Chen Wei turned to thank him, but Qingyi had already left.</p>
 
@@ -111,29 +109,17 @@ chapter = 640
 
 <p>Why would he? He was too young for such things.</p>
 
-<p>After a moment’s reflection, Qingyi began his journey to the sect’s</p>
-
-<p>shipyards.</p>
+<p>After a moment’s reflection, Qingyi began his journey to the sect’s shipyards.</p>
 
 <p>It was late at night, but cultivators didn’t need to sleep for months and could work at any hour, without stopping.</p>
 
-<p>Still, the shipyards’ customer service would close in about two hours,</p>
-
-<p>so Qingyi quickened his pace.</p>
+<p>Still, the shipyards’ customer service would close in about two hours, so Qingyi quickened his pace.</p>
 
 <p>Soon, he arrived at a massive industrial complex north of the main palace, with miles and miles of production lines.</p>
 
-<p>From light transport ships to freighters and, more rarely, battleships</p>
+<p>From light transport ships to freighters and, more rarely, battleships with cannons capable of shattering moons, that place produced everything.</p>
 
-<p>with cannons capable of shattering moons, that place produced</p>
-
-<p>everything.</p>
-
-<p>Although owned by the sect, the place functioned as a dealership</p>
-
-<p>focused on the private sale of ships, supported by various merchant</p>
-
-<p>pavilions and even supplying ships to other sects. Obviously, the Cosmic Dawn Sect had priority, but they sold ships privately as well.</p>
+<p>Although owned by the sect, the place functioned as a dealership focused on the private sale of ships, supported by various merchant pavilions and even supplying ships to other sects. Obviously, the Cosmic Dawn Sect had priority, but they sold ships privately as well.</p>
 
 <p>When Qingyi appeared in the central hall of the enormous industrial complex, observing the many ships on display, he was immediately greeted by a pleasant, chubby man, the same one who had rented him the ship when he went on his last mission.</p>
 
@@ -141,9 +127,7 @@ chapter = 640
 
 <p>“Oh… Senior Brother Qingyi, what a pleasure to see you here! How can I help you?” The chubby man laughed.</p>
 
-<p>“I’m glad my prayers and positive thoughts helped you overcome your</p>
-
-<p>crisis!”</p>
+<p>“I’m glad my prayers and positive thoughts helped you overcome your crisis!”</p>
 
 <p>Qingyi was confused by those words for a moment.</p>
 
@@ -153,11 +137,7 @@ chapter = 640
 
 <p>Still, he remained respectful.</p>
 
-<p>“I need a spaceship. Can you show me the best models? Don’t worry</p>
-
-<p>about the price; I’m not the one paying.” Qingyi smiled, revealing the</p>
-
-<p>token he’d received from the sect leader.</p>
+<p>“I need a spaceship. Can you show me the best models? Don’t worry about the price; I’m not the one paying.” Qingyi smiled, revealing the token he’d received from the sect leader.</p>
 
 <p>How nice it was to have rich in-laws…</p>
 

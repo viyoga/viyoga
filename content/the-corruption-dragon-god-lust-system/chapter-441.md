@@ -35,9 +35,7 @@ chapter = 441
 
 <p>Qingyi’s eyes lit up, and he bought the item on the spot.</p>
 
-<p>Since it was a technique of little use in actual combat, it was quite</p>
-
-<p>cheap, so he didn’t even stress too much about buying it.</p>
+<p>Since it was a technique of little use in actual combat, it was quite cheap, so he didn’t even stress too much about buying it.</p>
 
 <p>His mind filled with information, and a gentle smile immediately spread across his lips.</p>
 
@@ -49,9 +47,7 @@ chapter = 441
 
 <p>Of course, they were small amounts, barely enough to be equivalent to a fraction of an ant bite, but still enough to elicit naughty and obscene moans from Celestia’s lips.</p>
 
-<p>Her voice was already naturally soft, sweet, and lovely. However, taken over by moans, each little sound was like a massage to Qingyi’s</p>
-
-<p>ears.</p>
+<p>Her voice was already naturally soft, sweet, and lovely. However, taken over by moans, each little sound was like a massage to Qingyi’s ears.</p>
 
 <p>“B-brother… Qingyi, are you sure that- Agh~~”</p>
 
@@ -63,9 +59,7 @@ chapter = 441
 
 <p>Slowly, he pulled them down, revealing more and more of the Holy Priestess’s long, perfect legs. Her eyes closed in embarrassment until, finally, her legs were completely bare to Qingyi.</p>
 
-<p>Deep in her mind, something was screaming at her to resist, to</p>
-
-<p>activate one of the many protective formations she had in her body. But she did not obey that voice, feeling Qingyi’s hands rise again. The new position caused her feet to press directly against Qingyi’s groin. Qingyi was one chosen by the Goddess. To feel such pleasure should be a sin, but his being there meant that the Goddess had simply sent him to her.</p>
+<p>Deep in her mind, something was screaming at her to resist, to activate one of the many protective formations she had in her body. But she did not obey that voice, feeling Qingyi’s hands rise again. The new position caused her feet to press directly against Qingyi’s groin. Qingyi was one chosen by the Goddess. To feel such pleasure should be a sin, but his being there meant that the Goddess had simply sent him to her.</p>
 
 <p>“Q-Qingyi… do we need to make babies now?” She asked timidly, curiously pressing her small, delicate feet against the bulge in Qingyi’s pants.</p>
 
@@ -77,15 +71,11 @@ chapter = 441
 
 <p>With each little touch, her corruption points rose, and with that, his lust points rose. Now, they had already reached half a trillion.</p>
 
-<p>He hadn’t even started having real sex with her, but he was already at half a trillion lust points… Just… how absurdly profitable could that</p>
-
-<p>woman be?</p>
+<p>He hadn’t even started having real sex with her, but he was already at half a trillion lust points… Just… how absurdly profitable could that woman be?</p>
 
 <p>“W-why?” Celestia asked, her eyes watering.</p>
 
-<p>“Because I plan to take her as my wife one day, just as I want to have you as my wife.” He answered honestly, pressing his fingers a little</p>
-
-<p>harder.</p>
+<p>“Because I plan to take her as my wife one day, just as I want to have you as my wife.” He answered honestly, pressing his fingers a little harder.</p>
 
 <p>The moment she heard that answer, Celestia’s eyes widened in shock.</p>
 
@@ -95,37 +85,23 @@ chapter = 441
 
 <p>She had heard rumors, ancient prophecies that one day, a promised hero would be taken as the Goddess’s eternal consort.</p>
 
-<p>It was said that this hero, coming from another world, would defeat all evil and, together with the Goddess, produce a child capable of taking the cult of the Goddess of Light and Justice to a level never</p>
-
-<p>before seen.</p>
+<p>It was said that this hero, coming from another world, would defeat all evil and, together with the Goddess, produce a child capable of taking the cult of the Goddess of Light and Justice to a level never before seen.</p>
 
 <p>Such a prophecy was considered profane, the crazy words of a priest who had been excommunicated.</p>
 
-<p>Naturally, Qingyi himself would consider that prophecy to be pure</p>
+<p>Naturally, Qingyi himself would consider that prophecy to be pure nonsense.</p>
 
-<p>nonsense.</p>
+<p>He had no plans to have children anytime soon. And even if he did, he wouldn’t need to have a child with Auranys to take her cult to a level never before seen.</p>
 
-<p>He had no plans to have children anytime soon. And even if he did, he</p>
-
-<p>wouldn’t need to have a child with Auranys to take her cult to a level</p>
-
-<p>never before seen.</p>
-
-<p>Still, to Celestia, that mattered little. In her mind, a single question</p>
-
-<p>reigned.</p>
+<p>Still, to Celestia, that mattered little. In her mind, a single question reigned.</p>
 
 <p>‘Qingyi couldn’t be this hero, could he?’</p>
 
 <p>Celestia’s thoughts were interrupted when Qingyi’s hands finally reached her thighs, squeezing them gently.</p>
 
-<p>He had to admit: of all his women, Celestia had the most heavenly</p>
+<p>He had to admit: of all his women, Celestia had the most heavenly thighs.</p>
 
-<p>thighs.</p>
-
-<p>They were thick and plump, but they had no marks; quite the</p>
-
-<p>contrary.</p>
+<p>They were thick and plump, but they had no marks; quite the contrary.</p>
 
 <p>The skin was perfectly smooth, so fair, so perfect.</p>
 
@@ -137,15 +113,11 @@ chapter = 441
 
 <p>Age: 21</p>
 
-<p>Cultivation: First Stage Of The True Immortal Realm (5T lust points to</p>
-
-<p>upgrade)</p>
+<p>Cultivation: First Stage Of The True Immortal Realm (5T lust points to upgrade)</p>
 
 <p>Affinities: Lightning: 1500 – Sword: 1000 – Fire: 1500 – Ice: 1500 –</p>
 
-<p>Space: 1500 – Light: 1500 – Shadow: 1500 – Charm: 1500 (can be</p>
-
-<p>upgraded in the lust store)</p>
+<p>Space: 1500 – Light: 1500 – Shadow: 1500 – Charm: 1500 (can be upgraded in the lust store)</p>
 
 <p>Spiritual roots: Immortal-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice, space, light, shadow) (10T lust points to upgrade, new roots can be bought in the lust store).</p>
 
@@ -153,24 +125,16 @@ chapter = 441
 
 <p>10T lust points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Transcendental grade, 10T lust</p>
-
-<p>points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Transcendental grade, 10T lust points to upgrade.)</p>
 
 <p>Lust points: 534,562,736,930]</p>
 
-<p>He smiled, ready to resume massaging her when suddenly something</p>
+<p>He smiled, ready to resume massaging her when suddenly something changed.</p>
 
-<p>changed.</p>
-
-<p>The bulge in his pants, squeezed by Celestia’s feet, throbbed harder than ever before, finally breaking free from its confinement, snapping</p>
-
-<p>the button on his pants.</p>
+<p>The bulge in his pants, squeezed by Celestia’s feet, throbbed harder than ever before, finally breaking free from its confinement, snapping the button on his pants.</p>
 
 <p>“Ah!?- oghnn~~”</p>
 
 <p>A long, confused moan escaped Celestia’s lips, a rod of flesh immediately falling into the valley between her small, delicate feet.</p>
 
-<p>It was long, thick, and slightly moist. Her feet instinctively closed</p>
-
-<p>around the member, squeezing around it, her soft, perfect skin making it throb even harder.</p>
+<p>It was long, thick, and slightly moist. Her feet instinctively closed around the member, squeezing around it, her soft, perfect skin making it throb even harder.</p>

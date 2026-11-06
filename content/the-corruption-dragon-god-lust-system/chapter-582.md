@@ -33,9 +33,7 @@ chapter = 582
 
 <p>The beauty’s tongue ran over the goddess’s huge pale tits, collecting cum that she swallowed before flashing a lewd little smile.</p>
 
-<p>Auranys blushed, before finally and shyly returning the smile. “You</p>
-
-<p>naughty little brat!”</p>
+<p>Auranys blushed, before finally and shyly returning the smile. “You naughty little brat!”</p>
 
 <p>She pulled Celestia into her embrace, her tongue also leaving her mouth and licking some of the cum that covered the girl’s breasts. “Hey, leave some for me too!” Isabel exclaimed, on all fours, her ass wiggling excitedly like a wagging tail as she licked.</p>
 
@@ -71,33 +69,23 @@ chapter = 582
 
 <p>The ability to create Aether…</p>
 
-<p>Even the Heavenly Father, who was at the top of the universe, was</p>
-
-<p>created by the Great Creator himself and had a fragment of the Primordial Seed of Creation, failed to create Aether.</p>
+<p>Even the Heavenly Father, who was at the top of the universe, was created by the Great Creator himself and had a fragment of the Primordial Seed of Creation, failed to create Aether.</p>
 
 <p>In fact, everyone failed.</p>
 
-<p>Since the death of the Great Creator, Aether has never been seen in</p>
-
-<p>this universe again.</p>
+<p>Since the death of the Great Creator, Aether has never been seen in this universe again.</p>
 
 <p>Despite her shock, Auranys did not doubt Qingyi.</p>
 
 <p>She knew of his abilities.</p>
 
-<p>Not only did he have both Mana and Qi in his body, but he had even killed the god of war, the most powerful among the deities created by</p>
-
-<p>the Heavenly Father.</p>
+<p>Not only did he have both Mana and Qi in his body, but he had even killed the god of war, the most powerful among the deities created by the Heavenly Father.</p>
 
 <p>How could she doubt a man with such capabilities?</p>
 
-<p>“Can I feel it?” Auranys asked, pressing her hand against Qingyi’s</p>
+<p>“Can I feel it?” Auranys asked, pressing her hand against Qingyi’s chest.</p>
 
-<p>chest.</p>
-
-<p>“Yes.” The handsome young man did not resist, handing over his</p>
-
-<p>meridians to her.</p>
+<p>“Yes.” The handsome young man did not resist, handing over his meridians to her.</p>
 
 <p>Handing over one’s meridians to another person was extremely dangerous for a cultivator.</p>
 
@@ -105,25 +93,17 @@ chapter = 582
 
 <p>He knew Auranys wouldn’t do that.</p>
 
-<p>With free access to Qingyi’s meridians, Auranys sent a slight pulse of</p>
-
-<p>mana through his body, using her ancient wisdom to study everything</p>
-
-<p>in him.</p>
+<p>With free access to Qingyi’s meridians, Auranys sent a slight pulse of mana through his body, using her ancient wisdom to study everything in him.</p>
 
 <p>In the end, she quickly withdrew her hand, blushing.</p>
 
 <p>It was truly the Primordial Seed of Creation.</p>
 
-<p>Not a fragment, but the complete and perfect seed, fully integrated</p>
-
-<p>into Qingyi’s body.</p>
+<p>Not a fragment, but the complete and perfect seed, fully integrated into Qingyi’s body.</p>
 
 <p>Auranys controlled the emotions in her chest.</p>
 
-<p>She had thousands of things to say, her mind dealing with countless</p>
-
-<p>possibilities.</p>
+<p>She had thousands of things to say, her mind dealing with countless possibilities.</p>
 
 <p>But in the end, she ignored them all.</p>
 
@@ -133,31 +113,19 @@ chapter = 582
 
 <p>Her eyes closed and she relaxed.</p>
 
-<p>She was surrounded by the followers she loved most, in the arms of a</p>
+<p>She was surrounded by the followers she loved most, in the arms of a man who made her heart burn and all the fatigue of an existence of almost fourteen million years disappear.</p>
 
-<p>man who made her heart burn and all the fatigue of an existence of</p>
-
-<p>almost fourteen million years disappear.</p>
-
-<p>Just a day ago, she had been desperate, terrified of what the man who</p>
-
-<p>was coming after her would do to her.</p>
+<p>Just a day ago, she had been desperate, terrified of what the man who was coming after her would do to her.</p>
 
 <p>But now, the god of war didn’t even cross her mind.</p>
 
-<p>Her wings, now soaked, retracted gently, and she hugged Qingyi</p>
-
-<p>tightly.</p>
+<p>Her wings, now soaked, retracted gently, and she hugged Qingyi tightly.</p>
 
 <p>She had, fortunately, found a man who deserved her. A man worthy of having the goddess of light and justice as his wife.</p>
 
-<p>“Husband, big sister Elize is calling you to eat!” A high-pitched, cheerful voice echoed on the horizon, and Auranys quickly raised her</p>
+<p>“Husband, big sister Elize is calling you to eat!” A high-pitched, cheerful voice echoed on the horizon, and Auranys quickly raised her face.</p>
 
-<p>face.</p>
-
-<p>She saw three women, whose beauty was only slightly inferior to</p>
-
-<p>hers, approaching excitedly.</p>
+<p>She saw three women, whose beauty was only slightly inferior to hers, approaching excitedly.</p>
 
 <p>One of them had cat-like ears and an orange tail, running alongside another who had fox ears and a fluffy, snow-white tail.</p>
 

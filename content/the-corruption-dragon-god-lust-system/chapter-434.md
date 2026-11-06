@@ -35,9 +35,7 @@ chapter = 434
 
 <p>It was a two-story concrete and wood building.</p>
 
-<p>The house had two bathrooms and two bedrooms, as well as a kitchen</p>
-
-<p>and a nicely furnished living room.</p>
+<p>The house had two bathrooms and two bedrooms, as well as a kitchen and a nicely furnished living room.</p>
 
 <p>It was one of many houses that the church kept ready for mid-level officials and priests.</p>
 
@@ -71,9 +69,7 @@ chapter = 434
 
 <p>Qingyi noticed her gaze and brought his hands to her long golden hair, caressing it.</p>
 
-<p>“If you want, we can go there soon. I haven’t been given any</p>
-
-<p>responsibilities yet,” Qingyi said.</p>
+<p>“If you want, we can go there soon. I haven’t been given any responsibilities yet,” Qingyi said.</p>
 
 <p>“But first, we have to go to the Five Colors Pavilion. Your husband needs to cultivate a little, hahaha.”</p>
 
@@ -85,9 +81,7 @@ chapter = 434
 
 <p>It was easily twice the size and was guarded by an Ancestral Emperor.</p>
 
-<p>The moment Qingyi, Margareth, and Meilin entered there, the air</p>
-
-<p>around them changed.</p>
+<p>The moment Qingyi, Margareth, and Meilin entered there, the air around them changed.</p>
 
 <p>From the darkness that took over the floor, a figure emerged.</p>
 
@@ -105,47 +99,31 @@ chapter = 434
 
 <p>“Certainly, young lady.”</p>
 
-<p>The shadow spoke and quickly guided them to the upper floors and</p>
-
-<p>then to his office.</p>
+<p>The shadow spoke and quickly guided them to the upper floors and then to his office.</p>
 
 <p>There wasn’t even a hint of displeasure on his face as he gave up his chair to Jin Meilin.</p>
 
-<p>At the end of the day, he was a servant of the Gold King, but also a</p>
+<p>At the end of the day, he was a servant of the Gold King, but also a servant of the Gold King’s children.</p>
 
-<p>servant of the Gold King’s children.</p>
-
-<p>Unless it was directly against an order from the Gold King himself, the</p>
-
-<p>word of his children was law.</p>
+<p>Unless it was directly against an order from the Gold King himself, the word of his children was law.</p>
 
 <p>Of course, this didn’t apply to everyone.</p>
 
-<p>In the end, only those whom the shadows saw value in could be</p>
-
-<p>treated so well.</p>
+<p>In the end, only those whom the shadows saw value in could be treated so well.</p>
 
 <p>The shadows’ only obligation to the rest was to keep them alive and breathing, nothing more.</p>
 
-<p>While Meilin and Margareth made contact with the other continent,</p>
-
-<p>the shadow guided Qingyi to one of the many cultivation rooms in</p>
-
-<p>that huge building.</p>
+<p>While Meilin and Margareth made contact with the other continent, the shadow guided Qingyi to one of the many cultivation rooms in that huge building.</p>
 
 <p>There, the handsome young man locked himself in.</p>
 
 <p>Honestly, the Qi density wasn’t good.</p>
 
-<p>This was probably due to the lack of spirit veins and the fact that this</p>
-
-<p>cultivation room was only maintained by superior Qi crystals.</p>
+<p>This was probably due to the lack of spirit veins and the fact that this cultivation room was only maintained by superior Qi crystals.</p>
 
 <p>But Qingyi didn’t think much of it.</p>
 
-<p>It was, at least, infinitely superior to cultivating in an environment</p>
-
-<p>where the Qi around him was depleted with every breath he took.</p>
+<p>It was, at least, infinitely superior to cultivating in an environment where the Qi around him was depleted with every breath he took.</p>
 
 <p>With a soft sigh, Qingyi knelt down, opening his status screen.</p>
 
@@ -153,15 +131,11 @@ chapter = 434
 
 <p>Age: 21</p>
 
-<p>Cultivation: First Stage Of The True Immortal Realm (5T lust points to</p>
-
-<p>upgrade)</p>
+<p>Cultivation: First Stage Of The True Immortal Realm (5T lust points to upgrade)</p>
 
 <p>Affinities: Lightning: 1500 – Sword: 1000 – Fire: 1500 – Ice: 1500 –</p>
 
-<p>Space: 1500 Light: 1500 Shadow: 1500 – Charm: 1500 (can be</p>
-
-<p>upgraded in the lust store)</p>
+<p>Space: 1500 Light: 1500 Shadow: 1500 – Charm: 1500 (can be upgraded in the lust store)</p>
 
 <p>Spiritual roots: Immortal-level Primordial Creation Seed spirit root</p>
 
@@ -175,16 +149,10 @@ chapter = 434
 
 <p>Lust points: 65,562,736,930]</p>
 
-<p>Those numbers didn’t exactly make him excited, but he could only</p>
+<p>Those numbers didn’t exactly make him excited, but he could only shake his head.</p>
 
-<p>shake his head.</p>
+<p>Sure, he could have a few nights of sex with his wives, which would be more than enough to make him rich again.</p>
 
-<p>Sure, he could have a few nights of sex with his wives, which would</p>
-
-<p>be more than enough to make him rich again.</p>
-
-<p>But Qingyi preferred to take care of the most urgent matter for him</p>
-
-<p>first.</p>
+<p>But Qingyi preferred to take care of the most urgent matter for him first.</p>
 
 <p>He had acquired new spiritual roots, but he had not acquired any techniques that utilized these new roots.</p>

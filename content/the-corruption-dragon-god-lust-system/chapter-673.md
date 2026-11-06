@@ -27,9 +27,7 @@ chapter = 673
 
 <p>[You have taken the anal virginity of Long Rou’er, daughter of the dragon god of corruption! +250 lust points]</p>
 
-<p>[Long Rou’er’s corruption reaches 100/100, a new corruption level is</p>
-
-<p>unlocked! +250 lust points]</p>
+<p>[Long Rou’er’s corruption reaches 100/100, a new corruption level is unlocked! +250 lust points]</p>
 
 <p>[Xue Hua’s corruption increases…]</p>
 
@@ -113,9 +111,7 @@ chapter = 673
 
 <p>Xue Hua froze when she saw Qingyi approaching.</p>
 
-<p>She leaned forward, the dress sliding off her delicate shoulders and</p>
-
-<p>gliding down her slender waist, getting caught on her protruding hips and spread legs.</p>
+<p>She leaned forward, the dress sliding off her delicate shoulders and gliding down her slender waist, getting caught on her protruding hips and spread legs.</p>
 
 <p>She immediately grabbed her own breasts, struggling to hide them.</p>
 
@@ -123,23 +119,15 @@ chapter = 673
 
 <p>The attempt at modesty only squeezed them together and pushed them upward, creating an even more obscene sight than if she had simply left them exposed.</p>
 
-<p>“You… scoundrel…” She cursed softly, her eyes unable to look away from the swaying of that massive cock between his legs as he approached. It hung heavy and still half-hard, dripping semen with</p>
+<p>“You… scoundrel…” She cursed softly, her eyes unable to look away from the swaying of that massive cock between his legs as he approached. It hung heavy and still half-hard, dripping semen with every step.</p>
 
-<p>every step.</p>
-
-<p>“What have you done to me? I know this isn’t just the essence of the phoenix… are you a demon of love or something?” Xue Hua asked</p>
-
-<p>breathlessly.</p>
+<p>“What have you done to me? I know this isn’t just the essence of the phoenix… are you a demon of love or something?” Xue Hua asked breathlessly.</p>
 
 <p>“When my father finds out about this, he won’t forgive you…”</p>
 
 <p>“If I said no, would you believe me?” Qingyi asked nonchalantly, his cock dangling just inches from her face.</p>
 
-<p>“Do you want it or not?” He watched her eyes, filled with desire she</p>
-
-<p>couldn’t hide. “I promise I’ll be gentle and that I’ll be a good husband,</p>
-
-<p>just as I am to Rou’er.”</p>
+<p>“Do you want it or not?” He watched her eyes, filled with desire she couldn’t hide. “I promise I’ll be gentle and that I’ll be a good husband, just as I am to Rou’er.”</p>
 
 <p>Xue Hua shuddered.</p>
 
@@ -147,6 +135,4 @@ chapter = 673
 
 <p>Slowly, she lifted her head. Her lips parted, and her tongue slipped out instinctively, the pink tip glistening.</p>
 
-<p>She didn’t know what the hell she was doing, but she couldn’t resist</p>
-
-<p>either.</p>
+<p>She didn’t know what the hell she was doing, but she couldn’t resist either.</p>

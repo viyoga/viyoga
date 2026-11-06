@@ -27,9 +27,7 @@ chapter = 535
 
 <p>Her lips parted, and then she stood up. She could sense someone… a familiar aura approaching quickly.</p>
 
-<p>Lingxue’s eyes filled with shock as the aura reached her. The space in</p>
-
-<p>front of her suddenly distorted, catching her off guard.</p>
+<p>Lingxue’s eyes filled with shock as the aura reached her. The space in front of her suddenly distorted, catching her off guard.</p>
 
 <p>“What- ah~~!” The sharp squeal escaped her lips as her feet slipped for a moment.</p>
 
@@ -85,9 +83,7 @@ chapter = 535
 
 <p>Constitution: Green moon body (Astral grade)</p>
 
-<p>Traits: Faithful, Half-blood mythical beast, ancestral mommy, loving,</p>
-
-<p>caring]</p>
+<p>Traits: Faithful, Half-blood mythical beast, ancestral mommy, loving, caring]</p>
 
 <p>Fortunately, she was also intact, with no sign that demonic Qi was taking over her.</p>
 
@@ -95,35 +91,23 @@ chapter = 535
 
 <p>He had become a true Ancestral Emperor in such a short time…</p>
 
-<p>The arousal and wetness Lingxue felt between her legs barely crossed</p>
-
-<p>her mind; none of that mattered now.</p>
+<p>The arousal and wetness Lingxue felt between her legs barely crossed her mind; none of that mattered now.</p>
 
 <p>“Yes.” Qingyi nodded. “But I need you to leave here and take all the girls of your people away, as far away as possible.”</p>
 
-<p>“Me? Leave? I can’t leave, I need to support you! It doesn’t matter if I</p>
-
-<p>die. The demonic seed is much stronger. Not even an Astral Realm expert would be able to defeat it easily now, and you’re just—”</p>
+<p>“Me? Leave? I can’t leave, I need to support you! It doesn’t matter if I die. The demonic seed is much stronger. Not even an Astral Realm expert would be able to defeat it easily now, and you’re just—”</p>
 
 <p>Lingxue’s words were suddenly interrupted.</p>
 
-<p>Without a hint of concern, Qingyi stepped forward, held her delicate</p>
-
-<p>shoulders, and pressed his lips against hers.</p>
+<p>Without a hint of concern, Qingyi stepped forward, held her delicate shoulders, and pressed his lips against hers.</p>
 
 <p>The beauty’s eyes widened, and her hands pressed weakly against</p>
 
 <p>Qingyi’s chest, unable to react as his tongue invaded her.</p>
 
-<p>Their tongues intertwined, and she soon began to respond inexperiencedly, the sweet, honeyed taste of her mouth</p>
+<p>Their tongues intertwined, and she soon began to respond inexperiencedly, the sweet, honeyed taste of her mouth overwhelming Qingyi.</p>
 
-<p>overwhelming Qingyi.</p>
-
-<p>“The main reason I’m here is to fulfill my promise to Xueyao.” Qingyi</p>
-
-<p>pulled away, separating their lips but keeping their bodies pressed</p>
-
-<p>tightly together.</p>
+<p>“The main reason I’m here is to fulfill my promise to Xueyao.” Qingyi pulled away, separating their lips but keeping their bodies pressed tightly together.</p>
 
 <p>“But that’s not the only promise. I also promised that she would stay by your side for eternity, and I will fulfill that. I will make you my wife, and may the heavens fall if anyone tries to stop me.” Lingxue’s already clouded mind was thrown into even more chaos.</p>
 
@@ -133,18 +117,10 @@ chapter = 535
 
 <p>But in front of Qingyi, she was simply unable to react.</p>
 
-<p>“If you dare to break this promise… if you dare to die,” she whispered,</p>
+<p>“If you dare to break this promise… if you dare to die,” she whispered, patting his chest weakly. “I promise I will revive you only to kill you again!”</p>
 
-<p>patting his chest weakly. “I promise I will revive you only to kill you</p>
+<p>With a quick movement, she broke free. Her body exploded with speed, leaving that place.</p>
 
-<p>again!”</p>
-
-<p>With a quick movement, she broke free. Her body exploded with</p>
-
-<p>speed, leaving that place.</p>
-
-<p>She was too confused… An expert of her caliber should never feel this</p>
-
-<p>way.</p>
+<p>She was too confused… An expert of her caliber should never feel this way.</p>
 
 <p>“Is this… love?” She wondered. In her long life, she had never felt anything like this.</p>

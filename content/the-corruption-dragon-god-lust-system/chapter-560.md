@@ -67,9 +67,7 @@ chapter = 560
 
 <p>Qingyi’s.</p>
 
-<p>The Heavenly Demon prevented himself from being cut in half, but he was still hit and the Heaven-Defying Thunder Sword sank into his</p>
-
-<p>shoulder.</p>
+<p>The Heavenly Demon prevented himself from being cut in half, but he was still hit and the Heaven-Defying Thunder Sword sank into his shoulder.</p>
 
 <p>Neither of them retreated.</p>
 
@@ -89,9 +87,7 @@ chapter = 560
 
 <p>Silently, the two remained in the skies, flying a few meters high and staring at each other.</p>
 
-<p>“Ah… You’re a very peculiar young man, you know?” The Heavenly Demon revealed a bitter smile on his face, avoiding another direct confrontation. “Can’t you just die quietly? I would choose death over listening to your disgusting voice for even a single second longer.” A vein of anger appeared on the Heavenly Demon’s forehead, but he</p>
-
-<p>quickly recovered.</p>
+<p>“Ah… You’re a very peculiar young man, you know?” The Heavenly Demon revealed a bitter smile on his face, avoiding another direct confrontation. “Can’t you just die quietly? I would choose death over listening to your disgusting voice for even a single second longer.” A vein of anger appeared on the Heavenly Demon’s forehead, but he quickly recovered.</p>
 
 <p>He was the one provoking Qingyi. It would be pathetic to have the positions reversed.</p>
 
@@ -99,13 +95,9 @@ chapter = 560
 
 <p>The Heavenly Demon flashed a gentle smile, waving his hands lightly.</p>
 
-<p>A small jar filled with liquor appeared in his grasp, and he took a sip</p>
+<p>A small jar filled with liquor appeared in his grasp, and he took a sip with excitement.</p>
 
-<p>with excitement.</p>
-
-<p>“He was once a highly respected expert by those orthodox pigs. A man who was in love with only one woman and kept his powers to</p>
-
-<p>himself…</p>
+<p>“He was once a highly respected expert by those orthodox pigs. A man who was in love with only one woman and kept his powers to himself…</p>
 
 <p>Aren’t you interested in knowing what I did to change that?”</p>
 
@@ -115,13 +107,9 @@ chapter = 560
 
 <p>What did the Heavenly Demon mean by that?</p>
 
-<p>She had heard stories about how the dragon god of corruption had</p>
+<p>She had heard stories about how the dragon god of corruption had once been respected and revered, but that after the death of his wife and the disappearance of his only daughter, he had given himself over completely to his own power.</p>
 
-<p>once been respected and revered, but that after the death of his wife and the disappearance of his only daughter, he had given himself over completely to his own power.</p>
-
-<p>He spread corruption to millions of followers and unleashed a chaos</p>
-
-<p>of pleasure demons that killed and raped billions.</p>
+<p>He spread corruption to millions of followers and unleashed a chaos of pleasure demons that killed and raped billions.</p>
 
 <p>But what the hell could the Heavenly Demon have to do with that?</p>
 
@@ -129,8 +117,6 @@ chapter = 560
 
 <p>Whatever it was, it was important to both him and her.</p>
 
-<p>In the end, whether they liked it or not, their fates were directly</p>
-
-<p>linked to the Heavenly Demon, and the more they knew about him, the better.</p>
+<p>In the end, whether they liked it or not, their fates were directly linked to the Heavenly Demon, and the more they knew about him, the better.</p>
 
 <p>“Your pathetic attempt to buy time worked. Continue.”</p>

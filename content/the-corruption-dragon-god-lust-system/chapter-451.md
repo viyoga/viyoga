@@ -7,9 +7,7 @@ chapter = 451
 
 <p>Right after finishing with Feiyan, Qingyi headed to the dining room. His wives had already prepared the entire dinner.</p>
 
-<p>The huge bull had been roasted, cut to perfection, and divided among the dishes, accompanied by rice and various types of salads and</p>
-
-<p>spices.</p>
+<p>The huge bull had been roasted, cut to perfection, and divided among the dishes, accompanied by rice and various types of salads and spices.</p>
 
 <p>The moment he arrived, he was greeted with pure excitement, mixed with a few suspicious glances toward Feiyan.</p>
 
@@ -65,51 +63,35 @@ chapter = 451
 
 <p>Zhao Yunfei kept her long hair tied in simple braids, being gentle and polite.</p>
 
-<p>Guo Yanlin, despite being a sword master, preferred fists and liked Rongyan very much, even training with the fiery beauty from time to</p>
-
-<p>time.</p>
+<p>Guo Yanlin, despite being a sword master, preferred fists and liked Rongyan very much, even training with the fiery beauty from time to time.</p>
 
 <p>Su Qingyue didn’t like potatoes very much. But Qingyi loved her regardless.</p>
 
 <p>He Lingxiao loved potatoes, perhaps a little too much.</p>
 
-<p>Lin Xiaorou had a sweet face and soft voice, being the most</p>
+<p>Lin Xiaorou had a sweet face and soft voice, being the most empathetic and protective.</p>
 
-<p>empathetic and protective.</p>
+<p>And lastly, Yu Zhen’er, the youngest, who was just turning twenty-one. She had bright eyes and overflowing energy.</p>
 
-<p>And lastly, Yu Zhen’er, the youngest, who was just turning</p>
+<p>When the image of each of those women finally faded from Qingyi’s mind, he returned to visit them physically.</p>
 
-<p>twenty-one. She had bright eyes and overflowing energy.</p>
-
-<p>When the image of each of those women finally faded from Qingyi’s</p>
-
-<p>mind, he returned to visit them physically.</p>
-
-<p>One by one, loving them and fucking them, spilling huge spurts of</p>
-
-<p>cum into their tight throats, one after another.</p>
+<p>One by one, loving them and fucking them, spilling huge spurts of cum into their tight throats, one after another.</p>
 
 <p>At the end of the second day, he finally bought a new cultivation bed, paying nearly a trillion lust points for an astral-grade one, accompanied, of course, by a new Yin and Yang technique.</p>
 
 <p>Honestly, the price was worth it.</p>
 
-<p>Soon, his wives’ cultivation began to explode, one breakthrough following another as their bodies intertwined in a huge orgy, from</p>
-
-<p>Celestia to Ruxue.</p>
+<p>Soon, his wives’ cultivation began to explode, one breakthrough following another as their bodies intertwined in a huge orgy, from Celestia to Ruxue.</p>
 
 <p>No one was left out of Qingyi’s love, and at the end of it all, he found himself lying down, staring at the dark sky.</p>
 
 <p>It was dawn, and between his legs, Shen Meihua was busy. Her throat took the entire length of his cock without any difficulty.</p>
 
-<p>A single strand of black hair fell over her beautiful face as she sucked, her head moving up and down nonstop, soft smacking sounds</p>
-
-<p>echoing from her lips.</p>
+<p>A single strand of black hair fell over her beautiful face as she sucked, her head moving up and down nonstop, soft smacking sounds echoing from her lips.</p>
 
 <p>Celestia, this time, was the one who ended up on Qingyi’s right side, her flushed face pressed against his chest.</p>
 
-<p>“Husband… I don’t think the goddess would approve of something like this…” Celestia murmured softly, even though she wasn’t exactly</p>
-
-<p>unhappy.</p>
+<p>“Husband… I don’t think the goddess would approve of something like this…” Celestia murmured softly, even though she wasn’t exactly unhappy.</p>
 
 <p>“Hm… I think she would approve…”</p>
 
@@ -119,21 +101,15 @@ chapter = 451
 
 <p>Those words silenced Celestia.</p>
 
-<p>Yes, Auranys was above the doctrines, just as the chosen hero, Qingyi,</p>
-
-<p>was above them.</p>
+<p>Yes, Auranys was above the doctrines, just as the chosen hero, Qingyi, was above them.</p>
 
 <p>It all made sense!</p>
 
-<p>“Do you like it here?” Qingyi asked, “what do you think about making</p>
-
-<p>this place your home?”</p>
+<p>“Do you like it here?” Qingyi asked, “what do you think about making this place your home?”</p>
 
 <p>“Hm…” Celestia thought for a brief moment. “I would love to, but….</p>
 
-<p>what about the goddess? She won’t want to stay here, right? She</p>
-
-<p>promised me I would be by her side.”</p>
+<p>what about the goddess? She won’t want to stay here, right? She promised me I would be by her side.”</p>
 
 <p>“Don’t worry about that, hahaha.”</p>
 
@@ -141,6 +117,4 @@ chapter = 451
 
 <p>Qingyi even wanted to stay a little longer, fuck a little more, but he soon realized that it wouldn’t be possible.</p>
 
-<p>He had already spent too much time in that place and needed to get</p>
-
-<p>to the meeting point as quickly as possible, but it wasn’t just that. In the outside world, he was sensing something. Something powerful. Gritting his teeth, Qingyi immediately left the world of the mind, putting on his clothes and grabbing the Heaven-Defying Thunder Sword. Apparently, another pig was seeking death, or so he thought. [Nt: there will be artwork showing each of the priestesses soon.]</p>
+<p>He had already spent too much time in that place and needed to get to the meeting point as quickly as possible, but it wasn’t just that. In the outside world, he was sensing something. Something powerful. Gritting his teeth, Qingyi immediately left the world of the mind, putting on his clothes and grabbing the Heaven-Defying Thunder Sword. Apparently, another pig was seeking death, or so he thought. [Nt: there will be artwork showing each of the priestesses soon.]</p>

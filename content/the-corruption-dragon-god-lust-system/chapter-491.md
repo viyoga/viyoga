@@ -53,9 +53,7 @@ chapter = 491
 
 <p>“I’m sure Khaedryss feels the same way about her chances against RedDeath,” he added.</p>
 
-<p>“Knowing her… I highly doubt she even considers him worthy, hahaha.” The beauty laughed bitterly, but her voice soon turned</p>
-
-<p>serious.</p>
+<p>“Knowing her… I highly doubt she even considers him worthy, hahaha.” The beauty laughed bitterly, but her voice soon turned serious.</p>
 
 <p>She looked at Qingyi with a complicated expression, but in the end, she said nothing, forcing herself to be strong.</p>
 
@@ -71,33 +69,21 @@ chapter = 491
 
 <p>The statue’s scales were pure and perfect silver, reflecting with an incomparable shine.</p>
 
-<p>Usually, there would be no more than a few thousand purebloods in that region, as many were responsible for managing their own</p>
-
-<p>territory.</p>
+<p>Usually, there would be no more than a few thousand purebloods in that region, as many were responsible for managing their own territory.</p>
 
 <p>But this was no ordinary day.</p>
 
-<p>Wealthy merchants, lesser dragon riders, and great land lords were</p>
+<p>Wealthy merchants, lesser dragon riders, and great land lords were present.</p>
 
-<p>present.</p>
+<p>Tens of thousands of purebloods, all gathered there for one thing alone.</p>
 
-<p>Tens of thousands of purebloods, all gathered there for one thing</p>
-
-<p>alone.</p>
-
-<p>The rise of the RedDeath and the birth of a new beast whose power</p>
-
-<p>likely rivaled Khaedryss.</p>
+<p>The rise of the RedDeath and the birth of a new beast whose power likely rivaled Khaedryss.</p>
 
 <p>For the less powerful, this was already something they could only dream of, imagining the level of power their people would now achieve with such a powerful beast that currently accepted riders. Neither the empire nor their arrogant cousins would dare to stand in their way.</p>
 
-<p>For the more powerful, those who already knew that Khaedryss had indeed disappeared and not just isolated herself, this was something</p>
+<p>For the more powerful, those who already knew that Khaedryss had indeed disappeared and not just isolated herself, this was something even greater.</p>
 
-<p>even greater.</p>
-
-<p>RedDeath would close one of the most troubling holes in their</p>
-
-<p>defenses: the fact that Lucios was getting old and that they simply did not have a single specialist with the prospect of reaching the twelfth ring in the next ten thousand years.</p>
+<p>RedDeath would close one of the most troubling holes in their defenses: the fact that Lucios was getting old and that they simply did not have a single specialist with the prospect of reaching the twelfth ring in the next ten thousand years.</p>
 
 <p>In the end, above personal quarrels and political conflicts, the preservation of their people was the most important thing to them.</p>
 
@@ -109,32 +95,20 @@ chapter = 491
 
 <p>Naturally, the reward for failure was nothing less than death.</p>
 
-<p>As he accompanied Seraphine, he kept his head down, even lower than Viola’s, pretending to be nothing more than a loyal and obedient</p>
-
-<p>servant.</p>
+<p>As he accompanied Seraphine, he kept his head down, even lower than Viola’s, pretending to be nothing more than a loyal and obedient servant.</p>
 
 <p>There was some strangeness on the part of the guards when Seraphine chose to take him with her to her private box, one of many reserved only for the highest nobility to watch the ascent.</p>
 
 <p>But, obviously, they did nothing to stop her.</p>
 
-<p>Young Miss Seraphine had always been a little strange anyway, and</p>
-
-<p>even if they wanted to stop her, what could they do?</p>
+<p>Young Miss Seraphine had always been a little strange anyway, and even if they wanted to stop her, what could they do?</p>
 
 <p>One wrong word and they were sure Viola would not hesitate to rip their throats out.</p>
 
-<p>Upon arriving at her private box, Seraphine sat down on a luxurious</p>
+<p>Upon arriving at her private box, Seraphine sat down on a luxurious throne, her eyes falling on the open courtyard in front of her and the huge silver statue that stood above Karlan’s mausoleum.</p>
 
-<p>throne, her eyes falling on the open courtyard in front of her and the huge silver statue that stood above Karlan’s mausoleum.</p>
+<p>She turned her face slightly toward Qingyi, whose eyes were focused on the skies.</p>
 
-<p>She turned her face slightly toward Qingyi, whose eyes were focused</p>
-
-<p>on the skies.</p>
-
-<p>On the horizon, he could clearly see a figure approaching, scarlet</p>
-
-<p>scales glinting across the skies as its roar engulfed everything around</p>
-
-<p>it.</p>
+<p>On the horizon, he could clearly see a figure approaching, scarlet scales glinting across the skies as its roar engulfed everything around it.</p>
 
 <p>It was coming. It was time for him to settle some unfinished business.</p>

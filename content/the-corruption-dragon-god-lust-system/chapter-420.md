@@ -5,9 +5,7 @@ weight = 420
 chapter = 420
 +++
 
-<p>Qingyi hesitated for a brief moment before finally clicking to improve</p>
-
-<p>his cultivation.</p>
+<p>Qingyi hesitated for a brief moment before finally clicking to improve his cultivation.</p>
 
 <p>[Initiating breakthrough]</p>
 
@@ -29,9 +27,7 @@ chapter = 420
 
 <p>That orb was his immortal mind. Even if his entire body was destroyed, as long as that orb existed, his existence and memory would be completely intact.</p>
 
-<p>When the orb was finally complete, Qingyi controlled this Qi as it continued to descend through his body. The energy continued to work on his meridians, tempering and preparing them, destroying</p>
-
-<p>them in order to rebuild them.</p>
+<p>When the orb was finally complete, Qingyi controlled this Qi as it continued to descend through his body. The energy continued to work on his meridians, tempering and preparing them, destroying them in order to rebuild them.</p>
 
 <p>Soon, everything in Qingyi was going through the same process. Skin, muscles, and bones.</p>
 
@@ -77,47 +73,33 @@ chapter = 420
 
 <p>Tomorrow would be the day he would finally marry Isabel, and now it was time for him to start preparing for it.</p>
 
-<p>Naturally, the entire royal family palace was already ready for the feast, and the many royal family chefs were working tirelessly to</p>
-
-<p>begin preparing the next day’s meals.</p>
+<p>Naturally, the entire royal family palace was already ready for the feast, and the many royal family chefs were working tirelessly to begin preparing the next day’s meals.</p>
 
 <p>The capital was buzzing with noble families and even envoys from other smaller nations interested in Qingyi.</p>
 
 <p>Qingyi, unfortunately, was unable to contact Isabel during this time.</p>
 
-<p>He just went alone to his room, took a long, leisurely bath, and for the rest of the night, just meditated quietly before entering the world of</p>
+<p>He just went alone to his room, took a long, leisurely bath, and for the rest of the night, just meditated quietly before entering the world of the mind.</p>
 
-<p>the mind.</p>
-
-<p>Originally, he did not plan to bring his other wives to the wedding, as he thought it would be disrespectful to Isabel, something they</p>
-
-<p>themselves agreed with.</p>
+<p>Originally, he did not plan to bring his other wives to the wedding, as he thought it would be disrespectful to Isabel, something they themselves agreed with.</p>
 
 <p>This was her special moment, and they didn’t want to get in the way. One day, they would have their own special moment too.</p>
 
-<p>Still, Isabel had insisted, almost begging to have all the girls at her</p>
+<p>Still, Isabel had insisted, almost begging to have all the girls at her wedding.</p>
 
-<p>wedding.</p>
-
-<p>In the end, they had no choice but to give in. With only a few hours to go before the wedding, Qingyi had to buy some dresses for them to</p>
-
-<p>wear.</p>
+<p>In the end, they had no choice but to give in. With only a few hours to go before the wedding, Qingyi had to buy some dresses for them to wear.</p>
 
 <p>How could the girls not love that?</p>
 
 <p>Soon, Qingyi found himself surrounded by hugs and kisses.</p>
 
-<p>Elize was the first to throw herself into his arms, dressed in a long,</p>
-
-<p>elegant white dress surrounded by golden details, pulling Qingyi into the deep valley of her massive, soft, pale tits.</p>
+<p>Elize was the first to throw herself into his arms, dressed in a long, elegant white dress surrounded by golden details, pulling Qingyi into the deep valley of her massive, soft, pale tits.</p>
 
 <p>Even Ruxue, who was usually too proud to have this kind of reaction to something like a dress, was happy.</p>
 
 <p>Her curves were accentuated by a black dress, the pale, creamy skin of her cleavage contrasting with the fabric.</p>
 
-<p>At the end of it all, Qingyi left the world of the mind with his wives and also dressed himself, wearing a traditional black and golden male wedding robe that had been carefully prepared by Meilin herself. With everyone ready, they crossed the royal palace to the wedding</p>
-
-<p>venue.</p>
+<p>At the end of it all, Qingyi left the world of the mind with his wives and also dressed himself, wearing a traditional black and golden male wedding robe that had been carefully prepared by Meilin herself. With everyone ready, they crossed the royal palace to the wedding venue.</p>
 
 <p>It was a huge courtyard surrounded by a luxurious garden, large enough for over a thousand guests, with a white marble platform and separate seats for the groom’s and bride’s families.</p>
 
@@ -127,11 +109,7 @@ chapter = 420
 
 <p>“You’re really lucky to have my daughter as your wife… I think Sofia would kill me if I brought another woman to my wedding with her, hahaha.” David laughed, patting Qingyi on the shoulder.</p>
 
-<p>“Hahaha, she’s a good woman, and honestly, I don’t deserve her, I</p>
-
-<p>don’t deserve any of them.” Qingyi smiled, focusing his gaze on the</p>
-
-<p>arriving guests.</p>
+<p>“Hahaha, she’s a good woman, and honestly, I don’t deserve her, I don’t deserve any of them.” Qingyi smiled, focusing his gaze on the arriving guests.</p>
 
 <p>This was his final step in the Kingdom of Valemont.</p>
 

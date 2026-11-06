@@ -11,9 +11,7 @@ chapter = 684
 
 <p>The disciple behind him, however, was not so lucky. The sharp tip pierced him through the chest, his lungs bursting with a wet sound as blood gushed up his throat.</p>
 
-<p>With the unfortunate young man still impaled on the blade, Chen Wei swung the weapon to the side, using his own body as a hammer</p>
-
-<p>against five other disciples.</p>
+<p>With the unfortunate young man still impaled on the blade, Chen Wei swung the weapon to the side, using his own body as a hammer against five other disciples.</p>
 
 <p>A sharp crack echoed through the arena and the wounded bodies were hurled into the air, unable to withstand the crushing force behind the movement.</p>
 
@@ -29,9 +27,7 @@ chapter = 684
 
 <p>“You’ll be the last. Prepare to despair.”</p>
 
-<p>The moment Young Master Chen’s voice fell, his body vanished, the blade tearing through the air at a terrifying speed toward Young Master Luo’s henchmen, provided by none other than Guo Tianhao</p>
-
-<p>himself.</p>
+<p>The moment Young Master Chen’s voice fell, his body vanished, the blade tearing through the air at a terrifying speed toward Young Master Luo’s henchmen, provided by none other than Guo Tianhao himself.</p>
 
 <p>Screams of despair echoed as Young Master Chen delivered severe but non-lethal blows, severing limbs, shattering internal organs, and with every swing of his spear, staining the marble floor beneath his feet with vivid crimson.</p>
 
@@ -59,15 +55,9 @@ chapter = 684
 
 <p>Chen Wei’s knees buckled, but he didn’t give way, his face set with determination as the inner disciple advanced with quick, furious strides.</p>
 
-<p>“I ordered you to stop the fight. Why did you continue? Do you think the authority of an inner disciple can be ignored so easily? You</p>
+<p>“I ordered you to stop the fight. Why did you continue? Do you think the authority of an inner disciple can be ignored so easily? You damned junior!”</p>
 
-<p>damned junior!”</p>
-
-<p>“My master always taught me never to forgive those who set their</p>
-
-<p>sights on my women. If you want to speak to me that way, you’d better kiss his feet first!” Chen Wei replied to the senior disciple, his</p>
-
-<p>words shocking everyone present.</p>
+<p>“My master always taught me never to forgive those who set their sights on my women. If you want to speak to me that way, you’d better kiss his feet first!” Chen Wei replied to the senior disciple, his words shocking everyone present.</p>
 
 <p>Had he completely lost his mind?</p>
 
@@ -79,58 +69,34 @@ chapter = 684
 
 <p>In the end, seeing the inner disciple’s sword gleaming with pure murderous intent, he decided it was time to intervene.</p>
 
-<p>“Watch out!” The beauty shouted to Chen Wei, ready to unleash her own Qi and help him in that fight, but fortunately, it wasn’t necessary. The moment the disciple’s blade was about to leave its sheath, he froze, feeling a powerful hand grip his wrist like an iron shackle. “If my junior brother has caused you trouble, settle it with me. From inner disciple to inner disciple.” Qingyi’s cold voice echoed, and the inner disciple quickly turned his face, staring at the young man beside</p>
+<p>“Watch out!” The beauty shouted to Chen Wei, ready to unleash her own Qi and help him in that fight, but fortunately, it wasn’t necessary. The moment the disciple’s blade was about to leave its sheath, he froze, feeling a powerful hand grip his wrist like an iron shackle. “If my junior brother has caused you trouble, settle it with me. From inner disciple to inner disciple.” Qingyi’s cold voice echoed, and the inner disciple quickly turned his face, staring at the young man beside him with trembling eyes.</p>
 
-<p>him with trembling eyes.</p>
-
-<p>“S-Senior Brother Qingyi!” Chen Wei’s eyes nearly welled up with</p>
-
-<p>relief, but Qingyi merely shook his head.</p>
+<p>“S-Senior Brother Qingyi!” Chen Wei’s eyes nearly welled up with relief, but Qingyi merely shook his head.</p>
 
 <p>“We’ll talk later. Take care of your woman first.”</p>
 
 <p>Hearing that, Chen Wei didn’t hesitate, rushing toward the flushed beauty and placing a healing pill between her lips.</p>
 
-<p>“You bastard, how dare you meddle in my affairs? Do you think just</p>
-
-<p>because you had a bit of luck with this pretty face in the Cosmic Void Sect, you’ll get away with it here too?” The inner disciple roared, unleashing his killing intent with full force.</p>
+<p>“You bastard, how dare you meddle in my affairs? Do you think just because you had a bit of luck with this pretty face in the Cosmic Void Sect, you’ll get away with it here too?” The inner disciple roared, unleashing his killing intent with full force.</p>
 
 <p>“Try your luck.” Qingyi replied with a gentle smile.</p>
 
 <p>That guy didn’t even possess a bloodline.</p>
 
-<p>Even if his cultivation was higher, Qingyi didn’t consider him a worthy</p>
+<p>Even if his cultivation was higher, Qingyi didn’t consider him a worthy opponent.</p>
 
-<p>opponent.</p>
-
-<p>In that instant, the inner disciple gave in to his fury, punching toward Qingyi’s chest before stepping back, ready to grab his sword and end</p>
-
-<p>it right there.</p>
+<p>In that instant, the inner disciple gave in to his fury, punching toward Qingyi’s chest before stepping back, ready to grab his sword and end it right there.</p>
 
 <p>But then, at that moment, he realized.</p>
 
 <p>A searing pain spread through his right arm and he roared, staring in horror at his limb.</p>
 
-<p>It was broken in ten different places, every joint and bone reduced to</p>
+<p>It was broken in ten different places, every joint and bone reduced to fine powder beneath the skin.</p>
 
-<p>fine powder beneath the skin.</p>
+<p>The pain was insane, but nowhere near as intense as the pain of Qingyi’s boots meeting his teeth, hurling him out of the arena toothless and with his jaw shattered.</p>
 
-<p>The pain was insane, but nowhere near as intense as the pain of</p>
+<p>“Make sure Guo Tianhao knows that I’ll be coming after him soon, too.” Qingyi growled, barely giving the inner disciple a second glance as the latter pounded the ground in impotent fury.</p>
 
-<p>Qingyi’s boots meeting his teeth, hurling him out of the arena</p>
+<p>He spat out blood and fragments of teeth, his eyes brimming with hatred as he planted his feet, burning his own origin essence, feeling so much rage that he simply couldn’t control himself.</p>
 
-<p>toothless and with his jaw shattered.</p>
-
-<p>“Make sure Guo Tianhao knows that I’ll be coming after him soon,</p>
-
-<p>too.” Qingyi growled, barely giving the inner disciple a second glance as the latter pounded the ground in impotent fury.</p>
-
-<p>He spat out blood and fragments of teeth, his eyes brimming with</p>
-
-<p>hatred as he planted his feet, burning his own origin essence, feeling so much rage that he simply couldn’t control himself.</p>
-
-<p>His body shot forward at lightning speed, but with a single brutal</p>
-
-<p>kick, he was sent flying like a cannonball, tearing through the ground for hundreds of meters and carving a deep crater in a massive rock in</p>
-
-<p>the distance.</p>
+<p>His body shot forward at lightning speed, but with a single brutal kick, he was sent flying like a cannonball, tearing through the ground for hundreds of meters and carving a deep crater in a massive rock in the distance.</p>

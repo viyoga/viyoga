@@ -101,8 +101,6 @@ chapter = 277
 
 <p>A gray fire. Too chaotic to be controlled by any mortal or immortal hand, trying to destroy everything around it, but carefully controlled by Qingyi, whose clothes were already crumbling to ash over his body, forcing him to call on his black scales for cover.</p>
 
-<p>10:18</p>
-
 <p>This time, not even the regenerative capacity of the three-bladed monarch’s set held out.</p>
 
 <p>With a soft sigh, Qingyi retracted his sword, preparing to charge towards the heavens while remembering that final attack from Mochen.</p>

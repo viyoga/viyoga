@@ -19,9 +19,7 @@ chapter = 522
 
 <p>“You’re pretty fast for someone so old, huh?” Qingyi asked, keeping up with the old man again, as easily as before.</p>
 
-<p>“Old? I’m in my prime, kid! Just… I’ve always been a warrior of</p>
-
-<p>strength, not speed.” The old man turned his face away and turned up his nose.</p>
+<p>“Old? I’m in my prime, kid! Just… I’ve always been a warrior of strength, not speed.” The old man turned his face away and turned up his nose.</p>
 
 <p>There wasn’t even much time to talk to Qingyi, with the high walls of the capital rapidly approaching on the horizon.</p>
 
@@ -77,11 +75,7 @@ chapter = 522
 
 <p>The old man trembled, searching for words until, finally, he just sighed in defeat.</p>
 
-<p>“Let’s hurry up, my son-in-law should have a good arena for me to</p>
-
-<p>knock a few teeth out of that pretty, smug face of yours.” The old man</p>
-
-<p>grunted, clearly annoyed.</p>
+<p>“Let’s hurry up, my son-in-law should have a good arena for me to knock a few teeth out of that pretty, smug face of yours.” The old man grunted, clearly annoyed.</p>
 
 <p>“Hahaha.” Qingyi laughed, but his voice quickly turned serious. “I want to see you try, old man.”</p>
 
@@ -89,13 +83,9 @@ chapter = 522
 
 <p>The old man ascended into the skies and flew toward the center of the enlightened city, where the Gold King’s mansion stood. Qingyi sighed, keeping a gentle smile on his face as he followed close behind.</p>
 
-<p>Of course, it was technically forbidden to fly through the capital without specific permission or being a government official of a certain</p>
+<p>Of course, it was technically forbidden to fly through the capital without specific permission or being a government official of a certain rank.</p>
 
-<p>rank.</p>
-
-<p>Some guards even noticed the two, but a single glance at the old man leading the way was enough for them to immediately give up on the</p>
-
-<p>idea.</p>
+<p>Some guards even noticed the two, but a single glance at the old man leading the way was enough for them to immediately give up on the idea.</p>
 
 <p>The rules, in the end, only applied to the weak.</p>
 
@@ -111,13 +101,9 @@ chapter = 522
 
 <p>They were already in front of the gates leading to the Gold King’s private arena, almost three hundred meters below ground.</p>
 
-<p>“He wasn’t, he just tried to offend me, so Meilin castrated him with a kick. It was quite a sight.” Qingyi chuckled, ignoring the old man’s</p>
+<p>“He wasn’t, he just tried to offend me, so Meilin castrated him with a kick. It was quite a sight.” Qingyi chuckled, ignoring the old man’s shock.</p>
 
-<p>shock.</p>
-
-<p>“Meilin? Does she have the martial talent to do something like that to</p>
-
-<p>her brother? Impossible! She’s a smart girl, yes, but the Third Young Master is a great genius with chances of reaching the Astral Body</p>
+<p>“Meilin? Does she have the martial talent to do something like that to her brother? Impossible! She’s a smart girl, yes, but the Third Young Master is a great genius with chances of reaching the Astral Body</p>
 
 <p>Realm.”</p>
 
@@ -125,6 +111,4 @@ chapter = 522
 
 <p>All he wanted was a suitable chance to test his newfound strength and see how he would fare against a peak Astral Body Realm expert.</p>
 
-<p>Fortunately, the Gold King’s personal arena was naturally exceptional, enough to allow an expert of that old man’s level to reveal his full</p>
-
-<p>power.</p>
+<p>Fortunately, the Gold King’s personal arena was naturally exceptional, enough to allow an expert of that old man’s level to reveal his full power.</p>

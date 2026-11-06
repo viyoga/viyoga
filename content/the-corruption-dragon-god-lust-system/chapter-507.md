@@ -5,9 +5,7 @@ weight = 507
 chapter = 507
 +++
 
-<p>Qingyi felt dozens of powerful auras rise up, quickly surrounding him</p>
-
-<p>as the space changed dramatically.</p>
+<p>Qingyi felt dozens of powerful auras rise up, quickly surrounding him as the space changed dramatically.</p>
 
 <p>“Space lock…” He growled in irritation.</p>
 
@@ -69,9 +67,7 @@ chapter = 507
 
 <p>Teleporting once more, he escaped all those auras.</p>
 
-<p>“Sapphire…” He called out in his mind as he ran nonstop. “Are you</p>
-
-<p>okay?”</p>
+<p>“Sapphire…” He called out in his mind as he ran nonstop. “Are you okay?”</p>
 
 <p>“Yes…” She replied, her voice clearly tearful.</p>
 
@@ -89,13 +85,9 @@ chapter = 507
 
 <p>“Hm… I would say they were pretty much equivalent. It took countless sacrifices to defeat the Corruption Dragon God, with over a thousand unmatched experts dying. A similar sacrifice would be necessary to kill the Heavenly Demon.</p>
 
-<p>After all, he is the most powerful among the seventy-two Heavenly Demon Lords. He is not someone you can underestimate, not even my</p>
+<p>After all, he is the most powerful among the seventy-two Heavenly Demon Lords. He is not someone you can underestimate, not even my creator could underestimate him.”</p>
 
-<p>creator could underestimate him.”</p>
-
-<p>Hearing that, Qingyi nodded silently, feeling the bitterness in his</p>
-
-<p>heart.</p>
+<p>Hearing that, Qingyi nodded silently, feeling the bitterness in his heart.</p>
 
 <p>The heavenlyn Demon not only hurt his Sapphire, but also mentioned</p>
 
@@ -105,27 +97,17 @@ chapter = 507
 
 <p>Shaking his head, Qingyi just continued to run.</p>
 
-<p>He would arrive at Valemont, make sure everything was fine, and then</p>
+<p>He would arrive at Valemont, make sure everything was fine, and then set off for the Enlightened Sky Empire.</p>
 
-<p>set off for the Enlightened Sky Empire.</p>
+<p>When he met with Meilin’s father and resolved the fox people’s problem, he would take the time to clean up everything that remained of the Heavenly Demon in this world.</p>
 
-<p>When he met with Meilin’s father and resolved the fox people’s</p>
-
-<p>problem, he would take the time to clean up everything that remained</p>
-
-<p>of the Heavenly Demon in this world.</p>
-
-<p>Closing his eyes and calming his breathing, Qingyi finally stopped</p>
-
-<p>teleporting.</p>
+<p>Closing his eyes and calming his breathing, Qingyi finally stopped teleporting.</p>
 
 <p>He had used about ten percent of his Qi and was already thousands of kilometers away from the capital.</p>
 
 <p>Sitting on a tree branch, he entered the world of the mind, rushing towards Sapphire’s room.</p>
 
-<p>The beauty was locked inside, with Aeryn and Celestia trying to reach</p>
-
-<p>her.</p>
+<p>The beauty was locked inside, with Aeryn and Celestia trying to reach her.</p>
 
 <p>“Husband… what happened?” Celestia asked, her eyes full of concern as she threw herself into Qingyi’s embrace.</p>
 
@@ -133,33 +115,21 @@ chapter = 507
 
 <p>Hearing that, Celestia’s confusion turned to anger.</p>
 
-<p>“Ugh… that bastard! He’s always been a pain in the ass! Hubby’s going</p>
-
-<p>to kick his ass, right? Big sister Isabel and big sister Ruyan said that</p>
-
-<p>hubby always kicks assholes’ asses.”</p>
+<p>“Ugh… that bastard! He’s always been a pain in the ass! Hubby’s going to kick his ass, right? Big sister Isabel and big sister Ruyan said that hubby always kicks assholes’ asses.”</p>
 
 <p>Qingyi paused for a moment before bursting out laughing.</p>
 
-<p>“Yes, I will.” He kissed Celestia on the lips, then knocked on Sapphire’s</p>
+<p>“Yes, I will.” He kissed Celestia on the lips, then knocked on Sapphire’s door and entered immediately.</p>
 
-<p>door and entered immediately.</p>
-
-<p>The beauty was alone in a corner, her eyes teary as she hugged her</p>
-
-<p>knees.</p>
+<p>The beauty was alone in a corner, her eyes teary as she hugged her knees.</p>
 
 <p>Why did things have to be this way?</p>
 
 <p>She felt Qingyi’s warm touch, pulling her onto his lap.</p>
 
-<p>“I… I’m sorry for putting you in danger… there wasn’t even anything</p>
+<p>“I… I’m sorry for putting you in danger… there wasn’t even anything important to take there…” Sapphire whispered, rubbing her face against Qingyi’s chest.</p>
 
-<p>important to take there…” Sapphire whispered, rubbing her face against Qingyi’s chest.</p>
-
-<p>“Yes… and what danger was that? I don’t fear your father or his</p>
-
-<p>armies. In fact, this encounter was good for me,” Qingyi smiled, stroking Sapphire’s long blue hair.</p>
+<p>“Yes… and what danger was that? I don’t fear your father or his armies. In fact, this encounter was good for me,” Qingyi smiled, stroking Sapphire’s long blue hair.</p>
 
 <p>It was strange to see her like this.</p>
 
@@ -177,8 +147,6 @@ chapter = 507
 
 <p>He was already certain that he had to kill the emperor, but he wouldn’t do anything without Sapphire’s permission.</p>
 
-<p>She swallowed her tears, bit her lower lip, and then filled her face</p>
-
-<p>with determination.</p>
+<p>She swallowed her tears, bit her lower lip, and then filled her face with determination.</p>
 
 <p>“Yes…”</p>

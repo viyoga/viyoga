@@ -39,11 +39,7 @@ chapter = 630
 
 <p>Clap</p>
 
-<p>“Oghnn~~ Q-Qingyi, your-</p>
-
-<p>naughty</p>
-
-<p>delicious cock~~♡”</p>
+<p>“Oghnn~~ Q-Qingyi, your-naughty delicious cock~~♡”</p>
 
 <p>While Auranys moaned low and sensually, Khaedryss was completely overwhelmed, her lips parted and teeth clenched, saliva trailing from her chin as her nails dug into the sheets beneath her.</p>
 
@@ -63,15 +59,11 @@ chapter = 630
 
 <p>When would he finally get her pregnant?</p>
 
-<p>She always took his cum, whether in her pussy or her mouth, but it hadn’t happened yet, largely because of her draconic nature and its</p>
-
-<p>wretched fertility.</p>
+<p>She always took his cum, whether in her pussy or her mouth, but it hadn’t happened yet, largely because of her draconic nature and its wretched fertility.</p>
 
 <p>Apparently, she would have to try even harder.</p>
 
-<p>Suddenly, Khaedryss turned and pushed Qingyi and Auranys</p>
-
-<p>backward.</p>
+<p>Suddenly, Khaedryss turned and pushed Qingyi and Auranys backward.</p>
 
 <p>The goddess’s eyes went wide as Qingyi’s back hit the soft mattress, Auranys’s ass following close behind and settling over his face, her knees bending instinctively on either side of him, the warm, full weight of her ass cheeks pressing down against him with a plush, suffocating softness.</p>
 
@@ -83,13 +75,9 @@ chapter = 630
 
 <p>Her enormous, divine pale tits hung freely from her delicate torso as she bent down, their full, heavy weight swaying before coming to rest softly against Qingyi’s abdomen, her hardened nipples grazing him with every subtle shift of her body.</p>
 
-<p>Her lips parted, and alongside Khaedryss, she tended to her</p>
+<p>Her lips parted, and alongside Khaedryss, she tended to her husband’s cock with tenderness and devotion.</p>
 
-<p>husband’s cock with tenderness and devotion.</p>
-
-<p>Qingyi simply let himself sink into it all: the divine weight of Auranys’s</p>
-
-<p>full cheeks in his hands, the dual warmth of two beautiful mouths working over his cock, and the soft, heavy press of her enormous breasts melting against his abdomen.</p>
+<p>Qingyi simply let himself sink into it all: the divine weight of Auranys’s full cheeks in his hands, the dual warmth of two beautiful mouths working over his cock, and the soft, heavy press of her enormous breasts melting against his abdomen.</p>
 
 <p>What kind of man would refuse treatment fit for emperors?</p>
 
@@ -97,31 +85,23 @@ chapter = 630
 
 <p>In the end, with his cock clean and both women thoroughly satisfied, Qingyi lay back on the bed with the two of them nestled in his arms, one on each side.</p>
 
-<p>“Hm… aren’t you excited?” he asked, his hand moving to cup and gently knead one of Auranys’s breasts, the soft flesh yielding between</p>
-
-<p>his fingers.</p>
+<p>“Hm… aren’t you excited?” he asked, his hand moving to cup and gently knead one of Auranys’s breasts, the soft flesh yielding between his fingers.</p>
 
 <p>“For what?” she asked, her cheeks coloring faintly under his touch.</p>
 
-<p>“To regain your power… I promised I’d do my best for that, right?” Qingyi smiled, his gaze drifting toward his status screen. He don’t planned to invest in Auranys before increasing his own cultivation, not with his time so short, but with Feiyan’s help, an idea</p>
-
-<p>popped into his mind.</p>
+<p>“To regain your power… I promised I’d do my best for that, right?” Qingyi smiled, his gaze drifting toward his status screen. He don’t planned to invest in Auranys before increasing his own cultivation, not with his time so short, but with Feiyan’s help, an idea popped into his mind.</p>
 
 <p>[Name: Long Qingyi</p>
 
 <p>Age: 22</p>
 
-<p>Cultivation: First Stage of the Astral Blood Realm (3 G lust points to</p>
-
-<p>upgrade)</p>
+<p>Cultivation: First Stage of the Astral Blood Realm (3 G lust points to upgrade)</p>
 
 <p>Mana Manipulation: Thirteenth Ring (10 G lust points to upgrade)</p>
 
 <p>Affinities: Lightning: 6000 – Sword: 6000 – Fire: 6000 – Ice: 6000 – Space: 6000 – Light: 6000 – Shadow: 6000 – Charm: 6000 (can be upgraded in the lust store)</p>
 
-<p>Spiritual Roots: Astral-level Primordial Creation Seed Spirit Root (Lightning, Sword, Fire, Ice, Space, Light, Shadow) (10 G Lust Points to</p>
-
-<p>upgrade).</p>
+<p>Spiritual Roots: Astral-level Primordial Creation Seed Spirit Root (Lightning, Sword, Fire, Ice, Space, Light, Shadow) (10 G Lust Points to upgrade).</p>
 
 <p>Spiritual Roots?: None/Astral-level Primordial Creation Seed Mana</p>
 

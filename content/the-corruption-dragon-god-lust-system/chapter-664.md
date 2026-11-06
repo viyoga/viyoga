@@ -7,9 +7,7 @@ chapter = 664
 
 <p>The atmosphere at the Sect of the Cosmic Void was festive.</p>
 
-<p>Today, the sect’s secret realm would finally open its doors to a</p>
-
-<p>hundred lucky young masters, who would venture into a world full of dangers, but also of riches.</p>
+<p>Today, the sect’s secret realm would finally open its doors to a hundred lucky young masters, who would venture into a world full of dangers, but also of riches.</p>
 
 <p>Perfect arrays for soul cultivation. Legacies of cultivators lost in the past. Soul artifacts of unparalleled quality. Spiritual herbs capable of aiding in the birth of stellar sovereigns.</p>
 
@@ -31,9 +29,7 @@ chapter = 664
 
 <p>Minutes before the secret realm opened, in a luxurious office, an irritated voice echoed.</p>
 
-<p>“The Guo family contacted me. They were questioning the shame you</p>
-
-<p>put your fiancé through…” The sect’s grand elder, Xue Hua’s father, crossed his arms as he stared at his daughter. “You know very well how important this agreement is to me, don’t you?”</p>
+<p>“The Guo family contacted me. They were questioning the shame you put your fiancé through…” The sect’s grand elder, Xue Hua’s father, crossed his arms as he stared at his daughter. “You know very well how important this agreement is to me, don’t you?”</p>
 
 <p>“Shame him?” Xue Hua let out a dry laugh. “That pig has nothing left to be ashamed of; he’s lucky I even look at him. If we met in the secret realm, I guarantee I’d order Qingyi to kill him.”</p>
 
@@ -57,9 +53,7 @@ chapter = 664
 
 <p>He was proud.</p>
 
-<p>He had raised an incredible daughter, hadn’t he? What other woman in her cultivation realm would face the aura of a star sovereign with</p>
-
-<p>such arrogance and courage?</p>
+<p>He had raised an incredible daughter, hadn’t he? What other woman in her cultivation realm would face the aura of a star sovereign with such arrogance and courage?</p>
 
 <p>Of course, there was her mother, who was a figure from the central region, but that was beside the point.</p>
 
@@ -79,9 +73,7 @@ chapter = 664
 
 <p>Unaware of what was happening in an office in a pavilion not far away, Qingyi waited standing alongside the other protectors, with Rou’er humming cheerfully by his side.</p>
 
-<p>Honestly, having Xue Hua would be good for his lust points, since he could take her purity more easily than Rou’er’s, who wanted to wait</p>
-
-<p>until marriage.</p>
+<p>Honestly, having Xue Hua would be good for his lust points, since he could take her purity more easily than Rou’er’s, who wanted to wait until marriage.</p>
 
 <p>But there was also a problem.</p>
 
@@ -91,9 +83,7 @@ chapter = 664
 
 <p>It would be worth it, and one way or another, Rou’er was also excited to explore the secret realm.</p>
 
-<p>He could spend quality time by her side while also securing fortunes</p>
-
-<p>for Xue Hua.</p>
+<p>He could spend quality time by her side while also securing fortunes for Xue Hua.</p>
 
 <p>Obviously, he wouldn’t let Longwei, with that tiger, amass more fortunes than the woman by his side.</p>
 
@@ -105,14 +95,10 @@ chapter = 664
 
 <p>She wasn’t as beautiful as Rou’er, but still, she was perfection in the form of a woman.</p>
 
-<p>Approaching, Xue Hua held out her hand. “This is a map of the secret realm. The functionality of our spatial rings will be quite limited inside; we can store things, but we can’t retrieve them, so keep this</p>
-
-<p>safe.”</p>
+<p>Approaching, Xue Hua held out her hand. “This is a map of the secret realm. The functionality of our spatial rings will be quite limited inside; we can store things, but we can’t retrieve them, so keep this safe.”</p>
 
 <p>Qingyi said nothing, taking the map and tucking it into his robes.</p>
 
-<p>His eyes slowly rose as a loud bell echoed in the distance, its deep</p>
-
-<p>sound reverberating throughout the sect.</p>
+<p>His eyes slowly rose as a loud bell echoed in the distance, its deep sound reverberating throughout the sect.</p>
 
 <p>It was beginning.</p>

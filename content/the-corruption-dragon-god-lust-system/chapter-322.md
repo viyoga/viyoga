@@ -119,8 +119,6 @@ chapter = 322
 
 <p>“I’m a genius, hehehe…” Meilin gave a muffled giggle as she rested in Qingyi’s embrace in a luxurious carriage.</p>
 
-<p>10:38</p>
-
 <p>“Yes, you are.” The handsome young man laughed, patting Meilin on the butt before turning his face away, realizing that the carriage had started to move.</p>
 
 <p>It was time for him to finally meet the third prince in person.</p>

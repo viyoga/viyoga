@@ -63,19 +63,13 @@ chapter = 472
 
 <p>Lineage: Blood of the Corruption Dragon God (Immortal grade, 50T lust points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Immortal grade, 50T lust</p>
-
-<p>points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Immortal grade, 50T lust points to upgrade.)</p>
 
 <p>Lust points: 68.4T]</p>
 
-<p>After taking a quick look, Qingyi began to search for a place to</p>
+<p>After taking a quick look, Qingyi began to search for a place to cultivate.</p>
 
-<p>cultivate.</p>
-
-<p>Unfortunately, there was nothing specific for cultivators there, but there were many meditation rooms in schools and martial arts shops</p>
-
-<p>in this land.</p>
+<p>Unfortunately, there was nothing specific for cultivators there, but there were many meditation rooms in schools and martial arts shops in this land.</p>
 
 <p>Without hesitation, Qingyi entered the first one he saw, renting a room for about seven days and then isolating himself.</p>
 
@@ -85,69 +79,43 @@ chapter = 472
 
 <p>Qingyi even thought about also improving his Mana Heart to reach the Tenth Ring, but he soon gave up.</p>
 
-<p>The price to raise his cultivation to the Immortal Emperor Realm</p>
-
-<p>reached fifty trillion points, and he still wanted to improve his</p>
-
-<p>affinities.</p>
+<p>The price to raise his cultivation to the Immortal Emperor Realm reached fifty trillion points, and he still wanted to improve his affinities.</p>
 
 <p>Taking a moment to calm his Dantian and prepare himself, Qingyi finally clicked to improve his cultivation.</p>
 
 <p>His body trembled with excitement.</p>
 
-<p>The Immortal Emperor Realm would be one of the last steps before he</p>
+<p>The Immortal Emperor Realm would be one of the last steps before he had another great breakthrough; in the Ancestral Emperor Realm: The formation of a Domain.</p>
 
-<p>had another great breakthrough; in the Ancestral Emperor Realm: The</p>
+<p>It was something so powerful that unless Qingyi achieved such a domain, his power would rarely go beyond the initial level of Ancestral Emperor.</p>
 
-<p>formation of a Domain.</p>
-
-<p>It was something so powerful that unless Qingyi achieved such a domain, his power would rarely go beyond the initial level of</p>
-
-<p>Ancestral Emperor.</p>
-
-<p>‘I wonder what domain I will achieve…! Qingyi thought to himself as</p>
-
-<p>the first twinge of pain surged.</p>
+<p>‘I wonder what domain I will achieve…! Qingyi thought to himself as the first twinge of pain surged.</p>
 
 <p>Just one more realm and he would finally be there.</p>
 
 <p>[Initiating breakthrough!]</p>
 
-<p>The moment the system notification arrived, Qingyi’s lips parted in a</p>
-
-<p>painful groan.</p>
+<p>The moment the system notification arrived, Qingyi’s lips parted in a painful groan.</p>
 
 <p>His Dantian moved strangely, and the Qi core at its center, still barely the size of a few grains of rice, suddenly expanded.</p>
 
-<p>Qingyi kept his eyes closed, letting the changes in his Dantian take</p>
-
-<p>place.</p>
+<p>Qingyi kept his eyes closed, letting the changes in his Dantian take place.</p>
 
 <p>In just a moment, his Qi reserves had doubled, but that wasn’t all.</p>
 
 <p>His meridians swelled, and even the Qi pathways that carried energy to his brain expanded, leaving his mind clearer than ever.</p>
 
-<p>He inhaled and then exhaled, tensing his muscles before letting them</p>
+<p>He inhaled and then exhaled, tensing his muscles before letting them relax.</p>
 
-<p>relax.</p>
+<p>When his Dantian reached about four times its original size, it finally stopped.</p>
 
-<p>When his Dantian reached about four times its original size, it finally</p>
-
-<p>stopped.</p>
-
-<p>The Qi surrounding his body slowly rose into the air and a shockwave spread out, causing the black walls of the room to tremble with</p>
-
-<p>power.</p>
+<p>The Qi surrounding his body slowly rose into the air and a shockwave spread out, causing the black walls of the room to tremble with power.</p>
 
 <p>[Your cultivation has increased! Third stage of the True Immortal Realm -&gt; First stage of the Immortal Emperor Realm.]</p>
 
-<p>When it was finally over, Qingyi let his tired body fall back, breathing</p>
+<p>When it was finally over, Qingyi let his tired body fall back, breathing heavily.</p>
 
-<p>heavily.</p>
-
-<p>He stretched, the muscles of his abdomen even more prominent as he</p>
-
-<p>moved his powerful body.</p>
+<p>He stretched, the muscles of his abdomen even more prominent as he moved his powerful body.</p>
 
 <p>A single punch, without Qi, just pure and casual physical power.</p>
 

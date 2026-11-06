@@ -17,9 +17,7 @@ chapter = 674
 
 <p>Qingyi’s strong hands closed around her waist and he sat down on the soft grass, pulling her onto his lap in one fluid motion.</p>
 
-<p>Her ass, just big and plump enough to create a protruding,</p>
-
-<p>voluptuous curve on her slender body, settled into his lap with a soft, cushioned weight.</p>
+<p>Her ass, just big and plump enough to create a protruding, voluptuous curve on her slender body, settled into his lap with a soft, cushioned weight.</p>
 
 <p>The round cheeks spread slightly against his thighs, her pale skin dimpling where his muscles pressed into her softness.</p>
 
@@ -59,9 +57,7 @@ chapter = 674
 
 <p>Her eyes focused on Qingyi’s face as his tongue traced her breasts, catching every stray drop without wasting a single one.</p>
 
-<p>When he finally pulled back, a last, lick across her nipple sent a visible</p>
-
-<p>tremor through her breast, the soft flesh quivering from the contact. She looked at his face.</p>
+<p>When he finally pulled back, a last, lick across her nipple sent a visible tremor through her breast, the soft flesh quivering from the contact. She looked at his face.</p>
 
 <p>Handsome and sharp. Eyes full of affection. His grip on her body both protective and lascivious.</p>
 
@@ -85,13 +81,9 @@ chapter = 674
 
 <p>Her lips parted in an obscene, breathless moan.</p>
 
-<p>Her breasts lurched with the sudden descent, bouncing heavily</p>
+<p>Her breasts lurched with the sudden descent, bouncing heavily against her chest before she pitched forward, pressing them flat against Qingyi’s bare, powerful torso.</p>
 
-<p>against her chest before she pitched forward, pressing them flat against Qingyi’s bare, powerful torso.</p>
-
-<p>[You have taken the purity of Xue Hua, a woman of higher origin and cultivation than yours, daughter of a celestial empress. +250 lust</p>
-
-<p>points]</p>
+<p>[You have taken the purity of Xue Hua, a woman of higher origin and cultivation than yours, daughter of a celestial empress. +250 lust points]</p>
 
 <p>Qingyi couldn’t hide his joy at seeing the number of lust points, nor the strangeness he felt upon realizing that Xue Hua was, actually, the daughter of a celestial empress.</p>
 
@@ -101,8 +93,6 @@ chapter = 674
 
 <p>His hands settled on Xue Hua’s hips, fingers sinking into her creamy skin, feeling the soft give of flesh beneath his grip.</p>
 
-<p>Her delicate hands rested against his chest, pale fingers splayed over</p>
-
-<p>his muscles.</p>
+<p>Her delicate hands rested against his chest, pale fingers splayed over his muscles.</p>
 
 <p>It was time for her to learn how to ride.</p>

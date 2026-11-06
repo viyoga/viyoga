@@ -27,13 +27,9 @@ chapter = 604
 
 <p>The disciples could follow the sect’s instructors, but often they simply preferred to go their own way and cultivate on their own.</p>
 
-<p>A choice the elder deemed foolish for most, but he tried not to show</p>
+<p>A choice the elder deemed foolish for most, but he tried not to show it.</p>
 
-<p>it.</p>
-
-<p>After all, only those who forged their own path could reach</p>
-
-<p>unimaginable heights.</p>
+<p>After all, only those who forged their own path could reach unimaginable heights.</p>
 
 <p>How many disciples were capable of surpassing their masters? Few. Almost none.</p>
 
@@ -61,27 +57,19 @@ chapter = 604
 
 <p>And those who were late would not dare show up and interrupt the class.</p>
 
-<p>After all, unlike the palace mistress, Old Cang did not view those</p>
-
-<p>youths as his children and, if necessary, would punish them with all the severity he was permitted.</p>
+<p>After all, unlike the palace mistress, Old Cang did not view those youths as his children and, if necessary, would punish them with all the severity he was permitted.</p>
 
 <p>“From now on, I will be your instructor. We will have classes starting at this same time every morning and lasting until dusk.</p>
 
 <p>You will learn from me the most advanced principles of Qi control, the application of its laws, and, above all, the refinement of your battle arts.</p>
 
-<p>Those competent enough may even receive a letter of</p>
+<p>Those competent enough may even receive a letter of recommendation from me, but that is no easy feat.”</p>
 
-<p>recommendation from me, but that is no easy feat.”</p>
-
-<p>No one made a single sound while Old Cang spoke, moving from what</p>
-
-<p>he would teach that day to ramblings about martial arts until, before they knew it, he was already recounting stories of his most glorious past battles.</p>
+<p>No one made a single sound while Old Cang spoke, moving from what he would teach that day to ramblings about martial arts until, before they knew it, he was already recounting stories of his most glorious past battles.</p>
 
 <p>Few there were interested in listening, but they remained quiet, paying attention to everything.</p>
 
-<p>What if it was a trick, and afterwards, he was going to ask questions</p>
-
-<p>to see who was paying attention?</p>
+<p>What if it was a trick, and afterwards, he was going to ask questions to see who was paying attention?</p>
 
 <p>Only after an hour did Old Cang finally stop, realizing he looked more like a senile old man than an instructor.</p>
 
@@ -89,9 +77,7 @@ chapter = 604
 
 <p>“Before beginning the teachings, I’d like to test the martial strength of a few of you. Just a few short friendly duels,” Old Cang said, his eyes sweeping over everyone present until, among them, one stood up. Handsome, with sharp eyes and an arrogant expression.</p>
 
-<p>“Instructor Cangyun, please allow me to participate in the first match! I wish to fight Long Qingyi and wipe away the shame he put me</p>
-
-<p>through!” Young Master Luo declared.</p>
+<p>“Instructor Cangyun, please allow me to participate in the first match! I wish to fight Long Qingyi and wipe away the shame he put me through!” Young Master Luo declared.</p>
 
 <p>He had advanced to the Astral Blood Realm the night before, just as he had promised.</p>
 
@@ -107,42 +93,24 @@ chapter = 604
 
 <p>Well… exactly when had Qingyi put him through any shame?</p>
 
-<p>He wanted to defeat him to dash Chen Wei’s hopes, not because they</p>
-
-<p>had personal issues.</p>
+<p>He wanted to defeat him to dash Chen Wei’s hopes, not because they had personal issues.</p>
 
 <p>Flush with anger, Young Master Luo searched his mind for something.</p>
 
 <p>“He… he… he interfered in my family’s affairs!”</p>
 
-<p>“Affairs that are none of the sect’s business.” The old man shook his</p>
+<p>“Affairs that are none of the sect’s business.” The old man shook his head, lifting his gaze to Qingyi.</p>
 
-<p>head, lifting his gaze to Qingyi.</p>
+<p>The handsome young man thought for a moment before standing up as well.</p>
 
-<p>The handsome young man thought for a moment before standing up</p>
+<p>“Please, Elder. I fear that if Young Master Luo is not granted this match, his fragile martial spirit will break. As an instructor, that must be a terrible thing for you as well, to lose such a young talent to his delicate ego…</p>
 
-<p>as well.</p>
-
-<p>“Please, Elder. I fear that if Young Master Luo is not granted this</p>
-
-<p>match, his fragile martial spirit will break. As an instructor, that must be a terrible thing for you as well, to lose such a young talent to his</p>
-
-<p>delicate ego…</p>
-
-<p>‘Fragile martial spirit? Delicate ego?’ Young Master Luo was about to</p>
-
-<p>explode, already seething with rage.</p>
+<p>‘Fragile martial spirit? Delicate ego?’ Young Master Luo was about to explode, already seething with rage.</p>
 
 <p>This had become personal.</p>
 
-<p>“Hm… indeed, young people these days are too delicate to handle this</p>
+<p>“Hm… indeed, young people these days are too delicate to handle this sort of failure… I should give this little ice flower a chance.” Being called an ice flower by his own instructor was the final straw for Young Master Luo.</p>
 
-<p>sort of failure… I should give this little ice flower a chance.” Being called an ice flower by his own instructor was the final straw</p>
-
-<p>for Young Master Luo.</p>
-
-<p>Hundreds of bursts of laughter echoed around him, and he grabbed</p>
-
-<p>his sword.</p>
+<p>Hundreds of bursts of laughter echoed around him, and he grabbed his sword.</p>
 
 <p>‘Long Qingy… you son of a bitch… in the name of Young Master Guo, I’m going to slit your throat!’</p>

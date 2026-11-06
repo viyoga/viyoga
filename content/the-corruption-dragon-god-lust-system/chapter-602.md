@@ -65,27 +65,17 @@ chapter = 602
 
 <p>“Admit that I’m not an angry hamster and I’ll let you go without sitting on your dick until I break your hips!” she declared confidently, puffing out her chest with pride.</p>
 
-<p>She had finally defeated her hubby, even if he wasn’t taking her</p>
+<p>She had finally defeated her hubby, even if he wasn’t taking her seriously.</p>
 
-<p>seriously.</p>
+<p>“Okay…” Qingyi sighed in defeat. “You’re not an angry hamster, you’re an angry fox!”</p>
 
-<p>“Okay…” Qingyi sighed in defeat. “You’re not an angry hamster, you’re</p>
+<p>“Ugh… that doesn’t count!” Rongyan huffed and, with a quick movement, slid off Qingyi’s chest and onto his lap, her firm breasts swaying with the motion.</p>
 
-<p>an angry fox!”</p>
-
-<p>“Ugh… that doesn’t count!” Rongyan huffed and, with a quick movement, slid off Qingyi’s chest and onto his lap, her firm breasts</p>
-
-<p>swaying with the motion.</p>
-
-<p>Grabbing the waistband of Qingyi’s pants, she pulled them down, his massive, throbbing cock immediately springing out of its</p>
-
-<p>confinement, already hard and pulsing.</p>
+<p>Grabbing the waistband of Qingyi’s pants, she pulled them down, his massive, throbbing cock immediately springing out of its confinement, already hard and pulsing.</p>
 
 <p>Rongyan grabbed it with both hands, squeezing hard.</p>
 
-<p>“You’re not leaving here until you admit it!” the beauty declared,</p>
-
-<p>sitting down on Qingyi’s cock, the plump, perfect cheeks of her ass devouring it in a soft, incomparable squeeze.</p>
+<p>“You’re not leaving here until you admit it!” the beauty declared, sitting down on Qingyi’s cock, the plump, perfect cheeks of her ass devouring it in a soft, incomparable squeeze.</p>
 
 <p>“Oh… looks like we’re going to be here a long time…” Qingyi returned her smile, his hands soon rising to her breasts, firm and soft, just the perfect size to fill his palm.</p>
 
@@ -93,25 +83,15 @@ chapter = 602
 
 <p>A sweet, high-pitched squeal escaped Rongyan’s lips, taken by surprise, as their bodies sank into the steaming, pleasant water.</p>
 
-<p>A cold bath might have been more pleasant to escape the desert heat,</p>
+<p>A cold bath might have been more pleasant to escape the desert heat, but neither of them liked cold baths.</p>
 
-<p>but neither of them liked cold baths.</p>
+<p>And cultivators’ bodies were also much more resistant to temperature changes either way.</p>
 
-<p>And cultivators’ bodies were also much more resistant to temperature</p>
+<p>“Aghnn~~” Rongyan moaned, surfacing from the water and immediately climbing onto Qingyi’s lap.</p>
 
-<p>changes either way.</p>
+<p>Her red dress was soaked, clinging to her body, her soft, perky nipples pressing against the fabric.</p>
 
-<p>“Aghnn~~” Rongyan moaned, surfacing from the water and</p>
-
-<p>immediately climbing onto Qingyi’s lap.</p>
-
-<p>Her red dress was soaked, clinging to her body, her soft, perky</p>
-
-<p>nipples pressing against the fabric.</p>
-
-<p>“You should’ve at least warned me first, you idiot…” She gasped,</p>
-
-<p>leaning over him and pressing her lips against his.</p>
+<p>“You should’ve at least warned me first, you idiot…” She gasped, leaning over him and pressing her lips against his.</p>
 
 <p>When they parted, the irritation on her beautiful face had vanished, replaced by nothing but deep lust.</p>
 
@@ -119,15 +99,11 @@ chapter = 602
 
 <p>“Do you know how much this angry little pussy has missed you?” Rongyan asked playfully, her hips moving in a gentle grind, each movement making Qingyi grow harder and harder.</p>
 
-<p>“I know…” Qingyi nodded, his hands sliding down to Rongyan’s</p>
-
-<p>buttocks.</p>
+<p>“I know…” Qingyi nodded, his hands sliding down to Rongyan’s buttocks.</p>
 
 <p>“But don’t worry, love.”</p>
 
-<p>He squeezed those plump, soft cheeks tightly, burying his face in her</p>
-
-<p>chest.</p>
+<p>He squeezed those plump, soft cheeks tightly, burying his face in her chest.</p>
 
 <p>“Today, I’m going to make up for all that longing”</p>
 

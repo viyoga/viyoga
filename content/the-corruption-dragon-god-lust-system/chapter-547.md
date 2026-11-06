@@ -79,57 +79,37 @@ chapter = 547
 
 <p>soon, he would talk to Qingxue to take a look at the demonic beauty.</p>
 
-<p>If she had any talent with swords, Qingxue would be the best person</p>
-
-<p>to teach her. Or maybe Yunfei.</p>
+<p>If she had any talent with swords, Qingxue would be the best person to teach her. Or maybe Yunfei.</p>
 
 <p>“Both of them would be better…” Qingyi laughed.</p>
 
-<p>After all, they had very different techniques and fighting styles, even</p>
+<p>After all, they had very different techniques and fighting styles, even though Yunfei had more experience teaching.</p>
 
-<p>though Yunfei had more experience teaching.</p>
-
-<p>Carefully, he finally left Nianxue’s embrace, planting a kiss on her</p>
-
-<p>forehead and covering her with a blanket.</p>
+<p>Carefully, he finally left Nianxue’s embrace, planting a kiss on her forehead and covering her with a blanket.</p>
 
 <p>Picking up his clothes, he left the main bedroom, descending the long staircases that connected the purple palace to the rest of the temple.</p>
 
-<p>“Oh… look who finally showed up! Fufufu~~” As soon as Qingyi stepped into the central courtyard, a sweet, mature voice echoed</p>
-
-<p>beside him.</p>
+<p>“Oh… look who finally showed up! Fufufu~~” As soon as Qingyi stepped into the central courtyard, a sweet, mature voice echoed beside him.</p>
 
 <p>Turning his face, he saw Margareth. Her golden hair was already carefully combed, even though it was early in the morning.</p>
 
 <p>Beside her, sitting on a bench, was Sapphire, whose eyes sparkled when she saw Qingyi.</p>
 
-<p>“So…. did you treat our new little sister well?” Sapphire stood up,</p>
+<p>“So…. did you treat our new little sister well?” Sapphire stood up, taking Qingyi’s left side while Margareth took his right, pressing her breasts against his ribs.</p>
 
-<p>taking Qingyi’s left side while Margareth took his right, pressing her</p>
+<p>“Of course,” Qingyi puffed out his chest. “Aren’t I the best husband in the world?”</p>
 
-<p>breasts against his ribs.</p>
-
-<p>“Of course,” Qingyi puffed out his chest. “Aren’t I the best husband in</p>
-
-<p>the world?”</p>
-
-<p>“Hm… yes, you are… you womanizing scoundrel!” Margareth smiled, giving Qingyi’s chest a little bite and eliciting a groan of pain from</p>
-
-<p>him.</p>
+<p>“Hm… yes, you are… you womanizing scoundrel!” Margareth smiled, giving Qingyi’s chest a little bite and eliciting a groan of pain from him.</p>
 
 <p>“Now let’s go see Sister Feiyan and Sister Biyue. We’re working on something amazing together!”</p>
 
-<p>Qingyi, naturally, did not deny this request. He had already told Feiyan that he would visit her to see her recent discoveries. Judging by Margareth and Sapphire’s excitement, it was something</p>
-
-<p>big.</p>
+<p>Qingyi, naturally, did not deny this request. He had already told Feiyan that he would visit her to see her recent discoveries. Judging by Margareth and Sapphire’s excitement, it was something big.</p>
 
 <p>As it was early in the morning, Feiyan had not yet started working on her alchemy and was still organizing ingredients alongside Rongyan, who usually took care of the spirit crops with Xueyao and Linyue.</p>
 
 <p>The moment they saw Qingyi, the two threw themselves into his arms with excitement.</p>
 
-<p>With the four women filling his arms, Qingyi simply responded by planting soft kisses on each of their lips before finally focusing on</p>
-
-<p>what mattered.</p>
+<p>With the four women filling his arms, Qingyi simply responded by planting soft kisses on each of their lips before finally focusing on what mattered.</p>
 
 <p>“So, what did you want to show me?” he asked.</p>
 
@@ -145,8 +125,6 @@ chapter = 547
 
 <p>Healing and recovery pills that had both Qi and mana in their ingredients.</p>
 
-<p>Upon analyzing them, Qingyi saw nothing but endless question</p>
-
-<p>marks.</p>
+<p>Upon analyzing them, Qingyi saw nothing but endless question marks.</p>
 
 <p>Those question marks meant only one thing; those pills were of such a high grade that they were no longer immortal heaven pills, they were already celestial pills!</p>

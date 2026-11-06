@@ -63,13 +63,9 @@ chapter = 456
 
 <p>The beauty’s mouth opened in confusion, which soon turned into a long moan.</p>
 
-<p>Qingyi’s fingers sank into the vast, firm, yet extremely soft flesh of her breasts. His palm, completely open, was gently swallowed by the</p>
+<p>Qingyi’s fingers sank into the vast, firm, yet extremely soft flesh of her breasts. His palm, completely open, was gently swallowed by the softness.</p>
 
-<p>softness.</p>
-
-<p>The contact lasted only a moment, and Sapphire immediately fell to</p>
-
-<p>the ground.</p>
+<p>The contact lasted only a moment, and Sapphire immediately fell to the ground.</p>
 
 <p>Her mage hat fell from her head, and her long blue hair, previously elegantly combed, spilled over her shoulders.</p>
 
@@ -99,17 +95,13 @@ chapter = 456
 
 <p>The two stood up. Sapphire tried to take a step forward, but shuddered. She knew Qingyi was right, but that didn’t even cross her mind at that moment.</p>
 
-<p>She looked down, feeling the wetness against her panties. Aeryn had</p>
-
-<p>the same reaction.</p>
+<p>She looked down, feeling the wetness against her panties. Aeryn had the same reaction.</p>
 
 <p>A single touch and both of them were already getting soaked; how could that be possible?</p>
 
 <p>The absurdity of Qingyi being the first man to touch her like this barely crossed her clouded mind or her gasping voice.</p>
 
-<p>“Let’s go together… focus on immobilizing him,” Sapphire murmured,</p>
-
-<p>mana fists appearing around her delicate hands. She would wash away that shame in the traditional way.</p>
+<p>“Let’s go together… focus on immobilizing him,” Sapphire murmured, mana fists appearing around her delicate hands. She would wash away that shame in the traditional way.</p>
 
 <p>The two beauties exchanged glances and advanced toward Qingyi.</p>
 
@@ -117,9 +109,7 @@ chapter = 456
 
 <p>But that’s not what the handsome young man did; he rushed forward. His hands flowed toward her fist, disarming her with frightening speed. Before she could react, his now-free left hand slid down to the elf’s slim, delicate waist.</p>
 
-<p>Qingyi didn’t even stop his run toward Sapphire, easily overpowering her and soon finding the bodies of the two beauties pressed against</p>
-
-<p>his.</p>
+<p>Qingyi didn’t even stop his run toward Sapphire, easily overpowering her and soon finding the bodies of the two beauties pressed against his.</p>
 
 <p>The moment they finally hit the barrier, Sapphire’s eyes widened. Her neckline slid down and her huge, pale tits popped out, immediately meeting Qingyi’s face.</p>
 

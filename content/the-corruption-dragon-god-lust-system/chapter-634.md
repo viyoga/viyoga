@@ -63,9 +63,7 @@ chapter = 634
 
 <p>Peng Tao, who was behind him, took a few long seconds to realize the situation, standing up hurriedly and bowing as well.</p>
 
-<p>“Don’t worry about these little things, young man.” One of the elders stepped forward, studying Qingyi carefully and checking that he</p>
-
-<p>wasn’t seriously injured.</p>
+<p>“Don’t worry about these little things, young man.” One of the elders stepped forward, studying Qingyi carefully and checking that he wasn’t seriously injured.</p>
 
 <p>“After all, it is our responsibility to look after the disciples. Just tell us, what happened here? Why were they attacking you?”</p>
 
@@ -79,13 +77,9 @@ chapter = 634
 
 <p>“Hm… I see.” The elder sighed, crouching over one of the fallen disciples and sensing his Qi.</p>
 
-<p>There was demonic Qi in the dantian, without a doubt. Glancing at the other elders, all wearing the same grim expression, he let out a</p>
+<p>There was demonic Qi in the dantian, without a doubt. Glancing at the other elders, all wearing the same grim expression, he let out a long sigh.</p>
 
-<p>long sigh.</p>
-
-<p>“Master Tianfa, we need to examine these bodies and discover the origin of this demonic Qi. The sect cannot tolerate the presence of these wretches!” The elder turned to Tianfa, who nodded in</p>
-
-<p>confirmation.</p>
+<p>“Master Tianfa, we need to examine these bodies and discover the origin of this demonic Qi. The sect cannot tolerate the presence of these wretches!” The elder turned to Tianfa, who nodded in confirmation.</p>
 
 <p>“Indeed, do not worry.” The leader of the Celestial Law Pavilion snapped his fingers, and immediately afterward, twenty experts in black armor appeared behind him.</p>
 
@@ -97,19 +91,13 @@ chapter = 634
 
 <p>Soon, the elder’s eyes fell upon Qingyi.</p>
 
-<p>He was a gentle-looking man, appearing to be forty or at most fifty</p>
+<p>He was a gentle-looking man, appearing to be forty or at most fifty years old, though his actual age was likely something no ordinary number could reach.</p>
 
-<p>years old, though his actual age was likely something no ordinary number could reach.</p>
-
-<p>“Young man.” He gripped Qingyi’s shoulders firmly. “Long Qingyi, right? Elder Shen has spoken quite a bit about you, hahaha!” The elder</p>
-
-<p>laughed heartily with genuine warmth.</p>
+<p>“Young man.” He gripped Qingyi’s shoulders firmly. “Long Qingyi, right? Elder Shen has spoken quite a bit about you, hahaha!” The elder laughed heartily with genuine warmth.</p>
 
 <p>“Just, if something like this happens again, contact the Celestial Law</p>
 
-<p>Pavilion. If they were handling it, we might even capture one of those</p>
-
-<p>pigs and extract all the necessary information.</p>
+<p>Pavilion. If they were handling it, we might even capture one of those pigs and extract all the necessary information.</p>
 
 <p>The pavilion represents punishment for the wicked and forgiveness for the good; trust them.”</p>
 
@@ -119,21 +107,11 @@ chapter = 634
 
 <p>‘Forgiveness for the good and punishment for the wicked, my ass. These corrupt bastards would make even the average politicians on Earth seem only slightly dishonest.</p>
 
-<p>“Very well.” The elder smiled. “Return to the dormitories with your</p>
+<p>“Very well.” The elder smiled. “Return to the dormitories with your friend; we’ll take care of the rest here. Lord Tianfa will find the culprit.” Qingyi didn’t reply, merely nodding and taking Peng Tao with him.</p>
 
-<p>friend; we’ll take care of the rest here. Lord Tianfa will find the</p>
+<p>After they had moved far enough away from the battle zone, Peng Tao couldn’t stop his curiosity from overcoming the slight fear he felt toward Qingyi.</p>
 
-<p>culprit.” Qingyi didn’t reply, merely nodding and taking Peng Tao with him.</p>
-
-<p>After they had moved far enough away from the battle zone, Peng Tao couldn’t stop his curiosity from overcoming the slight fear he felt</p>
-
-<p>toward Qingyi.</p>
-
-<p>“Why didn’t you say it was Tianhao who sent those bastards and that the leader of the Celestial Law Pavilion tried to kill you?” “Because now is not the time to pick a fight with someone of that</p>
-
-<p>caliber. Tianfa could have killed me before I even opened my mouth</p>
-
-<p>there.” Qingyi replied without taking his eyes off the path ahead. “For now, I’ll be patient.”</p>
+<p>“Why didn’t you say it was Tianhao who sent those bastards and that the leader of the Celestial Law Pavilion tried to kill you?” “Because now is not the time to pick a fight with someone of that caliber. Tianfa could have killed me before I even opened my mouth there.” Qingyi replied without taking his eyes off the path ahead. “For now, I’ll be patient.”</p>
 
 <p>Peng Tao looked at him with a complicated expression and remained silent.</p>
 

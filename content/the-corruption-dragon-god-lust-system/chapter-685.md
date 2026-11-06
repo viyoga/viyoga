@@ -11,9 +11,7 @@ chapter = 685
 
 <p>“You’ve improved far more than I thought. The Yan family’s techniques suit you perfectly,” Qingyi remarked with a gentle smile, his eyes shining with approval.</p>
 
-<p>“It’s all thanks to Senior Brother! Come on, come to my house! I</p>
-
-<p>promise that this time my father won’t have any trouble handing over my mother to you, especially if I show him what I’ve achieved thanks to you!”</p>
+<p>“It’s all thanks to Senior Brother! Come on, come to my house! I promise that this time my father won’t have any trouble handing over my mother to you, especially if I show him what I’ve achieved thanks to you!”</p>
 
 <p>Those words drew an honest laugh from Qingyi, who shook his head, amused by his friend’s insistence.</p>
 
@@ -31,9 +29,7 @@ chapter = 685
 
 <p>How could she be that fat? She should have a cultivation level of at least the Astral Body Realm, and cultivators of that level only got fat if they allowed themselves to get fat.</p>
 
-<p>“Well… she’s not exactly fat, she just really likes lifting weights, hahaha,” Chen Wei tried to explain, scratching the back of his neck</p>
-
-<p>with a nervous laugh. “But her face is really delicate, I promise!” Qingyi sighed, placing both hands on his friend’s shoulders with an exaggeratedly serious expression.</p>
+<p>“Well… she’s not exactly fat, she just really likes lifting weights, hahaha,” Chen Wei tried to explain, scratching the back of his neck with a nervous laugh. “But her face is really delicate, I promise!” Qingyi sighed, placing both hands on his friend’s shoulders with an exaggeratedly serious expression.</p>
 
 <p>“My brother, often, men of determination and courage must make painful sacrifices. I understand the sacrifice you wish to make in the name of your big brother, in the name of his gifts, but don’t worry. I don’t need that sacrifice.</p>
 
@@ -73,33 +69,19 @@ chapter = 685
 
 <p>Fortunately, or perhaps unfortunately, he began to sing, his drunken voice echoing through the tavern as he staggered to his feet, moving in a crude and embarrassing dance.</p>
 
-<p>Qingyi could barely make out his words, but he could tell it was some song about love and coming home, the kind of song drunks loved to</p>
+<p>Qingyi could barely make out his words, but he could tell it was some song about love and coming home, the kind of song drunks loved to sing.</p>
 
-<p>sing.</p>
+<p>Qingyi thought about ignoring him, but considering their close friendship, he stood up.</p>
 
-<p>Qingyi thought about ignoring him, but considering their close</p>
+<p>What was the point of having a best friend if that best friend didn’t screw up his life every once in a while?</p>
 
-<p>friendship, he stood up.</p>
+<p>Qingyi pressed one of Chen Wei’s meridians and injected his Qi, clearing the alcohol from his mind in a single instant.</p>
 
-<p>What was the point of having a best friend if that best friend didn’t</p>
-
-<p>screw up his life every once in a while?</p>
-
-<p>Qingyi pressed one of Chen Wei’s meridians and injected his Qi,</p>
-
-<p>clearing the alcohol from his mind in a single instant.</p>
-
-<p>Chen Wei froze, his body stiffening as he felt all the eyes in the tavern</p>
-
-<p>fall upon him, giggles echoing among the courtesans and amused</p>
-
-<p>looks taking over the faces of the other disciples.</p>
+<p>Chen Wei froze, his body stiffening as he felt all the eyes in the tavern fall upon him, giggles echoing among the courtesans and amused looks taking over the faces of the other disciples.</p>
 
 <p>He blushed violently, his face burning as he turned to Qingyi.</p>
 
-<p>It would have been much better if he had just passed out, and the</p>
-
-<p>next day, remembered nothing.</p>
+<p>It would have been much better if he had just passed out, and the next day, remembered nothing.</p>
 
 <p>Why the hell did Qingyi have to wake him up?</p>
 
@@ -109,11 +91,7 @@ chapter = 685
 
 <p>The handsome young man drank just two more shots and, shortly after, made his way with weary steps toward his quarters.</p>
 
-<p>All night long, he meditated in silence, and early in the morning, he</p>
-
-<p>headed out to the mission pavilion with a smile on his face, his eyes falling on the woman he’d received the mission from the Ma family. Seeing Qingyi approach, her eyes immediately lit up, and she stood up, rushing toward him before anyone else could claim him, even making sure he could see the pale skin of her ample cleavage, just to</p>
-
-<p>please him.</p>
+<p>All night long, he meditated in silence, and early in the morning, he headed out to the mission pavilion with a smile on his face, his eyes falling on the woman he’d received the mission from the Ma family. Seeing Qingyi approach, her eyes immediately lit up, and she stood up, rushing toward him before anyone else could claim him, even making sure he could see the pale skin of her ample cleavage, just to please him.</p>
 
 <p>“Senior Brother Qingyi! You’re back!” Her eyes scanned his clothes, noting that he had become an inner disciple. “Do you want a mission?</p>
 

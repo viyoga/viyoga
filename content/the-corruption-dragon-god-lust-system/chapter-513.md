@@ -27,9 +27,7 @@ chapter = 513
 
 <p>“Who the hell do you think you are, bastard? Are those horns on your head at least real? Dragons are supposed to be intelligent, right? Do you think you can just walk in here without permission?” The young man roared angrily, putting a little more force into his grip on Qingyi’s shoulders.</p>
 
-<p>Admiring glances fell on his back, which only further inflated his ego. He loved these looks, and he was certainly more than happy to have</p>
-
-<p>received this position as a reward for his loyal work to the Third Young Master.</p>
+<p>Admiring glances fell on his back, which only further inflated his ego. He loved these looks, and he was certainly more than happy to have received this position as a reward for his loyal work to the Third Young Master.</p>
 
 <p>[Do you want me to go out and have someone break this filthy pig’s legs for you?] Meilin asked through Qingyi’s connection with Ruxue. ‘No… I’m in need of a little drama after such a long journey! Qingyi shook his head, ignoring the young man almost completely.</p>
 
@@ -59,15 +57,11 @@ chapter = 513
 
 <p>Everyone except Qingyi.</p>
 
-<p>Not a single drop of blood even came close to splattering on his black robes. In his hand, he carried the only thing left of the young</p>
-
-<p>nobleman: his severed wrist.</p>
+<p>Not a single drop of blood even came close to splattering on his black robes. In his hand, he carried the only thing left of the young nobleman: his severed wrist.</p>
 
 <p>“Young Master Zhao? No!” A roar echoed from behind Qingyi. Dozens of guards suddenly appeared, quickly surrounding him, almost all of them Immortal Emperors.</p>
 
-<p>“You bastard, you’ll pay for this!” The oldest and most powerful among them roared, swinging his sword toward Qingyi’s neck, who barely</p>
-
-<p>reacted.</p>
+<p>“You bastard, you’ll pay for this!” The oldest and most powerful among them roared, swinging his sword toward Qingyi’s neck, who barely reacted.</p>
 
 <p>A gentle smile spread across his handsome face, and he pointed downward.</p>
 
@@ -75,9 +69,7 @@ chapter = 513
 
 <p>His voice, noble, masculine and gentle, echoed like the whisper of a God of Death, and immediately, the air around him changed.</p>
 
-<p>A powerful pressure fell upon the shoulders of his attackers, and the ground beneath their feet cracked as they were forced to prostrate themselves, their foreheads striking the bloodstained marble with</p>
-
-<p>deafening thuds.</p>
+<p>A powerful pressure fell upon the shoulders of his attackers, and the ground beneath their feet cracked as they were forced to prostrate themselves, their foreheads striking the bloodstained marble with deafening thuds.</p>
 
 <p>Qingyi remained silent, feeling his heart race.</p>
 
@@ -85,57 +77,35 @@ chapter = 513
 
 <p>No… impossible.</p>
 
-<p>That Young Master Zhao had chosen to rob Qingyi the moment he</p>
+<p>That Young Master Zhao had chosen to rob Qingyi the moment he thought he was weak.</p>
 
-<p>thought he was weak.</p>
+<p>How much harm must he have done to people without the power or support to fight back?</p>
 
-<p>How much harm must he have done to people without the power or</p>
+<p>A man corrupted by power oppressed the weak, but Qingyi only oppressed the strong. Therefore, he was not a man corrupted by power.</p>
 
-<p>support to fight back?</p>
+<p>With a soft grunt, he continued walking toward the central gates, stepping over Young Master Zhao’s guards and ignoring the frightened stares.</p>
 
-<p>A man corrupted by power oppressed the weak, but Qingyi only oppressed the strong. Therefore, he was not a man corrupted by</p>
+<p>The guards protecting the central gates were already prepared to send out a general attack alert throughout the branch, their weapons firmly in their fists.</p>
 
-<p>power.</p>
-
-<p>With a soft grunt, he continued walking toward the central gates, stepping over Young Master Zhao’s guards and ignoring the</p>
-
-<p>frightened stares.</p>
-
-<p>The guards protecting the central gates were already prepared to send out a general attack alert throughout the branch, their weapons</p>
-
-<p>firmly in their fists.</p>
-
-<p>They were both Ancestral Emperors with powerful domains, but whoever that young dragon was, they did not dare to underestimate</p>
-
-<p>him.</p>
+<p>They were both Ancestral Emperors with powerful domains, but whoever that young dragon was, they did not dare to underestimate him.</p>
 
 <p>Fortunately, none of that was necessary.</p>
 
-<p>Beside the handsome young man, a figure appeared. Beautiful and delicate, with a face like a porcelain doll, so perfect that it didn’t even</p>
-
-<p>seem real.</p>
+<p>Beside the handsome young man, a figure appeared. Beautiful and delicate, with a face like a porcelain doll, so perfect that it didn’t even seem real.</p>
 
 <p>The guards relaxed and knelt immediately, watching as the woman grabbed the young dragon’s hand.</p>
 
-<p>“Young Miss Meilin! Young Master Qingyi! Your father is waiting.” They</p>
+<p>“Young Miss Meilin! Young Master Qingyi! Your father is waiting.” They bowed their heads.</p>
 
-<p>bowed their heads.</p>
-
-<p>Fortunately, they had been warned in advance that Jin Meilin and Long Qingyi were coming and would likely arrive that day. None of that chaos would have happened if Meilin had simply appeared beside Qingyi at the beginning, but not that either of them</p>
-
-<p>felt bad about it.</p>
+<p>Fortunately, they had been warned in advance that Jin Meilin and Long Qingyi were coming and would likely arrive that day. None of that chaos would have happened if Meilin had simply appeared beside Qingyi at the beginning, but not that either of them felt bad about it.</p>
 
 <p>In the end, Young Master Zhao had been disrupting their work for months, and well, he got what he deserved.</p>
 
-<p>Waving for the guards to stand up, Meilin walked through the gates,</p>
-
-<p>entering the spacious and luxurious central courtyard of the Five</p>
+<p>Waving for the guards to stand up, Meilin walked through the gates, entering the spacious and luxurious central courtyard of the Five</p>
 
 <p>Colors Pavilion’s main branch.</p>
 
-<p>“Was that young man your third brother’s follower?” Qingyi asked,</p>
-
-<p>relaxing.</p>
+<p>“Was that young man your third brother’s follower?” Qingyi asked, relaxing.</p>
 
 <p>“Yes, and knowing him, I’m sure he’ll try to collect that debt from you…” Meilin said beside Qingyi. “Just don’t cripple him, okay? His personality sucks, but his talent is still valuable to Father.”</p>
 

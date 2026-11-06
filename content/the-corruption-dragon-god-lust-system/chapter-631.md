@@ -15,9 +15,7 @@ chapter = 631
 
 <p>“Don’t you have any ambition to regain your powers?” Qingyi asked, looking at her.</p>
 
-<p>“I do, but… I’m fine like this. I want to relax a little longer with Celestia and Isabel, learn to cook better, and, well…” The goddess’s lips trembled, unable to find the right words. “To be by your side for more</p>
-
-<p>time…”</p>
+<p>“I do, but… I’m fine like this. I want to relax a little longer with Celestia and Isabel, learn to cook better, and, well…” The goddess’s lips trembled, unable to find the right words. “To be by your side for more time…”</p>
 
 <p>“I think mortal life isn’t so bad after all.”</p>
 
@@ -55,9 +53,7 @@ chapter = 631
 
 <p>His expression hardened as his heart beat slightly faster.</p>
 
-<p>What on earth could have happened to leave Chen Wei in such a</p>
-
-<p>state?</p>
+<p>What on earth could have happened to leave Chen Wei in such a state?</p>
 
 <p>“Guo Tianhao’s men ambushed us while we were returning from class with Old Cang! They captured Peng Tao and said that if you don’t show up in the Blue Herb Valley by midnight tomorrow, they’ll start dismembering him!”</p>
 
@@ -77,39 +73,25 @@ chapter = 631
 
 <p>“I’ll handle this. Cultivate and don’t let a demon of the heart take root within you.” Qingyi spoke firmly before dismissing Chen Wei and returning to his room.</p>
 
-<p>On his handsome face, there was a pensive and slightly weary</p>
+<p>On his handsome face, there was a pensive and slightly weary expression.</p>
 
-<p>expression.</p>
-
-<p>Guo Tianhao had likely met with Rou’er again, and apparently, it</p>
-
-<p>hadn’t been a happy encounter for him.</p>
+<p>Guo Tianhao had likely met with Rou’er again, and apparently, it hadn’t been a happy encounter for him.</p>
 
 <p>“Ah… that girl. She isn’t even my wife yet and she’s already causing me nothing but trouble.” Qingyi laughed heartily, shaking his head.</p>
 
 <p>He wasn’t too worried.</p>
 
-<p>He knew Tianhao wouldn’t consider him a threat significant enough to send someone truly powerful after him, and he was far too</p>
-
-<p>arrogant to act personally.</p>
+<p>He knew Tianhao wouldn’t consider him a threat significant enough to send someone truly powerful after him, and he was far too arrogant to act personally.</p>
 
 <p>That gave him a comfortable margin of safety.</p>
 
 <p>Even the choice of location puzzled him.</p>
 
-<p>The Blue Herb Valley lay about five hundred kilometers north of the</p>
+<p>The Blue Herb Valley lay about five hundred kilometers north of the sect, named for a type of bluish spiritual herb that grew throughout the valley, widely used in healing pills.</p>
 
-<p>sect, named for a type of bluish spiritual herb that grew throughout</p>
+<p>It was a region prized by alchemist disciples and practically completely ignored by warriors.</p>
 
-<p>the valley, widely used in healing pills.</p>
-
-<p>It was a region prized by alchemist disciples and practically</p>
-
-<p>completely ignored by warriors.</p>
-
-<p>With a sigh, Qingyi opened his status screen and clicked to improve</p>
-
-<p>his cultivation twice.</p>
+<p>With a sigh, Qingyi opened his status screen and clicked to improve his cultivation twice.</p>
 
 <p>[Initiating cultivation upgrade…]</p>
 
@@ -123,26 +105,18 @@ chapter = 631
 
 <p>Qingyi loved advancing within the same realm.</p>
 
-<p>There was none of the hellish pain of having his body rebuilt from one realm to another, only the pure pleasure of feeling his cultivation grow and his power expand. It was honey without the sting of the</p>
-
-<p>bee.</p>
+<p>There was none of the hellish pain of having his body rebuilt from one realm to another, only the pure pleasure of feeling his cultivation grow and his power expand. It was honey without the sting of the bee.</p>
 
 <p>Stretching contentedly, he focused his gaze.</p>
 
 <p>“What do you think, Ruxue?” he asked with a calm sigh.</p>
 
-<p>“About what? Those pigs trying to kill you?” Ruxue replied, her tone</p>
-
-<p>clearly anxious. “Why overthink it? Just crush them and don’t die.”</p>
+<p>“About what? Those pigs trying to kill you?” Ruxue replied, her tone clearly anxious. “Why overthink it? Just crush them and don’t die.”</p>
 
 <p>“Hahaha, I’m not going to die.” Qingyi laughed.</p>
 
 <p>Despite his confidence, he still used the last few Lust points he had to acquire some offensive and defensive artifacts.</p>
 
-<p>A cautious man died of old age, after all. If shit hit the fan, he wanted</p>
+<p>A cautious man died of old age, after all. If shit hit the fan, he wanted to be ready.</p>
 
-<p>to be ready.</p>
-
-<p>[NT: Hello everyone, it’s your lovely silly Daoist here! Just letting you know that my new book “The Golden Lord has a perverted SSS-rank summoning system!” already has over eighty chapters and plenty of</p>
-
-<p>huge boobs waiting for you!]</p>
+<p>[NT: Hello everyone, it’s your lovely silly Daoist here! Just letting you know that my new book “The Golden Lord has a perverted SSS-rank summoning system!” already has over eighty chapters and plenty of huge boobs waiting for you!]</p>

@@ -75,9 +75,7 @@ chapter = 636
 
 <p>It was about time to start investing in his wives’ spiritual roots, constitutions, and lineages again, wasn’t it?</p>
 
-<p>Feiyan’s alchemical skills had already advanced considerably, and now she could even create her own pill recipes directly from her mind, constantly studying new techniques with Sapphire, Biyue, and</p>
-
-<p>Margareth.</p>
+<p>Feiyan’s alchemical skills had already advanced considerably, and now she could even create her own pill recipes directly from her mind, constantly studying new techniques with Sapphire, Biyue, and Margareth.</p>
 
 <p>With a sigh, Qingyi opened the system shop.</p>
 
@@ -95,9 +93,7 @@ chapter = 636
 
 <p>He wanted to buy something for mana hearts as well, but the price was… anything but friendly.</p>
 
-<p>The system was based on Qi, and its Mana artifacts were few and</p>
-
-<p>expensive.</p>
+<p>The system was based on Qi, and its Mana artifacts were few and expensive.</p>
 
 <p>“Hm, hmm~~ Are you leaving already?” Lanyin asked when Qingyi stood up.</p>
 
@@ -107,47 +103,25 @@ chapter = 636
 
 <p>“Don’t worry.” Qingyi smiled, pulling them onto his lap and planting soft kisses on their lips.</p>
 
-<p>“Your husband will be back soon; I just need to give Feiyan a new</p>
+<p>“Your husband will be back soon; I just need to give Feiyan a new recipe… you’ll like it.” He chuckled as the scroll he’d just bought appeared in his hand.</p>
 
-<p>recipe… you’ll like it.” He chuckled as the scroll he’d just bought appeared in his hand.</p>
+<p>The moment the two took the scroll and began reading it, their eyes widened.</p>
 
-<p>The moment the two took the scroll and began reading it, their eyes</p>
+<p>Neither of them was a natural alchemist, but they knew exactly what that recipe represented.</p>
 
-<p>widened.</p>
+<p>Even Lanyin, who had received pills to improve her lineage, constitution, and spiritual roots to the astral level, was always shocked by how easily Qingyi conjured up this kind of item out of thin air.</p>
 
-<p>Neither of them was a natural alchemist, but they knew exactly what</p>
+<p>“Hm… all right, you can go…” Lingxue nodded, flashing a gentle smile across her beautiful, mature face, her fox ears pricking up with interest.</p>
 
-<p>that recipe represented.</p>
+<p>“But I’d be a terrible wife if I let you go with that huge thing between your legs, wouldn’t I?”</p>
 
-<p>Even Lanyin, who had received pills to improve her lineage,</p>
-
-<p>constitution, and spiritual roots to the astral level, was always shocked by how easily Qingyi conjured up this kind of item out of</p>
-
-<p>thin air.</p>
-
-<p>“Hm… all right, you can go…” Lingxue nodded, flashing a gentle smile</p>
-
-<p>across her beautiful, mature face, her fox ears pricking up with</p>
-
-<p>interest.</p>
-
-<p>“But I’d be a terrible wife if I let you go with that huge thing between</p>
-
-<p>your legs, wouldn’t I?”</p>
-
-<p>Her hand slowly slid down to the bulge in Qingyi’s pants, closing</p>
-
-<p>firmly around it.</p>
+<p>Her hand slowly slid down to the bulge in Qingyi’s pants, closing firmly around it.</p>
 
 <p>She squeezed, feeling that massive cock throb between her fingers.</p>
 
-<p>“Ah… just a quickie.” Qingyi smiled, pulling both of them into his</p>
+<p>“Ah… just a quickie.” Qingyi smiled, pulling both of them into his embrace.</p>
 
-<p>embrace.</p>
-
-<p>His palms fell onto those juicy asses, his fingers closing over the vast, soft flesh of each, drawing muffled moans from both of them at the</p>
-
-<p>same time.</p>
+<p>His palms fell onto those juicy asses, his fingers closing over the vast, soft flesh of each, drawing muffled moans from both of them at the same time.</p>
 
 <p>Soon, the two foxes found themselves kneeling between his legs, their tails wagging excitedly and their eyes full of anticipation as Qingyi’s cock was finally freed from his garments, thick and long, hovering just inches from their beautiful faces.</p>
 
@@ -155,28 +129,14 @@ chapter = 636
 
 <p>She panted through her nose as she took it inside her, her delicate mouth opening as wide as it could as the member entered her throat, her cheeks sucking firmly.</p>
 
-<p>“Gulp… aghnn~~” She pulled back with a wet sigh, making room for</p>
+<p>“Gulp… aghnn~~” She pulled back with a wet sigh, making room for Lanyin.</p>
 
-<p>Lanyin.</p>
+<p>The black fox had lost much of her usual coldness over time and had slowly opened up, both with her heart and her throat, which enveloped Qingyi’s cock like a perfect, tight glove.</p>
 
-<p>The black fox had lost much of her usual coldness over time and had</p>
-
-<p>slowly opened up, both with her heart and her throat, which enveloped Qingyi’s cock like a perfect, tight glove.</p>
-
-<p>She didn’t stop until she had him entirely inside her, an elongated</p>
-
-<p>bulge descending down her throat and her hot, sweet breath warming</p>
-
-<p>his groin.</p>
+<p>She didn’t stop until she had him entirely inside her, an elongated bulge descending down her throat and her hot, sweet breath warming his groin.</p>
 
 <p>And so, the two voluptuous fox milfs divided his attention between them, one at a time, their mouths working tirelessly until, exhausted, they began to work with their hands.</p>
 
-<p>Pressing themselves against each other, they let their huge breasts</p>
-
-<p>flatten against one another between their bodies, forming a warm,</p>
-
-<p>soft valley where, just above, they masturbated Qingyi’s cock</p>
-
-<p>together.</p>
+<p>Pressing themselves against each other, they let their huge breasts flatten against one another between their bodies, forming a warm, soft valley where, just above, they masturbated Qingyi’s cock together.</p>
 
 <p>It was only when he came and splattered those huge, juicy tits with his hot cum that they finally let him go, satisfied.</p>

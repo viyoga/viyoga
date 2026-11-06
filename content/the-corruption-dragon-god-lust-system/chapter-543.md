@@ -57,17 +57,13 @@ chapter = 543
 
 <p>“I… don’t know him. I have memories, orders, things I need to do. But nothing beyond that.</p>
 
-<p>I know he exists, but… that’s all.” Nianxue lowered her head,</p>
-
-<p>trembling.</p>
+<p>I know he exists, but… that’s all.” Nianxue lowered her head, trembling.</p>
 
 <p>She seemed to have remembered things that weren’t very good.</p>
 
 <p>“Don’t worry,” Qingyi laughed lovingly, forcing as much warmth as he could into his voice. “None of that can hurt you anymore. I won’t hurt you anymore.”</p>
 
-<p>He hugged Nianxue and, after a few more words, decided it was time</p>
-
-<p>to properly introduce her to all the other girls.</p>
+<p>He hugged Nianxue and, after a few more words, decided it was time to properly introduce her to all the other girls.</p>
 
 <p>Ruyan was definitely the one who had the easiest time with Nianxue. After all, both of them had origins linked to the Heavenly Demon.</p>
 
@@ -75,9 +71,7 @@ chapter = 543
 
 <p>Lanyin and Lingxue, on the other hand, had a little more difficulty, but in the end, they just accepted Nianxue.</p>
 
-<p>After all, it wasn’t her who caused all that harm to their people. It was</p>
-
-<p>her creator.</p>
+<p>After all, it wasn’t her who caused all that harm to their people. It was her creator.</p>
 
 <p>With Elize taking Nianxue to the kitchen, Qingyi was finally alone and had time to do what he was most eager to do.</p>
 
@@ -89,23 +83,17 @@ chapter = 543
 
 <p>War had arrived. The flames of the winged beasts of the elven people already engulfed the empire.</p>
 
-<p>Lucios, who had finally assumed the position of Patriarch of the Vaeldrinn, stood surrounded by corpses while his bronze dragon fed</p>
-
-<p>eagerly.</p>
+<p>Lucios, who had finally assumed the position of Patriarch of the Vaeldrinn, stood surrounded by corpses while his bronze dragon fed eagerly.</p>
 
 <p>The beast had undergone many improvements.</p>
 
-<p>As the now oldest and most powerful dragon of this people, a great</p>
-
-<p>ritual had been prepared, something similar to the ascension ritual that Red Death had undergone.</p>
+<p>As the now oldest and most powerful dragon of this people, a great ritual had been prepared, something similar to the ascension ritual that Red Death had undergone.</p>
 
 <p>It was not yet at the level Khaedryss had been when he set the entire empire ablaze, but it was very close.</p>
 
 <p>“What is it, old friend?” Lucios asked, noticing his dragon had stopped eating the corpses.</p>
 
-<p>In the distance, among the Vaeldrinn soldiers who were collecting everything useful from the imperial bodies, was a knight. But he was</p>
-
-<p>not riding a horse.</p>
+<p>In the distance, among the Vaeldrinn soldiers who were collecting everything useful from the imperial bodies, was a knight. But he was not riding a horse.</p>
 
 <p>He was riding a moose. His tall, thin body was covered in elegant greenish crystal armor. Ears even more pointed than Lucios’s were revealed by the sides of his open helmet.</p>
 
@@ -113,42 +101,26 @@ chapter = 543
 
 <p>“Patriarch Lucios, cousin. It’s good to see you’re in good health.” The High Elf smiled, dismounting from his moose and approaching, ignoring the bloodthirsty gaze of the bronze beast.</p>
 
-<p>“I don’t remember our peoples being such good friends… what are you</p>
-
-<p>doing in our lands without my permission?”</p>
+<p>“I don’t remember our peoples being such good friends… what are you doing in our lands without my permission?”</p>
 
 <p>“The same as you, old man. War is coming for everyone.”</p>
 
-<p>The High Elf took out a scroll and handed it to Lucios. The old man read the scroll carefully. The shock on his face grew</p>
-
-<p>deeper with each word he read.</p>
+<p>The High Elf took out a scroll and handed it to Lucios. The old man read the scroll carefully. The shock on his face grew deeper with each word he read.</p>
 
 <p>“Surprised?”</p>
 
 <p>“No…” Lucios clenched his teeth and shook his head.</p>
 
-<p>“We received identical intelligence after an attack by a crusader group</p>
-
-<p>from the Church of Auranys. Ten thousand paladins. They seem to be gathering forces in the capital of the Divine Kingdom, but… they are undefended.”</p>
+<p>“We received identical intelligence after an attack by a crusader group from the Church of Auranys. Ten thousand paladins. They seem to be gathering forces in the capital of the Divine Kingdom, but… they are undefended.”</p>
 
 <p>“It looks like a trap. Imperial forces have also invaded our lands, more than two million soldiers, but no specialists. Everything is being gathered in the Holy Capital.” The High Elf spoke, scratching his chin. This was a sensitive issue for both peoples.</p>
 
-<p>With so many experts in one place, they could launch a massive</p>
-
-<p>attack and decapitate either of them, leaving the other alone and</p>
-
-<p>isolated.</p>
+<p>With so many experts in one place, they could launch a massive attack and decapitate either of them, leaving the other alone and isolated.</p>
 
 <p>They had many enmities, but none of that mattered in the face of the risk of annihilation.</p>
 
-<p>After all, despite all their differences, they were still both elves, and</p>
-
-<p>once upon a time, they had lived together in the Tree of Life of the</p>
-
-<p>elven people.</p>
+<p>After all, despite all their differences, they were still both elves, and once upon a time, they had lived together in the Tree of Life of the elven people.</p>
 
 <p>“Hm… Either we believe this is a trap and don’t attack, or we wait and pray that it is a trap…” Lucios closed his eyes.</p>
 
-<p>What on earth could possibly be in the Holy Capital to gather so many</p>
-
-<p>forces there?</p>
+<p>What on earth could possibly be in the Holy Capital to gather so many forces there?</p>

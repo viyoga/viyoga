@@ -81,29 +81,19 @@ chapter = 461
 
 <p>Qingyi breathed slowly, controlling his Qi flow.</p>
 
-<p>The pain of having every vein, every meridian, every inch of his dantian broken and rebuilt, was barely able to elicit a slight grunt</p>
+<p>The pain of having every vein, every meridian, every inch of his dantian broken and rebuilt, was barely able to elicit a slight grunt from him.</p>
 
-<p>from him.</p>
+<p>Still, his fingers trembled as he raised his hand, bringing it to the system screen, and then clicking to also improve his constitution and lineage.</p>
 
-<p>Still, his fingers trembled as he raised his hand, bringing it to the system screen, and then clicking to also improve his constitution and</p>
-
-<p>lineage.</p>
-
-<p>The pain multiplied tenfold in a single moment. Qingyi’s vision darkened before suddenly lighting up even more brightly, his brain clearer than ever and his muscles, destroyed and torn, burning with</p>
-
-<p>power.</p>
+<p>The pain multiplied tenfold in a single moment. Qingyi’s vision darkened before suddenly lighting up even more brightly, his brain clearer than ever and his muscles, destroyed and torn, burning with power.</p>
 
 <p>In just a moment, the air around him heated up, enough to be able to melt steel like butter, even the black stones beginning to suffer. His skin cracked, expanding and retracting painfully, the reddish flesh visible, the cracks already soaking him in blood.</p>
 
-<p>In his dantian and eyes, the strands of draconic Qi began to multiply,</p>
-
-<p>needing only a moment to break through ten thousand, continuing to increase in quantity rapidly.</p>
+<p>In his dantian and eyes, the strands of draconic Qi began to multiply, needing only a moment to break through ten thousand, continuing to increase in quantity rapidly.</p>
 
 <p>Qingyi just gritted his teeth, holding on tightly as time passed.</p>
 
-<p>Only after nearly fifteen minutes was he finally able to let a relieved</p>
-
-<p>sigh escape his lips.</p>
+<p>Only after nearly fifteen minutes was he finally able to let a relieved sigh escape his lips.</p>
 
 <p>[Spiritual Root improved! Immortal grade -&gt; Ancestral grade]</p>
 
@@ -113,9 +103,7 @@ chapter = 461
 
 <p>[Constitution improved! Primordial Dragon Body (Transcendental grade)-&gt; Primordial Dragon Body (Immortal grade)]</p>
 
-<p>[Bloodline skill “Black Dragon Scales” improved! Medium level -&gt; High</p>
-
-<p>level]</p>
+<p>[Bloodline skill “Black Dragon Scales” improved! Medium level -&gt; High level]</p>
 
 <p>A flurry of system notifications arrived for Qingyi, followed by a slight shockwave that engulfed the entire room around him.</p>
 
@@ -123,23 +111,15 @@ chapter = 461
 
 <p>Immediately, he felt his body become heavier, but not in a way that made it harder to move.</p>
 
-<p>The scales, once so thin that they seemed like a second skin, were</p>
+<p>The scales, once so thin that they seemed like a second skin, were now thick and powerful, clinging to his entire body like steel armor.</p>
 
-<p>now thick and powerful, clinging to his entire body like steel armor.</p>
-
-<p>On his head, the small horns he had before had grown, and on his back, small trunks had appeared, almost like the base for wings to</p>
-
-<p>emerge.</p>
+<p>On his head, the small horns he had before had grown, and on his back, small trunks had appeared, almost like the base for wings to emerge.</p>
 
 <p>Even his claws had changed, much longer and sharper than before. Qingyi couldn’t help but exhale in excitement.</p>
 
 <p>It had been a long time since his black dragon scales had been upgraded, and many times he had encountered enemies powerful enough to damage them.</p>
 
-<p>Although he rarely used them in combat, they were still important,</p>
-
-<p>especially for defending against sneak attacks and, of course, suicidal</p>
-
-<p>enemies.</p>
+<p>Although he rarely used them in combat, they were still important, especially for defending against sneak attacks and, of course, suicidal enemies.</p>
 
 <p>With the current power of his black scales, he had no doubt that he would be able to survive a nuclear bomb.</p>
 

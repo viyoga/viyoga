@@ -29,9 +29,7 @@ chapter = 395
 
 <p>It clarified the reason why her real age was different from her chronological age and why a true dragon existed in the immortal heaven, even though, according to Ruxue’s words, they should only exist in the celestial heaven.</p>
 
-<p>Even her inability to transform completely, despite being a true</p>
-
-<p>dragon, was explained by that.</p>
+<p>Even her inability to transform completely, despite being a true dragon, was explained by that.</p>
 
 <p>“Ah… I wonder how powerful Tianjin’s real body is…” Qingyi scratched his chin thoughtfully before shaking his head.</p>
 
@@ -59,9 +57,7 @@ chapter = 395
 
 <p>Hearing those words, Qianyao closed her beautiful golden eyes, rubbing her face against Qingyi’s chest.</p>
 
-<p>It was obvious that she knew that truth; it was something instilled in</p>
-
-<p>every cultivator’s mind the moment they decided to follow the path of cultivation. But still, she was unable to hide the heaviness in her chest.</p>
+<p>It was obvious that she knew that truth; it was something instilled in every cultivator’s mind the moment they decided to follow the path of cultivation. But still, she was unable to hide the heaviness in her chest.</p>
 
 <p>“Get some sleep. We’ll soon arrive at the land of the cat people, and from there, we’ll go to the blue sea kingdom.” Qingyi said, stroking Qianyao’s long silver hair.</p>
 
@@ -73,55 +69,37 @@ chapter = 395
 
 <p>The voluptuous little fox was accompanied by Yueli, Yunfei, and Linyue, her breasts swaying as she ran towards Qianyao.</p>
 
-<p>Qianyao couldn’t help but blush softly as she was surrounded by the other girls. Although she had already spent a few days with them, she</p>
-
-<p>was still a little shy.</p>
+<p>Qianyao couldn’t help but blush softly as she was surrounded by the other girls. Although she had already spent a few days with them, she was still a little shy.</p>
 
 <p>Finally, she was pulled into the kitchen, where the girls were already preparing to start dinner. Qianyao had never done this kind of work before, so she had a lot to learn from Elize.</p>
 
-<p>“Sister Rongyan, prepare the fire, let’s make dinner!” Elize’s sweet and lively voice echoed across the temple, eliciting a soft sigh from</p>
-
-<p>Qingyi, who soon headed to the alchemy pavilion.</p>
+<p>“Sister Rongyan, prepare the fire, let’s make dinner!” Elize’s sweet and lively voice echoed across the temple, eliciting a soft sigh from Qingyi, who soon headed to the alchemy pavilion.</p>
 
 <p>There, he was immediately greeted by a beautiful sight.</p>
 
-<p>Feiyan was preparing pills, focused on refining her alchemy skills as</p>
+<p>Feiyan was preparing pills, focused on refining her alchemy skills as much as possible.</p>
 
-<p>much as possible.</p>
+<p>As always, her dress was slung down to her waist. Her tanned tits were covered by nothing but a tiny bikini, whose triangle-shaped cups were barely able to cover her pink and puffy nipples. Concentrated on her work, she continued to stir the cauldron, a drop of sweat dripping from her chin and running down the deep valleys of her breasts.</p>
 
-<p>As always, her dress was slung down to her waist. Her tanned tits were covered by nothing but a tiny bikini, whose triangle-shaped cups were barely able to cover her pink and puffy nipples. Concentrated on her work, she continued to stir the cauldron, a drop</p>
-
-<p>of sweat dripping from her chin and running down the deep valleys of her breasts.</p>
-
-<p>Honestly, seeing Feiyan dressed like this no longer surprised Qingyi. At least, not as much as seeing Biyue dressed the same way surprised</p>
-
-<p>him.</p>
+<p>Honestly, seeing Feiyan dressed like this no longer surprised Qingyi. At least, not as much as seeing Biyue dressed the same way surprised him.</p>
 
 <p>Biyue’s elegant green dress fell to her slim, delicate waist, leaving her round, full breasts also covered only by a tiny bikini, like feiyan’s, so tight that the black lines sank into her soft, pale flesh.</p>
 
-<p>Qingyi couldn’t help but salivate as he approached the two. His hands immediately flowed to the two pairs of huge, heavy mountains,</p>
-
-<p>grabbing and squeezing.</p>
+<p>Qingyi couldn’t help but salivate as he approached the two. His hands immediately flowed to the two pairs of huge, heavy mountains, grabbing and squeezing.</p>
 
 <p>“Nghnn~~”</p>
 
 <p>“Ohnn~~ hubby!…</p>
 
-<p>The two beauties moaned in unison, Biyue’s noble and soft voice</p>
+<p>The two beauties moaned in unison, Biyue’s noble and soft voice contrasting with Feiyan’s sweet and sensual voice.</p>
 
-<p>contrasting with Feiyan’s sweet and sensual voice.</p>
-
-<p>“What are you naughty girls doing, huh?” He asked, playing with their</p>
-
-<p>nipples on his fingertips.</p>
+<p>“What are you naughty girls doing, huh?” He asked, playing with their nipples on his fingertips.</p>
 
 <p>“Nothing much, ahn~~ just testing some different types of pills for healing and cleansing poisons.” Biyue replied, raising a single hand where a golden pill appeared between her fingers.</p>
 
 <p>Since all the girls were already at least earth-grade in their lineages, they had begun to work in other areas.</p>
 
-<p>Those specific pills were something the two of them had developed</p>
-
-<p>together.</p>
+<p>Those specific pills were something the two of them had developed together.</p>
 
 <p>It was a sky-grade healing pill with a purity above 85%, capable of instantly healing and eliminating countless types of poisons.</p>
 

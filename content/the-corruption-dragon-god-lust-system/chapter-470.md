@@ -9,9 +9,7 @@ chapter = 470
 
 <p>Everything was destroyed. Nothing there was even worth becoming food for Khaedryss.</p>
 
-<p>Not that it was necessary; the beasts in the mind world were</p>
-
-<p>reproducing at an absurd speed, and with that, Khaedryss’s power was also growing.</p>
+<p>Not that it was necessary; the beasts in the mind world were reproducing at an absurd speed, and with that, Khaedryss’s power was also growing.</p>
 
 <p>Honestly, in his current state, Qingyi was sure that even he would have difficulty fighting her.</p>
 
@@ -61,9 +59,7 @@ chapter = 470
 
 <p>“Good.” Qingyi smiled, cracking his neck.</p>
 
-<p>The power was still lacking compared to his father-in-law, Tai’Ren,</p>
-
-<p>but it was certainly much better than when he used only Qi, without combining it with mana.</p>
+<p>The power was still lacking compared to his father-in-law, Tai’Ren, but it was certainly much better than when he used only Qi, without combining it with mana.</p>
 
 <p>The conversion wasn’t directly perfect, but he calculated about thirty percent more strength.</p>
 
@@ -71,9 +67,7 @@ chapter = 470
 
 <p>Merging types of Qi had always brought very interesting results. Fire, lightning, and sword generated his most powerful attack, while ice and fire generated the Flames of Primordial Chaos.</p>
 
-<p>Generally, playing with these things was not highly recommended, as most cultivators did not have bodies capable of withstanding such</p>
-
-<p>pressure.</p>
+<p>Generally, playing with these things was not highly recommended, as most cultivators did not have bodies capable of withstanding such pressure.</p>
 
 <p>Fortunately, Qingyi was not like most cultivators.</p>
 
@@ -81,39 +75,27 @@ chapter = 470
 
 <p>His eyes closed, and he joined his hands together.</p>
 
-<p>From his left, he flowed his mana, and from his right, his Qi, forcing them into small glowing spheres before slowly bringing them together</p>
-
-<p>in the center.</p>
+<p>From his left, he flowed his mana, and from his right, his Qi, forcing them into small glowing spheres before slowly bringing them together in the center.</p>
 
 <p>The resistance was immediate. A small plasma barrier formed between the spheres, causing the air around them to heat up rapidly. Qingyi gritted his teeth, forcing a little more. The barrier separating the two energies became increasingly unstable, with powerful waves of heat sweeping everything around.</p>
 
-<p>But he didn’t stop. His arms trembled, and he put just a little more</p>
+<p>But he didn’t stop. His arms trembled, and he put just a little more force into it until the two types of energy came together.</p>
 
-<p>force into it until the two types of energy came together.</p>
-
-<p>At the same moment, Qingyi’s eyes shot up. A flood of system</p>
-
-<p>notifications invaded his mind.</p>
+<p>At the same moment, Qingyi’s eyes shot up. A flood of system notifications invaded his mind.</p>
 
 <p>Error alerts, requests to stop.</p>
 
 <p>And then, it happened.</p>
 
-<p>For a brief moment, the two energies merged into a pure core, whose characteristics Qingyi barely had time to study before everything</p>
-
-<p>collapsed.</p>
+<p>For a brief moment, the two energies merged into a pure core, whose characteristics Qingyi barely had time to study before everything collapsed.</p>
 
 <p>[You have successfully reached &#123;&#123;access denied&#125;&#125;]</p>
 
 <p>[&#123;&#123;error! Access denied!&#125;&#125;]</p>
 
-<p>His meridians trembled. His Qi and mana collapsed at the same time,</p>
+<p>His meridians trembled. His Qi and mana collapsed at the same time, while blood rose to his throat.</p>
 
-<p>while blood rose to his throat.</p>
-
-<p>Above him, black clouds closed in quickly, causing the skies to</p>
-
-<p>tremble.</p>
+<p>Above him, black clouds closed in quickly, causing the skies to tremble.</p>
 
 <p>Qingyi clenched his fists, punching the ground and looking up, ignoring the pain that permeated his body.</p>
 
@@ -129,10 +111,6 @@ chapter = 470
 
 <p>A black dragon appeared behind him, and gray flames engulfed the Heaven-Defying Thunder Sword.</p>
 
-<p>The moment his voice fell, it finally came: a sea of lightning that</p>
-
-<p>merged into one, an aura like the flapping of a Phoenix’s wings tearing</p>
-
-<p>through the skies toward Qingyi.</p>
+<p>The moment his voice fell, it finally came: a sea of lightning that merged into one, an aura like the flapping of a Phoenix’s wings tearing through the skies toward Qingyi.</p>
 
 <p>The handsome young man did not hold back, pouring out the Primordial Chaos Flames uncontrollably.</p>

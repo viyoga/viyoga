@@ -35,9 +35,7 @@ chapter = 555
 
 <p>“What about the flying ship above the holy capital? Did your escorts say anything about it?” Lucios asked, changing the subject.</p>
 
-<p>“No.” The elven king shook his head. “It belongs to those foreigners from the east, that’s all I know. They don’t seem to be allies of the</p>
-
-<p>tightly.</p>
+<p>“No.” The elven king shook his head. “It belongs to those foreigners from the east, that’s all I know. They don’t seem to be allies of the tightly.</p>
 
 <p>“But, Lord Lucios-” A knight riding a crimson beast tried to question, but received only a single, cold, short word.</p>
 
@@ -87,29 +85,19 @@ chapter = 555
 
 <p>No one below the true immortal realm survived the shockwave.</p>
 
-<p>Qingyi’s eyes followed the Qi projectile fired by the flying ship, rising</p>
+<p>Qingyi’s eyes followed the Qi projectile fired by the flying ship, rising toward the heavens with terrifying power.</p>
 
-<p>toward the heavens with terrifying power.</p>
-
-<p>‘Would I be able to withstand a direct hit?” He asked himself, but</p>
-
-<p>quickly dismissed the thought.</p>
+<p>‘Would I be able to withstand a direct hit?” He asked himself, but quickly dismissed the thought.</p>
 
 <p>No…</p>
 
 <p>Not even his blood would remain.</p>
 
-<p>The shot finally stopped rising, striking the skies with a terrifying</p>
+<p>The shot finally stopped rising, striking the skies with a terrifying boom.</p>
 
-<p>boom.</p>
+<p>For a brief moment, the skies opened with a deep tear, as if a sharp claw had just sunk into the very fabric of space-time.</p>
 
-<p>For a brief moment, the skies opened with a deep tear, as if a sharp</p>
-
-<p>claw had just sunk into the very fabric of space-time.</p>
-
-<p>The tear immediately began to close, but before it closed completely,</p>
-
-<p>a terrifying sight fell upon those who had survived.</p>
+<p>The tear immediately began to close, but before it closed completely, a terrifying sight fell upon those who had survived.</p>
 
 <p>Two pairs of hands, each the size of a mountain.</p>
 

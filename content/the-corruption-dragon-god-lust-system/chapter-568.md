@@ -31,9 +31,7 @@ chapter = 568
 
 <p>Qingyi didn’t answer. His lips parted, taking one of her nipples, pink and soft.</p>
 
-<p>“Nghnn~~ I think that’s a yes, little sister,” Seraphine replied with a</p>
-
-<p>giggle, mounted on top of him.</p>
+<p>“Nghnn~~ I think that’s a yes, little sister,” Seraphine replied with a giggle, mounted on top of him.</p>
 
 <p>Her hands slid down to her husband’s powerful abdomen.</p>
 
@@ -67,9 +65,7 @@ chapter = 568
 
 <p>“Nghnn~~ Be gentler, hubby…” Elize gasped, grabbing his black hair tightly as she felt his tongue swirl around her sensitive nipples.</p>
 
-<p>Soon, nothing but the panting moans of the two sisters dominated the room, followed by the powerful slaps of flesh against flesh. Seraphine clung tightly to Qingyi’s shoulders as he abandoned Elize’s</p>
-
-<p>breasts.</p>
+<p>Soon, nothing but the panting moans of the two sisters dominated the room, followed by the powerful slaps of flesh against flesh. Seraphine clung tightly to Qingyi’s shoulders as he abandoned Elize’s breasts.</p>
 
 <p>Finally, his eyes were focused only on her.</p>
 
@@ -81,45 +77,31 @@ chapter = 568
 
 <p>She was just as excited as her sister for the day they would finally get married, but still…</p>
 
-<p>As she spoke, her eyes met Elize’s, naughty and sensual, shining</p>
-
-<p>brightly.</p>
+<p>As she spoke, her eyes met Elize’s, naughty and sensual, shining brightly.</p>
 
 <p>She wasn’t that kind of degenerate woman… right?</p>
 
 <p>Gasping, Seraphine bent over Qingyi, closed her eyes, and then sat down one last time.</p>
 
-<p>Her lips parted in a naughty moan, and she felt, gush after gush, the hot, viscous cum filling her womb until there was no room left for</p>
-
-<p>anything else.</p>
+<p>Her lips parted in a naughty moan, and she felt, gush after gush, the hot, viscous cum filling her womb until there was no room left for anything else.</p>
 
 <p>“Nghn~~ So full…” She smiled, collapsing on top of him.</p>
 
-<p>Elize, who had been waiting patiently, soon took her sister’s place,</p>
-
-<p>also mounting Qingyi.</p>
+<p>Elize, who had been waiting patiently, soon took her sister’s place, also mounting Qingyi.</p>
 
 <p>And so went the rest of the three’s wedding night.</p>
 
 <p>Sex, a bit of wine, and then more sex.</p>
 
-<p>When Qingyi finally woke up, wrapped in the voluptuous bodies of</p>
-
-<p>the two, it was already almost dusk the next day.</p>
+<p>When Qingyi finally woke up, wrapped in the voluptuous bodies of the two, it was already almost dusk the next day.</p>
 
 <p>With a soft grunt, he wriggled free of them, left the room, and walked through the mansion.</p>
 
-<p>The guests had already left, and the girls had returned to the world of the mind shortly after the ceremony, so the palace was almost</p>
+<p>The guests had already left, and the girls had returned to the world of the mind shortly after the ceremony, so the palace was almost completely empty.</p>
 
-<p>completely empty.</p>
+<p>Apart from the few servants who occasionally waved at him, there was no one else.</p>
 
-<p>Apart from the few servants who occasionally waved at him, there</p>
-
-<p>was no one else.</p>
-
-<p>With a sigh, Qingyi continued walking until he reached a large</p>
-
-<p>courtyard.</p>
+<p>With a sigh, Qingyi continued walking until he reached a large courtyard.</p>
 
 <p>Lucios was there, sitting in the shade of an apple tree, eating fruit while watching some talented young Vaeldrinns training.</p>
 
@@ -127,14 +109,8 @@ chapter = 568
 
 <p>They would be the spearhead of the next Vaeldrinn generation, destined to one day rule the entire land.</p>
 
-<p>All of them had already tamed their own dragons, and in no more than</p>
+<p>All of them had already tamed their own dragons, and in no more than twenty or thirty years, they should become respectable fighting forces.</p>
 
-<p>twenty or thirty years, they should become respectable fighting</p>
-
-<p>forces.</p>
-
-<p>Of course, that was if they survived long enough. After all, this was a treacherous world, and once they left Lucios’ protection and had to fight their own battles, everything would</p>
-
-<p>change.</p>
+<p>Of course, that was if they survived long enough. After all, this was a treacherous world, and once they left Lucios’ protection and had to fight their own battles, everything would change.</p>
 
 <p>“Hm… so this is where you spend your days?” Qingyi smiled as he approached Lucios.</p>

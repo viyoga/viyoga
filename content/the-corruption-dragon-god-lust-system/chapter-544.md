@@ -31,9 +31,7 @@ chapter = 544
 
 <p>And even if there was, the pain couldn’t bother him less in the face of that terrifying power.</p>
 
-<p>Turning his face, he pointed a single finger toward a huge and</p>
-
-<p>powerful mountain, the only one that had resisted the destruction of his lineage breakthrough.</p>
+<p>Turning his face, he pointed a single finger toward a huge and powerful mountain, the only one that had resisted the destruction of his lineage breakthrough.</p>
 
 <p>He extended the finger, gathering powerful thunderous Qi at its tip before releasing it all.</p>
 
@@ -71,9 +69,7 @@ chapter = 544
 
 <p>Heart (??? lust points to upgrade).</p>
 
-<p>Lineage: Blood of the Corruption Dragon God (Astral grade, ??? lust</p>
-
-<p>points to upgrade.)</p>
+<p>Lineage: Blood of the Corruption Dragon God (Astral grade, ??? lust points to upgrade.)</p>
 
 <p>Constitution: Primordial Dragon Body (Astral grade, ??? lust points to upgrade.)</p>
 
@@ -81,9 +77,7 @@ chapter = 544
 
 <p>How could he not be happy with that progress?</p>
 
-<p>His lineage projection had gained the ability to take on a physical corporeal form, and now he was just a few nights of sex away from</p>
-
-<p>the realm of the astral body.</p>
+<p>His lineage projection had gained the ability to take on a physical corporeal form, and now he was just a few nights of sex away from the realm of the astral body.</p>
 
 <p>He was truly a blessed man!</p>
 
@@ -97,15 +91,11 @@ chapter = 544
 
 <p>In the brightly lit imperial capital, it was a calm and quiet night, with most of its inhabitants asleep.</p>
 
-<p>But the emperor’s palace, on the other hand, was more awake than</p>
-
-<p>ever.</p>
+<p>But the emperor’s palace, on the other hand, was more awake than ever.</p>
 
 <p>“How is the emperor’s hand?” A voice asked, belonging to a woman sitting on a throne that appeared to be made of pure gold, her beautiful face covered by a mask.</p>
 
-<p>The man beside that woman was equal, of equal power and wearing</p>
-
-<p>an almost identical mask.</p>
+<p>The man beside that woman was equal, of equal power and wearing an almost identical mask.</p>
 
 <p>These were the Empress and the Enlightened Emperor, the most powerful man and woman on the eastern continent.</p>
 
@@ -117,18 +107,12 @@ chapter = 544
 
 <p>“Very well, you will be well rewarded for this.” The emperor smiled broadly, then stood up and walked over to the master builder. “Hahaha, I always am, my sovereign. Now tell me, why do you need the emperor’s hand in such a state?</p>
 
-<p>Are you going to send it to deal with the resistance of the northern</p>
-
-<p>barbarians again? Or a foreign invasion?”</p>
+<p>Are you going to send it to deal with the resistance of the northern barbarians again? Or a foreign invasion?”</p>
 
 <p>“Oh… nothing much, really, not even anything that is in our territory. You may leave now, I have things to settle with my wife.” The emperor patted the master builder on the shoulder.</p>
 
 <p>His tone of voice was calmer and friendlier than before.</p>
 
-<p>Still, the master builder shuddered, leaving immediately, his steps</p>
+<p>Still, the master builder shuddered, leaving immediately, his steps quicker than when he entered.</p>
 
-<p>quicker than when he entered.</p>
-
-<p>He had known the emperor long enough to know that this was not a</p>
-
-<p>good sign. What the hell were they planning with the Hand of God?</p>
+<p>He had known the emperor long enough to know that this was not a good sign. What the hell were they planning with the Hand of God?</p>

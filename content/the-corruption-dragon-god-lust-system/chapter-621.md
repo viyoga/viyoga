@@ -19,9 +19,7 @@ chapter = 621
 
 <p>The bloodline of the Dragon God of Corruption, even though it was extremely weakened compared to what it had been at its peak in the celestial heavens, was still the bloodline of the Dragon God of Corruption.</p>
 
-<p>The moment a massive dragon materialized on Qingyi’s back and its roar echoed off the corridor walls, the surrounding arrays</p>
-
-<p>immediately went into defense mode, shutting down to avoid collapsing under the bloodline suppression.</p>
+<p>The moment a massive dragon materialized on Qingyi’s back and its roar echoed off the corridor walls, the surrounding arrays immediately went into defense mode, shutting down to avoid collapsing under the bloodline suppression.</p>
 
 <p>He could, of course, spend hours there scheming and planning, searching for the right way to pass that test.</p>
 
@@ -77,15 +75,9 @@ chapter = 621
 
 <p>Qingyi nodded at the system’s response.</p>
 
-<p>Reading someone’s destiny and future was dangerous, but reading</p>
+<p>Reading someone’s destiny and future was dangerous, but reading their past destiny, especially to learn a person’s origins, was much simpler.</p>
 
-<p>their past destiny, especially to learn a person’s origins, was much</p>
-
-<p>simpler.</p>
-
-<p>Whatever that tear was, it had read Qingyi’s past and used the</p>
-
-<p>information it had about his master to recreate him.</p>
+<p>Whatever that tear was, it had read Qingyi’s past and used the information it had about his master to recreate him.</p>
 
 <p>An array that used memories of lost loved ones to deceive challengers.</p>
 
@@ -99,41 +91,25 @@ chapter = 621
 
 <p>He took a step forward, tears filling his eyes.</p>
 
-<p>Qingyi didn’t answer, letting him approach while he felt hundreds of malicious Qis trying to invade his mental fortress like rusty needles</p>
-
-<p>pressing against a shield.</p>
+<p>Qingyi didn’t answer, letting him approach while he felt hundreds of malicious Qis trying to invade his mental fortress like rusty needles pressing against a shield.</p>
 
 <p>That was a soul attack.</p>
 
-<p>When the old man opened his arms, Qingyi opened his as well, an</p>
+<p>When the old man opened his arms, Qingyi opened his as well, an emotional expression taking over his face.</p>
 
-<p>emotional expression taking over his face.</p>
-
-<p>“Return to the path of light, seal this lineage, and renounce its impure</p>
-
-<p>origins!”</p>
+<p>“Return to the path of light, seal this lineage, and renounce its impure origins!”</p>
 
 <p>The old man stopped before him, and in the moment before the embrace, something changed on his face.</p>
 
-<p>A wicked smile appeared, followed by a powerful killing intent that</p>
+<p>A wicked smile appeared, followed by a powerful killing intent that filled the air.</p>
 
-<p>filled the air.</p>
-
-<p>The old man’s hands transformed into sharp blades, and he attacked</p>
-
-<p>with a powerful Qi, ready to decapitate the young man before him.</p>
+<p>The old man’s hands transformed into sharp blades, and he attacked with a powerful Qi, ready to decapitate the young man before him.</p>
 
 <p>To his surprise, however, Qingyi had already reacted, drawing the Heaven-Defying Thunder Sword and, with a slash that cut at an odd angle, severed both arms from the torso.</p>
 
-<p>The sound was dry, followed by the dull thud of the limbs falling onto</p>
+<p>The sound was dry, followed by the dull thud of the limbs falling onto the white floor.</p>
 
-<p>the white floor.</p>
-
-<p>“That was for the time you tried to castrate me, you old son of a</p>
-
-<p>bitch!” Qingyi roared, his voice laden with a vengeance he had waited</p>
-
-<p>far too long for.</p>
+<p>“That was for the time you tried to castrate me, you old son of a bitch!” Qingyi roared, his voice laden with a vengeance he had waited far too long for.</p>
 
 <p>Soon after, he kicked, and his foot sank into the old man’s groin with a force that would make any real man double over.</p>
 

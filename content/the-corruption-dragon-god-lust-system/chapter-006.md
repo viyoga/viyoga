@@ -81,9 +81,7 @@ chapter = 6
 
 <p>At its back, a great mountain with pavilions and palaces rose imposingly, its top hidden by a bed of clouds that glittered like fine gold.</p>
 
-<p>“That’s Ascending Dragon Mountain. Although it’s technically a city in the Golden Sun Kingdom, the entire territory of the Golden Cloud City is controlled by the Sect. The whole mountain and every piece of land as far as the eye can see is their property,”</p>
-
-<p>Tianran explained, noticing Qingyi’s curious look.</p>
+<p>“That’s Ascending Dragon Mountain. Although it’s technically a city in the Golden Sun Kingdom, the entire territory of the Golden Cloud City is controlled by the Sect. The whole mountain and every piece of land as far as the eye can see is their property,” Tianran explained, noticing Qingyi’s curious look.</p>
 
 <p>“I see… they must be quite powerful.”</p>
 

@@ -59,9 +59,7 @@ chapter = 534
 
 <p>Twenty thousand years was a long time, but she still remembered her Xueyao perfectly and how much she had missed her.</p>
 
-<p>“I missed you too, Little Snow…” Lanyin finally spoke, pulling Xueyao</p>
-
-<p>close to her.</p>
+<p>“I missed you too, Little Snow…” Lanyin finally spoke, pulling Xueyao close to her.</p>
 
 <p>Her fluffy black tail swayed behind her with a little more excitement, synchronized with the wagging of Xueyao’s snowy tail.</p>
 
@@ -75,9 +73,7 @@ chapter = 534
 
 <p>Just… how much did the Matriarch trust that man?</p>
 
-<p>Qingyi said nothing, just leaning against a wall and checking Lanyin’s</p>
-
-<p>stats.</p>
+<p>Qingyi said nothing, just leaning against a wall and checking Lanyin’s stats.</p>
 
 <p>[Name: Hu Lanyin</p>
 
@@ -101,63 +97,39 @@ chapter = 534
 
 <p>Constitution: Black moon body (Ancestral Grade)</p>
 
-<p>Traits: Faithful, Half-blood mythical beast, cold, pragmatic, reclusive,</p>
+<p>Traits: Faithful, Half-blood mythical beast, cold, pragmatic, reclusive, protective, (tainted by demonic energy – dormant)]</p>
 
-<p>protective, (tainted by demonic energy – dormant)]</p>
-
-<p>Fortunately, the demonic energy in her had not progressed and,</p>
-
-<p>apparently, was quite stable.</p>
+<p>Fortunately, the demonic energy in her had not progressed and, apparently, was quite stable.</p>
 
 <p>But that mattered little to Qingyi for now. What he needed to know was how to purify her.</p>
 
-<p>[If this corruption comes from the demonic seed itself, just kill it and</p>
-
-<p>don’t allow it to awaken this energy. All these girls should stay as far away from this place as possible when you go to fight.]</p>
+<p>[If this corruption comes from the demonic seed itself, just kill it and don’t allow it to awaken this energy. All these girls should stay as far away from this place as possible when you go to fight.]</p>
 
 <p>“I understand…” Qingyi nodded mentally, raising his eyes to the two beauties who were now chatting animatedly.</p>
 
-<p>“Is that enough?” He asked Lanyin, approaching and stroking Xueyao’s</p>
+<p>“Is that enough?” He asked Lanyin, approaching and stroking Xueyao’s silver hair.</p>
 
-<p>silver hair.</p>
+<p>The beauty hesitated for a moment, but eventually nodded and made way for Qingyi.</p>
 
-<p>The beauty hesitated for a moment, but eventually nodded and made</p>
-
-<p>way for Qingyi.</p>
-
-<p>“Uh? Is hubby leaving already?” Xueyao asked, the smile on her face</p>
-
-<p>disappearing.</p>
+<p>“Uh? Is hubby leaving already?” Xueyao asked, the smile on her face disappearing.</p>
 
 <p>“Yes.” The handsome young man replied, placing a soft kiss on Xueyao’s lips. “The sooner I act, the better the chances of getting everything sorted out. So trust your husband, okay?”</p>
 
 <p>The voluptuous little fox nodded and after a farewell hug with the blushing Lanyin, she left.</p>
 
-<p>“Ah…” Qingyi sighed, shaking his head and walking to the edge of the</p>
+<p>“Ah…” Qingyi sighed, shaking his head and walking to the edge of the cauldron.</p>
 
-<p>cauldron.</p>
-
-<p>“Don’t die…” Lanyin’s voice echoed behind Qingyi. Her pale cheeks</p>
-
-<p>took on a reddish hue as she looked away. “I say this for Xueyao’s</p>
-
-<p>sake, not for mine.”</p>
+<p>“Don’t die…” Lanyin’s voice echoed behind Qingyi. Her pale cheeks took on a reddish hue as she looked away. “I say this for Xueyao’s sake, not for mine.”</p>
 
 <p>“I know.” Qingyi smiled. “And I won’t die.”</p>
 
-<p>The next moment, he jumped into the cauldron, his body swallowed</p>
+<p>The next moment, he jumped into the cauldron, his body swallowed up by a powerful spatial distortion.</p>
 
-<p>up by a powerful spatial distortion.</p>
-
-<p>When he reappeared, he was above that familiar forest, plummeting</p>
-
-<p>toward the ground.</p>
+<p>When he reappeared, he was above that familiar forest, plummeting toward the ground.</p>
 
 <p>“It’s stronger…”</p>
 
-<p>Qingyi only needed a single moment to sense that terrible miasma;</p>
-
-<p>the demonic energy in that place was about to explode.</p>
+<p>Qingyi only needed a single moment to sense that terrible miasma; the demonic energy in that place was about to explode.</p>
 
 <p>He activated his draconic eyes, sensing the Qi around him.</p>
 
@@ -165,18 +137,12 @@ chapter = 534
 
 <p>The beasts were agitated, fighting nonstop. At the same time, all the</p>
 
-<p>Qi flowed toward a single place: the base of the huge tree in the</p>
-
-<p>center of the forest.</p>
+<p>Qi flowed toward a single place: the base of the huge tree in the center of the forest.</p>
 
 <p>“The demonic seed must be about to sprout…” He gritted his teeth.</p>
 
 <p>It was good to have hurried his affairs in the Enlightened Sky Empire, but honestly, he wasn’t that excited.</p>
 
-<p>Feeling that power, he was certain: the demon seed in the fox people</p>
+<p>Feeling that power, he was certain: the demon seed in the fox people was powerful, infinitely stronger than the ones he had seen in the imperial capital.</p>
 
-<p>was powerful, infinitely stronger than the ones he had seen in the imperial capital.</p>
-
-<p>“Is it enough to defeat me?” Qingyi wondered, but soon shook his</p>
-
-<p>head, his lips curving in contempt. “Not even in a thousand years.”</p>
+<p>“Is it enough to defeat me?” Qingyi wondered, but soon shook his head, his lips curving in contempt. “Not even in a thousand years.”</p>

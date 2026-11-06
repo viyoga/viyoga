@@ -61,9 +61,7 @@ chapter = 656
 
 <p>“Yes… The girls are waiting at the hot springs. Won’t you tell me a little about that new technique of yours? I’ve never seen anything like it.”</p>
 
-<p>Qingyi simply nodded, lifting Ruxue into his arms as he walked</p>
-
-<p>toward the hot springs.</p>
+<p>Qingyi simply nodded, lifting Ruxue into his arms as he walked toward the hot springs.</p>
 
 <p>During the short walk, he explained everything about his improved technique.</p>
 
@@ -71,21 +69,13 @@ chapter = 656
 
 <p>How could such a powerful technique even exist?</p>
 
-<p>Qingyi was, in fact, blessed by the heavens, even if the heavens</p>
+<p>Qingyi was, in fact, blessed by the heavens, even if the heavens wanted to kill him and made no secret of it whatsoever.</p>
 
-<p>wanted to kill him and made no secret of it whatsoever.</p>
+<p>“What’s the matter? Is your shameless womanizer finally worthy of you?” he teased, recalling the first time he met Ruxue.</p>
 
-<p>“What’s the matter? Is your shameless womanizer finally worthy of</p>
+<p>She had hated him and only accepted him out of love for her priestesses.</p>
 
-<p>you?” he teased, recalling the first time he met Ruxue.</p>
-
-<p>She had hated him and only accepted him out of love for her</p>
-
-<p>priestesses.</p>
-
-<p>“Hm… you’re still a shameless womanizer. The only difference is that now you’re my shameless womanizer!” she declared, puffing out her</p>
-
-<p>chest with pride.</p>
+<p>“Hm… you’re still a shameless womanizer. The only difference is that now you’re my shameless womanizer!” she declared, puffing out her chest with pride.</p>
 
 <p>Her enormous milky tits surged forward with the movement, the heavy mounds bouncing against the strained towel, the damp fabric pulling taut over her swollen curves before they settled back into place with a slow, lingering jiggle.</p>
 
@@ -97,33 +87,23 @@ chapter = 656
 
 <p>Without hesitation, she settled herself on top of him. Her round, perfect ass landed on his thighs with a thick, cushioned impact, the plump cheeks flattening under her own weight, warm flesh molding around the hard muscle of his legs.</p>
 
-<p>Her breasts pressed right under his chin, large enough to wrap around most of his broad shoulders. The enormous mounds squeezed firmly against his chest, warm and heavy, bulging at every point of</p>
-
-<p>contact.</p>
+<p>Her breasts pressed right under his chin, large enough to wrap around most of his broad shoulders. The enormous mounds squeezed firmly against his chest, warm and heavy, bulging at every point of contact.</p>
 
 <p>“It’s… strange,” Ruxue said, stroking Qingyi’s hair. Her eyes were deep, as if unburdening herself of something she had carried in her heart for a long time but never wanted to reveal.</p>
 
 <p>“I’ve lived for one hundred and fifty thousand years. I witnessed the fall of countless civilizations and experts, and once served as the blade of the most talented swordswoman who ever walked the celestial heavens. My former master.”</p>
 
-<p>“Sometimes I feel as if none of that was worth anything. As if, from the</p>
-
-<p>moment I was separated from her, I had completely stopped living.</p>
+<p>“Sometimes I feel as if none of that was worth anything. As if, from the moment I was separated from her, I had completely stopped living.</p>
 
 <p>Until…”</p>
 
 <p>Ruxue paused.</p>
 
-<p>“I hated you… I despised you… but you made me love you, and finally,</p>
-
-<p>I feel like I’m living again. I feel that the passing years truly leave</p>
-
-<p>behind memories worth remembering.”</p>
+<p>“I hated you… I despised you… but you made me love you, and finally, I feel like I’m living again. I feel that the passing years truly leave behind memories worth remembering.”</p>
 
 <p>Qingyi remained silent, caressing Ruxue’s slender waist as he absorbed her genuine feelings.</p>
 
-<p>She had called him “love” before, but this was the first time she had</p>
-
-<p>truly confessed to him.</p>
+<p>She had called him “love” before, but this was the first time she had truly confessed to him.</p>
 
 <p>He brought his hand to her beautiful face, brushing away a strand of hair that had fallen over her eyes.</p>
 
@@ -131,12 +111,8 @@ chapter = 656
 
 <p>He leaned in and kissed her.</p>
 
-<p>Her tongue met his, and her massive breasts compressed further</p>
+<p>Her tongue met his, and her massive breasts compressed further between their bodies as she pressed herself closer, the thin towel the only barrier left between their skin.</p>
 
-<p>between their bodies as she pressed herself closer, the thin towel the only barrier left between their skin.</p>
-
-<p>When their lips finally parted, their tongues still connected by long,</p>
-
-<p>glistening strands of saliva, Ruxue smiled.</p>
+<p>When their lips finally parted, their tongues still connected by long, glistening strands of saliva, Ruxue smiled.</p>
 
 <p>“Come on, the girls are waiting for us.”</p>

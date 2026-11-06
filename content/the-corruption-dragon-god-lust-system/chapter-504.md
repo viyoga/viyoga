@@ -7,9 +7,7 @@ chapter = 504
 
 <p>[Your cultivation has been improved! Second stage of the immortal emperor realm -&gt; third stage of the immortal emperor realm.]</p>
 
-<p>A long, exhausted sigh escaped Qingyi’s lips as his eyes fell on the</p>
-
-<p>status screen.</p>
+<p>A long, exhausted sigh escaped Qingyi’s lips as his eyes fell on the status screen.</p>
 
 <p>The price to advance to the Ancestral Emperor realm was now over two hundred and fifty trillion.</p>
 
@@ -95,9 +93,7 @@ chapter = 504
 
 <p>[Your charm has increased! 1,500 -&gt; 6,000]</p>
 
-<p>Qingyi’s mind calmed down and his thought processing speed</p>
-
-<p>exploded as he finally found peace.</p>
+<p>Qingyi’s mind calmed down and his thought processing speed exploded as he finally found peace.</p>
 
 <p>He clenched his fist, feeling the strength of his muscles.</p>
 
@@ -113,13 +109,9 @@ chapter = 504
 
 <p>With a gentle movement, he bought a mirror from the system store, observing his reflection.</p>
 
-<p>“System… how much of me is still human?” He asked, gritting his</p>
+<p>“System… how much of me is still human?” He asked, gritting his teeth.</p>
 
-<p>teeth.</p>
-
-<p>[Part of your blood, part of your Qi, your meridians, and part of your</p>
-
-<p>brain.]</p>
+<p>[Part of your blood, part of your Qi, your meridians, and part of your brain.]</p>
 
 <p>The system replied coldly.</p>
 
@@ -127,30 +119,20 @@ chapter = 504
 
 <p>Usually, they would change, but not like this.</p>
 
-<p>His white sclera changed color, turning a deep black. His purple</p>
-
-<p>pupils took on the shape of slits, an intense glow dominating them, capable of illuminating any dark night.</p>
+<p>His white sclera changed color, turning a deep black. His purple pupils took on the shape of slits, an intense glow dominating them, capable of illuminating any dark night.</p>
 
 <p>Against the black sclera, they were like two bright spots in the deep abyss, small cracks spreading across the skin of his face.</p>
 
 <p>He touched his own face, feeling the cracks slowly spreading until they reached his cheeks.</p>
 
-<p>Among his long black hair, a pair of horns stood up. They were black</p>
-
-<p>as night, with sharp points, their darkness glimmering in the dim light</p>
-
-<p>of that room.</p>
+<p>Among his long black hair, a pair of horns stood up. They were black as night, with sharp points, their darkness glimmering in the dim light of that room.</p>
 
 <p>Was that truly him?</p>
 
-<p>When Qingyi stopped circulating his Qi, his eyes returned to normal. Still purple and beautiful, but no longer like balls of light in an abyss</p>
-
-<p>of endless darkness.</p>
+<p>When Qingyi stopped circulating his Qi, his eyes returned to normal. Still purple and beautiful, but no longer like balls of light in an abyss of endless darkness.</p>
 
 <p>“Can I hide these things?” Qingyi spoke, touching his horn.</p>
 
-<p>[Yes, freely.] The system replied. [But I must remind you that this is</p>
-
-<p>the path you have chosen to walk. You are destined to become the new Dragon God of Corruption. I am nothing more than a tool to fulfill the ultimate wish of the ancient priestesses.]</p>
+<p>[Yes, freely.] The system replied. [But I must remind you that this is the path you have chosen to walk. You are destined to become the new Dragon God of Corruption. I am nothing more than a tool to fulfill the ultimate wish of the ancient priestesses.]</p>
 
 <p>“The new Dragon God of Corruption. Hm?” Qingyi laughed, “No… I won’t limit myself that much. I will be something greater than that.” His training was not over yet, and he still had a lot to improve. Nt: I think it’s time to update Qingyi’s art, isn’t it?</p>

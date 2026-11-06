@@ -65,15 +65,11 @@ chapter = 587
 
 <p>“What a welcome…” A voice sounded from behind a bush.</p>
 
-<p>It was masculine, soft, and serene, caressing the ears of anyone who</p>
-
-<p>heard it.</p>
+<p>It was masculine, soft, and serene, caressing the ears of anyone who heard it.</p>
 
 <p>From behind the bush, a young man emerged.</p>
 
-<p>Horns black as night, purple eyes, and a youthful face of transcendent</p>
-
-<p>beauty.</p>
+<p>Horns black as night, purple eyes, and a youthful face of transcendent beauty.</p>
 
 <p>His powerful muscles were exposed through torn clothing, and his body was covered in wounds that were slowly healing.</p>
 
@@ -81,9 +77,7 @@ chapter = 587
 
 <p>The handsome young man looked around with curiosity.</p>
 
-<p>The connection he felt with the stars was much stronger than before, and above all, the primordial laws around him also seemed more</p>
-
-<p>intense.</p>
+<p>The connection he felt with the stars was much stronger than before, and above all, the primordial laws around him also seemed more intense.</p>
 
 <p>It was like the difference between heaven and earth.</p>
 
@@ -95,62 +89,38 @@ chapter = 587
 
 <p>“Where is he? Is this son of a bitch crazy?” A thin, ugly-looking man spoke beside the leader. “Just kill him already.”</p>
 
-<p>The leader clenched his teeth and lunged forward, swinging his axe</p>
+<p>The leader clenched his teeth and lunged forward, swinging his axe down toward Qingyi’s head.</p>
 
-<p>down toward Qingyi’s head.</p>
+<p>“Hm… is that all?” Qingyi raised two fingers, catching the blade between them.</p>
 
-<p>“Hm… is that all?” Qingyi raised two fingers, catching the blade</p>
-
-<p>between them.</p>
-
-<p>He was disappointed by that power, but after thinking for a moment,</p>
-
-<p>he merely shook his head.</p>
+<p>He was disappointed by that power, but after thinking for a moment, he merely shook his head.</p>
 
 <p>They were just common bandits, and yet, they had enough power to easily dominate the entire immortal haven.</p>
 
 <p>He shouldn’t be disappointed by them.</p>
 
-<p>Qingyi applied a little force, and a metallic clang echoed as the axe</p>
-
-<p>blade shattered like glass.</p>
+<p>Qingyi applied a little force, and a metallic clang echoed as the axe blade shattered like glass.</p>
 
 <p>The leader didn’t have time to react.</p>
 
-<p>By the time terror filled his eyes, his head had already been sent</p>
+<p>By the time terror filled his eyes, his head had already been sent flying into the air.</p>
 
-<p>flying into the air.</p>
-
-<p>His soul tried to flee, but Qingyi quickly extinguished it with a wave of</p>
-
-<p>his hand.</p>
+<p>His soul tried to flee, but Qingyi quickly extinguished it with a wave of his hand.</p>
 
 <p>Silence.</p>
 
-<p>Chen Wei, Peng Tao, all the bandits around them, no one dared make</p>
+<p>Chen Wei, Peng Tao, all the bandits around them, no one dared make a single sound.</p>
 
-<p>a single sound.</p>
-
-<p>The thin man who had ordered Qingyi’s death took a step back,</p>
-
-<p>feeling the young man’s eyes rest upon him.</p>
+<p>The thin man who had ordered Qingyi’s death took a step back, feeling the young man’s eyes rest upon him.</p>
 
 <p>“I…” He prepared to flee.</p>
 
-<p>“Oh… I’m sorry,” Qingyi’s lips curved into a friendly, gentle smile, “but</p>
+<p>“Oh… I’m sorry,” Qingyi’s lips curved into a friendly, gentle smile, “but I don’t leave loose ends.”</p>
 
-<p>I don’t leave loose ends.”</p>
+<p>His words were a death sentence, but his face and voice made it seem as though he were chatting with old friends.</p>
 
-<p>His words were a death sentence, but his face and voice made it seem</p>
+<p>The bandits tried to flee in all directions, their faces twisted with terror.</p>
 
-<p>as though he were chatting with old friends.</p>
-
-<p>The bandits tried to flee in all directions, their faces twisted with</p>
-
-<p>terror.</p>
-
-<p>None of them managed to take more than ten steps before collapsing</p>
-
-<p>to the ground.</p>
+<p>None of them managed to take more than ten steps before collapsing to the ground.</p>
 
 <p>Ignoring the thugs lying in pools of their own blood, Qingyi fixed his gaze on Chen Wei.</p>

@@ -83,39 +83,27 @@ chapter = 467
 
 <p>Its voice was strange and stilted, almost as if it were struggling to even be able to speak.</p>
 
-<p>Its guts spilled onto the floor from a cut in its belly, its arms unable to keep them inside. The bile from its torn stomach spread across its</p>
+<p>Its guts spilled onto the floor from a cut in its belly, its arms unable to keep them inside. The bile from its torn stomach spread across its body.</p>
 
-<p>body.</p>
-
-<p>Qingyi could see the creature’s dried aorta, as well as the muscles of its back. The entire upper part of its body was held upright only by its</p>
-
-<p>twisted spine.</p>
+<p>Qingyi could see the creature’s dried aorta, as well as the muscles of its back. The entire upper part of its body was held upright only by its twisted spine.</p>
 
 <p>Its eyes met Qingyi’s again, and then the thing smiled.</p>
 
-<p>“This body is not… good… it is… imperfect… i-i-i-incomplete…” The words that escaped the corpse’s lips sounded less and less like a</p>
-
-<p>human voice.</p>
+<p>“This body is not… good… it is… imperfect… i-i-i-incomplete…” The words that escaped the corpse’s lips sounded less and less like a human voice.</p>
 
 <p>It was hoarse, like the creaking of a door, feminine and masculine at the same time, sickly, full of hatred, full of pain…</p>
 
 <p>“It’s enough…” The whole corpse writhed.</p>
 
-<p>“If that’s all you’ve got, you pathetic little thing, I doubt I’ll need to</p>
-
-<p>exert myself to get rid of you.” Qingyi spoke coldly, preparing the Thunder Sword.</p>
+<p>“If that’s all you’ve got, you pathetic little thing, I doubt I’ll need to exert myself to get rid of you.” Qingyi spoke coldly, preparing the Thunder Sword.</p>
 
 <p>He wanted to kill it right there, but he knew it wasn’t the time. He needed to hear more.</p>
 
 <p>“HAHAHAHAHAHA!”</p>
 
-<p>A crazed laugh filled the entire place. The corpse’s eyes rolled back as</p>
+<p>A crazed laugh filled the entire place. The corpse’s eyes rolled back as its neck moved at strange angles.</p>
 
-<p>its neck moved at strange angles.</p>
-
-<p>For the first time since whatever that thing had taken over that</p>
-
-<p>corpse, its voice was fluid.</p>
+<p>For the first time since whatever that thing had taken over that corpse, its voice was fluid.</p>
 
 <p>“I saw you before… in that miserable little place… miserable people…</p>
 
@@ -125,29 +113,19 @@ chapter = 467
 
 <p>“You have that smell on you… the smell of someone of my blood… pathetic, impure… without my lineage… but she’s there… a girl? I’m going to get her..”</p>
 
-<p>Qingyi shuddered at those words, but not out of fear. It was out of</p>
-
-<p>anger.</p>
+<p>Qingyi shuddered at those words, but not out of fear. It was out of anger.</p>
 
 <p>His hands flew to the corpse’s neck, squeezing tightly.</p>
 
-<p>He felt the corpse’s hands, which had been reduced to nothing but</p>
+<p>He felt the corpse’s hands, which had been reduced to nothing but bones, clinging to his wrist. The sharp tips of the bony fingers sank into his flesh.</p>
 
-<p>bones, clinging to his wrist. The sharp tips of the bony fingers sank into his flesh.</p>
+<p>The corpse’s face twisted into deep amusement. “We… will meet again… the thousand seeds… the thousand and one demon seeds… complete receptacle…”</p>
 
-<p>The corpse’s face twisted into deep amusement. “We… will meet</p>
-
-<p>again… the thousand seeds… the thousand and one demon seeds… complete receptacle…”</p>
-
-<p>The moment the last word escaped the corpse’s lips, it turned to</p>
-
-<p>dust.</p>
+<p>The moment the last word escaped the corpse’s lips, it turned to dust.</p>
 
 <p>Qingyi coldly reflected on the final words.</p>
 
-<p>Demon seeds… the same demon seeds planted in the hearts of the fox</p>
-
-<p>people?</p>
+<p>Demon seeds… the same demon seeds planted in the hearts of the fox people?</p>
 
 <p>But there was only one demon seed there.</p>
 
@@ -163,12 +141,8 @@ chapter = 467
 
 <p>He still had many questions to ask him.</p>
 
-<p>Qingyi knelt down, bringing his hand to Lucien’s chest, whose mana</p>
+<p>Qingyi knelt down, bringing his hand to Lucien’s chest, whose mana heart had been replaced.</p>
 
-<p>heart had been replaced.</p>
-
-<p>Immediately, he felt something change, a shock spreading through his</p>
-
-<p>body as he realized something.</p>
+<p>Immediately, he felt something change, a shock spreading through his body as he realized something.</p>
 
 <p>Lucien’s mana heart was moving inside his body, as if trying to jump out of his chest.</p>

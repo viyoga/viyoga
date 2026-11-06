@@ -65,19 +65,13 @@ chapter = 394
 
 <p>The man fell into despair. He fought, begged the heavens, spent fortunes to freeze the child in time, and dedicated his life to nothing but researching a cure for her.</p>
 
-<p>Until one day, he realized: the cure did not exist in the Celestial</p>
+<p>Until one day, he realized: the cure did not exist in the Celestial heavens. Not anymore.”</p>
 
-<p>heavens. Not anymore.”</p>
-
-<p>“So he descended to the Immortal Heaven…” Qingyi murmured, lifting his face. “But how was this man able to descend without being</p>
-
-<p>destroyed by the heavens?”</p>
+<p>“So he descended to the Immortal Heaven…” Qingyi murmured, lifting his face. “But how was this man able to descend without being destroyed by the heavens?”</p>
 
 <p>“He didn’t.” Tianjin shook his head.</p>
 
-<p>“He carefully destroyed the child’s lineage, limiting her talent just enough so that the immortal heavens would not attack her. Then, he sent her here and along with her, he sent a projection, a fragment of</p>
-
-<p>his soul.”</p>
+<p>“He carefully destroyed the child’s lineage, limiting her talent just enough so that the immortal heavens would not attack her. Then, he sent her here and along with her, he sent a projection, a fragment of his soul.”</p>
 
 <p>Tiajin paused briefly, taking another sip of liquor.</p>
 
@@ -89,15 +83,9 @@ chapter = 394
 
 <p>With a gentle movement, Tianjin recovered his hand.</p>
 
-<p>“I’m afraid, Qingyi… I am five hundred thousand years old, I have seen</p>
+<p>“I’m afraid, Qingyi… I am five hundred thousand years old, I have seen the rise and fall of countless civilizations, but in all this time, I have only had one Qianyao.</p>
 
-<p>the rise and fall of countless civilizations, but in all this time, I have</p>
-
-<p>only had one Qianyao.</p>
-
-<p>I don’t want to lose my Qianyao. Not again. I don’t want her to be trapped here for the rest of eternity, and I don’t know if I have the strength to break through the heavens and come for her…” Tianjin</p>
-
-<p>confessed.</p>
+<p>I don’t want to lose my Qianyao. Not again. I don’t want her to be trapped here for the rest of eternity, and I don’t know if I have the strength to break through the heavens and come for her…” Tianjin confessed.</p>
 
 <p>There were no tears in his eyes, nor was there any obvious sadness on his face. Still, in the depths of his gaze, Qingyi could see the pain.</p>
 
@@ -111,25 +99,17 @@ chapter = 394
 
 <p>“And do you know which god this is?”</p>
 
-<p>Hearing the question, Tianjin laughed. “This world is old. If we were to</p>
-
-<p>count only the Black Dragons, I can think of a few hundred possible names, with thousands more whose existence I have never studied.”</p>
+<p>Hearing the question, Tianjin laughed. “This world is old. If we were to count only the Black Dragons, I can think of a few hundred possible names, with thousands more whose existence I have never studied.”</p>
 
 <p>“I see…” Qingyi murmured.</p>
 
 <p>He was glad that Tianjin didn’t know he was the Dragon God of Corruption, and apparently didn’t even consider that possibility. Besides, he understood exactly what Tianjin wanted.</p>
 
-<p>He was a desperate father. A father who would soon be forced to separate from his own daughter, the greatest and only treasure of his</p>
-
-<p>life. Tianjin didn’t believe that Qianyao was capable of breaking through the Immortal Heavens on her own, and the moment he saw Qingyi, he</p>
-
-<p>saw a chance, however small, to have his daughter by his side in the sky above all skies, her rightful place.</p>
+<p>He was a desperate father. A father who would soon be forced to separate from his own daughter, the greatest and only treasure of his life. Tianjin didn’t believe that Qianyao was capable of breaking through the Immortal Heavens on her own, and the moment he saw Qingyi, he saw a chance, however small, to have his daughter by his side in the sky above all skies, her rightful place.</p>
 
 <p>Of course, Tianjin’s plan was not to make the two become lovers. With his daughter’s personality, he thought that would never be possible; he just wanted them to be friends.</p>
 
-<p>If anything happened, Tianjin could just ask his old friend, Tai’Ren, for a favor. Qingyi didn’t seem like the type of person who would deny</p>
-
-<p>such a request from his respected father-in-law.</p>
+<p>If anything happened, Tianjin could just ask his old friend, Tai’Ren, for a favor. Qingyi didn’t seem like the type of person who would deny such a request from his respected father-in-law.</p>
 
 <p>But since they had fallen in love, that would no longer be necessary.</p>
 
@@ -137,18 +117,10 @@ chapter = 394
 
 <p>“Long Qingyi greets his father-in-law!” he declared.</p>
 
-<p>His voice echoed through the throne room, Tianjin’s face temporarily</p>
+<p>His voice echoed through the throne room, Tianjin’s face temporarily taken over by a strange expression. In the end, he could only smile slightly. “My daughter has truly been blessed with a good man, son-in-law,” he said, standing up and grabbing Qingyi’s shoulders.</p>
 
-<p>taken over by a strange expression. In the end, he could only smile</p>
-
-<p>slightly. “My daughter has truly been blessed with a good man, son-in-law,” he said, standing up and grabbing Qingyi’s shoulders.</p>
-
-<p>“If she wishes to be by your side, very well. But I promise you: if any</p>
-
-<p>harm comes to my treasure, these heavens will not be able to protect you from my wrath.”</p>
+<p>“If she wishes to be by your side, very well. But I promise you: if any harm comes to my treasure, these heavens will not be able to protect you from my wrath.”</p>
 
 <p>Qingyi smiled at Tianjin’s response.</p>
 
-<p>Yes, that was the response a man worthy of being his father-in-law</p>
-
-<p>should give him.</p>
+<p>Yes, that was the response a man worthy of being his father-in-law should give him.</p>

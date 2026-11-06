@@ -29,13 +29,9 @@ chapter = 609
 
 <p>No one really knew, but it was certainly more than any merchant ship they could rob could ever give them.</p>
 
-<p>When they spotted the Dragon’s Fang spaceship, the bandits</p>
+<p>When they spotted the Dragon’s Fang spaceship, the bandits immediately took up combat positions around their fortress, powerful Qi cannons aimed at the approaching vessel.</p>
 
-<p>immediately took up combat positions around their fortress, powerful Qi cannons aimed at the approaching vessel.</p>
-
-<p>The first volley of shots hit it squarely, the shields activating just in</p>
-
-<p>time to prevent any damage.</p>
+<p>The first volley of shots hit it squarely, the shields activating just in time to prevent any damage.</p>
 
 <p>Inside, chaos quickly took hold as the disciples gathered.</p>
 
@@ -61,9 +57,7 @@ chapter = 609
 
 <p>‘It’s much stronger than my current bloodline…’ Qingyi thought to himself as he advanced right behind Zhentian.</p>
 
-<p>Of course, it wasn’t stronger on a basic level, but it was of a much</p>
-
-<p>higher grade. As far as he knew, Zhentian’s bloodline was at least one grade lower than Tianhao’s, so there was still a huge mountain for him to climb before reaching that level.</p>
+<p>Of course, it wasn’t stronger on a basic level, but it was of a much higher grade. As far as he knew, Zhentian’s bloodline was at least one grade lower than Tianhao’s, so there was still a huge mountain for him to climb before reaching that level.</p>
 
 <p>With a bitter smile, Qingyi drew the Heaven-Defying Thunder Sword.</p>
 
@@ -93,21 +87,15 @@ chapter = 609
 
 <p>“Shit!” The pirate realized his mistake, his eyes filling with terror as the powerful flaming Qi consumed everything around him.</p>
 
-<p>He didn’t even have time to form a protective barrier. The Heaven-Defying Thunder Sword sank into his chest and pierced</p>
-
-<p>his heart, Qingyi’s lightning Qi swiftly invading his meridians and destroying everything in its path.</p>
+<p>He didn’t even have time to form a protective barrier. The Heaven-Defying Thunder Sword sank into his chest and pierced his heart, Qingyi’s lightning Qi swiftly invading his meridians and destroying everything in its path.</p>
 
 <p>After a few moments, the charred body fell to the ground, drawing a sigh of relief from Qingyi.</p>
 
-<p>Not even the soul remained after his lightning Qi had destroyed the</p>
-
-<p>pirate’s body.</p>
+<p>Not even the soul remained after his lightning Qi had destroyed the pirate’s body.</p>
 
 <p>With a breath, he decided to focus only on the weakest, at least for now, using his draconic eyes to pierce through their defenses and kill as many of them as possible as quickly as he could.</p>
 
-<p>All around him, dozens of bloody battles had already erupted, the</p>
-
-<p>three inner disciples accompanying them killing dozens with every strike while the outer disciples held their ground as best they could.</p>
+<p>All around him, dozens of bloody battles had already erupted, the three inner disciples accompanying them killing dozens with every strike while the outer disciples held their ground as best they could.</p>
 
 <p>‘Hm… this isn’t bad! Qingyi smiled, plunging into the battle and bathing the sky-defying thunder sword in blood, unleashing his most powerful techniques without a shred of mercy.</p>
 

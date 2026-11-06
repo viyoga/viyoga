@@ -57,9 +57,7 @@ chapter = 455
 
 <p>He was excited to finally meet her again and no one would stop him.</p>
 
-<p>The God of War took a step forward, without even moving his huge</p>
-
-<p>axe.</p>
+<p>The God of War took a step forward, without even moving his huge axe.</p>
 
 <p>That winged warrior was as powerful as a cultivator of the Astral Body Realm. Still, the God of War needed only one move to shatter him.</p>
 
@@ -85,9 +83,7 @@ chapter = 455
 
 <p>Her beautiful green eyes were slightly closed as she stretched. Her right foot was firmly planted on the ground, while her left foot rose to a level of flexibility not inferior to Qingyi’s.</p>
 
-<p>The thin fabric of her robe stretched even further around her body. Her buttocks, perfect orbs, round and large, became even more</p>
-
-<p>pronounced.</p>
+<p>The thin fabric of her robe stretched even further around her body. Her buttocks, perfect orbs, round and large, became even more pronounced.</p>
 
 <p>In that position, even the plump and soft vulva of her pussy could be seen, struggling to maintain its shape against the tight fabric.</p>
 
@@ -97,51 +93,33 @@ chapter = 455
 
 <p>It was Sapphire, sitting in a corner, reading a book quietly.</p>
 
-<p>Her beautiful eyes focused on Qingyi and Celestia, and her full, pink</p>
+<p>Her beautiful eyes focused on Qingyi and Celestia, and her full, pink lips curved slightly.</p>
 
-<p>lips curved slightly.</p>
-
-<p>She stood up. Her huge, heavy breasts bounced, the neckline moving</p>
-
-<p>slightly to reveal vast expanses of fair, flawless skin.</p>
+<p>She stood up. Her huge, heavy breasts bounced, the neckline moving slightly to reveal vast expanses of fair, flawless skin.</p>
 
 <p>“Was the trip safe? Qingyi treated you well, right?”</p>
 
-<p>“Yes!” Celestia nodded. “Brother Qingyi treated me very well. Auranys</p>
-
-<p>did very well to choose someone like him as one of the heroes!</p>
+<p>“Yes!” Celestia nodded. “Brother Qingyi treated me very well. Auranys did very well to choose someone like him as one of the heroes!</p>
 
 <p>Hehehe.”</p>
 
 <p>Celestia smiled, puffing out her chest.</p>
 
-<p>“And Lucien, has he arrived yet?” Qingyi asked, shaking his head</p>
+<p>“And Lucien, has he arrived yet?” Qingyi asked, shaking his head slightly.</p>
 
-<p>slightly.</p>
-
-<p>“No…” It was Aeryn who answered. She walked over to a bench, picked</p>
-
-<p>up a cup of tea, and took a sip. “He must be whining about how cruel</p>
-
-<p>life is.”</p>
+<p>“No…” It was Aeryn who answered. She walked over to a bench, picked up a cup of tea, and took a sip. “He must be whining about how cruel life is.”</p>
 
 <p>She then sat down, looking disinterested.</p>
 
-<p>“Oh… he took the longer route, so it should take him a few days to</p>
-
-<p>arrive.</p>
+<p>“Oh… he took the longer route, so it should take him a few days to arrive.</p>
 
 <p>As soon as he arrives, that stubborn fool will probably rush to do the mission immediately, without thinking about strategy or using his brain to prepare us even minimally.” Sapphire said, raising a finger to her lips.</p>
 
-<p>“Speaking of preparation…” A mischievous smile took over her</p>
-
-<p>beautiful face.</p>
+<p>“Speaking of preparation…” A mischievous smile took over her beautiful face.</p>
 
 <p>“Aeryn seemed really excited about your arrival. She wanted to train with you until your bodies lost their strength, fufufu~~” Qingyi’s eyes focused on Aeryn, who blushed and looked away.</p>
 
-<p>The handsome young man couldn’t help but let his eyes sparkle</p>
-
-<p>slightly.</p>
+<p>The handsome young man couldn’t help but let his eyes sparkle slightly.</p>
 
 <p>A few days alone with these girls, huh? He didn’t hate the idea. “Actually.” He walked to the center of the courtyard.</p>
 

@@ -11,9 +11,7 @@ chapter = 489
 
 <p>Her eyes lifted, filling with delight at her husband’s thoughtful and slightly proud expression as his cock sank to the back of her throat. She loved seeing her husband with that look. Almost as much as she loved his teasing expression, and of course, almost as much as she loved having her mouth and throat completely filled by that fat, throbbing cock.</p>
 
-<p>She pushed her head down a little harder and her lips opened wider, forming a tight, wet circle around the huge rod of flesh while her</p>
-
-<p>cheeks sank in with the suction.</p>
+<p>She pushed her head down a little harder and her lips opened wider, forming a tight, wet circle around the huge rod of flesh while her cheeks sank in with the suction.</p>
 
 <p>When her lips reached the base of Qingyi’s cock, Feiyan paused for a moment. Then she pulled back, revealing the saliva-soaked member, glistening slightly in the sunlight.</p>
 
@@ -71,15 +69,11 @@ chapter = 489
 
 <p>A hand reached out, grabbing at nothing. Or, to be more specific, at something that was out of its reach.</p>
 
-<p>It was clearly the heart of some kind of beast. Huge, pulsing with power, even though it had been separated from its main body more</p>
-
-<p>than seventy thousand years ago.</p>
+<p>It was clearly the heart of some kind of beast. Huge, pulsing with power, even though it had been separated from its main body more than seventy thousand years ago.</p>
 
 <p>That was the heart of Karlan, partner of the Ancestral Dragon and progenitor of the dragon elves.</p>
 
-<p>If Qingyi were there, he would recognize that man as the current Patriarch of the Dragon Elves and Grand Duke of Vaeldrinn, son of</p>
-
-<p>Lucios Vaeldrinn Valerio.</p>
+<p>If Qingyi were there, he would recognize that man as the current Patriarch of the Dragon Elves and Grand Duke of Vaeldrinn, son of Lucios Vaeldrinn Valerio.</p>
 
 <p>With a sigh, he stood up.</p>
 
@@ -91,9 +85,7 @@ chapter = 489
 
 <p>But none of that mattered to him.</p>
 
-<p>In the end, in his mind, the pure one is the one who has power. Goodness does not come from morals, nor from ethics, nor from the</p>
-
-<p>heart.</p>
+<p>In the end, in his mind, the pure one is the one who has power. Goodness does not come from morals, nor from ethics, nor from the heart.</p>
 
 <p>Goodness comes from nothing more than the power to declare: “I am righteous, I am good. All those below me are sinners and deserve death. I cannot be the victim of my arrogance, for I am God’s most perfect creation. God would never punish me.”</p>
 
@@ -103,16 +95,10 @@ chapter = 489
 
 <p>But in the end, none of that mattered.</p>
 
-<p>As he left the closed room where he was, his eyes focused on his dragon. A scarlet beast of unmatched hatred and power, a being born</p>
-
-<p>to rule the skies.</p>
+<p>As he left the closed room where he was, his eyes focused on his dragon. A scarlet beast of unmatched hatred and power, a being born to rule the skies.</p>
 
 <p>“Nothing matters, for we are the most perfect creations of the gods…” The Patriarch mounted the back of RedDeath, and with a smooth movement, they rose into the skies.</p>
 
-<p>Soon, the moment he had longed for would arrive. Soon, it would be</p>
+<p>Soon, the moment he had longed for would arrive. Soon, it would be his time to be great, above even his own father.</p>
 
-<p>his time to be great, above even his own father.</p>
-
-<p>“Just a little more,” the patriarch whispered, his face full of</p>
-
-<p>determination and cruelty.</p>
+<p>“Just a little more,” the patriarch whispered, his face full of determination and cruelty.</p>

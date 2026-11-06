@@ -65,13 +65,9 @@ chapter = 559
 
 <p>“You know what’s going to happen, right?”</p>
 
-<p>Qingyi felt his connection to Ruxue tremble, her previously calm</p>
+<p>Qingyi felt his connection to Ruxue tremble, her previously calm emotions being overtaken by violent turmoil.</p>
 
-<p>emotions being overtaken by violent turmoil.</p>
-
-<p>She wanted to respond, she wanted to leave the world of the mind</p>
-
-<p>and curse that bastard to the third generation.</p>
+<p>She wanted to respond, she wanted to leave the world of the mind and curse that bastard to the third generation.</p>
 
 <p>But she knew that would only cause Qingyi even more trouble.</p>
 
@@ -95,29 +91,17 @@ chapter = 559
 
 <p>But none of them came.</p>
 
-<p>The Heavenly Demon just shuddered, his tongue healing quickly as</p>
+<p>The Heavenly Demon just shuddered, his tongue healing quickly as his face filled with excitement.</p>
 
-<p>his face filled with excitement.</p>
+<p>“You know, kid… you have a very nice body. Why don’t you give it to me, silly? I can even promise to spare the life of that insignificant little thing you stole from me.”</p>
 
-<p>“You know, kid… you have a very nice body. Why don’t you give it to me, silly? I can even promise to spare the life of that insignificant little</p>
+<p>Qingyi was unable to stop his stomach from curling up at those words, an intense disgust taking over his body.</p>
 
-<p>thing you stole from me.”</p>
-
-<p>Qingyi was unable to stop his stomach from curling up at those</p>
-
-<p>words, an intense disgust taking over his body.</p>
-
-<p>He calmed his heart, closing his eyes for a brief moment before</p>
-
-<p>opening them again.</p>
+<p>He calmed his heart, closing his eyes for a brief moment before opening them again.</p>
 
 <p>“You know… I heard that you have a main wife, but that you’ve never touched her.” Qingyi tilted his head slightly.</p>
 
-<p>“When I arrive in the Celestial Heaven and take her for myself, I</p>
-
-<p>wonder if they will call you the cuckold demon or the celestial</p>
-
-<p>cuckold…”</p>
+<p>“When I arrive in the Celestial Heaven and take her for myself, I wonder if they will call you the cuckold demon or the celestial cuckold…”</p>
 
 <p>He paused, his gaze running up and down his opponent.</p>
 
@@ -129,17 +113,11 @@ chapter = 559
 
 <p>His eyes turned cold and his face fell.</p>
 
-<p>“I think I’ve shown you enough mercy.” He extended a single hand, a</p>
+<p>“I think I’ve shown you enough mercy.” He extended a single hand, a small cut appearing on his wrist.</p>
 
-<p>small cut appearing on his wrist.</p>
+<p>From this cut, a torrent of blood flowed unceasingly, circling his hand in three distinct jets that met in his palm.</p>
 
-<p>From this cut, a torrent of blood flowed unceasingly, circling his hand</p>
-
-<p>in three distinct jets that met in his palm.</p>
-
-<p>Quickly, a handle appeared, extending until it revealed the blade of a</p>
-
-<p>bloody glaive.</p>
+<p>Quickly, a handle appeared, extending until it revealed the blade of a bloody glaive.</p>
 
 <p>“I think you’ve misunderstood something here.” Qingyi also prepared himself, Qi exploding toward the Heaven-Defying Thunder Sword.</p>
 

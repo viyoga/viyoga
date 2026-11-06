@@ -29,9 +29,7 @@ chapter = 539
 
 <p>“Hey! Nghnn…” Lanyin moaned as she was pulled by the Matriarch’s powerful Qi, her neckline tearing open and her full, heavy bosoms swaying freely.</p>
 
-<p>Before she could even complain, Qingyi was already on top of her, his lips closing around one of her nipples while his hands ran down the</p>
-
-<p>waists of the two beauties.</p>
+<p>Before she could even complain, Qingyi was already on top of her, his lips closing around one of her nipples while his hands ran down the waists of the two beauties.</p>
 
 <p>His hands reached their backs and moved down towards their asses.</p>
 
@@ -65,9 +63,7 @@ chapter = 539
 
 <p>Lust points: 747.3T</p>
 
-<p>When he arrived at the beastmen land, he had already gathered another seven hundred trillion points just by having sex with his</p>
-
-<p>wives.</p>
+<p>When he arrived at the beastmen land, he had already gathered another seven hundred trillion points just by having sex with his wives.</p>
 
 <p>Now, he had almost seven hundred and fifty trillion. And he hadn’t even started fucking them for real.</p>
 
@@ -85,31 +81,19 @@ chapter = 539
 
 <p>“Ah… nghnn~~ are you really serious?” Lingxue asked.</p>
 
-<p>Her eyes closed instinctively as she felt something grow in Qingyi’s</p>
-
-<p>pants, something long and thick.</p>
+<p>Her eyes closed instinctively as she felt something grow in Qingyi’s pants, something long and thick.</p>
 
 <p>“About what?”</p>
 
-<p>“About aghnnn~~ taking us both as your wives… even if it’s for</p>
+<p>“About aghnnn~~ taking us both as your wives… even if it’s for Xueyao…”</p>
 
-<p>Xueyao…”</p>
+<p>“What… you don’t want to?” Qingyi turned his face slightly, his hands still running over her curves.</p>
 
-<p>“What… you don’t want to?” Qingyi turned his face slightly, his hands</p>
+<p>“Both of us… aren’t you being too greedy, young man?” Lanyin was the one who answered, blushing as much as her Matriarch.</p>
 
-<p>still running over her curves.</p>
+<p>“What if I am?” Qingyi smiled, grabbing Lingxue’s shoulders and forcing her to kneel in front of him.</p>
 
-<p>“Both of us… aren’t you being too greedy, young man?” Lanyin was the</p>
-
-<p>one who answered, blushing as much as her Matriarch.</p>
-
-<p>“What if I am?” Qingyi smiled, grabbing Lingxue’s shoulders and</p>
-
-<p>forcing her to kneel in front of him.</p>
-
-<p>“What are you-” Lanyin didn’t even have time to question as her lips were sealed by Qingyi’s, his hands tearing off what was left of her</p>
-
-<p>dress.</p>
+<p>“What are you-” Lanyin didn’t even have time to question as her lips were sealed by Qingyi’s, his hands tearing off what was left of her dress.</p>
 
 <p>His fingers immediately sank between her soft thighs, touching the fat, pale lips of her vulva.</p>
 
@@ -117,15 +101,11 @@ chapter = 539
 
 <p>While massaging Lanyin’s pussy with his left hand, Qingyi moved his right hand, his cock escaping his pants and hitting Lingxue’s face with a loud, wet pop.</p>
 
-<p>She backed away in surprise, watching the passionate kiss between the black fox and Qingyi as he masturbated her, a small pool of love</p>
-
-<p>juices forming between her legs.</p>
+<p>She backed away in surprise, watching the passionate kiss between the black fox and Qingyi as he masturbated her, a small pool of love juices forming between her legs.</p>
 
 <p>“Ugh… control yourself, obscene woman… you still have so many things to resolve… Lingxue repeated to herself.</p>
 
-<p>However, she was unable to stop her delicate hands from reaching up,</p>
-
-<p>grasping Qingyi’s cock and closing around its enormous girth.</p>
+<p>However, she was unable to stop her delicate hands from reaching up, grasping Qingyi’s cock and closing around its enormous girth.</p>
 
 <p>She tasted the musky flavor of Qingyi’s precum as the reddish tip touched her full, pink lips.</p>
 
@@ -137,9 +117,7 @@ chapter = 539
 
 <p>“So…” Lingxue let the tip of Qingyi’s cock slip from her lips, her voice sweet and honeyed. “Big~~”</p>
 
-<p>Would she be able to take all of that inside her? Was Xueyao able to</p>
-
-<p>handle that?</p>
+<p>Would she be able to take all of that inside her? Was Xueyao able to handle that?</p>
 
 <p>Without hesitation, she moved towards Qingyi’s cock again, leaning on his thighs as her mouth sucked voraciously, saliva sliding down her chin and dripping onto her massive, pale tits.</p>
 

@@ -75,47 +75,31 @@ chapter = 581
 
 <p>Isabel was right. They were his paradise.</p>
 
-<p>Qingyi’s movements gained speed and strength, the three huge pairs of tits taken over by violent undulations as he continued to fuck them</p>
-
-<p>mercilessly.</p>
+<p>Qingyi’s movements gained speed and strength, the three huge pairs of tits taken over by violent undulations as he continued to fuck them mercilessly.</p>
 
 <p>“G-gentler, hubby-nghnn~~” Celestia moaned, her hands reaching for her sisters’ backs, preventing them and herself from falling.</p>
 
-<p>She could feel Qingyi’s cock throbbing painfully, with a vitality that</p>
-
-<p>could only mean one thing.</p>
+<p>She could feel Qingyi’s cock throbbing painfully, with a vitality that could only mean one thing.</p>
 
 <p>It was coming, finally!</p>
 
 <p>The two beauties and the goddess moaned in unison.</p>
 
-<p>Auranys’ wings, previously retracted, opened gloriously and her eyes</p>
+<p>Auranys’ wings, previously retracted, opened gloriously and her eyes widened.</p>
 
-<p>widened.</p>
-
-<p>Between their breasts, those sweet and delicious mountains of</p>
-
-<p>incomparable flesh, Qingyi’s cum exploded in an absurd amount.</p>
+<p>Between their breasts, those sweet and delicious mountains of incomparable flesh, Qingyi’s cum exploded in an absurd amount.</p>
 
 <p>From below, above, and even from the sides, it invaded the tight encounter between them and leaked out on all sides, thick spurts of cum following thick spurts of cum.</p>
 
-<p>When he reached the final spurt, Qingyi smiled contentedly, watching the panting beauties with their breasts covered in cum, small pools of the white, viscous liquid forming where their breasts</p>
+<p>When he reached the final spurt, Qingyi smiled contentedly, watching the panting beauties with their breasts covered in cum, small pools of the white, viscous liquid forming where their breasts met.</p>
 
-<p>met.</p>
-
-<p>“Hm… hubby had so much today…” Isabel smiled, running her fingers over her own breasts, collecting the hot cum and bringing it to her</p>
-
-<p>lips.</p>
+<p>“Hm… hubby had so much today…” Isabel smiled, running her fingers over her own breasts, collecting the hot cum and bringing it to her lips.</p>
 
 <p>She swallowed, savoring it.</p>
 
-<p>After another moment, the three beauties’ huge tits separated,</p>
+<p>After another moment, the three beauties’ huge tits separated, connected by thick strands of white cum.</p>
 
-<p>connected by thick strands of white cum.</p>
-
-<p>Qingyi’s cock, free and semi-erect, remained between them, at the</p>
-
-<p>height of their mouths.</p>
+<p>Qingyi’s cock, free and semi-erect, remained between them, at the height of their mouths.</p>
 
 <p>Qingyi just smiled at that sight, glancing at his status screen.</p>
 
@@ -123,9 +107,7 @@ chapter = 581
 
 <p>Age: 22</p>
 
-<p>Cultivation: Third Stage Of The Astral Body Realm (??? lust points to</p>
-
-<p>upgrade)</p>
+<p>Cultivation: Third Stage Of The Astral Body Realm (??? lust points to upgrade)</p>
 
 <p>Mana Manipulation: Eleventh Ring (??? lust points to upgrade)</p>
 
@@ -133,25 +115,17 @@ chapter = 581
 
 <p>Space: 6000 Light: 6000 Shadow: 6000 – Charm: 6000 (can be upgraded in the lust store)</p>
 
-<p>Spiritual roots: Astral-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice, space, light, shadow) (??? lust points to</p>
-
-<p>upgrade).</p>
+<p>Spiritual roots: Astral-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice, space, light, shadow) (??? lust points to upgrade).</p>
 
 <p>Spiritual roots2: None/Astral Level Primordial Creation Seed Mana Heart (??? lust points to upgrade).</p>
 
-<p>Lineage: Blood of the Corruption Dragon God (Astral grade, ??? lust</p>
+<p>Lineage: Blood of the Corruption Dragon God (Astral grade, ??? lust points to upgrade.)</p>
 
-<p>points to upgrade.)</p>
-
-<p>Constitution: Primordial Dragon Body (Astral grade, ??? lust points to</p>
-
-<p>upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Astral grade, ??? lust points to upgrade.)</p>
 
 <p>Lust points: 2753.195T]</p>
 
-<p>Fucking those huge tits had yielded more than six hundred trillion</p>
-
-<p>lust points…</p>
+<p>Fucking those huge tits had yielded more than six hundred trillion lust points…</p>
 
 <p>And he hadn’t even taken her purity or fucked her exactly. That was just a bonus and the value of fucking her tits.</p>
 
@@ -159,24 +133,14 @@ chapter = 581
 
 <p>Well, she was a goddess who was once comparable to the dragon god of corruption himself.</p>
 
-<p>It was to be expected that her rewards would be incredible. “Hm… I think hubby’s huge cock needs a bath now…” Celestia smiled,</p>
-
-<p>bending over Qingyi’s cum-covered cock and planting a kiss on the</p>
-
-<p>tip.</p>
+<p>It was to be expected that her rewards would be incredible. “Hm… I think hubby’s huge cock needs a bath now…” Celestia smiled, bending over Qingyi’s cum-covered cock and planting a kiss on the tip.</p>
 
 <p>Her tongue slipped out of her lips, but she didn’t start sucking.</p>
 
-<p>Her eyes rested on Auranys and she exchanged a soft giggle with</p>
+<p>Her eyes rested on Auranys and she exchanged a soft giggle with Isabel.</p>
 
-<p>Isabel.</p>
+<p>“Is this really good?” The goddess wondered, seeing the ecstatic faces of those two.</p>
 
-<p>“Is this really good?” The goddess wondered, seeing the ecstatic faces</p>
-
-<p>of those two.</p>
-
-<p>With a little embarrassment and almost as if she had no control over</p>
-
-<p>her own body, she leaned forward.</p>
+<p>With a little embarrassment and almost as if she had no control over her own body, she leaned forward.</p>
 
 <p>Her lips parted and her tongue extended.</p>

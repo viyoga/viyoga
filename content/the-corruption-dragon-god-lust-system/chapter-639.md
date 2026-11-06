@@ -11,9 +11,7 @@ chapter = 639
 
 <p>A short time. A very short time.</p>
 
-<p>He was still at the peak of the Astral Body Realm when he arrived, but now, less than three months later, he was already at the peak of the Astral Blood Realm, with his solid foundation bringing him</p>
-
-<p>dangerously close to a breakthrough.</p>
+<p>He was still at the peak of the Astral Body Realm when he arrived, but now, less than three months later, he was already at the peak of the Astral Blood Realm, with his solid foundation bringing him dangerously close to a breakthrough.</p>
 
 <p>Both were old and had seen a lot throughout their lives, but such rapid cultivation was something they had never heard of.</p>
 
@@ -81,11 +79,7 @@ chapter = 639
 
 <p>Soon, he would have to make a difficult choice.</p>
 
-<p>“You’ve truly given me a fine recommendation, Zhenwu.” The sect</p>
-
-<p>leader smiled. “It seems the sect’s fate isn’t entrusted solely to</p>
-
-<p>Tianhao.”</p>
+<p>“You’ve truly given me a fine recommendation, Zhenwu.” The sect leader smiled. “It seems the sect’s fate isn’t entrusted solely to Tianhao.”</p>
 
 <p>Zhenwu merely nodded in agreement, struggling not to let his shoulders visibly slump.</p>
 
@@ -111,25 +105,17 @@ chapter = 639
 
 <p>“What is it?” she asked, her green eyes resting on the item the man carried in his hands.</p>
 
-<p>She leaned forward slightly, her arms drawing inward along either</p>
-
-<p>side of her huge tits.</p>
+<p>She leaned forward slightly, her arms drawing inward along either side of her huge tits.</p>
 
 <p>The movement pressed her full breasts together, the soft, pale mounds swelling and spilling upward beyond the neckline of her veil in a generous, captivating arc.</p>
 
 <p>A magnificent sight, and one that the man, with his lowered gaze, could not see.</p>
 
-<p>“Senior Sister Ma, after many trials, I have managed to retrieve the</p>
-
-<p>jade from the fallen goddess’s tear and would like to offer it to you as</p>
-
-<p>a gift, so that at the Divine Maiden Ceremony, two years from now, you may become my wife.”</p>
+<p>“Senior Sister Ma, after many trials, I have managed to retrieve the jade from the fallen goddess’s tear and would like to offer it to you as a gift, so that at the Divine Maiden Ceremony, two years from now, you may become my wife.”</p>
 
 <p>The moment he finished speaking, a powerful aura crashed down upon the arrogant young master like a mountain.</p>
 
-<p>“Get lost!” A thunderous voice echoed through the garden, and he</p>
-
-<p>was hurled far away from the pavilion.</p>
+<p>“Get lost!” A thunderous voice echoed through the garden, and he was hurled far away from the pavilion.</p>
 
 <p>Alone, she let out a slow sigh.</p>
 

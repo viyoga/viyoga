@@ -7,9 +7,7 @@ chapter = 643
 
 <p>“Hm… fufufu~~” Isabel let out a mischievous giggle as she cupped her own cum-covered tits.</p>
 
-<p>Qingyi’s thick, white cum stained her chocolaty boobs, dripping</p>
-
-<p>between her fingers as her forearms sank deep into the ample, heavy flesh.</p>
+<p>Qingyi’s thick, white cum stained her chocolaty boobs, dripping between her fingers as her forearms sank deep into the ample, heavy flesh.</p>
 
 <p>Each squeeze sent the pliant mounds bulging between her arms, the warm cum spreading further across the smooth, dark skin.</p>
 
@@ -31,15 +29,11 @@ chapter = 643
 
 <p>With all the cultivators having mastered the technique, it didn’t take long for Qingyi to find himself sinking into a sea of huge tits.</p>
 
-<p>Some girls clung to his hands, while the quicker ones, like Elize and</p>
-
-<p>Nianxue, claimed his face for themselves, pressing their heavy breasts forward for him to suck.</p>
+<p>Some girls clung to his hands, while the quicker ones, like Elize and Nianxue, claimed his face for themselves, pressing their heavy breasts forward for him to suck.</p>
 
 <p>Naturally, he didn’t refuse.</p>
 
-<p>His hands closed around their enormous tits, fingers sinking into the soft, pillowy flesh. His lips alternated between Elize’s pink nipples and Nianxue’s bluish ones;</p>
-
-<p>They were puffy and tender, needing only a little attention before finally releasing their sweet, hot, creamy nectar onto his lips.</p>
+<p>His hands closed around their enormous tits, fingers sinking into the soft, pillowy flesh. His lips alternated between Elize’s pink nipples and Nianxue’s bluish ones; They were puffy and tender, needing only a little attention before finally releasing their sweet, hot, creamy nectar onto his lips.</p>
 
 <p>The two moaned together as he milked the huge jugs protruding from their delicate torsos, the heavy mounds swaying with every pull of his mouth.</p>
 
@@ -63,9 +57,7 @@ chapter = 643
 
 <p>Throughout it all, the bed’s arrays worked ceaselessly, ensuring the smooth circulation of Qi over their bodies as they cultivated together. Since Qingyi’s cultivation was much higher and the density of his Qi was thunderous, they advanced one after another.</p>
 
-<p>In the end, all of them had reached the Astral Blood Realm. Qingxue and Lingxue both reached the fourth stage, while Nianxue reached</p>
-
-<p>the third.</p>
+<p>In the end, all of them had reached the Astral Blood Realm. Qingxue and Lingxue both reached the fourth stage, while Nianxue reached the third.</p>
 
 <p>It was a wonderful result. Both the Bed of Celestial Pleasures and the dual cultivation technique circulating through their bodies during sex had helped a great deal.</p>
 
@@ -75,9 +67,7 @@ chapter = 643
 
 <p>Qingyi, not truly tired from so much sex but with all his wives already satisfied, headed to the spiritual energy pool next to the master suite. It was large, totaling fifty square meters, its water held in place by careful gravitational systems that kept the entire ship stable. With Auranys and the high elf, Aeryn, in his arms, he let the Qi-rich water envelop his body.</p>
 
-<p>The warm water seeped into every pore of his skin, and the marks of fingernails and bites faded quickly under the powerful influence of</p>
-
-<p>that spiritual energy.</p>
+<p>The warm water seeped into every pore of his skin, and the marks of fingernails and bites faded quickly under the powerful influence of that spiritual energy.</p>
 
 <p>“Hm… this is good, for something made by human hands… We have similar things in the Land of the Elves, but only with mana and the energy of the forest…” Aeryn whispered, feeling Qingyi’s hands running over her slender body.</p>
 
@@ -87,53 +77,35 @@ chapter = 643
 
 <p>“Mmmhn I… don’t think that’s a good idea.” Aeryn flashed a crooked smile, remembering her arrogant parents.</p>
 
-<p>The fact that Qingyi was a dragon would certainly make things easier, but the fact that he had many other women, including humans, in his</p>
-
-<p>harem?</p>
+<p>The fact that Qingyi was a dragon would certainly make things easier, but the fact that he had many other women, including humans, in his harem?</p>
 
 <p>That would make them furious.</p>
 
 <p>After all, she was a high elf too, just as arrogant as her family, even though she had already learned to love her sisters.</p>
 
-<p>“Hm… that would be a problem if I were weak, hahaha.” Qingyi roared with laughter, then leaned over Aeryn and claimed her sweet elven</p>
-
-<p>lips.</p>
+<p>“Hm… that would be a problem if I were weak, hahaha.” Qingyi roared with laughter, then leaned over Aeryn and claimed her sweet elven lips.</p>
 
 <p>Aeryn blushed, wrapping her arms around him and closing her eyes.</p>
 
 <p>She was thoroughly exhausted from having every one of her holes filled by her husband’s boiling cum, over and over again.</p>
 
-<p>What better place to rest than in the arms of the man who had put</p>
-
-<p>her in this state?</p>
+<p>What better place to rest than in the arms of the man who had put her in this state?</p>
 
 <p>To his left, Auranys, whose snow-white skin still glistened with a thin sheen of sweat, offered a sweet, gentle smile.</p>
 
-<p>She hugged Qingyi tighter, her enormous divine tits pressing into</p>
-
-<p>him. Obscenely larger than Aeryn’s, yet just as silky and full. They</p>
-
-<p>spilled around his ribs, the pale, generous flesh molding against his</p>
-
-<p>body. With a beautiful high elf and a true goddess in his arms, what man could complain?</p>
+<p>She hugged Qingyi tighter, her enormous divine tits pressing into him. Obscenely larger than Aeryn’s, yet just as silky and full. They spilled around his ribs, the pale, generous flesh molding against his body. With a beautiful high elf and a true goddess in his arms, what man could complain?</p>
 
 <p>“You know… when you’re strong enough, I’d like you to help me retrieve some ancient relics I left behind in the Celestial Heaven. They’ll be of use to you as well…” Auranys whispered, feeling his fingers caressing the milky, creamy skin along the sides of her breasts.</p>
 
 <p>“Hm…” Qingyi didn’t answer right away. He squeezed Auranys’ breasts until a soft whimper escaped her, careful not to hurt her, watching the heavy mounds compress between his fingers.</p>
 
-<p>“Do you have any idea where they are?” he asked, withdrawing his</p>
-
-<p>hand and giving her breasts a gentle pat underwater. The divine orbs wobbled at the touch, sending a soft ripple across the surface of the</p>
-
-<p>pool.</p>
+<p>“Do you have any idea where they are?” he asked, withdrawing his hand and giving her breasts a gentle pat underwater. The divine orbs wobbled at the touch, sending a soft ripple across the surface of the pool.</p>
 
 <p>“Aghnn~~ yeah… there must be some quite close to here.” Auranys replied with a moan. “I can feel a faint connection to them now that I’m in the Celestial Heaven… many were destroyed, but at least my crown must be intact.”</p>
 
 <p>“Oh… do you want me to retrieve it and crown you the divine queen of my cock?” he teased, drawing a rosy smile from the goddess. “No… the girls would be dying of envy, fufufu~~♡” Auranys gave a sweet giggle and then buried her face in Qingyi’s chest. Soon, she too allowed sleep to overtake her.</p>
 
-<p>Beside her new sisters, she had learned to appreciate those sweet</p>
-
-<p>mortal pleasures, like sleep and food.</p>
+<p>Beside her new sisters, she had learned to appreciate those sweet mortal pleasures, like sleep and food.</p>
 
 <p>With a sigh, Qingyi relaxed, taking care not to wake the two beauties.</p>
 
@@ -141,9 +113,7 @@ chapter = 643
 
 <p>He visited various clouds, circled the star, and even tested the ship’s shields against the solar system’s massive gas giant.</p>
 
-<p>To his surprise, he reached the solid core without any problems. He</p>
-
-<p>even ventured outside to explore, testing the limits of his own Qi against the crushing pressure.</p>
+<p>To his surprise, he reached the solid core without any problems. He even ventured outside to explore, testing the limits of his own Qi against the crushing pressure.</p>
 
 <p>In the end, with only five days left until the deadline to reach the</p>
 
@@ -153,21 +123,15 @@ chapter = 643
 
 <p>But in the end, they simply accepted it.</p>
 
-<p>They had all of eternity to explore the Celestial Heaven, but for now,</p>
+<p>They had all of eternity to explore the Celestial Heaven, but for now, they couldn’t get in their husband’s way. The faster he evolved, the faster their eternity by his side would begin.</p>
 
-<p>they couldn’t get in their husband’s way. The faster he evolved, the faster their eternity by his side would begin.</p>
-
-<p>Before Qingyi knew it, those sweet laughs were no longer in his ear,</p>
-
-<p>and he was alone in a dark cultivation room. Fortunately, he could store the Dragon’s Pride in the Mind World, and the girls could even play with it while he was away.</p>
+<p>Before Qingyi knew it, those sweet laughs were no longer in his ear, and he was alone in a dark cultivation room. Fortunately, he could store the Dragon’s Pride in the Mind World, and the girls could even play with it while he was away.</p>
 
 <p>With a gentle smile, he opened his status screen.</p>
 
 <p>It was time to reach the Celestial Ascension Realm and prepare to accompany Rou’er to the Cosmic Void Sect.</p>
 
-<p>[NT: Just one chapter today because my little brother cried all night and I couldn’t sleep for even a second (I had to take him to the hospital, since my dad is away and my stepmom doesn’t know how to</p>
-
-<p>drive).</p>
+<p>[NT: Just one chapter today because my little brother cried all night and I couldn’t sleep for even a second (I had to take him to the hospital, since my dad is away and my stepmom doesn’t know how to drive).</p>
 
 <p>I’m sorry, I’ll be back to my normal posting schedule tomorrow.</p>
 

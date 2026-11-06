@@ -29,9 +29,7 @@ chapter = 445
 
 <p>Just standing there was more than enough for his terrifying aura to crush everyone in the reception area, the huge sword on his back glinting softly.</p>
 
-<p>Even the most cruel-looking men, who had lived a life of crime, kept</p>
-
-<p>their voices low and their heads even lower as they ate.</p>
+<p>Even the most cruel-looking men, who had lived a life of crime, kept their voices low and their heads even lower as they ate.</p>
 
 <p>“Please, young master… your own father was the one who set our code of conduct towards customers. We can’t just hand over customer information like that!” The attendant spoke again, to no avail.</p>
 
@@ -65,17 +63,11 @@ chapter = 445
 
 <p>The man behind the nobleman just flashed a gentle smile on his rough-featured face and took a step forward.</p>
 
-<p>“A beauty like you shouldn’t hide your face like that, you know? Men</p>
+<p>“A beauty like you shouldn’t hide your face like that, you know? Men like us deserve to have a little fun too.”</p>
 
-<p>like us deserve to have a little fun too.”</p>
+<p>He raised his rough and powerful hand, his nearly two-meter-tall body towering even above Qingyi.</p>
 
-<p>He raised his rough and powerful hand, his nearly two-meter-tall</p>
-
-<p>body towering even above Qingyi.</p>
-
-<p>Celestia cringed, and just before that hand touched her face, Qingyi</p>
-
-<p>acted.</p>
+<p>Celestia cringed, and just before that hand touched her face, Qingyi acted.</p>
 
 <p>A loud slap echoed and the warrior’s hand was thrown back.</p>
 
@@ -95,44 +87,24 @@ chapter = 445
 
 <p>He was a powerful ninth-ring expert, undefeated in this region. He would not back down in front of some pretty face.</p>
 
-<p>The warrior lunged forward, trying to grab Celestia, but he was barely</p>
-
-<p>able to get halfway there.</p>
+<p>The warrior lunged forward, trying to grab Celestia, but he was barely able to get halfway there.</p>
 
 <p>His vision darkened, a horrible pain took over his jaw, and he fell backward.</p>
 
-<p>He tried to scream, but immediately found himself choking on his</p>
+<p>He tried to scream, but immediately found himself choking on his own blood, his mouth reduced to nothing more than a collection of bones and flesh mangled by Qingyi’s fist.</p>
 
-<p>own blood, his mouth reduced to nothing more than a collection of bones and flesh mangled by Qingyi’s fist.</p>
-
-<p>“I warned you…” For a brief moment, the warrior could see Qingyi’s</p>
-
-<p>face.</p>
+<p>“I warned you…” For a brief moment, the warrior could see Qingyi’s face.</p>
 
 <p>It was beautiful, wearing a gentle, soft smile.</p>
 
 <p>He stepped on the warrior’s chest and grabbed his arms.</p>
 
-<p>“Celestia, close your eyes.” Qingyi asked, and the moment the</p>
+<p>“Celestia, close your eyes.” Qingyi asked, and the moment the golden-haired beauty nodded, he pulled.</p>
 
-<p>golden-haired beauty nodded, he pulled.</p>
+<p>[NT: About the increase in posting rate. Today I will take another trip and will only be home on the 2nd of January.</p>
 
-<p>[NT: About the increase in posting rate. Today I will take another trip</p>
+<p>Starting on the 3rd, the posting rate will increase to three or four posts per day, depending on how much I can write that day, of course.</p>
 
-<p>and will only be home on the 2nd of January.</p>
+<p>I will try to write as much as possible, but the posting rate should not be much higher than that, as I also want to accumulate a few more chapters.</p>
 
-<p>Starting on the 3rd, the posting rate will increase to three or four</p>
-
-<p>posts per day, depending on how much I can write that day, of</p>
-
-<p>course.</p>
-
-<p>I will try to write as much as possible, but the posting rate should not</p>
-
-<p>be much higher than that, as I also want to accumulate a few more</p>
-
-<p>chapters.</p>
-
-<p>I will likely experience some instability in the posting rate on the 2nd</p>
-
-<p>as well. It should only be a minor delay.]</p>
+<p>I will likely experience some instability in the posting rate on the 2nd as well. It should only be a minor delay.]</p>

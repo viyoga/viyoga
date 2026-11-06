@@ -49,9 +49,7 @@ chapter = 526
 
 <p>Not that he didn’t appreciate a ruthless girl from time to time.</p>
 
-<p>“Ah… let’s eat something, I’m hungry.” He said, focusing his eyes on the doors leading to the interior of the mansion, where Ruxue was</p>
-
-<p>waiting.</p>
+<p>“Ah… let’s eat something, I’m hungry.” He said, focusing his eyes on the doors leading to the interior of the mansion, where Ruxue was waiting.</p>
 
 <p>Pulling her into his arms and placing the Sky Defying Thunder Sword at his waist, he entered the Mind World. There, Elize was already starting to work on dinner.</p>
 
@@ -75,15 +73,9 @@ chapter = 526
 
 <p>The handsome young man did little more than raise two fingers, easily parrying the sharp steel.</p>
 
-<p>“Ah… already want to kill your husband? Shameless master. He smiled, pushing Qingxue’s sword away and pulling her toward him, sealing</p>
+<p>“Ah… already want to kill your husband? Shameless master. He smiled, pushing Qingxue’s sword away and pulling her toward him, sealing her lips with a kiss.</p>
 
-<p>her lips with a kiss.</p>
-
-<p>“You’re the shameless one…” Qingxue whispered, lifting her face to</p>
-
-<p>meet Qingyi’s eyes. “And I am no longer your master, nor do I have the</p>
-
-<p>power or knowledge to be.”</p>
+<p>“You’re the shameless one…” Qingxue whispered, lifting her face to meet Qingyi’s eyes. “And I am no longer your master, nor do I have the power or knowledge to be.”</p>
 
 <p>“Hm… shouldn’t you be happy that your shameless disciple has surpassed you?” He asked.</p>
 
@@ -105,22 +97,16 @@ chapter = 526
 
 <p>Stabbing the blade into the ground, she used it for support as she arched her back as far as she could, standing on her tiptoes.</p>
 
-<p>With a smile, Qingyi aligned his cock with the pale, fat, soft lips of the beauty’s vulva, his hands moving up to her waist, so thin it looked like</p>
-
-<p>it was about to break.</p>
+<p>With a smile, Qingyi aligned his cock with the pale, fat, soft lips of the beauty’s vulva, his hands moving up to her waist, so thin it looked like it was about to break.</p>
 
 <p>He took a single moment before thrusting forward with force, his hips hitting Qingxue’s ass with a powerful impact.</p>
 
-<p>“Nghnnn… G-gentler! You… shameless disciple, aghnnn…!” She moaned, seemingly forgetting her earlier words, her entire body being</p>
-
-<p>thrown forward with the impact before bouncing back against</p>
+<p>“Nghnnn… G-gentler! You… shameless disciple, aghnnn…!” She moaned, seemingly forgetting her earlier words, her entire body being thrown forward with the impact before bouncing back against</p>
 
 <p>Qingyi’s cock.</p>
 
 <p>She bit her lower lip, her eyes rolling back.</p>
 
-<p>So big… so thick… filling her until there wasn’t even a single</p>
-
-<p>centimeter left.</p>
+<p>So big… so thick… filling her until there wasn’t even a single centimeter left.</p>
 
 <p>She hated to admit that she loved it.</p>

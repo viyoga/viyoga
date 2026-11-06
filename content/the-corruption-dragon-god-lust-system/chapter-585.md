@@ -65,9 +65,7 @@ chapter = 585
 
 <p>For all his fathers- and mothers-in-law.</p>
 
-<p>They were all truly important to Qingyi, people whose loss would</p>
-
-<p>hurt him.</p>
+<p>They were all truly important to Qingyi, people whose loss would hurt him.</p>
 
 <p>“I’ll visit a few more people, and in a week I must prepare to overcome the celestial tribulation and ascend,” Qingyi said, opening the system shop and spending trillions of lust points to buy items in bulk. When he finished, all the items appeared in a small silver spatial ring.</p>
 
@@ -95,19 +93,13 @@ chapter = 585
 
 <p>“Thank you, son-in-law.” David finally opened his mouth, his words sincere despite his attempts to suppress his own feelings.</p>
 
-<p>He was a king who had ruled for centuries, but he was no match for</p>
-
-<p>Qingyi.</p>
+<p>He was a king who had ruled for centuries, but he was no match for Qingyi.</p>
 
 <p>“It’s nothing, father-in-law, hahaha.” Qingyi laughed. “I’m doing this for Isabel, and for myself, too.”</p>
 
 <p>In the end, David just laughed along with him.</p>
 
-<p>“And that other girl? Where is she?” David asked. “I don’t think our</p>
-
-<p>trade agreements will be worth much now that you’re leaving with</p>
-
-<p>her.”</p>
+<p>“And that other girl? Where is she?” David asked. “I don’t think our trade agreements will be worth much now that you’re leaving with her.”</p>
 
 <p>“Meilin? She’s at the Blazing Red Pavilion branch here in the kingdom; she should be coming over soon.” Qingyi replied.</p>
 
@@ -115,30 +107,20 @@ chapter = 585
 
 <p>“I see…” David sighed, standing up.</p>
 
-<p>“Let’s go! Since your time here is coming to an end, we must prepare</p>
+<p>“Let’s go! Since your time here is coming to an end, we must prepare a grand banquet! The people must witness the grace of the Lightning</p>
 
-<p>a grand banquet! The people must witness the grace of the Lightning</p>
+<p>Prince!” The king declared proudly, and together with his son-in-law, he returned to the palace, where they fetched their wives and headed straight for the capital.</p>
 
-<p>Prince!” The king declared proudly, and together with his son-in-law, he returned to the palace, where they fetched their wives and headed</p>
-
-<p>straight for the capital.</p>
-
-<p>There, the king announced a grand banquet that would involve the</p>
-
-<p>entire city.</p>
+<p>There, the king announced a grand banquet that would involve the entire city.</p>
 
 <p>The royal livestock reserves were emptied, tens of thousands of butchers summoned to the streets of the royal capital, where they would serve barbecue to the entire population.</p>
 
-<p>Such preparations were made in record time, and even though it cost</p>
-
-<p>a fortune, David didn’t care.</p>
+<p>Such preparations were made in record time, and even though it cost a fortune, David didn’t care.</p>
 
 <p>This could be the last time he saw Qingyi and his daughter.</p>
 
 <p>No amount of money would be worth that.</p>
 
-<p>And so, the royal capital celebrated for days on end, the people</p>
-
-<p>chanting the name of the Lightning Prince as they drank and ate a hearty barbecue.</p>
+<p>And so, the royal capital celebrated for days on end, the people chanting the name of the Lightning Prince as they drank and ate a hearty barbecue.</p>
 
 <p>After all, what better way to please a weary people than with good food, good music, and good beer?</p>

@@ -77,15 +77,9 @@ chapter = 584
 
 <p>*Clap*</p>
 
-<p>A slap echoed as the enormous mountains of flesh struck her torso, a violent ripple overtaking the vast orbs and a jet of milk escaping from</p>
+<p>A slap echoed as the enormous mountains of flesh struck her torso, a violent ripple overtaking the vast orbs and a jet of milk escaping from her pink nipples.</p>
 
-<p>her pink nipples.</p>
-
-<p>“Aghnn~~ fuck~~ this huge thing is going to nghnn~~ tear me in</p>
-
-<p>half” Auranys’ eyes rolled back, filled with pleasure, her tongue</p>
-
-<p>slipping from her lips in an obscene expression.</p>
+<p>“Aghnn~~ fuck~~ this huge thing is going to nghnn~~ tear me in half” Auranys’ eyes rolled back, filled with pleasure, her tongue slipping from her lips in an obscene expression.</p>
 
 <p>With a firm grip on her ass, Qingyi pulled back and then thrust it all the way in again, reveling in every moan from the goddess.</p>
 
@@ -95,37 +89,23 @@ chapter = 584
 
 <p>He was infinitely close to his orgasm, and so was Auranys, having already completely lost control of the moans escaping her lips.</p>
 
-<p>With one final thrust, Qingyi pushed all the way in, feeling the orgasm</p>
+<p>With one final thrust, Qingyi pushed all the way in, feeling the orgasm hit Auranys hard.</p>
 
-<p>hit Auranys hard.</p>
-
-<p>She shuddered and then squirted nonstop, feeling the cock pulsing inside her before he too came, a thick stream of cum flooding her</p>
-
-<p>womb.</p>
+<p>She shuddered and then squirted nonstop, feeling the cock pulsing inside her before he too came, a thick stream of cum flooding her womb.</p>
 
 <p>“Ah…” Qingyi relaxed before pulling back, his cock slipping out of the tight grip of that perfect pussy with a soft pop.</p>
 
-<p>“Nghnn~~ Qingyi…” Auranys placed her hand on her own cum-filled</p>
+<p>“Nghnn~~ Qingyi…” Auranys placed her hand on her own cum-filled womb.</p>
 
-<p>womb.</p>
+<p>“Look what you’ve done to me…” She gasped and, with some difficulty, rolled onto her back on the bed.</p>
 
-<p>“Look what you’ve done to me…” She gasped and, with some</p>
-
-<p>difficulty, rolled onto her back on the bed.</p>
-
-<p>Her hands went to her own breasts, huge and heavy, the milky,</p>
-
-<p>creamy skin covered in sweat.</p>
+<p>Her hands went to her own breasts, huge and heavy, the milky, creamy skin covered in sweat.</p>
 
 <p>She squeezed, a stream of milk trickling down her pale skin.</p>
 
-<p>Just below, her pussy leaked cum nonstop, staining the white fabric of</p>
+<p>Just below, her pussy leaked cum nonstop, staining the white fabric of the bed.</p>
 
-<p>the bed.</p>
-
-<p>“What? Didn’t you like it?” Qingyi chuckled, leaning over her, his</p>
-
-<p>tongue running over the huge, heavy orbs of those perfect breasts.</p>
+<p>“What? Didn’t you like it?” Qingyi chuckled, leaning over her, his tongue running over the huge, heavy orbs of those perfect breasts.</p>
 
 <p>He savored her milk before moving up to her lips, kissing her.</p>
 
@@ -135,29 +115,21 @@ chapter = 584
 
 <p>Qingyi just laughed at the sight, giving her butt a gentle pat before lifting her onto his lap.</p>
 
-<p>As he massaged her buttocks, his eyes drifted up to his own status</p>
-
-<p>screen.</p>
+<p>As he massaged her buttocks, his eyes drifted up to his own status screen.</p>
 
 <p>[Name: Long Qingyi</p>
 
 <p>Age: 22</p>
 
-<p>Cultivation: Third Stage of the Astral Body Realm (??? lust points to</p>
-
-<p>upgrade) Mana Manipulation: Eleventh Ring (??? lust points to upgrade) Affinities: Lightning: 6000 – Sword: 6000 – Fire: 6000 – Ice: 6000 –</p>
+<p>Cultivation: Third Stage of the Astral Body Realm (??? lust points to upgrade) Mana Manipulation: Eleventh Ring (??? lust points to upgrade) Affinities: Lightning: 6000 – Sword: 6000 – Fire: 6000 – Ice: 6000 –</p>
 
 <p>Space: 6000 Light: 6000 – Shadow: 6000 – Charm: 6000 (can be upgraded in the lust store)</p>
 
-<p>Spiritual roots: Astral-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice, space, light, shadow) (??? lust points to</p>
-
-<p>upgrade).</p>
+<p>Spiritual roots: Astral-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice, space, light, shadow) (??? lust points to upgrade).</p>
 
 <p>Spiritual roots2: None/Astral-level Primordial Creation Seed Mana Heart (??? lust points to upgrade).</p>
 
-<p>Lineage: Blood of the Corruption Dragon God (Astral grade, ??? lust</p>
-
-<p>points to upgrade.)</p>
+<p>Lineage: Blood of the Corruption Dragon God (Astral grade, ??? lust points to upgrade.)</p>
 
 <p>Constitution: Primordial Dragon Body (Astral grade, ??? lust points to upgrade.)</p>
 
@@ -165,9 +137,7 @@ chapter = 584
 
 <p>Simply, five thousand trillion…</p>
 
-<p>With such wealth alone, he would likely be more than capable of</p>
-
-<p>buying an entire empire like that of the Enlightened Sky Empire, with enough pills to create an army of experts from the Astral Body Realm.</p>
+<p>With such wealth alone, he would likely be more than capable of buying an entire empire like that of the Enlightened Sky Empire, with enough pills to create an army of experts from the Astral Body Realm.</p>
 
 <p>But none of that interested him.</p>
 
@@ -175,52 +145,34 @@ chapter = 584
 
 <p>Tomorrow would be a big day.</p>
 
-<p>He would visit the loved ones he still had in his lands one last time,</p>
+<p>He would visit the loved ones he still had in his lands one last time, and then, finally, it would be time to transcend. “Wait for me, filthy demon.” Qingyi flashed a big smile.</p>
 
-<p>and then, finally, it would be time to transcend. “Wait for me, filthy demon.” Qingyi flashed a big smile.</p>
-
-<p>The day he would kill the Heavenly Demon once and for all was</p>
-
-<p>coming.</p>
+<p>The day he would kill the Heavenly Demon once and for all was coming.</p>
 
 <p>***</p>
 
-<p>At a distance Qingyi couldn’t even fathom, a figure with long horns</p>
+<p>At a distance Qingyi couldn’t even fathom, a figure with long horns and a noble, arrogant face brushed against his ear, feeling it get hot. “Hm… some bastard is badmouthing me…” He clenched his teeth, his face contorting with rage.</p>
 
-<p>and a noble, arrogant face brushed against his ear, feeling it get hot. “Hm… some bastard is badmouthing me…” He clenched his teeth, his face contorting with rage.</p>
-
-<p>[I’m sorry, but today we’ll only have one chapter. I had to clean up around the house and I’m preparing for the mass release of the new book, as well as setting up the celestial realm. (Realms, factions, new</p>
-
-<p>heroines, hehehe).</p>
+<p>[I’m sorry, but today we’ll only have one chapter. I had to clean up around the house and I’m preparing for the mass release of the new book, as well as setting up the celestial realm. (Realms, factions, new heroines, hehehe).</p>
 
 <p>Anyway, I’m really sorry. Tomorrow we’ll be back to our normal release schedule.]</p>
 
-<p>[The end of this chapter came out glitchy, I was in a hurry to post it</p>
-
-<p>and forgot to fix it. I’ll ask my editor to fix it soon.]</p>
+<p>[The end of this chapter came out glitchy, I was in a hurry to post it and forgot to fix it. I’ll ask my editor to fix it soon.]</p>
 
 <p>[Name: Long Qingyi Age: 22</p>
 
-<p>Cultivation: Third Stage of the Astral Body Realm (??? lust points to</p>
-
-<p>upgrade) Mana Manipulation: Eleventh Ring (??? lust points to upgrade) Affinities: Lightning: 6000 – Sword: 6000 – Fire: 6000 – Ice: 6000 –</p>
+<p>Cultivation: Third Stage of the Astral Body Realm (??? lust points to upgrade) Mana Manipulation: Eleventh Ring (??? lust points to upgrade) Affinities: Lightning: 6000 – Sword: 6000 – Fire: 6000 – Ice: 6000 –</p>
 
 <p>Space: 6000 Light: 6000 – Shadow: 6000 – Charm: 6000 (can be upgraded in the lust store)</p>
 
 <p>Spiritual roots: Astral-level Primordial Creation Seed spirit root</p>
 
-<p>(Lightning, sword, fire, ice, space, light, shadow) (??? lust points to</p>
-
-<p>upgrade).</p>
+<p>(Lightning, sword, fire, ice, space, light, shadow) (??? lust points to upgrade).</p>
 
 <p>Spiritual roots2: None/Astral-level Primordial Creation Seed Mana Heart (??? lust points to upgrade).</p>
 
-<p>Lineage: Blood of the Corruption Dragon God (Astral grade, ??? lust</p>
+<p>Lineage: Blood of the Corruption Dragon God (Astral grade, ??? lust points to upgrade.)</p>
 
-<p>points to upgrade.)</p>
-
-<p>Constitution: Primordial Dragon Body (Astral grade, ??? lust points to</p>
-
-<p>upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Astral grade, ??? lust points to upgrade.)</p>
 
 <p>Lust points: 5,123,195T]</p>

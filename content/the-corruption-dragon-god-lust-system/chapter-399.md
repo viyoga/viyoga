@@ -79,33 +79,23 @@ chapter = 399
 
 <p>“Satisfied?” he asked, depositing a kiss on her lips.</p>
 
-<p>“Hm-mm.” Meilin replied with a cute, high-pitched nasal sound,</p>
-
-<p>turning her flushed face away.</p>
+<p>“Hm-mm.” Meilin replied with a cute, high-pitched nasal sound, turning her flushed face away.</p>
 
 <p>Taking one last look at her little brother who was now crying on the ground, being comforted by his whale-wife, she simply followed</p>
 
 <p>Qingyi to his flying ship.</p>
 
-<p>There was nothing left for her there, nothing but the fortune the king</p>
+<p>There was nothing left for her there, nothing but the fortune the king owed her, obviously.</p>
 
-<p>owed her, obviously.</p>
+<p>Qingyi landed on a small side opening, reaching out his hand and pulling Meilin into his embrace before the opening closed behind them.</p>
 
-<p>Qingyi landed on a small side opening, reaching out his hand and pulling Meilin into his embrace before the opening closed behind</p>
-
-<p>them.</p>
-
-<p>His hands wrapped around her slim, delicate waist, going straight to her buttocks, hitting the plump, perfectly round cheeks of her ass</p>
-
-<p>with a thud.</p>
+<p>His hands wrapped around her slim, delicate waist, going straight to her buttocks, hitting the plump, perfectly round cheeks of her ass with a thud.</p>
 
 <p>“Nghnn~~ G-gentler, husband…” Meilin moaned, clinging to Qingyi’s robes, her noble and delicate face flushed a vibrant red.</p>
 
 <p>“You didn’t seem very interested in your gentle husband last night…</p>
 
-<p>Qingyi chuckled, massaging Meilin’s ass. His fingers slid under her dress, squeezing and pinching, feeling every inch of her soft porcelain</p>
-
-<p>skin.</p>
+<p>Qingyi chuckled, massaging Meilin’s ass. His fingers slid under her dress, squeezing and pinching, feeling every inch of her soft porcelain skin.</p>
 
 <p>“So… which husband do you want now? The gentle one or the ruthless one?” Qingyi asked provocatively.</p>
 

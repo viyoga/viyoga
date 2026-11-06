@@ -7,9 +7,7 @@ chapter = 680
 
 <p>Long Qingyi walked calmly through the gardens of the Cosmic Void Sect.</p>
 
-<p>With Rou’er under the elder’s escort, he was free to move about the sect without restraints, something he greatly appreciated at that</p>
-
-<p>moment.</p>
+<p>With Rou’er under the elder’s escort, he was free to move about the sect without restraints, something he greatly appreciated at that moment.</p>
 
 <p>Majestic pavilions rose up around him, and a heavy sigh escaped his lips as he surveyed the landscape.</p>
 
@@ -53,11 +51,7 @@ chapter = 680
 
 <p>“Junior Long Qingyi greets the great elder!” He bowed slightly, clasping his fists in a sign of respect.</p>
 
-<p>“Ah… Great Elder, is it?” The elder let out a hearty laugh, gesturing for Qingyi to take a seat on the sofa in front of him. “I thought you’d call</p>
-
-<p>23:56 –</p>
-
-<p>me father-in-law, since black dragons are notoriously pretentious. I just wonder what you did to win my daughter over like that.”</p>
+<p>“Ah… Great Elder, is it?” The elder let out a hearty laugh, gesturing for Qingyi to take a seat on the sofa in front of him. “I thought you’d call me father-in-law, since black dragons are notoriously pretentious. I just wonder what you did to win my daughter over like that.”</p>
 
 <p>“It was more Rou’er than me, great elder.” Qingyi smiled as he settled into the couch. “That girl knows exactly how to praise her big brother.”</p>
 
@@ -79,31 +73,21 @@ chapter = 680
 
 <p>His eyes surveyed the sect that stretched out before him, the very one he had helped raise to its current level, at the height of its existence, reaching heights that didn’t even exist in the times when his ancestor lived.</p>
 
-<p>“If you wish to marry her, you will have all the support I can offer, and I believe her mother, should she ever come to visit us, will do the same.” The great elder turned to Qingyi with a serene expression. “She is in the room upstairs, but she will not accompany you to the</p>
-
-<p>Cosmic Dawn Sect. She still needs to establish the foundation of her soul, and only our sect possesses the proper training to handle a soul as powerful as hers.”</p>
+<p>“If you wish to marry her, you will have all the support I can offer, and I believe her mother, should she ever come to visit us, will do the same.” The great elder turned to Qingyi with a serene expression. “She is in the room upstairs, but she will not accompany you to the Cosmic Dawn Sect. She still needs to establish the foundation of her soul, and only our sect possesses the proper training to handle a soul as powerful as hers.”</p>
 
 <p>There was sincere pain in the old man’s voice.</p>
 
 <p>It was only natural, after all.</p>
 
-<p>He had made a mistake in the past, and now his beloved daughter</p>
+<p>He had made a mistake in the past, and now his beloved daughter would end up leaving him for good.</p>
 
-<p>would end up leaving him for good.</p>
-
-<p>Xue Hua herself had made it clear that she intended to follow Qingyi</p>
-
-<p>and leave the Cosmic Void Sect behind.</p>
+<p>Xue Hua herself had made it clear that she intended to follow Qingyi and leave the Cosmic Void Sect behind.</p>
 
 <p>Well, what else could he do but support her?</p>
 
-<p>He had already lived for over a hundred thousand years, while his</p>
+<p>He had already lived for over a hundred thousand years, while his daughter was barely past twenty.</p>
 
-<p>daughter was barely past twenty.</p>
-
-<p>It was up to him to give her time to travel and learn, whether on her</p>
-
-<p>own or alongside the man she loved.</p>
+<p>It was up to him to give her time to travel and learn, whether on her own or alongside the man she loved.</p>
 
 <p>Noticing Qingyi’s gaze as he made his way to the upper floor, the elder merely sighed and let a resigned smile escape.</p>
 
@@ -111,24 +95,16 @@ chapter = 680
 
 <p>Ignoring the old man, Qingyi quickened his pace, letting himself be guided by Xue Hua’s gentle aura to her room.</p>
 
-<p>As he opened the door, a smile spread across his lips at the sight</p>
-
-<p>before him. Xue Hua was lying on the bed with a pensive gaze lost on the ceiling, her full breasts exposed to the air, her body covered by nothing but elegant black lingerie that contrasted beautifully with her</p>
-
-<p>pale skin.</p>
+<p>As he opened the door, a smile spread across his lips at the sight before him. Xue Hua was lying on the bed with a pensive gaze lost on the ceiling, her full breasts exposed to the air, her body covered by nothing but elegant black lingerie that contrasted beautifully with her pale skin.</p>
 
 <p>“Uh?” She turned her face toward him, sensing his approach.</p>
 
-<p>“Is it time for you to leave?” she asked as Qingyi closed the door</p>
-
-<p>behind him.</p>
+<p>“Is it time for you to leave?” she asked as Qingyi closed the door behind him.</p>
 
 <p>“Yes…” He smiled, settling onto the bed beside her.</p>
 
 <p>One of his hands immediately slid down over her full breasts, squeezing firmly, his fingers almost able to close completely around the soft orbs, falling just a few centimeters short of the feat.</p>
 
-<p>He massaged the firm, supple flesh, feeling it yield deliciously under</p>
-
-<p>the pressure of his fingers, drawing a soft moan from Xue Hua’s lips as she arched her body slightly against his touch.</p>
+<p>He massaged the firm, supple flesh, feeling it yield deliciously under the pressure of his fingers, drawing a soft moan from Xue Hua’s lips as she arched her body slightly against his touch.</p>
 
 <p>He would be leaving soon, but there was still time for a quickie, right?</p>

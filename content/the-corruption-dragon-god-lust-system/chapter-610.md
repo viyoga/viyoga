@@ -27,9 +27,7 @@ chapter = 610
 
 <p>“The leader of the pigs has arrived…! Qingyi took on a serious expression, assuming a defensive stance.</p>
 
-<p>“Han Zhentian… the divine fist! To what do I owe the visit of my old battle brother? Hahaha!” A maddened cackle echoed, followed by a powerful and repulsive Qi, clearly stemming from unorthodox arts</p>
-
-<p>and perhaps even human sacrifices.</p>
+<p>“Han Zhentian… the divine fist! To what do I owe the visit of my old battle brother? Hahaha!” A maddened cackle echoed, followed by a powerful and repulsive Qi, clearly stemming from unorthodox arts and perhaps even human sacrifices.</p>
 
 <p>“Don’t call me brother, you bastard son of a bitch!” Zhentian roared back, clenching his fists. “If I’d been in the sect back then, I would’ve personally castrated you and crippled you for what you did to our junior sister!”</p>
 
@@ -49,9 +47,7 @@ chapter = 610
 
 <p>He was expelled from the sect and was only spared castration and execution because one of his uncles was an instructor and begged an elder for mercy.</p>
 
-<p>Obviously, that mercy only lasted until Fan decided to throw it away</p>
-
-<p>as well.</p>
+<p>Obviously, that mercy only lasted until Fan decided to throw it away as well.</p>
 
 <p>Instead of using his cultivation and powerful lineage to live a peaceful life and forge his own path, he gave himself over to crime and debauchery.</p>
 
@@ -61,23 +57,15 @@ chapter = 610
 
 <p>Behind him, a tiger of steel and blood materialized, its bloodline projection roaring at Zhentian’s, a golden tiger.</p>
 
-<p>“Don’t lose focus, keep up the slaughter!” Zhentian roared before charging forward, three distinct strands of Qi trailing from his right fist, forging themselves into divine serpents with fangs sharp as</p>
-
-<p>thorns.</p>
+<p>“Don’t lose focus, keep up the slaughter!” Zhentian roared before charging forward, three distinct strands of Qi trailing from his right fist, forging themselves into divine serpents with fangs sharp as thorns.</p>
 
 <p>Fan’s blood-red Qi and Zhentian’s golden Qi collided, fist and halberd clashing in a thunderous explosion.</p>
 
-<p>It was as if the asteroid were about to collapse under the power of the two, the formations maintaining a thin atmosphere around the</p>
-
-<p>fortress trembling.</p>
+<p>It was as if the asteroid were about to collapse under the power of the two, the formations maintaining a thin atmosphere around the fortress trembling.</p>
 
 <p>“You’ve improved!” Fan roared, pushing Zhentian back and creating space between them.</p>
 
-<p>“You haven’t. Your cultivation has grown, but your strength is as pitiful as your honor!” Zhentian didn’t let the fattie recover, quickly</p>
-
-<p>lunging forward once more, landing a second blow on Fan’s halberd, sending him flying backward like a cannonball, striking a small hill and</p>
-
-<p>reducing it to dust.</p>
+<p>“You haven’t. Your cultivation has grown, but your strength is as pitiful as your honor!” Zhentian didn’t let the fattie recover, quickly lunging forward once more, landing a second blow on Fan’s halberd, sending him flying backward like a cannonball, striking a small hill and reducing it to dust.</p>
 
 <p>Increasing one’s cultivation based on unorthodox arts didn’t necessarily make a cultivator weak.</p>
 
@@ -85,15 +73,11 @@ chapter = 610
 
 <p>But the problem was that they often became dependent on these arts.</p>
 
-<p>When this turned into an addiction and the cultivator lost control,</p>
-
-<p>they became weak.</p>
+<p>When this turned into an addiction and the cultivator lost control, they became weak.</p>
 
 <p>“Brother Zhentian-” Fan stood up, growling with rage.</p>
 
-<p>“Don’t call me brother, you filthy pig!” Zhentian appeared above him,</p>
-
-<p>punching again.</p>
+<p>“Don’t call me brother, you filthy pig!” Zhentian appeared above him, punching again.</p>
 
 <p>This time, Fan couldn’t raise his weapon in time, and the punch landed directly on his face.</p>
 
@@ -103,9 +87,7 @@ chapter = 610
 
 <p>“Never again utter my name with that filthy mouth of yours.”</p>
 
-<p>Qingyi turned his face just in time to see a golden explosion engulf the horizon, a terrifying Qi descending upon the pirates who were</p>
-
-<p>still alive.</p>
+<p>Qingyi turned his face just in time to see a golden explosion engulf the horizon, a terrifying Qi descending upon the pirates who were still alive.</p>
 
 <p>Many tried to flee, running toward the ships docked at the fortress’s shipyards.</p>
 
@@ -113,9 +95,7 @@ chapter = 610
 
 <p>He pointed a single finger toward the ships that were taking off in a hurry, their Qi shields still off.</p>
 
-<p>A smile spread across his face as he launched all the ethereal swords</p>
-
-<p>at once.</p>
+<p>A smile spread across his face as he launched all the ethereal swords at once.</p>
 
 <p>Impressed gasps echoed beside him, everyone focused on the swords that broke the speed of sound in a single moment, piercing the ships’ armor and striking the engines, explosions of Qi engulfing everything. Soon, ten ships crashed to the ground, the pirates screaming in pain and despair as they were swallowed by the explosions of the Qi batteries and engines that powered it.</p>
 
@@ -127,8 +107,6 @@ chapter = 610
 
 <p>Zhentian might be the most powerful of the group, but the disciples who watched the battle saw it clearly.</p>
 
-<p>On his own, Qingyi had easily killed thirty percent of the pirates</p>
-
-<p>there.</p>
+<p>On his own, Qingyi had easily killed thirty percent of the pirates there.</p>
 
 <p>With over ten thousand pirates killed and only three disciples fallen, that battle had been a huge victory.</p>

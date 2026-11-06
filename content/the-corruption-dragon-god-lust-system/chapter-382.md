@@ -7,11 +7,7 @@ chapter = 382
 
 <p>Qianyao shyly closed her beautiful golden eyes.</p>
 
-<p>Qingyi was the first man to see her naked body, the first man to touch</p>
-
-<p>her, the one who stole her first kiss, and now, he would take</p>
-
-<p>everything else from her.</p>
+<p>Qingyi was the first man to see her naked body, the first man to touch her, the one who stole her first kiss, and now, he would take everything else from her.</p>
 
 <p>She opened her eyes again, just a little, keeping them slightly half-closed.</p>
 
@@ -33,9 +29,7 @@ chapter = 382
 
 <p>Would that huge thing truly fit inside her?</p>
 
-<p>To Qianyao’s surprise, Qingyi did not thrust his cock into her</p>
-
-<p>immediately, agilely changing his position.</p>
+<p>To Qianyao’s surprise, Qingyi did not thrust his cock into her immediately, agilely changing his position.</p>
 
 <p>He grabbed her breasts with both hands, squeezing them together and using the love juices that leaked from her pussy as lubricant as he thrust his cock into that deep, tight valley.</p>
 
@@ -59,65 +53,43 @@ chapter = 382
 
 <p>The ripples calmed down for a brief moment, only for the next impact to come.</p>
 
-<p>“Nghnn~~ oghnn~~ aghnn~~ aren’t you ashamed? Oghnn~~ using the</p>
-
-<p>only daughter of the dragon people’s patriarch like this? Oghnn~~” Qianyao asked between broken moans, her breasts dominated by nothing but the rapid, violent impacts of Qingyi’s hips.</p>
+<p>“Nghnn~~ oghnn~~ aghnn~~ aren’t you ashamed? Oghnn~~ using the only daughter of the dragon people’s patriarch like this? Oghnn~~” Qianyao asked between broken moans, her breasts dominated by nothing but the rapid, violent impacts of Qingyi’s hips.</p>
 
 <p>Qingyi just laughed at those words, feeling his cock reach its absolute limit, the tightness of Qianyao’s breasts milking him with no less vigor than a virgin, tight pussy.</p>
 
-<p>Well, shame was certainly not something his wives remembered him</p>
-
-<p>for.</p>
+<p>Well, shame was certainly not something his wives remembered him for.</p>
 
 <p>But did it matter?</p>
 
 <p>He loved his wives and worked for nothing more than their happiness. That’s all a man should be.</p>
 
-<p>“Open your mouth,” Qingyi ordered, and without even realizing it, Qianyao obeyed, her lips parting to reveal pearly teeth and a small,</p>
-
-<p>pink, perfect tongue.</p>
+<p>“Open your mouth,” Qingyi ordered, and without even realizing it, Qianyao obeyed, her lips parting to reveal pearly teeth and a small, pink, perfect tongue.</p>
 
 <p>In the next moment, Qingyi shoved his hips forward, his cock plunging into Qianyao’s lips, and then came.</p>
 
 <p>Qianyao’s eyes widened as she felt Qingyi’s penis throb in her mouth, shuddering violently before releasing, spurting thick strands of cum into her tongue and throat.</p>
 
-<p>Her lips instinctively closed around the member, her cheeks puffing out, her throat unable to handle the entire volume while the tight seal</p>
-
-<p>of her lips prevented it from leaking out.</p>
+<p>Her lips instinctively closed around the member, her cheeks puffing out, her throat unable to handle the entire volume while the tight seal of her lips prevented it from leaking out.</p>
 
 <p>“Gulp… Gulp… Gulp… gulk~~” The sounds of Qianyao’s ravenous swallows were punctuated by soft chokes, her eyes becoming fiery with desire, one last gulp sliding down her throat.</p>
 
-<p>“Ah…” Qingyi exhaled, feeling a little resistance as he pulled his cock from Qianyao’s lips, finally freeing up space for her gasping breath. “Nghnn~~ you… I…” Qianyao searched for words in her mind, her beautiful golden eyes narrowed, her face as red as a tomato. She found no words, no desire to resist, even the urge for it to just</p>
-
-<p>end quickly had been swept from her body.</p>
+<p>“Ah…” Qingyi exhaled, feeling a little resistance as he pulled his cock from Qianyao’s lips, finally freeing up space for her gasping breath. “Nghnn~~ you… I…” Qianyao searched for words in her mind, her beautiful golden eyes narrowed, her face as red as a tomato. She found no words, no desire to resist, even the urge for it to just end quickly had been swept from her body.</p>
 
 <p>She just… wanted more.</p>
 
-<p>She wanted more of Qingyi’s embrace, she wanted more of that</p>
-
-<p>strange comfort his touch brought.</p>
+<p>She wanted more of Qingyi’s embrace, she wanted more of that strange comfort his touch brought.</p>
 
 <p>She wanted all of him, just as he wanted all of her.</p>
 
-<p>Qingyi’s eyes widened in surprise as Qianyao grabbed his chest and</p>
+<p>Qingyi’s eyes widened in surprise as Qianyao grabbed his chest and then pushed him back, immediately straddling his lap, the fat mound of her vulva aligned with his cock.</p>
 
-<p>then pushed him back, immediately straddling his lap, the fat mound of her vulva aligned with his cock.</p>
+<p>“You… shameless husband…” She finally spoke. “You’re going to take responsibility, right?”</p>
 
-<p>“You… shameless husband…” She finally spoke. “You’re going to take</p>
+<p>“Yes, I will.” Qingyi smiled, grabbing Qianyao’s hips, watching that cute, embarrassed expression on the face of that transcendent beauty.</p>
 
-<p>responsibility, right?”</p>
+<p>His hands flowed to her face, brushing away a strand of silver hair, his eyes flowing to his status screen.</p>
 
-<p>“Yes, I will.” Qingyi smiled, grabbing Qianyao’s hips, watching that cute, embarrassed expression on the face of that transcendent</p>
-
-<p>beauty.</p>
-
-<p>His hands flowed to her face, brushing away a strand of silver hair, his</p>
-
-<p>eyes flowing to his status screen.</p>
-
-<p>He had only fucked her tits, but the gains had already been</p>
-
-<p>tremendous.</p>
+<p>He had only fucked her tits, but the gains had already been tremendous.</p>
 
 <p>[Name: Long Qingyi</p>
 
@@ -133,8 +105,6 @@ chapter = 382
 
 <p>Lineage: Blood of the Corruption Dragon God (Earth grade, 100,000,000,000 lust points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Earth grade, 100,000,000,000</p>
-
-<p>lust points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Earth grade, 100,000,000,000 lust points to upgrade.)</p>
 
 <p>Lust points: 49,122,759,241]</p>

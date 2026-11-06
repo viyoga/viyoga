@@ -27,9 +27,7 @@ chapter = 412
 
 <p>“Ahn~~ Husband is already so hard…” Isabel stuck out her small, pink tongue, running it the length of Qingyi’s cock to the reddish glans.</p>
 
-<p>“What kind of terrible wife would I be if I didn’t let you start your day like this?” She teased before opening her mouth, sealing her lips</p>
-
-<p>around the reddish tip of Qingyi’s cock.</p>
+<p>“What kind of terrible wife would I be if I didn’t let you start your day like this?” She teased before opening her mouth, sealing her lips around the reddish tip of Qingyi’s cock.</p>
 
 <p>Slowly, she swallowed. Her jaw opened wider and her cheeks sank in as she sucked, the tip of Qingyi’s cock reaching the depths of her throat before beginning to descend.</p>
 
@@ -67,9 +65,7 @@ chapter = 412
 
 <p>Ruxue herself did not miss out on the fun.</p>
 
-<p>She sat on Qingyi’s face, feeling his hands grab her fat bubble-butt, giving it a slap and feeling the pale, round orbs of flesh being taken</p>
-
-<p>over by a violent undulation.</p>
+<p>She sat on Qingyi’s face, feeling his hands grab her fat bubble-butt, giving it a slap and feeling the pale, round orbs of flesh being taken over by a violent undulation.</p>
 
 <p>Ruxue leaned forward, her breasts pressing against Qingyi’s sculpted abdomen, her tongue running along the length of his cock that wasn’t taken by Isabel’s lips.</p>
 
@@ -77,60 +73,32 @@ chapter = 412
 
 <p>“Gulp~~ nghnn~~” Ruxue swallowed, her plump purple lips closing, covered with Qingyi’s pearly seed.</p>
 
-<p>Without even paying attention to that, she just swallowed Qingyi’s cock, her high cheeks sinking with suction as her tongue wrapped</p>
+<p>Without even paying attention to that, she just swallowed Qingyi’s cock, her high cheeks sinking with suction as her tongue wrapped around the reddish glans.</p>
 
-<p>around the reddish glans.</p>
+<p>When she was finally done, she left Qingyi’s lap, lining up with Isabel. The two opened their mouths at the same time, revealing their soft, cute tongues.</p>
 
-<p>When she was finally done, she left Qingyi’s lap, lining up with Isabel. The two opened their mouths at the same time, revealing their soft,</p>
+<p>“Thanks for the meal, hubby!” They said in unison, eliciting a smile from Qingyi.</p>
 
-<p>cute tongues.</p>
+<p>“Good girls…” He squeezed their breasts, feeling them tremble under his touch.</p>
 
-<p>“Thanks for the meal, hubby!” They said in unison, eliciting a smile</p>
-
-<p>from Qingyi.</p>
-
-<p>“Good girls…” He squeezed their breasts, feeling them tremble under</p>
-
-<p>his touch.</p>
-
-<p>He pulled them into his embrace and buried his face between their</p>
-
-<p>huge breasts, planting loving kisses on their nipples and drawing</p>
-
-<p>sweet, resounding laughter from them.</p>
+<p>He pulled them into his embrace and buried his face between their huge breasts, planting loving kisses on their nipples and drawing sweet, resounding laughter from them.</p>
 
 <p>He also wanted to give those fat, tight pussies a good pounding, but unfortunately, he didn’t have time.</p>
 
 <p>There were still many pigs to kill in the capital.</p>
 
-<p>Although David had recovered well, he still couldn’t use mana and</p>
+<p>Although David had recovered well, he still couldn’t use mana and needed to worry about bigger issues in the kingdom.</p>
 
-<p>needed to worry about bigger issues in the kingdom.</p>
-
-<p>Sofia could also take care of something like this, but she simply didn’t</p>
-
-<p>have the heart.</p>
+<p>Sofia could also take care of something like this, but she simply didn’t have the heart.</p>
 
 <p>The moment those damn corrupt pigs started begging for mercy, she would be unable to kill them.</p>
 
-<p>With a sigh, Qingyi got up, reluctantly leaving the weight and softness</p>
+<p>With a sigh, Qingyi got up, reluctantly leaving the weight and softness of those two huge pairs of tits behind to get dressed.</p>
 
-<p>of those two huge pairs of tits behind to get dressed.</p>
+<p>The capital was sealed off, and many of those who would die knew full well that they were on David’s list.</p>
 
-<p>The capital was sealed off, and many of those who would die knew</p>
-
-<p>full well that they were on David’s list.</p>
-
-<p>Naturally, they weren’t just going to wait patiently for death, so</p>
-
-<p>Qingyi didn’t expect to be as bored as he was the last time he purged</p>
-
-<p>those bastards.</p>
+<p>Naturally, they weren’t just going to wait patiently for death, so Qingyi didn’t expect to be as bored as he was the last time he purged those bastards.</p>
 
 <p>He was excited about it. He didn’t want to just stand by and watch while his men did all the hard work.</p>
 
-<p>“I hope these bastards at least manage to prepare something decent</p>
-
-<p>to try to kill me,” Qingyi said, stretching before finally leaving his</p>
-
-<p>room.</p>
+<p>“I hope these bastards at least manage to prepare something decent to try to kill me,” Qingyi said, stretching before finally leaving his room.</p>

@@ -31,9 +31,7 @@ chapter = 500
 
 <p>Her entire body moved slightly to the side before slamming back against his cock with full force.</p>
 
-<p>Qingyi stuck a finger from his free hand into her mouth, while his</p>
-
-<p>other hand left the horn and moved to her ample breasts.</p>
+<p>Qingyi stuck a finger from his free hand into her mouth, while his other hand left the horn and moved to her ample breasts.</p>
 
 <p>He slowed the range of his movements but increased his speed, feeling Khaedryss’s pussy pulse around his cock harder than ever.</p>
 
@@ -43,9 +41,7 @@ chapter = 500
 
 <p>The handsome young man laughed and, with a little preparation, gave one final thrust.</p>
 
-<p>Qingyi’s hips sank into the fat flesh of that perfect ass, and</p>
-
-<p>Khaedryss’s lips parted in a moan that sounded more like a scream as another orgasm hit her.</p>
+<p>Qingyi’s hips sank into the fat flesh of that perfect ass, and Khaedryss’s lips parted in a moan that sounded more like a scream as another orgasm hit her.</p>
 
 <p>She could feel that Qingyi was about to cum too, but she soon noticed something.</p>
 
@@ -77,15 +73,11 @@ chapter = 500
 
 <p>Qingyi pulled Khaedryss into his arms, feeling her tits pressed against his chest.</p>
 
-<p>With a smooth movement, he used his special Qi and their bodies disappeared before reappearing next to the hot springs at the back of</p>
-
-<p>the temple.</p>
+<p>With a smooth movement, he used his special Qi and their bodies disappeared before reappearing next to the hot springs at the back of the temple.</p>
 
 <p>The place was lit by a few spirit crystals that painted the steaming water with a beautiful blue hue.</p>
 
-<p>Without waiting for Khaedryss’s response, Qingyi simply threw himself into the water with her still in his arms, the hot liquid</p>
-
-<p>engulfing their sweaty bodies.</p>
+<p>Without waiting for Khaedryss’s response, Qingyi simply threw himself into the water with her still in his arms, the hot liquid engulfing their sweaty bodies.</p>
 
 <p>“Hm… Not bad…” Khaedryss relaxed, sitting on Qingyi’s lap, his cock swallowed by the deep, soft valley of her shapely buttocks.</p>
 
@@ -107,46 +99,26 @@ chapter = 500
 
 <p>***</p>
 
-<p>Inside the temple, despite how late it was, many of the girls were</p>
-
-<p>awake.</p>
+<p>Inside the temple, despite how late it was, many of the girls were awake.</p>
 
 <p>“Hm… Is it over?”</p>
 
-<p>A sweet and serene voice echoed as beautiful green eyes opened, lips</p>
+<p>A sweet and serene voice echoed as beautiful green eyes opened, lips of poisonous beauty curving slightly.</p>
 
-<p>of poisonous beauty curving slightly.</p>
+<p>It was Tang Biyue, lying in her room. Her face was flushed as her breasts rose and fell with her heavy breathing.</p>
 
-<p>It was Tang Biyue, lying in her room. Her face was flushed as her</p>
+<p>“Hm… I think so, nyan… What was hubby doing? Fighting? Those tremors weren’t normal.” Linyue replied from the next room, cuddling with a voluptuous little fox.</p>
 
-<p>breasts rose and fell with her heavy breathing.</p>
-
-<p>“Hm… I think so, nyan… What was hubby doing? Fighting? Those</p>
-
-<p>tremors weren’t normal.” Linyue replied from the next room, cuddling</p>
-
-<p>with a voluptuous little fox.</p>
-
-<p>“Hm… That didn’t look like a fight…” Xueyao said, snuggling into the</p>
-
-<p>cat girl’s embrace.</p>
+<p>“Hm… That didn’t look like a fight…” Xueyao said, snuggling into the cat girl’s embrace.</p>
 
 <p>Their tits were pressed firmly against each other, while her fluffy white tail wagged excitedly.</p>
 
-<p>“Oh… Big sister Khaedryss has barely become a human woman and</p>
+<p>“Oh… Big sister Khaedryss has barely become a human woman and she’s already having fun with hubby. I just hope he can still walk tomorrow…</p>
 
-<p>she’s already having fun with hubby. I just hope he can still walk tomorrow…</p>
-
-<p>Another voice echoed from another room, eliciting laughter from</p>
-
-<p>Qingyi’s many</p>
-
-<p>wives.</p>
+<p>Another voice echoed from another room, eliciting laughter from Qingyi’s many wives.</p>
 
 <p>The fact that these rooms had such thin walls was both lucky and unlucky for them.</p>
 
-<p>[We’re already over five hundred chapters! Wow… Time flies, doesn’t</p>
-
-<p>it?</p>
+<p>[We’re already over five hundred chapters! Wow… Time flies, doesn’t it?</p>
 
 <p>Thank you very much to everyone who has accompanied me this far, and I hope you’ll be by my side when we finally reach chapter number one thousand!]</p>

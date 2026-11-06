@@ -77,39 +77,25 @@ chapter = 447
 
 <p>“You’re even hotter today, you know?” Qingyi said, licking the milk that dripped from that nipple, his tongue running the entire length of those perfect, huge, pale orbs.</p>
 
-<p>He pulled back, his other hand resting on Ruxue’s hips as his lips went to her free breast, enveloping the purple nipple and sucking</p>
-
-<p>voraciously.</p>
+<p>He pulled back, his other hand resting on Ruxue’s hips as his lips went to her free breast, enveloping the purple nipple and sucking voraciously.</p>
 
 <p>Ruxue could do little but moan and feel Qingyi’s touch, each little squeeze of his on her free breast causing a spurt of milk to fly.</p>
 
-<p>She couldn’t help but feel a little embarrassed as Celestia’s gaze fell on her, the priestess’s eyes shining as she swallowed Qingyi’s cock</p>
+<p>She couldn’t help but feel a little embarrassed as Celestia’s gaze fell on her, the priestess’s eyes shining as she swallowed Qingyi’s cock without stopping.</p>
 
-<p>without stopping.</p>
-
-<p>She really didn’t handle the role of naughty older sister that well, at</p>
-
-<p>least not as well as Feiyan.</p>
+<p>She really didn’t handle the role of naughty older sister that well, at least not as well as Feiyan.</p>
 
 <p>Celestia soon reached top speed, her throat milking Qingyi’s cock with more and more force, more intensity.</p>
 
-<p>She could feel it; something was coming. Something big, something</p>
+<p>She could feel it; something was coming. Something big, something powerful.</p>
 
-<p>powerful.</p>
-
-<p>“Back off a little, honey, don’t waste anything! Ruxue’s voice reached Celestia’s ears, and she pulled her head back, just enough for the</p>
-
-<p>head of Qingyi’s cock to remain on her lips.</p>
+<p>“Back off a little, honey, don’t waste anything! Ruxue’s voice reached Celestia’s ears, and she pulled her head back, just enough for the head of Qingyi’s cock to remain on her lips.</p>
 
 <p>The next moment, it finally came.</p>
 
-<p>Her eyes widened and her cheeks puffed out as the first burst of cum</p>
+<p>Her eyes widened and her cheeks puffed out as the first burst of cum filled her lips.</p>
 
-<p>filled her lips.</p>
-
-<p>It was a strong jet, reaching the roof of her mouth. The hot, viscous</p>
-
-<p>liquid ran down her tongue, barely giving her time to swallow before the second burst of cum reached her mouth.</p>
+<p>It was a strong jet, reaching the roof of her mouth. The hot, viscous liquid ran down her tongue, barely giving her time to swallow before the second burst of cum reached her mouth.</p>
 
 <p>“Gulp~~ gulp~~~gulp~~ mghnn~gulp~~”</p>
 
@@ -117,13 +103,9 @@ chapter = 447
 
 <p>Finally, she pulled back.</p>
 
-<p>No one instructed her to do anything, but almost instinctively, she</p>
+<p>No one instructed her to do anything, but almost instinctively, she did.</p>
 
-<p>did.</p>
-
-<p>Her lips parted and her eyes sparkled. Her tongue left her mouth, revealing that not even a single drop of Qingyi’s cum had been</p>
-
-<p>wasted.</p>
+<p>Her lips parted and her eyes sparkled. Her tongue left her mouth, revealing that not even a single drop of Qingyi’s cum had been wasted.</p>
 
 <p>“Thanks for the meal, hubby…”</p>
 
@@ -131,8 +113,6 @@ chapter = 447
 
 <p>Even though the holy priestess’s breasts were still not comparable to Ruxue’s, they were still large, the four huge mountains of flesh squeezing obscenely against Qingyi’s chest.</p>
 
-<p>He loved having those milkers swallowing his powerful chest in a sea</p>
-
-<p>of endless softness.</p>
+<p>He loved having those milkers swallowing his powerful chest in a sea of endless softness.</p>
 
 <p>“Good girl… how about meeting your other sisters now, huh?”</p>

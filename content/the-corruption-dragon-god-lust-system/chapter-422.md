@@ -25,9 +25,7 @@ chapter = 422
 
 <p>That ring had been chosen with love by his dear Isabel. That alone made it more valuable than any astral-grade item.</p>
 
-<p>In the end, high-grade items were cheap for Qingyi. His wives were</p>
-
-<p>not.</p>
+<p>In the end, high-grade items were cheap for Qingyi. His wives were not.</p>
 
 <p>The rest of the ceremony went smoothly.</p>
 
@@ -75,9 +73,7 @@ chapter = 422
 
 <p>With a smooth motion, he kissed her, entered the room, and used his Qi to close the door.</p>
 
-<p>Immediately, he threw Isabel onto the princess’s luxurious king-size</p>
-
-<p>bed.</p>
+<p>Immediately, he threw Isabel onto the princess’s luxurious king-size bed.</p>
 
 <p>She fell onto her back, her body bouncing on the soft mattress.</p>
 
@@ -89,25 +85,15 @@ chapter = 422
 
 <p>Then it went to her slender knees and finally her soft, thick thighs. His hands sank into her perfect skin, grabbing and massaging before finally lifting the dress up to Isabel’s wide waist.</p>
 
-<p>One of his hands went to her hips, his fingers sinking into her creamy</p>
-
-<p>skin.</p>
+<p>One of his hands went to her hips, his fingers sinking into her creamy skin.</p>
 
 <p>His other hand flowed down to her huge pair of tits, grabbing the neckline and pulling, freeing the mountains of dark, perfect flesh from their tight confinement.</p>
 
-<p>They undulated like a violent, heavy sea, squeezed together by Isabel’s delicate arms pressed against the sides, her forearm sinking</p>
+<p>They undulated like a violent, heavy sea, squeezed together by Isabel’s delicate arms pressed against the sides, her forearm sinking into the vast flesh.</p>
 
-<p>into the vast flesh.</p>
+<p>Qingyi couldn’t help but salivate as he positioned himself between Isabel’s thighs.</p>
 
-<p>Qingyi couldn’t help but salivate as he positioned himself between</p>
-
-<p>Isabel’s thighs.</p>
-
-<p>His huge cock escaped its confinement and the ten-inch rod hit Isabel’s pussy with a soft, wet smack, the reddish tip sinking into her</p>
-
-<p>panties, pressing against the puffy, plump mound of her vulva. “Nghnn~~ hubby…” Isabel moaned, feeling the weight of Qingyi’s cock,</p>
-
-<p>her lips parting in heavy gasps.</p>
+<p>His huge cock escaped its confinement and the ten-inch rod hit Isabel’s pussy with a soft, wet smack, the reddish tip sinking into her panties, pressing against the puffy, plump mound of her vulva. “Nghnn~~ hubby…” Isabel moaned, feeling the weight of Qingyi’s cock, her lips parting in heavy gasps.</p>
 
 <p>She was already very close to her limit.</p>
 
@@ -117,28 +103,20 @@ chapter = 422
 
 <p>Age: 21</p>
 
-<p>Cultivation: First Stage Of The True Immortal Realm (5T lust points to</p>
-
-<p>upgrade)</p>
+<p>Cultivation: First Stage Of The True Immortal Realm (5T lust points to upgrade)</p>
 
 <p>Affinities: Lightning: 1500 – Sword: 1000 – Fire: 1500 – Ice: 1500 – Charm: 1500 (can be upgraded in the lust store)</p>
 
 <p>Spiritual roots: Immortal-level Primordial Creation Seed spirit root</p>
 
-<p>(Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can</p>
-
-<p>be bought in the lust store).</p>
+<p>(Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can be bought in the lust store).</p>
 
 <p>Lineage: Blood of the Corruption Dragon God (Transcendental grade,</p>
 
 <p>10T lust points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Transcendental grade, 10T lust</p>
-
-<p>points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Transcendental grade, 10T lust points to upgrade.)</p>
 
 <p>Lust points: 157,243,736,930]</p>
 
-<p>Just a little more and he would have enough to start preparing to expand his spiritual roots again. But for now, that didn’t matter. Qingyi just focused on Isabel again, his fingers flowing to the edge of</p>
-
-<p>her panties.</p>
+<p>Just a little more and he would have enough to start preparing to expand his spiritual roots again. But for now, that didn’t matter. Qingyi just focused on Isabel again, his fingers flowing to the edge of her panties.</p>

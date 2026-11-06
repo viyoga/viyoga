@@ -23,15 +23,11 @@ chapter = 601
 
 <p>“What do you know about the selection process to become the adopted son or daughter of the Palace Mistress?”</p>
 
-<p>“Hm… not much. I only know that it’s going to happen in eight months and that the requirement to participate is to be at least in the</p>
-
-<p>Celestial Ascension Realm. Plus, you need to have completed at least ten pavilion missions.”</p>
+<p>“Hm… not much. I only know that it’s going to happen in eight months and that the requirement to participate is to be at least in the Celestial Ascension Realm. Plus, you need to have completed at least ten pavilion missions.”</p>
 
 <p>“Hm… that’s not something easy to achieve in such a short time…” Qingyi scratched his chin.</p>
 
-<p>Of course, reaching the Celestial Ascension Realm wasn’t exactly difficult for him, but completing the ten missions, when each one</p>
-
-<p>could take months, was quite challenging.</p>
+<p>Of course, reaching the Celestial Ascension Realm wasn’t exactly difficult for him, but completing the ten missions, when each one could take months, was quite challenging.</p>
 
 <p>Apparently, if he wanted to participate in this tournament, he would have to completely ignore Elder Shen’s advice.</p>
 
@@ -41,9 +37,7 @@ chapter = 601
 
 <p>Hearing that, Qingyi fell silent.</p>
 
-<p>Indeed, Rouxi didn’t seem like the kind of woman who would choose</p>
-
-<p>her future beloved son or daughter based solely on talent.</p>
+<p>Indeed, Rouxi didn’t seem like the kind of woman who would choose her future beloved son or daughter based solely on talent.</p>
 
 <p>With a soft sigh, he poured himself one last glass of liquor, drinking it quickly and setting it down on the table.</p>
 
@@ -83,15 +77,11 @@ chapter = 601
 
 <p>Upon arriving, he went straight to his room.</p>
 
-<p>It was more like an apartment than a room, with a barely functional kitchen, a bathroom, and even a small living room, with the bed in one</p>
-
-<p>corner.</p>
+<p>It was more like an apartment than a room, with a barely functional kitchen, a bathroom, and even a small living room, with the bed in one corner.</p>
 
 <p>It was small and cramped, but strangely cozy.</p>
 
-<p>Sitting cross-legged on the bed, Qingyi immediately entered the mind</p>
-
-<p>world.</p>
+<p>Sitting cross-legged on the bed, Qingyi immediately entered the mind world.</p>
 
 <p>It was time to check in on his wives.</p>
 
@@ -101,29 +91,19 @@ chapter = 601
 
 <p>Linyue was hunting alongside Khaedryss, while Biyue, Feiyan, Margareth, and Sapphire were conducting experiments with pills, potions, and poisons; meanwhile, Elize and her sister Seraphine were teaching Auranys how to cook.</p>
 
-<p>For a goddess who had never touched a pot before, she was doing</p>
+<p>For a goddess who had never touched a pot before, she was doing quite well.</p>
 
-<p>quite well.</p>
-
-<p>Qingyi walked silently through the temple, his eyes closing as he</p>
-
-<p>passed through the many courtyards.</p>
+<p>Qingyi walked silently through the temple, his eyes closing as he passed through the many courtyards.</p>
 
 <p>Most of his wives were cultivating to take advantage of the explosive increase in Qi density, leaving the courtyards largely empty.</p>
 
 <p>Suddenly, Qingyi stopped.</p>
 
-<p>His eyes fell on the back of a beauty with short, fiery red hair, her</p>
-
-<p>back turned to him, her plump, shapely butt revealed by the tight</p>
-
-<p>fabric of her dress.</p>
+<p>His eyes fell on the back of a beauty with short, fiery red hair, her back turned to him, her plump, shapely butt revealed by the tight fabric of her dress.</p>
 
 <p>It was Rongyan.</p>
 
-<p>He admired her for a brief moment before approaching, his palm</p>
-
-<p>splitting the air toward her butt.</p>
+<p>He admired her for a brief moment before approaching, his palm splitting the air toward her butt.</p>
 
 <p>Clap</p>
 
@@ -131,9 +111,7 @@ chapter = 601
 
 <p>The impact echoed throughout the temple, the fiery beauty’s body shuddering as a pained moan escaped her lips.</p>
 
-<p>“Aghnn~~ you womanizing scoundrel… finally remembered me?” Rongyan gasped, turning to face him and landing a punch on his</p>
-
-<p>chest.</p>
+<p>“Aghnn~~ you womanizing scoundrel… finally remembered me?” Rongyan gasped, turning to face him and landing a punch on his chest.</p>
 
 <p>Well, she wasn’t the type to punch half-heartedly, so Qingyi ended up gasping for air for a moment.</p>
 

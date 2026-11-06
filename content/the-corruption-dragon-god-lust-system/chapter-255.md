@@ -81,9 +81,7 @@ chapter = 255
 
 <p>“Do you know how many people would lose their minds if they heard you saying that about the most respected experts to have set foot on this earth in the last 10,000 years?”</p>
 
-<p>“People who have no experience with damned old men… my first master was one of those, I would never have met you or the other girls if I were to follow his teachings,”</p>
-
-<p>Qingyi said, his voice changing tone.</p>
+<p>“People who have no experience with damned old men… my first master was one of those, I would never have met you or the other girls if I were to follow his teachings,” Qingyi said, his voice changing tone.</p>
 
 <p>“I’m glad I didn’t.”</p>
 

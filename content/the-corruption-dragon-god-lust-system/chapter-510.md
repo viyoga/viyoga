@@ -37,9 +37,7 @@ chapter = 510
 
 <p>The king didn’t know how to react, pausing for a brief moment before sighing.</p>
 
-<p>“I’m incomparable to the younger generation, son-in-law. What on earth have you been through to become so strong in such a short</p>
-
-<p>time? What’s going on in the Rose Empire?”</p>
+<p>“I’m incomparable to the younger generation, son-in-law. What on earth have you been through to become so strong in such a short time? What’s going on in the Rose Empire?”</p>
 
 <p>Qingyi paused for a moment, glancing out of the corner of his eye at Isabel, who was talking to her mother.</p>
 
@@ -67,13 +65,9 @@ chapter = 510
 
 <p>But in the end, what David thought mattered little.</p>
 
-<p>With a sigh, Qingyi stood up. “What do you say we have a friendly</p>
+<p>With a sigh, Qingyi stood up. “What do you say we have a friendly duel?”</p>
 
-<p>duel?”</p>
-
-<p>David looked at his wife and daughter, thinking for a moment before</p>
-
-<p>nodding.</p>
+<p>David looked at his wife and daughter, thinking for a moment before nodding.</p>
 
 <p>“Come on, I want to see how much stronger my son-in-law has become, hahaha.”</p>
 
@@ -81,9 +75,7 @@ chapter = 510
 
 <p>David didn’t hold back, he knew it wasn’t necessary.</p>
 
-<p>His body became a blur and his mana burned with power, his blade</p>
-
-<p>tearing towards Qingyi’s neck.</p>
+<p>His body became a blur and his mana burned with power, his blade tearing towards Qingyi’s neck.</p>
 
 <p>The handsome young man smiled, bending slightly and then defending.</p>
 
@@ -99,69 +91,39 @@ chapter = 510
 
 <p>David landed, breathing heavily, unable to believe his own eyesight.</p>
 
-<p>He looked down at his own hands, gripped tightly around the handle</p>
+<p>He looked down at his own hands, gripped tightly around the handle of his beautiful sword.</p>
 
-<p>of his beautiful sword.</p>
+<p>Since he was young, he had always been known as a great talent. He was known as the Sword Prince and then, after succeeding his father, he gained the title of Warrior King.</p>
 
-<p>Since he was young, he had always been known as a great talent. He was known as the Sword Prince and then, after succeeding his</p>
+<p>Even knowing how insignificant Valemont was and having extensive knowledge of the world around him, it was still shocking for him to see someone like Qingyi.</p>
 
-<p>father, he gained the title of Warrior King.</p>
+<p>Fortunately, Qingyi was on his side and, not only that, Qingyi was his son-in-law.</p>
 
-<p>Even knowing how insignificant Valemont was and having extensive knowledge of the world around him, it was still shocking for him to</p>
-
-<p>see someone like Qingyi.</p>
-
-<p>Fortunately, Qingyi was on his side and, not only that, Qingyi was his</p>
-
-<p>son-in-law.</p>
-
-<p>David thought about attacking again, but quickly saw that it was</p>
-
-<p>useless.</p>
+<p>David thought about attacking again, but quickly saw that it was useless.</p>
 
 <p>Shaking his head, he immediately put his sword away.</p>
 
-<p>“Thank you for your teachings, son-in-law, you have truly opened my</p>
+<p>“Thank you for your teachings, son-in-law, you have truly opened my eyes…” David said, bowing his head.</p>
 
-<p>eyes…” David said, bowing his head.</p>
+<p>“It’s no big deal, father-in-law,” Qingyi laughed, patting David on the shoulder.</p>
 
-<p>“It’s no big deal, father-in-law,” Qingyi laughed, patting David on the</p>
+<p>Turning his eyes, he opened the system store, spending a small fortune on lust points.</p>
 
-<p>shoulder.</p>
+<p>The moment he saw the items in Qingyi’s hands, David couldn’t help but be confused.</p>
 
-<p>Turning his eyes, he opened the system store, spending a small</p>
-
-<p>fortune on lust points.</p>
-
-<p>The moment he saw the items in Qingyi’s hands, David couldn’t help</p>
-
-<p>but be confused.</p>
-
-<p>“Take the potions in order, one by one, for you and your wife,” Qingyi</p>
-
-<p>said, handing David about twenty potions.</p>
+<p>“Take the potions in order, one by one, for you and your wife,” Qingyi said, handing David about twenty potions.</p>
 
 <p>He then took out two rings.</p>
 
-<p>These were special defensive artifacts, just in case the emperor</p>
+<p>These were special defensive artifacts, just in case the emperor decided to attack the kingdom of Valemont.</p>
 
-<p>decided to attack the kingdom of Valemont.</p>
+<p>After all, Qingyi couldn’t be their eternal babysitter and, should anything out of his control happen, he would need to make sure they were safe.</p>
 
-<p>After all, Qingyi couldn’t be their eternal babysitter and, should</p>
-
-<p>anything out of his control happen, he would need to make sure they</p>
-
-<p>were safe.</p>
-
-<p>Handing over the two rings, Qingyi said, “If you and mother-in-law</p>
-
-<p>are in danger, these will teleport you to safety. Always wear them.”</p>
+<p>Handing over the two rings, Qingyi said, “If you and mother-in-law are in danger, these will teleport you to safety. Always wear them.”</p>
 
 <p>David held all the items in his hands carefully, looking at the man in front of him.</p>
 
-<p>It only took a moment for David to realize how valuable these items</p>
-
-<p>were.</p>
+<p>It only took a moment for David to realize how valuable these items were.</p>
 
 <p>Probably more valuable than his entire kingdom.</p>
 

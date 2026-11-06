@@ -13,9 +13,7 @@ chapter = 569
 
 <p>He also watched the young people training, scratching his chin.</p>
 
-<p>In the martial world, sects usually focused on only one style of combat, most often reflecting the martial arts of their founding</p>
-
-<p>ancestor.</p>
+<p>In the martial world, sects usually focused on only one style of combat, most often reflecting the martial arts of their founding ancestor.</p>
 
 <p>Sects such as the Ascending Dragon Sect and the Eternal River Sect, of which Qingyi had been a part in the mortal heavens, were exceptions that focused on various types of combat, alchemy, and even spiritual formations.</p>
 
@@ -27,9 +25,7 @@ chapter = 569
 
 <p>“What do you think of them?” Lucios asked, pouring tea for Qingyi as well.</p>
 
-<p>“They’re… eccentric. How many of them are talented enough to reach the twelfth ring?” Qingyi already knew the answer, but he wanted to</p>
-
-<p>hear what the old man thought.</p>
+<p>“They’re… eccentric. How many of them are talented enough to reach the twelfth ring?” Qingyi already knew the answer, but he wanted to hear what the old man thought.</p>
 
 <p>“One… the others will hardly make it past the eleventh.” Lucios replied without hesitation, eliciting a sigh from Qingyi.</p>
 
@@ -67,29 +63,21 @@ chapter = 569
 
 <p>They reproduced at an alarming rate, and orcs in particular could basically mass-produce transcendent specialists.</p>
 
-<p>Their personalities were little different from those of demons, and for</p>
-
-<p>every one killed, ten more were born in its place.</p>
+<p>Their personalities were little different from those of demons, and for every one killed, ten more were born in its place.</p>
 
 <p>“Don’t worry about time or distance.” Qingyi laughed, grabbing the old man’s shoulder. “None of that matters to me.”</p>
 
 <p>As his voice fell, a spatial fold swallowed the two of them.</p>
 
-<p>Soon, the youngsters who had been watching them were left alone,</p>
-
-<p>confused and shocked.</p>
+<p>Soon, the youngsters who had been watching them were left alone, confused and shocked.</p>
 
 <p>What the hell had they just seen?</p>
 
 <p>***</p>
 
-<p>The swamps of the green skins, at the western edge of the western</p>
+<p>The swamps of the green skins, at the western edge of the western continent.</p>
 
-<p>continent.</p>
-
-<p>It was a region slightly larger than twice the size of the Kingdom of Valemont, completely filled with nothing but beasts and bloodthirsty</p>
-
-<p>monsters.</p>
+<p>It was a region slightly larger than twice the size of the Kingdom of Valemont, completely filled with nothing but beasts and bloodthirsty monsters.</p>
 
 <p>Some were weak, others strong enough to rival even Lucios himself.</p>
 
@@ -99,39 +87,25 @@ chapter = 569
 
 <p>Many said that the Green Skins did not dominate the world and establish themselves as an absolute power only because they were too stupid and were always fighting, always killing each other.</p>
 
-<p>While the rest of the world calmed down and celebrated the death of the avatar of the Heavenly Demon, the orcs were depressed. The blood-red sky was an omen of war for everyone, the tremors that</p>
+<p>While the rest of the world calmed down and celebrated the death of the avatar of the Heavenly Demon, the orcs were depressed. The blood-red sky was an omen of war for everyone, the tremors that engulfed the entire world bringing even more certainty of this.</p>
 
-<p>engulfed the entire world bringing even more certainty of this.</p>
-
-<p>They even gathered in a huge camp with over forty million orcs, waiting for the gods of war to descend upon them and take them to</p>
-
-<p>an eternal battlefield.</p>
+<p>They even gathered in a huge camp with over forty million orcs, waiting for the gods of war to descend upon them and take them to an eternal battlefield.</p>
 
 <p>But nothing happened.</p>
 
 <p>The red sky dissipated and the world returned to peace.</p>
 
-<p>They had been waiting for the arrival of these gods for more days</p>
+<p>They had been waiting for the arrival of these gods for more days than most could count.</p>
 
-<p>than most could count.</p>
+<p>Naturally, with so many orcs crammed into such a tight space, conflicts began to erupt among the warlords.</p>
 
-<p>Naturally, with so many orcs crammed into such a tight space,</p>
-
-<p>conflicts began to erupt among the warlords.</p>
-
-<p>It was only a matter of time before everything dissolved into a bloody</p>
-
-<p>civil war.</p>
+<p>It was only a matter of time before everything dissolved into a bloody civil war.</p>
 
 <p>Fortunately, none of that was necessary.</p>
 
-<p>On a clear, warm afternoon, two figures appeared in the skies, with</p>
+<p>On a clear, warm afternoon, two figures appeared in the skies, with sharp gazes and frightening power.</p>
 
-<p>sharp gazes and frightening power.</p>
-
-<p>When the first explosion engulfed the orc camp and chaos spread,</p>
-
-<p>those who had been eagerly awaiting war could only jump for joy.</p>
+<p>When the first explosion engulfed the orc camp and chaos spread, those who had been eagerly awaiting war could only jump for joy.</p>
 
 <p>Finally, they could put their blades to good use.</p>
 

@@ -63,9 +63,7 @@ chapter = 440
 
 <p>“Q-Qingyi, what are you- aghnnn!~~”</p>
 
-<p>Celestia’s words were cut off by a loud squeal as Qingyi’s hands</p>
-
-<p>wrapped around her waist, pulling her against him.</p>
+<p>Celestia’s words were cut off by a loud squeal as Qingyi’s hands wrapped around her waist, pulling her against him.</p>
 
 <p>She was short, barely one meter fifty-seven tall. Her breasts pressed against Qingyi’s upper abdomen, while her face sank into his chest.</p>
 
@@ -75,9 +73,7 @@ chapter = 440
 
 <p>Without her noticing, Qingyi’s hands moved down, reaching her fat, round, perky butt. His fingers sank into the soft, pliable flesh, his palm sliding across all that perfection.</p>
 
-<p>“Nghnn~~” Celestia moaned again as he grabbed her without restraint, his hands struggling to encapsulate as much of those</p>
-
-<p>perfect, luscious orbs as possible.</p>
+<p>“Nghnn~~” Celestia moaned again as he grabbed her without restraint, his hands struggling to encapsulate as much of those perfect, luscious orbs as possible.</p>
 
 <p>[Celestia’s Lust increased by 10%!]</p>
 
@@ -85,77 +81,49 @@ chapter = 440
 
 <p>Without hesitation, Qingyi shot into the skies, feeling Celestia’s arms and legs move instinctively.</p>
 
-<p>She clung to his back as her thighs wrapped around his hips. Her crotch was now perfectly aligned with the bulge in Qingyi’s pants, each small pulse eliciting a short, soft, suppressed squeal from</p>
-
-<p>Celestia’s lips.</p>
+<p>She clung to his back as her thighs wrapped around his hips. Her crotch was now perfectly aligned with the bulge in Qingyi’s pants, each small pulse eliciting a short, soft, suppressed squeal from Celestia’s lips.</p>
 
 <p>Qingyi took a single moment for himself before bursting into speed toward the horizon, moving his spatial Qi and then teleporting.</p>
 
-<p>He appeared about five kilometers from where they had been before. Soon, he used his spatial Qi again. And then again, and again, and</p>
-
-<p>again.</p>
+<p>He appeared about five kilometers from where they had been before. Soon, he used his spatial Qi again. And then again, and again, and again.</p>
 
 <p>He only stopped when he felt his Qi reserves reach half, hundreds of kilometers from the capital, where he continued just flying.</p>
 
-<p>“Brother Qingyi… Shouldn’t we go slower and without drawing</p>
-
-<p>attention? Why are we-nghnn~~ going so fast?” Celestia asked, pressing her face against Qingyi’s chest.</p>
+<p>“Brother Qingyi… Shouldn’t we go slower and without drawing attention? Why are we-nghnn~~ going so fast?” Celestia asked, pressing her face against Qingyi’s chest.</p>
 
 <p>They were a few kilometers up, and she refused to look down.</p>
 
-<p>“Just getting rid of some pesky rats… don’t worry.” Qingyi smiled</p>
-
-<p>softly.</p>
+<p>“Just getting rid of some pesky rats… don’t worry.” Qingyi smiled softly.</p>
 
 <p>His grip on Celestia’s buttocks grew slightly tighter, and at the same time, she herself squeezed her legs even tighter around him, pulling herself against him, the pressure of the bulge in Qingyi’s pants against her fat, soft pussy growing even more intense.</p>
 
-<p>The fabric separating them did basically nothing to prevent her face</p>
-
-<p>from being taken over by an expression she never thought herself capable of, her lips producing sounds no woman of the Goddess</p>
-
-<p>should ever produce.</p>
+<p>The fabric separating them did basically nothing to prevent her face from being taken over by an expression she never thought herself capable of, her lips producing sounds no woman of the Goddess should ever produce.</p>
 
 <p>[Celestia’s Lust increased by 10%!]</p>
 
 <p>[Celestia’s Corruption increased by 5 points, +10 billion lust points!]</p>
 
-<p>After a few more minutes of flying, Qingyi finally stopped, turning</p>
-
-<p>back and activating his draconic eyes.</p>
+<p>After a few more minutes of flying, Qingyi finally stopped, turning back and activating his draconic eyes.</p>
 
 <p>There was no one chasing them.</p>
 
-<p>“Okay… we can land now.” He smiled softly, moving his hands from</p>
+<p>“Okay… we can land now.” He smiled softly, moving his hands from Celestia’s buttocks to her thighs.</p>
 
-<p>Celestia’s buttocks to her thighs.</p>
-
-<p>He could already feel the union of his crotch with hers completely</p>
-
-<p>soaked.</p>
+<p>He could already feel the union of his crotch with hers completely soaked.</p>
 
 <p>His fingers immediately encountered that plump, soft skin, now moist from the love juices flowing from her pussy.</p>
 
-<p>The moment they reached the ground and Celestia finally found</p>
-
-<p>herself free from Qingyi’s embrace, she took a single step back,</p>
-
-<p>shuddering as she realized how wet she was.</p>
+<p>The moment they reached the ground and Celestia finally found herself free from Qingyi’s embrace, she took a single step back, shuddering as she realized how wet she was.</p>
 
 <p>Her legs almost gave way as she looked away.</p>
 
-<p>The fabric of her dress was completely stuck to her plump, soft vulva,</p>
-
-<p>marking it perfectly.</p>
+<p>The fabric of her dress was completely stuck to her plump, soft vulva, marking it perfectly.</p>
 
 <p>Why was she like this? Why was Qingyi making her like this?</p>
 
-<p>Was he a demon of pleasure? Like the ones she had read about in</p>
+<p>Was he a demon of pleasure? Like the ones she had read about in ancient books?</p>
 
-<p>ancient books?</p>
-
-<p>No… how could a demon of pleasure be chosen by the Goddess to be</p>
-
-<p>a hero?</p>
+<p>No… how could a demon of pleasure be chosen by the Goddess to be a hero?</p>
 
 <p>That was impossible!</p>
 

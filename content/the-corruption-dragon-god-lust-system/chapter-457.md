@@ -23,9 +23,7 @@ chapter = 457
 
 <p>Sapphire moaned again, clutching Qingyi’s black hair. She looked up at Celestia, who was still praying silently, seemingly unaware of what was happening a few feet away.</p>
 
-<p>In just a moment, her lust reached one hundred percent. Her fat, soft pussy, which had been only slightly damp before, was now</p>
-
-<p>completely soaked.</p>
+<p>In just a moment, her lust reached one hundred percent. Her fat, soft pussy, which had been only slightly damp before, was now completely soaked.</p>
 
 <p>Suddenly, she felt something coming from deep within her large, perfect tits. The liquid flowed from her nipples, filling Qingyi’s lips with her warm milk.</p>
 
@@ -95,15 +93,9 @@ chapter = 457
 
 <p>They tried to find lies on his face, but there was nothing. His expression was resolute, provocative, yet serious.</p>
 
-<p>“The church would never allow such a thing…” Aeryn murmured,</p>
+<p>“The church would never allow such a thing…” Aeryn murmured, feeling her heart try to escape her chest.</p>
 
-<p>feeling her heart try to escape her chest.</p>
-
-<p>“And since when does what the church thinks matter?” Qingyi shook</p>
-
-<p>his head. “Just tell me, from the depths of your hearts: do you allow</p>
-
-<p>your future hubby to fuck these fat, tight pussies?”</p>
+<p>“And since when does what the church thinks matter?” Qingyi shook his head. “Just tell me, from the depths of your hearts: do you allow your future hubby to fuck these fat, tight pussies?”</p>
 
 <p>The two lowered their heads at the same time.</p>
 
@@ -113,13 +105,9 @@ chapter = 457
 
 <p>Their crotches were on fire, their bodies trembling, and every little breeze was enough to drive them crazy.</p>
 
-<p>How could such pleasure exist without him even touching them</p>
+<p>How could such pleasure exist without him even touching them intimately yet? Qingyi was, quite literally, like an addictive drug.</p>
 
-<p>intimately yet? Qingyi was, quite literally, like an addictive drug.</p>
-
-<p>The two lifted their faces with determination. Their lips parted at the same time, their voices high-pitched and naughty, while their eyes</p>
-
-<p>closed in shame.</p>
+<p>The two lifted their faces with determination. Their lips parted at the same time, their voices high-pitched and naughty, while their eyes closed in shame.</p>
 
 <p>“P-please, hubby… fuck these fat, tight pussies!”</p>
 
@@ -131,9 +119,7 @@ chapter = 457
 
 <p>How could Qingyi not be excited?</p>
 
-<p>His hands moved to their waists, and before they knew it, they were</p>
-
-<p>on the floor.</p>
+<p>His hands moved to their waists, and before they knew it, they were on the floor.</p>
 
 <p>Sapphire was on the bottom, her legs spread, while Aeryn was on top, her legs also spread.</p>
 

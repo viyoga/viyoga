@@ -9,9 +9,7 @@ chapter = 396
 
 <p>[Name: Immortal Purification Pill</p>
 
-<p>Description: A purification and healing pill, created by two prodigies</p>
-
-<p>in alchemy and poison. It is capable of healing severe internal injuries, calming Qi, and purifying countless types of poison.</p>
+<p>Description: A purification and healing pill, created by two prodigies in alchemy and poison. It is capable of healing severe internal injuries, calming Qi, and purifying countless types of poison.</p>
 
 <p>Grade: Sky</p>
 
@@ -39,9 +37,7 @@ chapter = 396
 
 <p>After a brief moment, she opened her mouth and took him into her tight, wet throat again, her tongue slid against the bottom part of the shaft as she milked him with her mouth.</p>
 
-<p>Enjoying Feiyan’s deep throat, Qingyi focused his gaze on Biyue. Her beautiful face was flushed with a vibrant red as she turned her</p>
-
-<p>beautiful green eyes away.</p>
+<p>Enjoying Feiyan’s deep throat, Qingyi focused his gaze on Biyue. Her beautiful face was flushed with a vibrant red as she turned her beautiful green eyes away.</p>
 
 <p>With a smile, he grabbed the poisonous beauty’s delicate wrist and pulled her on top of him, supporting her ass with his right hand and planting a kiss on her lips.</p>
 
@@ -49,17 +45,11 @@ chapter = 396
 
 <p>Obviously, he didn’t let Feiyan have all the fun.</p>
 
-<p>His free hand sank between Biyue’s thighs, reaching her fat and already soaked vulva. A single finger slid between her pale, soft lips,</p>
+<p>His free hand sank between Biyue’s thighs, reaching her fat and already soaked vulva. A single finger slid between her pale, soft lips, reaching the pink interior of her pussy.</p>
 
-<p>reaching the pink interior of her pussy.</p>
+<p>Meanwhile, his face sank into her huge pair of pale tits, his lips capturing one of her pink nipples.</p>
 
-<p>Meanwhile, his face sank into her huge pair of pale tits, his lips</p>
-
-<p>capturing one of her pink nipples.</p>
-
-<p>“Nghnn~~ I-uh… aghn~~” Biyue gasped. Her fingers grabbed Qingyi’s</p>
-
-<p>black hair as a sweet moan escaped her lips.</p>
+<p>“Nghnn~~ I-uh… aghn~~” Biyue gasped. Her fingers grabbed Qingyi’s black hair as a sweet moan escaped her lips.</p>
 
 <p>Struggling to control her breathing, she continued, “It’s not that expensive… the temple’s spirit plantations should already produce enough for a few hundred pills a week…”</p>
 
@@ -71,51 +61,35 @@ chapter = 396
 
 <p>She kept one of her hands resting on Qingyi’s knee, while the other moved down to her own soaking pussy.</p>
 
-<p>Her fingers sank into the fair lips, untouched by the sun that tanned her skin, massaging her clit as she felt her husband’s cock throb</p>
-
-<p>against her lips.</p>
+<p>Her fingers sank into the fair lips, untouched by the sun that tanned her skin, massaging her clit as she felt her husband’s cock throb against her lips.</p>
 
 <p>Suddenly, she froze. A muffled moan escaped her throat, and then the first spurt of hot, sticky cum came, hitting the roof of her mouth. “Nghnn~~ Gulp~~” Feiyan swallowed the first mouthful, only to have her mouth instantly filled again.</p>
 
 <p>Each greedy gulp down her throat was accompanied by another thick spurt of cum.</p>
 
-<p>Her eyes were watery, her makeup smudged, and her throat tired, but she didn’t back down. She kept Qingyi’s cock in her lips until the last</p>
+<p>Her eyes were watery, her makeup smudged, and her throat tired, but she didn’t back down. She kept Qingyi’s cock in her lips until the last drop went down.</p>
 
-<p>drop went down.</p>
+<p>“Nghn~~ ah… hubby was so full today…” She purred, looking up at Biyue.</p>
 
-<p>“Nghn~~ ah… hubby was so full today…” She purred, looking up at</p>
-
-<p>Biyue.</p>
-
-<p>Biyue’s pussy was being worked on by Qingyi; two fingers pressed</p>
-
-<p>against her fat, pale vulva, massaging her pink clit and eliciting louder and louder moans until, finally, orgasm came.</p>
+<p>Biyue’s pussy was being worked on by Qingyi; two fingers pressed against her fat, pale vulva, massaging her pink clit and eliciting louder and louder moans until, finally, orgasm came.</p>
 
 <p>“Aghn~~ H-husband!” Biyue’s pink lips parted in a shrill moan, her body quickly losing strength.</p>
 
 <p>“Ah… good girls…” Qingyi laughed, settling the two on his lap, making the armchair tremble with their weight.</p>
 
-<p>In that position, Qingyi’s face was right at the height of their breasts, while his hands rested on the voluptuous, round cheeks of their</p>
+<p>In that position, Qingyi’s face was right at the height of their breasts, while his hands rested on the voluptuous, round cheeks of their asses.</p>
 
-<p>asses.</p>
-
-<p>Pressing his face against those two pairs of soft, creamy tits, he raised his hands and slapped their asses, feeling the shockwaves spread</p>
-
-<p>through the voluptuous flesh beneath his grip.</p>
+<p>Pressing his face against those two pairs of soft, creamy tits, he raised his hands and slapped their asses, feeling the shockwaves spread through the voluptuous flesh beneath his grip.</p>
 
 <p>The two trembled slightly, holding onto Qingyi for support.</p>
 
-<p>“Do you need anything else? This alchemy cauldron is getting old, isn’t it?” Qingyi asked, moving his face from the deep valley where the</p>
-
-<p>two beauties’ huge breasts met.</p>
+<p>“Do you need anything else? This alchemy cauldron is getting old, isn’t it?” Qingyi asked, moving his face from the deep valley where the two beauties’ huge breasts met.</p>
 
 <p>“Hm… a new cauldron would be nice, and Sister Biyue needs a place to cultivate poison,” Feiyan replied, stroking Qingyi’s black hair.</p>
 
 <p>“Very well.” He smiled.</p>
 
-<p>The place for Biyue to cultivate poison was something Ruxue could easily arrange, just as he could solve the problem of that outdated</p>
-
-<p>cauldron.</p>
+<p>The place for Biyue to cultivate poison was something Ruxue could easily arrange, just as he could solve the problem of that outdated cauldron.</p>
 
 <p>Feiyan’s current cauldron was unmatched by any item in the mortal realm and powerful even in places like the Blue Sea Kingdom. However, on the larger stage of Immortal Heaven, it was barely considered an item for the commoners.</p>
 
@@ -123,8 +97,6 @@ chapter = 396
 
 <p>He didn’t leave Biyue behind either, buying kits for poison making and toxin study, also of immortal grade.</p>
 
-<p>Before going to check on the other girls, he didn’t forget to buy alchemy recipes for them. This time, they were recipes capable of elevating bloodlines, constitutions, and spirit roots to the astral grade. He didn’t expect Feiyan to master that recipe easily; she would</p>
-
-<p>probably have to produce thousands of pills before she could achieve acceptable purity, but the important thing for now was that she got started.</p>
+<p>Before going to check on the other girls, he didn’t forget to buy alchemy recipes for them. This time, they were recipes capable of elevating bloodlines, constitutions, and spirit roots to the astral grade. He didn’t expect Feiyan to master that recipe easily; she would probably have to produce thousands of pills before she could achieve acceptable purity, but the important thing for now was that she got started.</p>
 
 <p>Taking one last look at the warehouse of pills produced by the two over the past few months, tens of thousands of them, Qingyi left. He still had many wives to visit.</p>

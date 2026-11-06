@@ -29,9 +29,7 @@ chapter = 409
 
 <p>The young man who defeated Nirm has been declared prince, given full control of the royal armies, and his marriage to Isabel has been set for shortly after the end of the civil war.”</p>
 
-<p>The messenger trembled again, lowering his head and waiting for an</p>
-
-<p>explosion of rage.</p>
+<p>The messenger trembled again, lowering his head and waiting for an explosion of rage.</p>
 
 <p>But all he heard was an angry grunt.</p>
 
@@ -75,9 +73,7 @@ chapter = 409
 
 <p>“Y-Your Highness, please! Hear me out! I didn’t run away, I just=”</p>
 
-<p>Before the corrupt nobleman could even finish his sentence, his head</p>
-
-<p>flew into the sky.</p>
+<p>Before the corrupt nobleman could even finish his sentence, his head flew into the sky.</p>
 
 <p>“What a disappointment…” Qingyi grunted, watching his men storm the mansion.</p>
 
@@ -85,43 +81,29 @@ chapter = 409
 
 <p>Their families were spared, and only a portion of their wealth was confiscated, with all assets outside the capital remaining completely untouched.</p>
 
-<p>He didn’t know if, on the eastern continent, the monarchs would be</p>
-
-<p>so merciful.</p>
+<p>He didn’t know if, on the eastern continent, the monarchs would be so merciful.</p>
 
 <p>“Your Highness.”</p>
 
-<p>A voice echoed from behind Qingyi, who turned around to see a</p>
-
-<p>figure approaching.</p>
+<p>A voice echoed from behind Qingyi, who turned around to see a figure approaching.</p>
 
 <p>It was an ordinary-looking woman clad in steel armor, her face carrying a hint of discontent as she knelt down.</p>
 
-<p>She was the knight responsible for protecting Isabel. The princess’s</p>
-
-<p>escape with Qingyi had really brought her a lot of headaches and</p>
-
-<p>countless sleepless nights.</p>
+<p>She was the knight responsible for protecting Isabel. The princess’s escape with Qingyi had really brought her a lot of headaches and countless sleepless nights.</p>
 
 <p>Now that Qingyi was a prince, the woman couldn’t even show her discontent. Not that she had the courage to do so before, considering the boy’s current power alone.</p>
 
-<p>She wasn’t crazy and didn’t want to try her luck with such a powerful</p>
-
-<p>expert.</p>
+<p>She wasn’t crazy and didn’t want to try her luck with such a powerful expert.</p>
 
 <p>“Speak” Qingyi turned his face coldly.</p>
 
-<p>The knight immediately replied, “We have finished cleaning up Lord Luck’s residence and seizing his wealth. We just need to decide what</p>
-
-<p>to do with his family now.”</p>
+<p>The knight immediately replied, “We have finished cleaning up Lord Luck’s residence and seizing his wealth. We just need to decide what to do with his family now.”</p>
 
 <p>“Release them. The mansion will be taken as property of the royal family, but they can return to the lands under their family’s control.”</p>
 
 <p>“Yes, my prince.”</p>
 
-<p>The knight bowed her head before standing up, giving orders to her</p>
-
-<p>men.</p>
+<p>The knight bowed her head before standing up, giving orders to her men.</p>
 
 <p>Qingyi just sighed and, with a gentle push, flew into the skies, quickly reaching the royal palace.</p>
 
@@ -129,16 +111,10 @@ chapter = 409
 
 <p>The two had spent a lot of time together since they had met again, talking about everything that had happened since they had parted. They even took the time to cook together.</p>
 
-<p>Sofia certainly did not expect Isabel, of all people, to teach her how to</p>
+<p>Sofia certainly did not expect Isabel, of all people, to teach her how to cook.</p>
 
-<p>cook.</p>
-
-<p>Not that the queen was a woman who depended solely on servants</p>
-
-<p>for this task; often, she personally prepared David’s meals.</p>
+<p>Not that the queen was a woman who depended solely on servants for this task; often, she personally prepared David’s meals.</p>
 
 <p>“Husband!”</p>
 
-<p>Isabel stood up, her enormous breasts bouncing as she threw herself</p>
-
-<p>into Qingyi’s arms, her face lit up with an excited look.</p>
+<p>Isabel stood up, her enormous breasts bouncing as she threw herself into Qingyi’s arms, her face lit up with an excited look.</p>

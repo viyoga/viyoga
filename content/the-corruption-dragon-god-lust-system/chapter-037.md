@@ -71,9 +71,7 @@ chapter = 37
 
 <p>The air around him shook violently as an explosion of wood fragments flew in all directions, the tree split in two, its trunk falling with a loud thud.</p>
 
-<p>His leg, covered in the Qi of the lightning sword, trembled slightly as he pulled it back,</p>
-
-<p>Qingyi couldn’t help but let out a breath of awe at his own power.</p>
+<p>His leg, covered in the Qi of the lightning sword, trembled slightly as he pulled it back, Qingyi couldn’t help but let out a breath of awe at his own power.</p>
 
 <p>He had been able to knock down a tree with a single blow before, but that was by forcing his meridians to their limit and channeling all his Qi into the blade of his sword.</p>
 

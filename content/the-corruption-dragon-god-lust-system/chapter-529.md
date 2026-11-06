@@ -47,9 +47,7 @@ chapter = 529
 
 <p>The Emperor’s eyes fell on Qingyi, and he took a step forward, extending his hand to the beautiful young man.</p>
 
-<p>“It is not common for us to receive dragons as visitors here, let alone</p>
-
-<p>one as powerful and talented as this.”</p>
+<p>“It is not common for us to receive dragons as visitors here, let alone one as powerful and talented as this.”</p>
 
 <p>The Emperor smiled beneath his mask as Qingyi shook his hand.</p>
 
@@ -69,17 +67,13 @@ chapter = 529
 
 <p>Suppressing his shock and hesitation, the Emperor nodded, releasing Qingyi’s hand and motioning for everyone to rise.</p>
 
-<p>“Don’t disappoint me, young man.” He said, shifting his attention to</p>
-
-<p>the Gold King.</p>
+<p>“Don’t disappoint me, young man.” He said, shifting his attention to the Gold King.</p>
 
 <p>Qingyi just nodded, retreating and allowing his father-in-law to take care of the Emperor’s seats.</p>
 
 <p>His heart was beating fast and his breathing was unstable.</p>
 
-<p>The Emperor and Empress of the Enlightened Empire had mana</p>
-
-<p>hearts next to their Dantians, just like the Emperor of the Rose</p>
+<p>The Emperor and Empress of the Enlightened Empire had mana hearts next to their Dantians, just like the Emperor of the Rose</p>
 
 <p>Empire.</p>
 
@@ -101,34 +95,20 @@ chapter = 529
 
 <p>In this case, as Qingyi had no family, the Gold King asked the Emperor himself to stand beside him. To everyone’s surprise, the monarch accepted.</p>
 
-<p>There Qingyi waited, the hall falling silent as the band hired by the Gold King began to play, the sweet and soft chords of a skilled</p>
+<p>There Qingyi waited, the hall falling silent as the band hired by the Gold King began to play, the sweet and soft chords of a skilled guzheng master dominating the ears of all spectators.</p>
 
-<p>guzheng master dominating the ears of all spectators.</p>
+<p>Slow and elegant footsteps echoed, and from the gates leading to the palace ballroom, two figures appeared.</p>
 
-<p>Slow and elegant footsteps echoed, and from the gates leading to the</p>
+<p>One of them was the White Heron, Meilin’s mother and wife of the Gold King. At her side was Meilin.</p>
 
-<p>palace ballroom, two figures appeared.</p>
-
-<p>One of them was the White Heron, Meilin’s mother and wife of the</p>
-
-<p>Gold King. At her side was Meilin.</p>
-
-<p>Her face was covered by an elegant white veil, her eyes closed as she</p>
-
-<p>was guided by her mother.</p>
+<p>Her face was covered by an elegant white veil, her eyes closed as she was guided by her mother.</p>
 
 <p>Her dress was light blue with shades of pink and golden dragon patterns, similar to those that dominated Qingyi’s robes.</p>
 
-<p>The fabric modestly hugged her perfect curves, her pale shoulders</p>
-
-<p>slightly exposed.</p>
+<p>The fabric modestly hugged her perfect curves, her pale shoulders slightly exposed.</p>
 
 <p>She walked up the steps leading to the platform, her eyes opening and her cherry lips parting elegantly.</p>
 
-<p>With slow steps, she climbed up, stopping beside Qingyi and then</p>
-
-<p>kneeling in front of her father, her mother, the Emperor, and the</p>
-
-<p>Empress.</p>
+<p>With slow steps, she climbed up, stopping beside Qingyi and then kneeling in front of her father, her mother, the Emperor, and the Empress.</p>
 
 <p>The time had finally come. She would finally be officially married to her beloved husband!</p>

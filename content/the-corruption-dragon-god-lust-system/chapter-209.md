@@ -79,9 +79,7 @@ chapter = 209
 
 <p>“Everyone must leave this ship immediately and report to the central courtyard of the Orthodox Alliance fortress. There, you will take part in a friendly competition and then you will be able to choose which battalion you wish to join.”</p>
 
-<p>Speaking those words, the man turned and left immediately;</p>
-
-<p>Rongyan cast one last glance in Qingyi’s direction before leaving too, her beautiful face subtly blushing.</p>
+<p>Speaking those words, the man turned and left immediately; Rongyan cast one last glance in Qingyi’s direction before leaving too, her beautiful face subtly blushing.</p>
 
 <p>The handsome young man only sighed as he stood up with Qingxue, walking towards the exit of the flying ship.</p>
 

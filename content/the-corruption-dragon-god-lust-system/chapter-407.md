@@ -27,13 +27,9 @@ chapter = 407
 
 <p>Her steps became shaky and her eyes uncertain.</p>
 
-<p>“Everything will be fine, love…” Qingyi assured her as they walked through the long, luxurious corridors surrounded by black stones. His hands went to her delicate waist, displaying a gentle and loving</p>
+<p>“Everything will be fine, love…” Qingyi assured her as they walked through the long, luxurious corridors surrounded by black stones. His hands went to her delicate waist, displaying a gentle and loving smile.</p>
 
-<p>smile.</p>
-
-<p>Honestly, unless Isabel’s father had suffered damage to his soul,</p>
-
-<p>Qingyi wasn’t too worried.</p>
+<p>Honestly, unless Isabel’s father had suffered damage to his soul, Qingyi wasn’t too worried.</p>
 
 <p>Soul injuries were one of the few problems for which he was still unable to buy pills powerful enough to repair.</p>
 
@@ -73,13 +69,9 @@ chapter = 407
 
 <p>“No,” the doctor replied, shaking his head.</p>
 
-<p>“But the damage to his body was catastrophic. Honestly, even years of</p>
+<p>“But the damage to his body was catastrophic. Honestly, even years of recovery may not be enough.”</p>
 
-<p>recovery may not be enough.”</p>
-
-<p>“Hm… well…” Qingyi smiled, drawing strange looks from everyone</p>
-
-<p>there.</p>
+<p>“Hm… well…” Qingyi smiled, drawing strange looks from everyone there.</p>
 
 <p>He opened the system store and searched for the highest-level healing pill he could find: an astral-grade healing pill.</p>
 
@@ -89,23 +81,17 @@ chapter = 407
 
 <p>Raising his hand, the pill materialized in his fingers. An enormous healing power immediately leaked from it, filling the entire room and even making the bishop shudder.</p>
 
-<p>“M-may I?” the doctor asked, slightly trembling, swallowing hard as he reached out his hands toward the item between Qingyi’s fingers. His eyes weren’t lying to him, right? Even from a distance, he could</p>
-
-<p>feel the purity and quality of that medicine.</p>
+<p>“M-may I?” the doctor asked, slightly trembling, swallowing hard as he reached out his hands toward the item between Qingyi’s fingers. His eyes weren’t lying to him, right? Even from a distance, he could feel the purity and quality of that medicine.</p>
 
 <p>Not even his best elixirs could compare to it!</p>
 
-<p>“Are you thinking of giving this medicine to Your Majesty? I will not</p>
-
-<p>allow it! This is unholy medicine, originating from heretics!</p>
+<p>“Are you thinking of giving this medicine to Your Majesty? I will not allow it! This is unholy medicine, originating from heretics!</p>
 
 <p>We cannot allow His Majesty to be corrupted by such a demonic item!” the bishop interjected again.</p>
 
 <p>“Y-Your Holiness, please, this pill may be the last chance!”</p>
 
-<p>“Blasphemy! The last chance lies in Auranys’ arms, and only by</p>
-
-<p>praying to her can we save the king! This-“</p>
+<p>“Blasphemy! The last chance lies in Auranys’ arms, and only by praying to her can we save the king! This-“</p>
 
 <p>“Enough.”</p>
 
@@ -117,24 +103,14 @@ chapter = 407
 
 <p>Two worried voices echoed, but David didn’t care.</p>
 
-<p>His skeletal arms clutched the edge of the bed. His cold eyes fixed on</p>
+<p>His skeletal arms clutched the edge of the bed. His cold eyes fixed on Qingyi as he slowly stood up.</p>
 
-<p>Qingyi as he slowly stood up.</p>
+<p>“So you are the man my daughter has chosen…” he growled, stopping in front of Qingyi and grabbing his son-in-law’s shoulders with long fingers that looked as if they were about to break.</p>
 
-<p>“So you are the man my daughter has chosen…” he growled, stopping</p>
-
-<p>in front of Qingyi and grabbing his son-in-law’s shoulders with long fingers that looked as if they were about to break.</p>
-
-<p>He was using every ounce of power just to stand, face to face with the</p>
-
-<p>young man.</p>
+<p>He was using every ounce of power just to stand, face to face with the young man.</p>
 
 <p>“Very good! Hahaha!” David Valemont laughed. His laughter was soon replaced by a sickly cough, blood rising in his throat.</p>
 
-<p>He almost fell to his knees, but he did not allow himself such</p>
+<p>He almost fell to his knees, but he did not allow himself such weakness.</p>
 
-<p>weakness.</p>
-
-<p>He had woken up in a bad mood because of the annoying voice of that damned bishop, but seeing and feeling the power and nobility of the</p>
-
-<p>man chosen by his daughter really improved his mood. Lifting his face to Qingyi one last time, he smiled, snatched the pill from the young man’s hand, and then swallowed it.</p>
+<p>He had woken up in a bad mood because of the annoying voice of that damned bishop, but seeing and feeling the power and nobility of the man chosen by his daughter really improved his mood. Lifting his face to Qingyi one last time, he smiled, snatched the pill from the young man’s hand, and then swallowed it.</p>

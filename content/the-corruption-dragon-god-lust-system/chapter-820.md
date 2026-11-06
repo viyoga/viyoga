@@ -33,9 +33,7 @@ chapter = 820
 
 <p>It was hard to watch, but at that moment, she felt more anger toward her father than any remnant of love.</p>
 
-<p>He could have spoken out about the Sect Leader’s plan; he could have chosen his own daughter instead of the Sect,</p>
-
-<p>He was the one who chose to betray her and Qingyi—his daughter and his son-in-law.</p>
+<p>He could have spoken out about the Sect Leader’s plan; he could have chosen his own daughter instead of the Sect, He was the one who chose to betray her and Qingyi—his daughter and his son-in-law.</p>
 
 <p>"Qingyi... he’s not really dead, is he?" Xue Hua whispered, her voice choked with emotion. "There must be something we can do!"</p>
 

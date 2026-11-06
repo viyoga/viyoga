@@ -63,9 +63,7 @@ chapter = 386
 
 <p>Qingyi’s own blood seemed to have changed, being at this very moment, purer than before.</p>
 
-<p>“How?” Qianyao raised her face to Qingyi’s, still unable to believe her</p>
-
-<p>own senses.</p>
+<p>“How?” Qianyao raised her face to Qingyi’s, still unable to believe her own senses.</p>
 
 <p>Improving a lineage and constitution wasn’t exactly impossible, but it almost always required transcendental pills or, even in the rarest of cases, tribulations or incomparable spirit arrays.</p>
 
@@ -83,29 +81,19 @@ chapter = 386
 
 <p>That was dangerous.</p>
 
-<p>Khaedryss didn’t even need to hear Qingyi’s words to move, her jaw</p>
-
-<p>opening in a powerful gust of flame that engulfed all the projectiles sent towards them, melting most of them.</p>
+<p>Khaedryss didn’t even need to hear Qingyi’s words to move, her jaw opening in a powerful gust of flame that engulfed all the projectiles sent towards them, melting most of them.</p>
 
 <p>The few that got through were already weakened, hitting Khaedryss’ black scales as if they were nothing more than melted toothpicks. She descended thousands of meters in a single moment, and didn’t seem interested in slowing down even a little.</p>
 
-<p>At the last moment, Qingyi and Qianyao jumped off her back as she</p>
-
-<p>hit the ground, still spitting flames.</p>
+<p>At the last moment, Qingyi and Qianyao jumped off her back as she hit the ground, still spitting flames.</p>
 
 <p>An explosion echoed throughout the forest as the huge, tens-of-ton beast hit the ground at supersonic speed, its flames engulfing everything around it, vaporizing trees and enemies.</p>
 
-<p>The ground opened up for hundreds of meters, slabs of stone and</p>
-
-<p>earth splitting into deep fissures that were soon engulfed by</p>
-
-<p>Khaedryss’ flames.</p>
+<p>The ground opened up for hundreds of meters, slabs of stone and earth splitting into deep fissures that were soon engulfed by Khaedryss’ flames.</p>
 
 <p>Over an area of more than a kilometer, there was nothing left but blackened ash and cracked earth, Khaedryss’ huge body resting in a crater, her jaw clenched around the neck of a beast.</p>
 
-<p>It was a strangely humanoid flame wolf, although still covered in fur and looking much more quadrupedal, despite walking on two legs. Its body was easily over thirty meters high, just a little lower than the</p>
-
-<p>trees in the area.</p>
+<p>It was a strangely humanoid flame wolf, although still covered in fur and looking much more quadrupedal, despite walking on two legs. Its body was easily over thirty meters high, just a little lower than the trees in the area.</p>
 
 <p>On its back, it carried projectiles similar to metal spears.</p>
 

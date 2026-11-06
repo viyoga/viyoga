@@ -71,37 +71,25 @@ chapter = 552
 
 <p>That… that was a lie, right?</p>
 
-<p>That attack not only cut flesh, it also caused terrible damage to the</p>
+<p>That attack not only cut flesh, it also caused terrible damage to the soul.</p>
 
-<p>soul.</p>
+<p>Even if those creatures could revive their bodies, their souls could not be whole…</p>
 
-<p>Even if those creatures could revive their bodies, their souls could not</p>
-
-<p>be whole…</p>
-
-<p>Jianming gritted his teeth, gripping his sword tighter than ever, and then charged toward the bodies that were slowly reassembling</p>
-
-<p>themselves.</p>
+<p>Jianming gritted his teeth, gripping his sword tighter than ever, and then charged toward the bodies that were slowly reassembling themselves.</p>
 
 <p>With his current level of power, he could sense the aura of practically every citizen in that city if he focused his mind.</p>
 
 <p>At a low estimate, he knew that at least five million had already died, with experts above the ancient emperor realm still showing strong resistance to the demons.</p>
 
-<p>To make matters worse, he didn’t know how the rest of the empire</p>
-
-<p>was doing.</p>
+<p>To make matters worse, he didn’t know how the rest of the empire was doing.</p>
 
 <p>What if other cities were also attacked?</p>
 
-<p>Jianming slashed once more, dozens of houses around him being</p>
-
-<p>leveled as his blade tore through the air in front of him without stopping, thousands of Qi slashes continuing to tear the demons apart again and again, preventing them from recovering.</p>
+<p>Jianming slashed once more, dozens of houses around him being leveled as his blade tore through the air in front of him without stopping, thousands of Qi slashes continuing to tear the demons apart again and again, preventing them from recovering.</p>
 
 <p>“Die, you-” Jianming barely had time to finish his sentence.</p>
 
-<p>His eyes widened as he turned his body, a blade of blood Qi slashing</p>
-
-<p>toward his body.</p>
+<p>His eyes widened as he turned his body, a blade of blood Qi slashing toward his body.</p>
 
 <p>He managed to stop it from reaching his heart by a hair’s breadth, but still, the blade struck his shoulder and then exploded.</p>
 
@@ -117,9 +105,7 @@ chapter = 552
 
 <p>Quickly, he counted the number of demons surrounding them, the numbers rising higher and higher.</p>
 
-<p>Soon, there were more than twenty, with three of them in the astral</p>
-
-<p>body realm.</p>
+<p>Soon, there were more than twenty, with three of them in the astral body realm.</p>
 
 <p>“Ah…” Jianming’s breathing became heavy, his eyes cold as blood as he extended his left hand.</p>
 
@@ -127,9 +113,7 @@ chapter = 552
 
 <p>‘So today is the day I die… huh?’</p>
 
-<p>The old man’s lips curled up, revealing pure white teeth, clenched</p>
-
-<p>hard enough to make his gums bleed.</p>
+<p>The old man’s lips curled up, revealing pure white teeth, clenched hard enough to make his gums bleed.</p>
 
 <p>He had lived a life devoted to the empire, defending it and its citizens.</p>
 

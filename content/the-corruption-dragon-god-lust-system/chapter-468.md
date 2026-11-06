@@ -29,9 +29,7 @@ chapter = 468
 
 <p>However, by the time the flames surrounded him, the mana heart was already sinking into his left chest. The flesh gave way, and his bones seemed nonexistent in the face of the intrusion.</p>
 
-<p>Qingyi was ready to blast that thing out of his body when a single</p>
-
-<p>system message popped up.</p>
+<p>Qingyi was ready to blast that thing out of his body when a single system message popped up.</p>
 
 <p>[Stop resisting.]</p>
 
@@ -57,9 +55,7 @@ chapter = 468
 
 <p>A flood of unknown energy invaded his body, every small muscle twitching, causing him to grit his teeth tightly.</p>
 
-<p>It was a strange feeling, as if the weight in his meridians had suddenly</p>
-
-<p>doubled, with Qi and mana flowing side by side.</p>
+<p>It was a strange feeling, as if the weight in his meridians had suddenly doubled, with Qi and mana flowing side by side.</p>
 
 <p>[You have successfully acquired a mana heart!]</p>
 
@@ -87,55 +83,35 @@ chapter = 468
 
 <p>Lineage: Blood of the Corruption Dragon God (Immortal grade, 50T lust points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Immortal grade, 50T lust</p>
-
-<p>points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Immortal grade, 50T lust points to upgrade.)</p>
 
 <p>Lust points: 5.6T]</p>
 
 <p>He had many questions, but the main one was simple.</p>
 
-<p>Why on earth did his mana heart also had the primordial creation</p>
-
-<p>seed?</p>
+<p>Why on earth did his mana heart also had the primordial creation seed?</p>
 
 <p>He took a deep breath, moving his mana and separating it from his Qi. Then, he raised a single finger.</p>
 
-<p>An instant later, a small flame appeared above his fingertip, burning</p>
-
-<p>intensely.</p>
+<p>An instant later, a small flame appeared above his fingertip, burning intensely.</p>
 
 <p>Qingyi smiled, extinguishing the flame. He straightened up, with Ruxue still clinging to him.</p>
 
-<p>With a skillful movement, he spun her around, feeling her weight</p>
+<p>With a skillful movement, he spun her around, feeling her weight against him, the beauty’s delicate hands wrapped around his powerful torso.</p>
 
-<p>against him, the beauty’s delicate hands wrapped around his powerful</p>
+<p>“You shameless bastard… don’t go touching every piece of human-shaped trash you find out there!”</p>
 
-<p>torso.</p>
+<p>She punched Qingyi lightly in the chest, her face filled with concern and slightly flushed.</p>
 
-<p>“You shameless bastard… don’t go touching every piece of</p>
-
-<p>human-shaped trash you find out there!”</p>
-
-<p>She punched Qingyi lightly in the chest, her face filled with concern</p>
-
-<p>and slightly flushed.</p>
-
-<p>“I know, darling,” Qingyi replied, lowering his head and pressing his</p>
-
-<p>lips against hers.</p>
+<p>“I know, darling,” Qingyi replied, lowering his head and pressing his lips against hers.</p>
 
 <p>“Nghnn~~”</p>
 
-<p>Ruxue moaned as a powerful slap smacked against her buttocks. Her lips were sealed by Qingyi’s, his tongue swirling around hers. “Your hubby is a shameless and greedy bastard, I know that,” he murmured as he parted his lips, feeling Ruxue’s panting breath hit his</p>
-
-<p>face.</p>
+<p>Ruxue moaned as a powerful slap smacked against her buttocks. Her lips were sealed by Qingyi’s, his tongue swirling around hers. “Your hubby is a shameless and greedy bastard, I know that,” he murmured as he parted his lips, feeling Ruxue’s panting breath hit his face.</p>
 
 <p>“But tell me… what would become of me if I weren’t like this?”</p>
 
-<p>Not even he knew the answer to that question. He only knew what to</p>
-
-<p>do next.</p>
+<p>Not even he knew the answer to that question. He only knew what to do next.</p>
 
 <p>Immediately, he entered the world of the mind and, inside, pushed</p>
 
@@ -143,38 +119,22 @@ chapter = 468
 
 <p>A cute, high-pitched squeal escaped her lips as her delicate back pressed against the soft grass.</p>
 
-<p>Her huge, pale tits bounced with the impact, the heavy mountains of</p>
+<p>Her huge, pale tits bounced with the impact, the heavy mountains of flesh pressing against her delicate torso, maintaining their shape perfectly.</p>
 
-<p>flesh pressing against her delicate torso, maintaining their shape</p>
-
-<p>perfectly.</p>
-
-<p>Qingyi leaned over her. With a smooth movement, he pulled down</p>
-
-<p>her pink neckline, watching that expanse of pale, creamy skin take</p>
-
-<p>over his vision.</p>
+<p>Qingyi leaned over her. With a smooth movement, he pulled down her pink neckline, watching that expanse of pale, creamy skin take over his vision.</p>
 
 <p>The nipples, purple and soft, hardened in the cool breeze.</p>
 
 <p>His lips parted and closed around Ruxue’s puffy nipples, his tongue working around the soft tip.</p>
 
-<p>Only a brief moment of suction was necessary. A flood of warm milk</p>
-
-<p>invaded his mouth, the creamy liquid sliding down his throat in</p>
-
-<p>greedy gulps.</p>
+<p>Only a brief moment of suction was necessary. A flood of warm milk invaded his mouth, the creamy liquid sliding down his throat in greedy gulps.</p>
 
 <p>“Uh… you’re even more delicious than before…” Qingyi smiled, licking the milk that dripped from her breasts.</p>
 
 <p>Ruxue spread her legs, and he promptly took his cock out.</p>
 
-<p>His member, long, thick, and veiny, pressed against the fat, soft lips of</p>
+<p>His member, long, thick, and veiny, pressed against the fat, soft lips of Ruxue’s pussy.</p>
 
-<p>Ruxue’s pussy.</p>
-
-<p>The pale skin was gently squeezed as Qingyi applied a little more</p>
-
-<p>force, preparing to invade her.</p>
+<p>The pale skin was gently squeezed as Qingyi applied a little more force, preparing to invade her.</p>
 
 <p>NT: Tomorrow’s chapter will be a little late, as I’m going on a trip today. I should only get home tomorrow afternoon. I am very sorry.</p>

@@ -37,9 +37,7 @@ chapter = 439
 
 <p>He needed to keep an eye on that bastard and, if necessary, cut off his head.</p>
 
-<p>“Oh… It’s good that you two have become friends!” Celestia, standing next to Qingyi, let out an excited squeal and did a little jump. Her</p>
-
-<p>chest pressed against Qingyi’s arm. “Miss Auranys has heard my prayers!”</p>
+<p>“Oh… It’s good that you two have become friends!” Celestia, standing next to Qingyi, let out an excited squeal and did a little jump. Her chest pressed against Qingyi’s arm. “Miss Auranys has heard my prayers!”</p>
 
 <p>“Very well.” The bishop interrupted the youths, walking to the center of the room. “I believe everyone already knows what they are doing here.”</p>
 
@@ -87,37 +85,25 @@ chapter = 439
 
 <p>Still, she was terrified, and that wasn’t even the biggest problem.</p>
 
-<p>At least not compared to the fact that her dress had ridden up, and at this very moment, the bottom was slapping against her face. She could feel the air rushing through her private parts, her attempts</p>
-
-<p>to cover herself failing completely.</p>
+<p>At least not compared to the fact that her dress had ridden up, and at this very moment, the bottom was slapping against her face. She could feel the air rushing through her private parts, her attempts to cover herself failing completely.</p>
 
 <p>Celestia’s eyes began to water as she hit the ground.</p>
 
 <p>Qingyi was watching everything, right?</p>
 
-<p>Of course he was watching. From the bulging curve of her fat, perfect buttocks, to her plump, creamy pussy and the lower curve of her pale</p>
-
-<p>tits.</p>
+<p>Of course he was watching. From the bulging curve of her fat, perfect buttocks, to her plump, creamy pussy and the lower curve of her pale tits.</p>
 
 <p>He moved smoothly, raising his hand to catch Celestia in midair.</p>
 
-<p>His right hand struck her ass with a loud, wet smack. His left hand</p>
-
-<p>moved up to her huge tits, grabbing and squeezing them.</p>
+<p>His right hand struck her ass with a loud, wet smack. His left hand moved up to her huge tits, grabbing and squeezing them.</p>
 
 <p>“Nghnn~~ Q-Qingyi- aghnnn~~” A loud, long, obscene moan escaped Celestia’s lips as her body calmed down from the impact.</p>
 
 <p>She could feel everything.</p>
 
-<p>Qingyi’s powerful, large hand pressing against the soft, plump skin of</p>
+<p>Qingyi’s powerful, large hand pressing against the soft, plump skin of her buttocks, his fingers sinking in and creating deep grooves in the flesh, barely able to encapsulate a fraction of the perfect orbs. With each small movement, his fingers slid across her fair, creamy skin, slightly damp with sweat.</p>
 
-<p>her buttocks, his fingers sinking in and creating deep grooves in the flesh, barely able to encapsulate a fraction of the perfect orbs. With each small movement, his fingers slid across her fair, creamy skin, slightly damp with sweat.</p>
-
-<p>His left hand was in a similar situation, grabbing one of her enormous</p>
-
-<p>tits, far from even being able to encapsulate a half of the vast pale</p>
-
-<p>peak, preventing her dress from sliding down.</p>
+<p>His left hand was in a similar situation, grabbing one of her enormous tits, far from even being able to encapsulate a half of the vast pale peak, preventing her dress from sliding down.</p>
 
 <p>She was almost completely exposed.</p>
 
@@ -125,37 +111,23 @@ chapter = 439
 
 <p>Qingyi could see everything.</p>
 
-<p>The feel and sight, the softness and elasticity of her skin, not even a</p>
-
-<p>single blemish corrupting it.</p>
+<p>The feel and sight, the softness and elasticity of her skin, not even a single blemish corrupting it.</p>
 
 <p>Every bit of it was heavenly.</p>
 
-<p>“Q-Qingyi… Thank you, but… Your hand…” Celestia whispered, almost</p>
+<p>“Q-Qingyi… Thank you, but… Your hand…” Celestia whispered, almost begging.</p>
 
-<p>begging.</p>
-
-<p>“Oh..” Qingyi acted like he made a mistake, removing his hand from Celestia’s chest and moving it down, now grabbing her buttocks with</p>
-
-<p>both hands.</p>
+<p>“Oh..” Qingyi acted like he made a mistake, removing his hand from Celestia’s chest and moving it down, now grabbing her buttocks with both hands.</p>
 
 <p>“Nghnn~~” Celestia moaned again, feeling the new pressure on her perfect butt as Qingyi greedily grabbed them.</p>
 
-<p>The new position forced her against his chest, her face pressed against him, while on her belly she felt pressure coming from a bulge</p>
-
-<p>in Qingyi’s crotch.</p>
+<p>The new position forced her against his chest, her face pressed against him, while on her belly she felt pressure coming from a bulge in Qingyi’s crotch.</p>
 
 <p>Large and throbbing.</p>
 
-<p>“C-can we get down?” she asked, her voice so low and embarrassed</p>
+<p>“C-can we get down?” she asked, her voice so low and embarrassed that Qingyi could barely hear it.</p>
 
-<p>that Qingyi could barely hear it.</p>
-
-<p>“Yes.” He smiled, going to the floor, where Celestia could finally pull</p>
-
-<p>away from Qingyi. Her dress finally fell, though still unable to cover</p>
-
-<p>her curves.</p>
+<p>“Yes.” He smiled, going to the floor, where Celestia could finally pull away from Qingyi. Her dress finally fell, though still unable to cover her curves.</p>
 
 <p>Celestia took a step back, her face flushing as she realized the true size of the bulge in Qingyi’s pants.</p>
 

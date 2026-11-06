@@ -71,51 +71,31 @@ chapter = 485
 
 <p>He aligned his cock with her pussy, bathing it with the love juices that leaked endlessly.</p>
 
-<p>“It’ll hurt a little at first, but I promise it’ll feel good soon.” Qingyi whispered, planting a final kiss on Seraphine’s lips and giving her ass a</p>
+<p>“It’ll hurt a little at first, but I promise it’ll feel good soon.” Qingyi whispered, planting a final kiss on Seraphine’s lips and giving her ass a gentle slap.</p>
 
-<p>gentle slap.</p>
+<p>Seraphine just nodded silently, feeling the pressure in her crotch increase. The fat lips of her vulva opened around Qingyi’s cock, accepting it inside her.</p>
 
-<p>Seraphine just nodded silently, feeling the pressure in her crotch increase. The fat lips of her vulva opened around Qingyi’s cock,</p>
+<p>‘All for my little sister…! She repeated in her mind, but deep down, she knew she was lying to herself.</p>
 
-<p>accepting it inside her.</p>
+<p>Her body begged for more, every little touch eliciting a moan of pleasure and desire from her lips.</p>
 
-<p>‘All for my little sister…! She repeated in her mind, but deep down, she</p>
-
-<p>knew she was lying to herself.</p>
-
-<p>Her body begged for more, every little touch eliciting a moan of</p>
-
-<p>pleasure and desire from her lips.</p>
-
-<p>This wasn’t normal… Even someone like her, who had never felt the</p>
-
-<p>touch of a man, knew that.</p>
+<p>This wasn’t normal… Even someone like her, who had never felt the touch of a man, knew that.</p>
 
 <p>Why couldn’t she stop?</p>
 
 <p>“Aghnnn~~”</p>
 
-<p>The first inch went inside, her tight, virgin pussy quickly swallowing</p>
-
-<p>the entire bulbous head.</p>
+<p>The first inch went inside, her tight, virgin pussy quickly swallowing the entire bulbous head.</p>
 
 <p>“Q-Qingyi… i-it won’t nghnn~~ fit~~ aghn~~!” Seraphine moaned, her eyes widening as more of Qingyi’s cock sank into her.</p>
 
-<p>First, the huge cock broke through her virginity, and after that, it pushed forward, stopping only when it hit the walls of her womb,</p>
-
-<p>filling her completely.</p>
+<p>First, the huge cock broke through her virginity, and after that, it pushed forward, stopping only when it hit the walls of her womb, filling her completely.</p>
 
 <p>Seraphine’s eyes rolled back, her tongue escaping her lips as she moaned and salivated nonstop.</p>
 
-<p>“From now on…” Qingyi whispered into Seraphine’s ears, ignoring the</p>
+<p>“From now on…” Qingyi whispered into Seraphine’s ears, ignoring the flood of system notifications, trillions of lust points taking over his balance.</p>
 
-<p>flood of system notifications, trillions of lust points taking over his</p>
-
-<p>balance.</p>
-
-<p>He lifted her up on his cock until the tip almost escaped the tight, wet</p>
-
-<p>grip of her pussy walls.</p>
+<p>He lifted her up on his cock until the tip almost escaped the tight, wet grip of her pussy walls.</p>
 
 <p>“Call me husband.”</p>
 
@@ -125,20 +105,14 @@ chapter = 485
 
 <p>Smiling, Qingyi just gave her ass another slap and sat down on a bench next to him, and then began to guide her, helping her ride his cock, his fingers sinking into the soft, milky skin of her hips. Their bodies, pressed tightly against each other, separated, allowing her tits to swing freely with each bounce of her hips on Qingyi’s cock.</p>
 
-<p>She was a smart woman and it didn’t take her long to find her own</p>
-
-<p>rhythm.</p>
+<p>She was a smart woman and it didn’t take her long to find her own rhythm.</p>
 
 <p>Kneeling over Qingyi, she moved her hips nonstop.</p>
 
-<p>Her open hands pressed against his firm chest as her ass rose and fell</p>
-
-<p>in increasingly stronger impacts, her pussy struggling to milk him of every last drop of his seed.</p>
+<p>Her open hands pressed against his firm chest as her ass rose and fell in increasingly stronger impacts, her pussy struggling to milk him of every last drop of his seed.</p>
 
 <p>In her entire life, she had never felt better than she did now, with that huge, thick, throbbing cock filling her to the brim while her sister watched from behind.</p>
 
 <p>She just wanted to be overwhelmed by that feeling for all eternity.</p>
 
-<p>“H-husband~~ nghnn~~ aghnn~~ something… oh… gods….. something’s coming~~” Seraphine moaned, feeling an even more</p>
-
-<p>intense sensation take over her groin, incomparable to the lonely nights when she touched herself.</p>
+<p>“H-husband~~ nghnn~~ aghnn~~ something… oh… gods….. something’s coming~~” Seraphine moaned, feeling an even more intense sensation take over her groin, incomparable to the lonely nights when she touched herself.</p>

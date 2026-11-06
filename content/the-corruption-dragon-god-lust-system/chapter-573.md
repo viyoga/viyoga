@@ -21,9 +21,7 @@ chapter = 573
 
 <p>Qingyi didn’t know much about these before, but now, with his spatial control in full swing, he already understood completely how to locate pockets of this type.</p>
 
-<p>Of course, it was still something that took time and, above all,</p>
-
-<p>required an understanding of the general position where the spatial pocket was located.</p>
+<p>Of course, it was still something that took time and, above all, required an understanding of the general position where the spatial pocket was located.</p>
 
 <p>The first place he tried to search was, naturally, the former capital of the divine kingdom of Auranys.</p>
 
@@ -59,9 +57,7 @@ chapter = 573
 
 <p>There was, indeed, an anomaly there. Like a small, imperceptible tear in space.</p>
 
-<p>Focusing his spatial Qi, he found the place where the tear led to, and</p>
-
-<p>then smiled.</p>
+<p>Focusing his spatial Qi, he found the place where the tear led to, and then smiled.</p>
 
 <p>His body was immediately swallowed by a spatial fold, and when he reappeared, he was in a completely different place.</p>
 
@@ -91,25 +87,17 @@ chapter = 573
 
 <p>What he saw was, in fact, the Immortal Heaven.</p>
 
-<p>“There’s no need to spend so much time thinking about it…” Qingyi sharpened his senses, spreading them throughout the divine realm of</p>
+<p>“There’s no need to spend so much time thinking about it…” Qingyi sharpened his senses, spreading them throughout the divine realm of Auranys.</p>
 
-<p>Auranys.</p>
-
-<p>He could feel hundreds of powerful auras gathering at its center, with</p>
-
-<p>blood and war dominating everything.</p>
+<p>He could feel hundreds of powerful auras gathering at its center, with blood and war dominating everything.</p>
 
 <p>Apparently, a fierce battle was taking place.</p>
 
-<p>With a sigh, he firmly grasped the Heaven-Defying Thunder Sword</p>
-
-<p>and disappeared again.</p>
+<p>With a sigh, he firmly grasped the Heaven-Defying Thunder Sword and disappeared again.</p>
 
 <p>***</p>
 
-<p>At the center of the Auranys divine realm stood a huge city. Stretching hundreds of kilometers, it had enough houses for tens of</p>
-
-<p>millions of people.</p>
+<p>At the center of the Auranys divine realm stood a huge city. Stretching hundreds of kilometers, it had enough houses for tens of millions of people.</p>
 
 <p>Once upon a time, that city had been prosperous, more prosperous than anything the Immortal Heaven could ever dream of creating.</p>
 
@@ -119,25 +107,15 @@ chapter = 573
 
 <p>The walls and houses were perfectly preserved, without a single speck of dust, but also without any sign of life.</p>
 
-<p>The palace at its center was the only exception, guarded by a</p>
-
-<p>hundred winged warriors, all at the peak of the twelfth ring.</p>
+<p>The palace at its center was the only exception, guarded by a hundred winged warriors, all at the peak of the twelfth ring.</p>
 
 <p>Beneath their silver helmets, their eyes were cold and fixed on a figure approaching on the horizon.</p>
 
-<p>The figure was tall, with flaming hair like a lion’s mane and a cruel,</p>
+<p>The figure was tall, with flaming hair like a lion’s mane and a cruel, savage gaze.</p>
 
-<p>savage gaze.</p>
+<p>Following him, five hundred warriors advanced, equipped with blood-red armor, with a power level similar to that of the winged warriors.</p>
 
-<p>Following him, five hundred warriors advanced, equipped with blood-red armor, with a power level similar to that of the winged</p>
-
-<p>warriors.</p>
-
-<p>“Ah… To make even me, the god of war and destruction, suffer so</p>
-
-<p>much… The man with flaming hair exhaled heavily, wiping a cut on</p>
-
-<p>his cheek.</p>
+<p>“Ah… To make even me, the god of war and destruction, suffer so much… The man with flaming hair exhaled heavily, wiping a cut on his cheek.</p>
 
 <p>He looked at the city around him, the well-kept streets, the pristine statues of various gods of the past.</p>
 

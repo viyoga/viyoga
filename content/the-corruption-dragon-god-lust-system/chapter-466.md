@@ -45,9 +45,7 @@ chapter = 466
 
 <p>He couldn’t pay attention to this figure as he used the Third Form of the Thunderous Sword Art, breaking Xuetian’s attack.</p>
 
-<p>Spinning his body, he threw a flaming spear toward the demonic</p>
-
-<p>cultist.</p>
+<p>Spinning his body, he threw a flaming spear toward the demonic cultist.</p>
 
 <p>A powerful explosion echoed as Xuetian tried to parry the spear sent toward him, only to be swallowed by a sea of flames.</p>
 
@@ -95,9 +93,7 @@ chapter = 466
 
 <p>Any rock that even came close to them was immediately turned to dust, both above and below.</p>
 
-<p>Just one more clash of blades later, and the sun was already bathing</p>
-
-<p>their bodies. Their weapons sparkled as they met again and again. The new opening revealed a crater more than ten kilometers long and nearly two kilometers deep.</p>
+<p>Just one more clash of blades later, and the sun was already bathing their bodies. Their weapons sparkled as they met again and again. The new opening revealed a crater more than ten kilometers long and nearly two kilometers deep.</p>
 
 <p>“I think it’s time to end this, young man!” Xuetian roared, appearing in one of the corners.</p>
 
@@ -109,16 +105,10 @@ chapter = 466
 
 <p>Crimson wings of blood appeared on Xuetian’s back, his bloody sword transforming into a spear.</p>
 
-<p>Qingyi closed his eyes, calling upon his Shadow Qi, feeling all the Qi around him being sucked toward him, the deep shadows devouring</p>
+<p>Qingyi closed his eyes, calling upon his Shadow Qi, feeling all the Qi around him being sucked toward him, the deep shadows devouring everything.</p>
 
-<p>everything.</p>
-
-<p>He took a deep breath. He inhaled and then attacked, using the Ten Thousand Shadows Devouring Art, noticing Xuetian’s figure rapidly</p>
-
-<p>approaching.</p>
+<p>He took a deep breath. He inhaled and then attacked, using the Ten Thousand Shadows Devouring Art, noticing Xuetian’s figure rapidly approaching.</p>
 
 <p>But then, at the last moment, the second before the attacks met, Qingyi felt something; a deep pain in his ribs.</p>
 
-<p>“Die, you bastard!” Lucien roared with nothing but the deepest</p>
-
-<p>hatred.</p>
+<p>“Die, you bastard!” Lucien roared with nothing but the deepest hatred.</p>

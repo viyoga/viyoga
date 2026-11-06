@@ -83,17 +83,13 @@ chapter = 380
 
 <p>He had nowhere near the power needed for that.</p>
 
-<p>‘If the matriarch isn’t tainted… I’ll ask her about it, he decided in his</p>
-
-<p>mind.</p>
+<p>‘If the matriarch isn’t tainted… I’ll ask her about it, he decided in his mind.</p>
 
 <p>Hu Lanyin continued to guide them through the capital of the fox people, taking them to the base of the huge icy mountain. They entered a damp cave and descended a black staircase.</p>
 
 <p>Qingyi’s eyes naturally focused on what mattered most as he walked right behind the two transcendental beauties: the gentle sway of their perfectly round asses, each step sending ripples through their incomparable voluptuousness.</p>
 
-<p>He already imagined his cock sunk between those pale, perfect cheeks, certain that he would soon be at least between one of these</p>
-
-<p>pairs.</p>
+<p>He already imagined his cock sunk between those pale, perfect cheeks, certain that he would soon be at least between one of these pairs.</p>
 
 <p>Unfortunately, the other was still out of his reach.</p>
 
@@ -101,53 +97,31 @@ chapter = 380
 
 <p>This cauldron contained no water or any kind of liquid, looking more like a murky portal to another dimension, its interior revealing forests, plains and mountains on an infinite plane.</p>
 
-<p>“This is the portal to the matriarch’s palace. Only the talented can find</p>
+<p>“This is the portal to the matriarch’s palace. Only the talented can find it.</p>
 
-<p>it.</p>
+<p>Those who are unable to reach the matriarch in seven days will fail and will not receive the blessing of our people.”</p>
 
-<p>Those who are unable to reach the matriarch in seven days will fail</p>
-
-<p>and will not receive the blessing of our people.”</p>
-
-<p>Lanyin stopped in front of the cauldron, watching Qingyi and</p>
-
-<p>Qianyao with a cold, composed look.</p>
+<p>Lanyin stopped in front of the cauldron, watching Qingyi and Qianyao with a cold, composed look.</p>
 
 <p>This was the final test, even more dangerous and difficult than the divine beast tournament itself.</p>
 
-<p>Out of every ten pairs, only one was truly capable of winning the</p>
+<p>Out of every ten pairs, only one was truly capable of winning the challenge without using the escape tokens they received upon entering.</p>
 
-<p>challenge without using the escape tokens they received upon</p>
-
-<p>entering.</p>
-
-<p>“Any doubts?” Lanyin asked and, after receiving no questions, smiled. “May the spirit of the divine beast be with you.” She took a step to the</p>
-
-<p>side.</p>
+<p>“Any doubts?” Lanyin asked and, after receiving no questions, smiled. “May the spirit of the divine beast be with you.” She took a step to the side.</p>
 
 <p>There was no great ceremony, no chanting or super-complex arrays.</p>
 
 <p>Beast people generally despised that sort of thing and almost always preferred to get straight to the point. Of course, there were exceptions, but they were rare.</p>
 
-<p>Qianyao was the first to step forward, flashing Qingyi a blushing look</p>
-
-<p>before jumping into the cauldron.</p>
+<p>Qianyao was the first to step forward, flashing Qingyi a blushing look before jumping into the cauldron.</p>
 
 <p>Qingyi followed close behind.</p>
 
-<p>In the next moment, the air around him changed completely. A gust</p>
+<p>In the next moment, the air around him changed completely. A gust hit his face, the muggy air replaced by violent gales. He straightened himself in the air, watching the silver-haired, golden-eyed beauty falling next to him, her hands wrapped around her huge breasts, squeezing them tightly to stop them escaping from her cleavage.</p>
 
-<p>hit his face, the muggy air replaced by violent gales. He straightened himself in the air, watching the silver-haired, golden-eyed beauty falling next to him, her hands wrapped around her huge breasts, squeezing them tightly to stop them escaping from</p>
+<p>Qingyi could only appreciate the sight for a single moment before he moved his Qi, slowing his fall.</p>
 
-<p>her cleavage.</p>
-
-<p>Qingyi could only appreciate the sight for a single moment before he</p>
-
-<p>moved his Qi, slowing his fall.</p>
-
-<p>Even so, he still fell with a thud, his feet sinking into the ground,</p>
-
-<p>causing a violent tremor all around.</p>
+<p>Even so, he still fell with a thud, his feet sinking into the ground, causing a violent tremor all around.</p>
 
 <p>Qianyao landed soon after, much more elegantly, barely making a sound, her breasts rippling violently with the movement.</p>
 

@@ -79,15 +79,11 @@ chapter = 499
 
 <p>“Q-Qingyi… rider… hubby… What the hell is this?” She asked, leaning over Qingyi as she gave one final sit. The mattress beneath them turned to dust, their bodies sinking into a small crater.</p>
 
-<p>Her pussy, tight and wet, began to squirt nonstop and at the same time, Qingyi released a fat, massive gush of cum, invading Khaedryss’s</p>
-
-<p>womb.</p>
+<p>Her pussy, tight and wet, began to squirt nonstop and at the same time, Qingyi released a fat, massive gush of cum, invading Khaedryss’s womb.</p>
 
 <p>“Ah~~ so full…” Khaedryss collapsed, losing her strength.</p>
 
-<p>“Hm… you’re quite sensitive for an ancient war machine,” Qingyi whispered into Khaedryss’s ears. Before she could even protest, he</p>
-
-<p>sealed her lips with a kiss.</p>
+<p>“Hm… you’re quite sensitive for an ancient war machine,” Qingyi whispered into Khaedryss’s ears. Before she could even protest, he sealed her lips with a kiss.</p>
 
 <p>The draconic beauty resisted gently at first, but soon just accepted it. Qingyi’s tongue invaded her mouth and curled around her tongue, their kiss turning into a long, passionate dance.</p>
 
@@ -97,11 +93,7 @@ chapter = 499
 
 <p>One of his hands went to her black hair, stroking it carefully.</p>
 
-<p>“Hm… not bad,” Khaedryss replied, before declaring arrogantly, “I</p>
-
-<p>should have killed and eaten that bitch’s heart when I had the chance</p>
-
-<p>in the past!”</p>
+<p>“Hm… not bad,” Khaedryss replied, before declaring arrogantly, “I should have killed and eaten that bitch’s heart when I had the chance in the past!”</p>
 
 <p>Those words elicited an honest laugh from Qingyi.</p>
 
@@ -109,23 +101,15 @@ chapter = 499
 
 <p>he asked.</p>
 
-<p>“I respected her, as a worthy opponent. I killed her husband and</p>
+<p>“I respected her, as a worthy opponent. I killed her husband and would have killed her too if she hadn’t died first!” Khaedryss closed her eyes, memories of great battles from the past flooding her mind.</p>
 
-<p>would have killed her too if she hadn’t died first!” Khaedryss closed her eyes, memories of great battles from the past flooding her mind.</p>
+<p>It was good to fight, it was good to be in Qingyi’s arms, it was good to live.</p>
 
-<p>It was good to fight, it was good to be in Qingyi’s arms, it was good to</p>
-
-<p>live.</p>
-
-<p>The handsome young man, hearing that statement, just shook his</p>
-
-<p>head.</p>
+<p>The handsome young man, hearing that statement, just shook his head.</p>
 
 <p>Yes, that was his Khaedryss.</p>
 
-<p>On the one hand, cute and curious; on the other hand, a force of</p>
-
-<p>arrogance and unstoppable violence.</p>
+<p>On the one hand, cute and curious; on the other hand, a force of arrogance and unstoppable violence.</p>
 
 <p>Both he and she were black dragons, after all.</p>
 
@@ -133,16 +117,12 @@ chapter = 499
 
 <p>“Do you want to switch rooms and sleep a little longer?”</p>
 
-<p>“No.” Khaedryss shook her head, turning in Qingyi’s arms and offering</p>
-
-<p>him her rear view.</p>
+<p>“No.” Khaedryss shook her head, turning in Qingyi’s arms and offering him her rear view.</p>
 
 <p>Her ass rose, the perfect, round orbs taking on the shape of a heart, surging from her thin, delicate waist.</p>
 
 <p>Her hands flowed down to her ass, her long, delicate fingers sinking into the soft, squishy flesh.</p>
 
-<p>Qingyi’s cock finally slipped out of her pussy, making way for his cum to flow freely. “I want more.” Her lips broke into a teasing smile. Qingyi didn’t really think he would introduce her to paradise and</p>
-
-<p>then escape so easily, did he?</p>
+<p>Qingyi’s cock finally slipped out of her pussy, making way for his cum to flow freely. “I want more.” Her lips broke into a teasing smile. Qingyi didn’t really think he would introduce her to paradise and then escape so easily, did he?</p>
 
 <p>No chance!</p>

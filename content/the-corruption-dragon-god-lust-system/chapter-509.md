@@ -27,9 +27,7 @@ chapter = 509
 
 <p>Looking up, he saw Sapphire and Margareth using water magic to start washing the soap off the flying ship. His wives’ eyes sparkled as the water began to rain down on them.</p>
 
-<p>Their wet clothes clung to their voluptuous curves, their skin</p>
-
-<p>glistening in the sunlight as they watched the completely clean flying ship reveal itself.</p>
+<p>Their wet clothes clung to their voluptuous curves, their skin glistening in the sunlight as they watched the completely clean flying ship reveal itself.</p>
 
 <p>Standing up, Qingyi approached Meilin from behind and embraced her. His hips met her plump, round, and beautiful buttocks, the bulge in his pants resting right in the deep valley they formed.</p>
 
@@ -53,9 +51,7 @@ chapter = 509
 
 <p>He did not teleport, nor did he control his speed. His body broke the speed of sound five times in a single second and then continued to accelerate.</p>
 
-<p>Behind him, destruction reigned. Trees were uprooted and the</p>
-
-<p>ground split open under the pressure of his Qi, everything within a fifty-meter radius on either side dying instantly.</p>
+<p>Behind him, destruction reigned. Trees were uprooted and the ground split open under the pressure of his Qi, everything within a fifty-meter radius on either side dying instantly.</p>
 
 <p>Shaking his head, Qingyi simply began to teleport, one time after another, until he finally managed to find his way to the capital of the Valemont Kingdom.</p>
 
@@ -67,9 +63,7 @@ chapter = 509
 
 <p>“The Lightning Prince has returned!”</p>
 
-<p>Qingyi heard the crowd chanting his name, flashing a gentle smile at</p>
-
-<p>them.</p>
+<p>Qingyi heard the crowd chanting his name, flashing a gentle smile at them.</p>
 
 <p>Waving his hands, he created millions of tiny mana bubbles, letting them fall upon the crowd.</p>
 
@@ -79,19 +73,13 @@ chapter = 509
 
 <p>As he slowly descended, he felt the Heaven-defying Thunder Sword glow as a figure appeared beside him, a massive pair of breasts pressing against his ribs like warm, soft pillows as the figure hugged him.</p>
 
-<p>“Oh… so much has changed here! Father has really been investing a</p>
+<p>“Oh… so much has changed here! Father has really been investing a lot, huh?” Isabel’s eyes sparkled.</p>
 
-<p>lot, huh?” Isabel’s eyes sparkled.</p>
-
-<p>The walls had been rebuilt, entire neighborhoods had been</p>
-
-<p>renovated, and even a magic tower had been erected.</p>
+<p>The walls had been rebuilt, entire neighborhoods had been renovated, and even a magic tower had been erected.</p>
 
 <p>Even considering all the wealth they had taken from the corrupt and treacherous nobles, it shouldn’t be this much.</p>
 
-<p>As Isabel’s eyes scanned everything, they fell on something strangely</p>
-
-<p>familiar.</p>
+<p>As Isabel’s eyes scanned everything, they fell on something strangely familiar.</p>
 
 <p>It was a huge building with more than twenty floors, its facade bearing a unique symbol representing five elements.</p>
 
@@ -101,9 +89,7 @@ chapter = 509
 
 <p>Qingyi was unable to hide his shock.</p>
 
-<p>How little time had passed since he had left? Had the Gold King really</p>
-
-<p>acted so quickly?</p>
+<p>How little time had passed since he had left? Had the Gold King really acted so quickly?</p>
 
 <p>Sighing, he just continued toward the royal palace.</p>
 
@@ -111,9 +97,7 @@ chapter = 509
 
 <p>The fact that the Kingdom of Valemont had opened up somewhat to foreigners was a great opportunity for someone like the Gold King, who already had complete control over the eastern continent.</p>
 
-<p>If he could gain complete control over trade on the western continent</p>
-
-<p>as well…</p>
+<p>If he could gain complete control over trade on the western continent as well…</p>
 
 <p>The Five-Color Pavilion would likely become even more unrivaled.</p>
 
@@ -123,9 +107,7 @@ chapter = 509
 
 <p>Immediately, the guard knelt down, lowering his head.</p>
 
-<p>“What are you waiting for? Open the gates! I’m here to see my dad</p>
-
-<p>and mom.” Isabel exclaimed beside Qingyi.</p>
+<p>“What are you waiting for? Open the gates! I’m here to see my dad and mom.” Isabel exclaimed beside Qingyi.</p>
 
 <p>The guards exchanged glances before obeying, opening the gates and bowing as the young couple passed through.</p>
 

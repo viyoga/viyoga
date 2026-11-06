@@ -33,9 +33,7 @@ chapter = 411
 
 <p>As always, the world slowed down. Or, to be more specific, his perception of the world sped up.</p>
 
-<p>His mind worked at full speed as he calculated the trajectory of each</p>
-
-<p>of those swords, intentionally avoiding controlling them.</p>
+<p>His mind worked at full speed as he calculated the trajectory of each of those swords, intentionally avoiding controlling them.</p>
 
 <p>They were all aimed at him, but their trajectories were almost completely random.</p>
 
@@ -43,9 +41,7 @@ chapter = 411
 
 <p>Below him, the inhabitants of the capital, who were still celebrating the end of the siege with a grand banquet in a large square, raised their eyes.</p>
 
-<p>They watched as the thunderous, luminous threads tore through the black sky, turned around, and exploded with even greater speed,</p>
-
-<p>converging toward a single point.</p>
+<p>They watched as the thunderous, luminous threads tore through the black sky, turned around, and exploded with even greater speed, converging toward a single point.</p>
 
 <p>And then, they saw it.</p>
 
@@ -75,9 +71,7 @@ chapter = 411
 
 <p>With a big smile, he turned toward the royal palace and flew there, landing in the luxurious central courtyard.</p>
 
-<p>He wanted to be greeted by his beautiful wife and a huge pair of tits in his face. And indeed, he was, Isabel’s beautiful figure throwing herself into his arms and pulling him into the deep valley of her chocolatey,</p>
-
-<p>creamy mountains.</p>
+<p>He wanted to be greeted by his beautiful wife and a huge pair of tits in his face. And indeed, he was, Isabel’s beautiful figure throwing herself into his arms and pulling him into the deep valley of her chocolatey, creamy mountains.</p>
 
 <p>“Ah… did you miss your husband?” Qingyi smiled, patting Isabel’s butt with one hand while the other flowed down to her long silver hair.</p>
 
@@ -89,9 +83,7 @@ chapter = 411
 
 <p>But in the end, fortunately, after David put that Bishop in his place, no one else disturbed them.</p>
 
-<p>A soft moan escaped Isabel’s lips as Qingyi, with a single movement,</p>
-
-<p>tore her robes.</p>
+<p>A soft moan escaped Isabel’s lips as Qingyi, with a single movement, tore her robes.</p>
 
 <p>His hands ran over her curves, from her hips to her thin, delicate waist, and then her huge, soft tits, squeezing gently.</p>
 
@@ -99,9 +91,7 @@ chapter = 411
 
 <p>“Ah…” Qingyi exhaled, leaving her nipple.</p>
 
-<p>He gave a final lick at the thin trail of creamy, sweet liquid that ran down the chocolatey orbs before finally moving up, reaching Isabel’s</p>
-
-<p>lips.</p>
+<p>He gave a final lick at the thin trail of creamy, sweet liquid that ran down the chocolatey orbs before finally moving up, reaching Isabel’s lips.</p>
 
 <p>He kissed her, his hands grabbing her waist as, with a smooth movement, he rolled over on the bed, placing her on top of him.</p>
 
@@ -109,14 +99,8 @@ chapter = 411
 
 <p>“Nghnn~~ when will father want husband to march?” Isabel asked, leaning a little more against Qingyi, resting the weight of her huge breasts against his chest, feeling his hands run over her curves.</p>
 
-<p>“I don’t know,” Qingyi shook his head, patting Isabel’s ass. “The rebel</p>
+<p>“I don’t know,” Qingyi shook his head, patting Isabel’s ass. “The rebel armies are standing still, and for now, as long as they don’t move, we won’t move either.”</p>
 
-<p>armies are standing still, and for now, as long as they don’t move, we won’t move either.”</p>
+<p>“Hm…” A discontented grunt escaped Isabel’s lips as she leaned against Qingyi’s chest, lifting her torso before declaring, “Hubby should kill all those bastards right now!”</p>
 
-<p>“Hm…” A discontented grunt escaped Isabel’s lips as she leaned against Qingyi’s chest, lifting her torso before declaring, “Hubby</p>
-
-<p>should kill all those bastards right now!”</p>
-
-<p>“Hahaha, I will, love.” Qingyi laughed before sinking back into Isabel’s</p>
-
-<p>tits.</p>
+<p>“Hahaha, I will, love.” Qingyi laughed before sinking back into Isabel’s tits.</p>

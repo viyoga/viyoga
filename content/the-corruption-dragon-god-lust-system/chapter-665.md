@@ -25,9 +25,7 @@ chapter = 665
 
 <p>Stand by your protectors. Do not disappoint us. And seize the most powerful fortunes this secret realm has to offer.”</p>
 
-<p>The moment the last word left his mouth, the elder pointed toward</p>
-
-<p>the gate, and all of the sect’s stellar sovereigns moved at once, channeling their Qi into the golden structure.</p>
+<p>The moment the last word left his mouth, the elder pointed toward the gate, and all of the sect’s stellar sovereigns moved at once, channeling their Qi into the golden structure.</p>
 
 <p>An explosion of Qi spread through the courtyard. Robes fluttered violently, and gazes filled with admiration turned upward, shining with awe.</p>
 
@@ -73,11 +71,7 @@ chapter = 665
 
 <p>It was likely a primordial-grade item, since phoenixes stood at the very pinnacle of divine beasts, alongside dragons.</p>
 
-<p>“We should head for a nearby fortune… we only have a month, and</p>
-
-<p>traveling to the more distant ones could eat up a lot of that time.” Xue Hua stepped closer to Qingyi, who simply shook his head with a</p>
-
-<p>gentle smile.</p>
+<p>“We should head for a nearby fortune… we only have a month, and traveling to the more distant ones could eat up a lot of that time.” Xue Hua stepped closer to Qingyi, who simply shook his head with a gentle smile.</p>
 
 <p>“That tiger won’t go after the weaker fortunes, and you won’t fall behind Longwei.” His hands moved toward the two beauties.</p>
 
@@ -85,13 +79,9 @@ chapter = 665
 
 <p>A sweet moan slipped from Xue Hua’s lips.</p>
 
-<p>Qingyi’s hand wrapped around her waist, then slid lower without a</p>
+<p>Qingyi’s hand wrapped around her waist, then slid lower without a shred of hesitation. His palm traced the curve of her hip and settled on the full, round swell of her ass.</p>
 
-<p>shred of hesitation. His palm traced the curve of her hip and settled on the full, round swell of her ass.</p>
-
-<p>He gripped it firmly, his fingers sinking deep into the soft flesh, the fat</p>
-
-<p>of her buttock spilling between them.</p>
+<p>He gripped it firmly, his fingers sinking deep into the soft flesh, the fat of her buttock spilling between them.</p>
 
 <p>A shudder ran through her entire body.</p>
 
@@ -101,15 +91,11 @@ chapter = 665
 
 <p>Xue Hua didn’t even have time to complain about the hand on her ass.</p>
 
-<p>The next moment, Qingyi’s body burst forward with superhuman</p>
-
-<p>speed.</p>
+<p>The next moment, Qingyi’s body burst forward with superhuman speed.</p>
 
 <p>A single leap launched him hundreds of meters into the air, approaching the speed of a sports car from his past life.</p>
 
-<p>He held back from going faster only because, even with the system,</p>
-
-<p>he couldn’t reach his Qi or his mana, and without either, he couldn’t shield them from the violent wind.</p>
+<p>He held back from going faster only because, even with the system, he couldn’t reach his Qi or his mana, and without either, he couldn’t shield them from the violent wind.</p>
 
 <p>His body could still withstand absurd pressure even without Qi, but these two were different. He had to be careful.</p>
 
@@ -117,9 +103,7 @@ chapter = 665
 
 <p>No. If anyone spotted her there, it could cause problems.</p>
 
-<p>Mana users were treated no better than demons in the celestial</p>
-
-<p>heavens, hunted since the fall of the heavens’ foundation over fourteen million years ago.</p>
+<p>Mana users were treated no better than demons in the celestial heavens, hunted since the fall of the heavens’ foundation over fourteen million years ago.</p>
 
 <p>The chances of anyone there recognizing mana were slim, but the consequences certainly weren’t.</p>
 
@@ -133,9 +117,7 @@ chapter = 665
 
 <p>Her breasts swayed with the rhythm of his movement, the heavy mounds jiggling freely under her clothes.</p>
 
-<p>She clenched her teeth, feeling the wetness between her legs grow</p>
-
-<p>impossible to ignore.</p>
+<p>She clenched her teeth, feeling the wetness between her legs grow impossible to ignore.</p>
 
 <p>That bastard…</p>
 
@@ -143,63 +125,41 @@ chapter = 665
 
 <p>How dare he treat her that way? She was the daughter of the sect’s Grand Elder!</p>
 
-<p>Xue Hua’s face burned with heat as she felt her panties, completely</p>
-
-<p>soaked through, clinging to the puffy, swollen lips of her pussy.</p>
+<p>Xue Hua’s face burned with heat as she felt her panties, completely soaked through, clinging to the puffy, swollen lips of her pussy.</p>
 
 <p>The more she thought about what was happening to her body, the more confused she became.</p>
 
 <p>Was it some kind of unholy bloodline? A sex demon, perhaps?</p>
 
-<p>No… If he were a sex demon, he could only affect her like this with</p>
-
-<p>access to Qi.</p>
+<p>No… If he were a sex demon, he could only affect her like this with access to Qi.</p>
 
 <p>It had to be something else.</p>
 
 <p>‘Could it be…</p>
 
-<p>Xue Hua’s eyes shut tightly as she recalled a private encounter with</p>
-
-<p>Rou’er the night before.</p>
+<p>Xue Hua’s eyes shut tightly as she recalled a private encounter with Rou’er the night before.</p>
 
 <p>The petite beauty with pink hair and heterochromatic eyes had described Qingyi’s enormous cock in vivid detail while trying to convince her to become his woman.</p>
 
-<p>She had wondered what kind of crazy woman would describe her</p>
+<p>She had wondered what kind of crazy woman would describe her own husband to another woman, but now, all she could do was let her face burn a deep, vibrant red.</p>
 
-<p>own husband to another woman, but now, all she could do was let her face burn a deep, vibrant red.</p>
-
-<p>No way. There was absolutely no way she was attracted to that</p>
-
-<p>bastard!</p>
+<p>No way. There was absolutely no way she was attracted to that bastard!</p>
 
 <p>***</p>
 
 <p>While Qingyi raced through the wilderness with two beauties on his shoulders, in a region several kilometers from where he had first appeared, two figures emerged from the void.</p>
 
-<p>One was a massive, powerful white tiger with sharp green eyes and a</p>
-
-<p>savage expression.</p>
+<p>One was a massive, powerful white tiger with sharp green eyes and a savage expression.</p>
 
 <p>The other was a pathetic, trembling figure, barely holding together after the spatial turbulence of the journey.</p>
 
-<p>“Ah…” Bai Hu Lie inhaled deeply. The pure, fresh jungle air flooded his</p>
-
-<p>nostrils, thick with the scent of damp earth, rotting leaves, and the faint tang of distant rain.</p>
+<p>“Ah…” Bai Hu Lie inhaled deeply. The pure, fresh jungle air flooded his nostrils, thick with the scent of damp earth, rotting leaves, and the faint tang of distant rain.</p>
 
 <p>His expression lit up with amusement as he sniffed the air again.</p>
 
-<p>It was good to be in his natural hunting ground. “Coward, where is your map of this secret realm? Hand it over. I’ll see</p>
+<p>It was good to be in his natural hunting ground. “Coward, where is your map of this secret realm? Hand it over. I’ll see if I can find some treasure to awaken my bloodline, and maybe something for you.” Bai Hu Lie looked at Longwei. “D-don’t you have to kill Qingyi first? That was the deal!” Longwei forced himself upright on trembling legs and pulled a map from his robes.</p>
 
-<p>if I can find some treasure to awaken my bloodline, and maybe</p>
-
-<p>something for you.” Bai Hu Lie looked at Longwei. “D-don’t you have to kill Qingyi first? That was the deal!” Longwei</p>
-
-<p>forced himself upright on trembling legs and pulled a map from his robes.</p>
-
-<p>“Oh… yes, of course I haven’t forgotten that, hahahaha.” The tiger roared with laughter, snatched the map, and studied it with sharp</p>
-
-<p>eyes. “The lair of the fallen ice phoenix,” he declared, arrogance dripping from every word as he used the surrounding geography to orient himself.</p>
+<p>“Oh… yes, of course I haven’t forgotten that, hahahaha.” The tiger roared with laughter, snatched the map, and studied it with sharp eyes. “The lair of the fallen ice phoenix,” he declared, arrogance dripping from every word as he used the surrounding geography to orient himself.</p>
 
 <p>“The phoenix’s lair? What kind of madman would go to that place? The mortality rate is one hundred percent! No one has ever survived after entering there!” Longwei stared at the tiger, incredulous. “Qingyi isn’t a coward like you, Young Master Longwei shits his pants.</p>
 
@@ -207,6 +167,4 @@ chapter = 665
 
 <p>“I… ugh…” Longwei gritted his teeth and climbed on, clinging to the white fur on the tiger’s back.</p>
 
-<p>Why the hell did that bastard always have to bring that up? Would that stain on his reputation follow him forever? The next moment, the tiger shot forward at a speed no less than</p>
-
-<p>Qingyi’s, tearing through the unknown forest as if he had been born and lived there his entire life.</p>
+<p>Why the hell did that bastard always have to bring that up? Would that stain on his reputation follow him forever? The next moment, the tiger shot forward at a speed no less than Qingyi’s, tearing through the unknown forest as if he had been born and lived there his entire life.</p>

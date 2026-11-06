@@ -67,17 +67,11 @@ chapter = 677
 
 <p>Six lights…</p>
 
-<p>The seventh light flickered, but soon went out, drawing a</p>
+<p>The seventh light flickered, but soon went out, drawing a disappointed look from her.</p>
 
-<p>disappointed look from her.</p>
+<p>She wouldn’t break the sect’s record: seven lights, almost eight, achieved by a dragon a thousand years ago.</p>
 
-<p>She wouldn’t break the sect’s record: seven lights, almost eight,</p>
-
-<p>achieved by a dragon a thousand years ago.</p>
-
-<p>Still, a satisfied smile touched her lips. She returned to Fa Yun’s side,</p>
-
-<p>and the monk welcomed her with a warm look.</p>
+<p>Still, a satisfied smile touched her lips. She returned to Fa Yun’s side, and the monk welcomed her with a warm look.</p>
 
 <p>After her test, which earned admiring looks from all around, several more disciples presented themselves. Only one reached the fifth level. With that, the top three were already set and now, only Xue Hua remained.</p>
 
@@ -87,9 +81,7 @@ chapter = 677
 
 <p>Silence.</p>
 
-<p>Nothing happened for a long, moment. Then the pillar trembled with</p>
-
-<p>raw power.</p>
+<p>Nothing happened for a long, moment. Then the pillar trembled with raw power.</p>
 
 <p>Seven lights ignited at once, blazing to life, and they didn’t stop. The energy continued to climb.</p>
 
@@ -97,19 +89,13 @@ chapter = 677
 
 <p>A crushing pressure fell upon every disciple in the next instant, forcing several to stumble backward.</p>
 
-<p>Xue Hua withdrew her hand and the light slowly faded. A thin crack, nothing that compromised its function, now ran along the pillar’s</p>
-
-<p>surface.</p>
+<p>Xue Hua withdrew her hand and the light slowly faded. A thin crack, nothing that compromised its function, now ran along the pillar’s surface.</p>
 
 <p>For long seconds, no one dared to speak.</p>
 
-<p>The seventh light had been reached only once in the sect’s entire</p>
+<p>The seventh light had been reached only once in the sect’s entire history.</p>
 
-<p>history.</p>
-
-<p>It was common knowledge that the sixth was the limit for most and the three above existed only as a distant dream for future</p>
-
-<p>generations.</p>
+<p>It was common knowledge that the sixth was the limit for most and the three above existed only as a distant dream for future generations.</p>
 
 <p>“Xue Hua… tenth light, approved.”</p>
 
@@ -117,17 +103,11 @@ chapter = 677
 
 <p>It was, without question, a once-in-a-era occurrence. Xue Hua returned with unhurried steps, not looking the least bit surprised or excited.</p>
 
-<p>She raised her eyes, looked at her father, and smiled. The old man stood absolutely stunned, mouth slightly agape, unable</p>
+<p>She raised her eyes, looked at her father, and smiled. The old man stood absolutely stunned, mouth slightly agape, unable to believe his own eyes and ready to jump for joy.</p>
 
-<p>to believe his own eyes and ready to jump for joy.</p>
+<p>Honestly, over the past month, even Xue Hua herself hadn’t been unhappy.</p>
 
-<p>Honestly, over the past month, even Xue Hua herself hadn’t been</p>
-
-<p>unhappy.</p>
-
-<p>Qingyi treated her with nothing but love. Even though he noticed her attempts at manipulation and the soul attacks she launched after</p>
-
-<p>unlocking her Qi, he simply didn’t care.</p>
+<p>Qingyi treated her with nothing but love. Even though he noticed her attempts at manipulation and the soul attacks she launched after unlocking her Qi, he simply didn’t care.</p>
 
 <p>She had even begun to feel a little unworthy.</p>
 
@@ -137,9 +117,7 @@ chapter = 677
 
 <p>Xue Hua quickened her pace.</p>
 
-<p>She stepped in front of Qingyi and stood on tiptoe, her fingers curling</p>
-
-<p>into the fabric of his robes to pull herself closer.</p>
+<p>She stepped in front of Qingyi and stood on tiptoe, her fingers curling into the fabric of his robes to pull herself closer.</p>
 
 <p>Their lips met in a soft kiss.</p>
 

@@ -31,9 +31,7 @@ chapter = 588
 
 <p>A path to glory.</p>
 
-<p>That was why the Luo family’s henchmen attacked Chen Wei and his</p>
-
-<p>servant.</p>
+<p>That was why the Luo family’s henchmen attacked Chen Wei and his servant.</p>
 
 <p>In the mortal heavens, sects held great power, power that, in the immortal heavens, was concentrated in the hands of great empires. Even so, none of these great empires or sects could even imagine ruling an entire world.</p>
 
@@ -51,9 +49,7 @@ chapter = 588
 
 <p>From commoners to bandits.</p>
 
-<p>Everyone rushed toward the recruitment centers established by the</p>
-
-<p>sect.</p>
+<p>Everyone rushed toward the recruitment centers established by the sect.</p>
 
 <p>Hearing that story, Qingyi sighed and opened his status screen.</p>
 
@@ -71,15 +67,11 @@ chapter = 588
 
 <p>Affinities: Lightning: 6000 – Sword: 6000 – Fire: 6000 – Ice: 6000 – Space: 6000 – Light: 6000 – Shadow: 6000 – Charm: 6000 (can be upgraded in the lust store)</p>
 
-<p>Spiritual roots: Astral-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice, space, light, shadow) (10 G lust points to</p>
-
-<p>upgrade).</p>
+<p>Spiritual roots: Astral-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice, space, light, shadow) (10 G lust points to upgrade).</p>
 
 <p>Spiritual roots2: None/Astral-level Primordial Creation Seed Mana Heart (10 G lust points to upgrade).</p>
 
-<p>Lineage: Blood of the Corruption Dragon God (Astral grade, 15 G lust</p>
-
-<p>points to upgrade.)</p>
+<p>Lineage: Blood of the Corruption Dragon God (Astral grade, 15 G lust points to upgrade.)</p>
 
 <p>Constitution: Primordial Dragon Body (Astral grade, 15 G lust points to upgrade.)</p>
 
@@ -89,49 +81,29 @@ chapter = 588
 
 <p>[Golden Lust points. Only with G lust points can you purchase items from the Celestial Sky. All your regular lust points have been automatically converted into G lust points.]</p>
 
-<p>Receiving that response from the system, Qingyi could only sigh in</p>
+<p>Receiving that response from the system, Qingyi could only sigh in defeat, gazing toward the horizon, where thousands of auras were gathering.</p>
 
-<p>defeat, gazing toward the horizon, where thousands of auras were</p>
+<p>“Senior Brother Qingyi, we’re almost there,” Chen Wei said, quickening his pace.</p>
 
-<p>gathering.</p>
+<p>Soon, the three arrived at a clearing surrounded by countless youths of different backgrounds, from merchants to beggars.</p>
 
-<p>“Senior Brother Qingyi, we’re almost there,” Chen Wei said,</p>
-
-<p>quickening his pace.</p>
-
-<p>Soon, the three arrived at a clearing surrounded by countless youths</p>
-
-<p>of different backgrounds, from merchants to beggars.</p>
-
-<p>The only requirement was to have an awakened Dantian, so the</p>
-
-<p>masses had gathered, more than ten thousand crowded together</p>
-
-<p>right there.</p>
+<p>The only requirement was to have an awakened Dantian, so the masses had gathered, more than ten thousand crowded together right there.</p>
 
 <p>The place was noisy, with a few scuffles over spots up front breaking out in the middle of the crowd.</p>
 
-<p>Everyone wanted to catch a glimpse of the entrance to the hidden moonlight secret realm, guarded by ten disciples and an elder. The disciples’ uniforms bore star symbols on their chests, three on</p>
-
-<p>each, symbolizing that they were inner disciples.</p>
+<p>Everyone wanted to catch a glimpse of the entrance to the hidden moonlight secret realm, guarded by ten disciples and an elder. The disciples’ uniforms bore star symbols on their chests, three on each, symbolizing that they were inner disciples.</p>
 
 <p>The elder, on the other hand, had six stars on his chest.</p>
 
-<p>He was an ordinary-looking old man with a long white beard and</p>
-
-<p>steady eyes.</p>
+<p>He was an ordinary-looking old man with a long white beard and steady eyes.</p>
 
 <p>“Silence,” the elder said, his voice low and hoarse.</p>
 
 <p>Everyone fell silent immediately.</p>
 
-<p>‘I can’t see through any of their cultivation…’ Qingyi thought, his eyes</p>
+<p>‘I can’t see through any of their cultivation…’ Qingyi thought, his eyes scanning the disciples and the elder with curiosity.</p>
 
-<p>scanning the disciples and the elder with curiosity.</p>
-
-<p>When he activated his draconic eyes, he saw a Qi so powerful it</p>
-
-<p>forced him to look away.</p>
+<p>When he activated his draconic eyes, he saw a Qi so powerful it forced him to look away.</p>
 
 <p>In fact, he was back at the bottom of the food chain. ‘Luckily, I can only go back up, right?’ Qingyi’s lips curved.</p>
 
@@ -141,15 +113,11 @@ chapter = 588
 
 <p>Qingyi nodded.</p>
 
-<p>He was far too weak and needed both far more lust points and a</p>
-
-<p>better understanding of his position within the Celestial Heaven, since Chen Wei knew very little about the overall situation there.</p>
+<p>He was far too weak and needed both far more lust points and a better understanding of his position within the Celestial Heaven, since Chen Wei knew very little about the overall situation there.</p>
 
 <p>Qingyi himself knew only Qianyao’s father, a peak-level existence at the very center of the Celestial Heaven’s power.</p>
 
-<p>If he could find him, his ascent would be as easy as cutting through</p>
-
-<p>butter.</p>
+<p>If he could find him, his ascent would be as easy as cutting through butter.</p>
 
 <p>Unfortunately, he had no means of contact, so he had to take the hard road.</p>
 

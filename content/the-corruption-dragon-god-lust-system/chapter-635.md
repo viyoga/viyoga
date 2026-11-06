@@ -81,55 +81,35 @@ chapter = 635
 
 <p>Zhenwu had been stagnant in his current realm for over four hundred and eighty thousand years, four hundred and eighty thousand years spent merely solidifying a powerful foundation.</p>
 
-<p>Now, being the oldest of the sect’s Stellar Sovereigns and having advanced so many stages in a single cultivation session, just how</p>
+<p>Now, being the oldest of the sect’s Stellar Sovereigns and having advanced so many stages in a single cultivation session, just how formidable would he be?</p>
 
-<p>formidable would he be?</p>
-
-<p>And, to make matters even worse, he had a daughter who had been taken by a sect from the central regions and who, obviously, could easily break through the Stellar Sovereign realm and reach much</p>
-
-<p>higher levels.</p>
+<p>And, to make matters even worse, he had a daughter who had been taken by a sect from the central regions and who, obviously, could easily break through the Stellar Sovereign realm and reach much higher levels.</p>
 
 <p>“Ah… thank heavens that old monster isn’t an enemy.” Tianfa sighed.</p>
 
-<p>“Now that he’s broken through that bottleneck, it won’t be long</p>
-
-<p>before he reaches the peak of the Star Sovereign realm and becomes</p>
-
-<p>the sect’s most powerful expert.”</p>
+<p>“Now that he’s broken through that bottleneck, it won’t be long before he reaches the peak of the Star Sovereign realm and becomes the sect’s most powerful expert.”</p>
 
 <p>He only realized he’d spoken too soon when he noticed the calm expression on his subordinate’s face darken.</p>
 
 <p>Tianfa’s shoulders slumped immediately. Tianhao had the same reaction at the same time, the smile fading from his face.</p>
 
-<p>What the hell kind of blessing had fallen into Qingyi’s lap for free this</p>
+<p>What the hell kind of blessing had fallen into Qingyi’s lap for free this time?</p>
 
-<p>time?</p>
-
-<p>“Speak. What’s wrong?” Tianfa asked, suppressing his killing intent</p>
-
-<p>and sitting heavily in his chair.</p>
+<p>“Speak. What’s wrong?” Tianfa asked, suppressing his killing intent and sitting heavily in his chair.</p>
 
 <p>“Well… Zhenwu, this morning, publicly visited the sect leader and not only offered Qingyi his deepest gratitude for overcoming the secret realm on his family’s land, which had remained undefeated for generations, but even announced that…” The subordinate lowered his head, tense.</p>
 
-<p>He knew exactly the weight of what he was about to say, especially with Tianhao present, a man whose love for Rou’er bordered on</p>
-
-<p>obsession.</p>
+<p>He knew exactly the weight of what he was about to say, especially with Tianhao present, a man whose love for Rou’er bordered on obsession.</p>
 
 <p>“Speak. I’ll guarantee your life,” Tianfa said, his voice firm.</p>
 
-<p>He wasn’t an irrational man and wouldn’t kill a subordinate for</p>
-
-<p>something that wasn’t his fault.</p>
+<p>He wasn’t an irrational man and wouldn’t kill a subordinate for something that wasn’t his fault.</p>
 
 <p>“He spoke of Rou’er’s marriage and… said that his family would support Qingyi, an external disciple who has barely made a name for himself, as a potential suitor.”</p>
 
-<p>The moment he closed his mouth, the subordinate regretted having</p>
+<p>The moment he closed his mouth, the subordinate regretted having spoken.</p>
 
-<p>spoken.</p>
-
-<p>Tianhao’s murderous intent exploded through the room. “Qingyi… That wretch! He even deceived Master Ma!” Tianhao roared,</p>
-
-<p>his fist slamming down hard on the table, which split in two with a sharp crack.</p>
+<p>Tianhao’s murderous intent exploded through the room. “Qingyi… That wretch! He even deceived Master Ma!” Tianhao roared, his fist slamming down hard on the table, which split in two with a sharp crack.</p>
 
 <p>Little did he know that Qingyi himself had no clue what was going on.</p>
 

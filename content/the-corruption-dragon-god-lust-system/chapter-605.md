@@ -77,9 +77,7 @@ chapter = 605
 
 <p>Silently, under the shocked gazes of his fellow disciples, Qingyi returned to his place beside Chen Wei, whose eyes were shining.</p>
 
-<p>In the end, he, as Young Master Luo’s enemy, was the biggest winner</p>
-
-<p>there.</p>
+<p>In the end, he, as Young Master Luo’s enemy, was the biggest winner there.</p>
 
 <p>“You know he’s going to complain to Guo Tianhao, right?” Chen Wei whispered beside Qingyi, who nodded.</p>
 
@@ -91,15 +89,11 @@ chapter = 605
 
 <p>Qingyi honestly had too much on his mind to give a damn about Tianhao. He didn’t really think much of it.</p>
 
-<p>“Cough… Cough…” Old Cang stood up, clearing his throat as he waved</p>
-
-<p>his hands.</p>
+<p>“Cough… Cough…” Old Cang stood up, clearing his throat as he waved his hands.</p>
 
 <p>Following the gesture, Young Master Luo’s body floated toward the infirmary of the Combatant Soul Palace, where a doctor was already ready to attend to him.</p>
 
-<p>“That was an impressive display of power…” the old man whispered,</p>
-
-<p>impressed though he didn’t want to show it. “Why would a young man with such potential be here, listening to this old man speak to mediocrities, when he could be forging his own path?”</p>
+<p>“That was an impressive display of power…” the old man whispered, impressed though he didn’t want to show it. “Why would a young man with such potential be here, listening to this old man speak to mediocrities, when he could be forging his own path?”</p>
 
 <p>Cangyun’s words caused bitterness to appear on the faces of many outer disciples.</p>
 
@@ -119,10 +113,6 @@ chapter = 605
 
 <p>Soon after, with enthusiasm, old Cangyun began passing on all his knowledge of Qi to those young people.</p>
 
-<p>Although Qingyi had already made it clear that he would not participate in future classes, he still watched in silence, paying close</p>
+<p>Although Qingyi had already made it clear that he would not participate in future classes, he still watched in silence, paying close attention.</p>
 
-<p>attention.</p>
-
-<p>It was rare to receive teachings from such an accomplished expert,</p>
-
-<p>and even he was introduced to concepts of Qi manipulation he had no idea even existed.</p>
+<p>It was rare to receive teachings from such an accomplished expert, and even he was introduced to concepts of Qi manipulation he had no idea even existed.</p>

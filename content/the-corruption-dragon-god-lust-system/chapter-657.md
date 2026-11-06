@@ -97,25 +97,15 @@ chapter = 657
 
 <p>Unfortunately, they couldn’t stay together for long. Soon, Rou’er followed the elder to a VIP box alongside other important guests who would be watching the competition.</p>
 
-<p>In that box were the sect leader, Madame Lao, Longwei, and, of</p>
+<p>In that box were the sect leader, Madame Lao, Longwei, and, of course, Xue Hua, who sat comfortably beside Rou’er.</p>
 
-<p>course, Xue Hua, who sat comfortably beside Rou’er.</p>
+<p>Qingyi, as a participant, went to a less ostentatious area at the lower level of the arena. On that place, there were private rooms for recovery, meals, and, of course, healers standing by.</p>
 
-<p>Qingyi, as a participant, went to a less ostentatious area at the lower</p>
-
-<p>level of the arena. On that place, there were private rooms for</p>
-
-<p>recovery, meals, and, of course, healers standing by.</p>
-
-<p>In total, there would be two hundred and fifty-six participants. Even considering that each fight would last no more than two minutes, it would still be a long competition from which only one hundred would</p>
-
-<p>be chosen.</p>
+<p>In total, there would be two hundred and fifty-six participants. Even considering that each fight would last no more than two minutes, it would still be a long competition from which only one hundred would be chosen.</p>
 
 <p>There was no reward for first place other than, of course, the best chance of being chosen as a disciple of the Cosmic Void Sect. Qingyi had already been chosen by Rou’er and didn’t even need to participate. But it was better to just compete and avoid trouble with elders complaining about disrespect for the sect’s traditions. Walking through that area, he felt many curious eyes on him.</p>
 
-<p>His gaze lifted to the the luxurious box above the arena’s stands, large</p>
-
-<p>enough to hold 100,000 spectators and already nearly full, meeting Rou’er’s excited eyes and Xue Hua’s deep stare.</p>
+<p>His gaze lifted to the the luxurious box above the arena’s stands, large enough to hold 100,000 spectators and already nearly full, meeting Rou’er’s excited eyes and Xue Hua’s deep stare.</p>
 
 <p>Not far from them, Longwei wore a look full of delight.</p>
 

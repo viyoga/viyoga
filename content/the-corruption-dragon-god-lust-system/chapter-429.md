@@ -31,9 +31,7 @@ chapter = 429
 
 <p>“But I’m not used to flying so low. Should I try to cause less damage to the forest?” he asked. “I know this is important to you elves.”</p>
 
-<p>“We preserve balance, not nature. As a dragon, shouldn’t you preserve</p>
-
-<p>balance too?” She turned her beautiful face slightly.</p>
+<p>“We preserve balance, not nature. As a dragon, shouldn’t you preserve balance too?” She turned her beautiful face slightly.</p>
 
 <p>Qingyi had honestly gotten used to being called a dragon and now didn’t even care about it anymore.</p>
 
@@ -85,15 +83,11 @@ chapter = 429
 
 <p>Obviously, Aeryn didn’t allow it.</p>
 
-<p>With a smooth movement, she lunged forward, her body turning into</p>
-
-<p>a blur, her blade sinking into the wood and cutting the tree in two.</p>
+<p>With a smooth movement, she lunged forward, her body turning into a blur, her blade sinking into the wood and cutting the tree in two.</p>
 
 <p>To her surprise, the lower part continued to run; inside it, a mind screamed desperately.</p>
 
-<p>“Damn… Damn… damn… why the hell did this damn woman come after</p>
-
-<p>me? I need a new… a new body, fast!”</p>
+<p>“Damn… Damn… damn… why the hell did this damn woman come after me? I need a new… a new body, fast!”</p>
 
 <p>Suddenly, and for a brief moment, the tree froze.</p>
 
@@ -109,18 +103,12 @@ chapter = 429
 
 <p>It was enormous, as big as a castle-no, even bigger.</p>
 
-<p>Its jaws bore endless rows of sharp teeth, and its beautiful purple eyes, identical to Qingyi’s, watched the spirit with contempt. Qingyi barely paid attention to it for more than a moment before planting his left leg and spinning his right, striking the tree trunk. A sea of gray flames immediately spread, an ancient cry of pain and despair filling the forest as the flames of Primordial Chaos consumed</p>
-
-<p>everything.</p>
+<p>Its jaws bore endless rows of sharp teeth, and its beautiful purple eyes, identical to Qingyi’s, watched the spirit with contempt. Qingyi barely paid attention to it for more than a moment before planting his left leg and spinning his right, striking the tree trunk. A sea of gray flames immediately spread, an ancient cry of pain and despair filling the forest as the flames of Primordial Chaos consumed everything.</p>
 
 <p>Qingyi didn’t keep them active for long, his right arm burning painfully as he extinguished them.</p>
 
-<p>They were still difficult to control; as he grew stronger, the flames</p>
-
-<p>also grew stronger and, naturally, much more violent.</p>
+<p>They were still difficult to control; as he grew stronger, the flames also grew stronger and, naturally, much more violent.</p>
 
 <p>Aeryn’s eyes focused on those flames for another brief moment before she turned away.</p>
 
-<p>“It is profane,” she said, before rising into the skies. This time, she flew</p>
-
-<p>a little higher than before.</p>
+<p>“It is profane,” she said, before rising into the skies. This time, she flew a little higher than before.</p>

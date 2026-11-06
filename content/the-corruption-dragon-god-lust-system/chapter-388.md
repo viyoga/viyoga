@@ -31,9 +31,7 @@ chapter = 388
 
 <p>Even Qianyao’s draconic eyes were unable to see through that pitch blackness, while Qingyi’s could barely see ten meters ahead.</p>
 
-<p>“Father has talked about this place… but he never said anything about such thick Qi,” Qianyao commented next to Qingyi, who nodded</p>
-
-<p>silently.</p>
+<p>“Father has talked about this place… but he never said anything about such thick Qi,” Qianyao commented next to Qingyi, who nodded silently.</p>
 
 <p>It looked strange and frightening, but fortunately there was no trace of demonic or hostile Qi there, just a peculiar form of pure energy.</p>
 
@@ -51,9 +49,7 @@ chapter = 388
 
 <p>Her long hair was light green, as were her ears and fluffy tail, punctuated by subtle whiter strands.</p>
 
-<p>Her beautiful eyes were softly closed and her elegant white dress totally failed to cover the two huge orbs of pale, soft flesh that</p>
-
-<p>projected from her delicate torso.</p>
+<p>Her beautiful eyes were softly closed and her elegant white dress totally failed to cover the two huge orbs of pale, soft flesh that projected from her delicate torso.</p>
 
 <p>The fabric fell down to just before her pink nipples, revealing large portions of pale skin from her huge, full breasts, squeezing them subtly.</p>
 
@@ -91,9 +87,7 @@ chapter = 388
 
 <p>Traits: Faithful, Half-blood mythical beast, ancestral mommy, loving, caring]</p>
 
-<p>As Qingyi studied the woman’s statuses, her eyes subtly opened; they were green, clear and serene, staring at the two young people in front</p>
-
-<p>of her.</p>
+<p>As Qingyi studied the woman’s statuses, her eyes subtly opened; they were green, clear and serene, staring at the two young people in front of her.</p>
 
 <p>“Long Qianyao greets Senior Ye Lingxue!” Qianyao bowed, clenching her fists. Long Qingyi did the same soon after.</p>
 
@@ -101,84 +95,50 @@ chapter = 388
 
 <p>She leaned forward, and the fabric of her dress slid a little more, revealing the pink edges of her areolas, her breasts swinging like heavy, soft pendulums.</p>
 
-<p>“So you were that… vigorous young couple,” Lingxue murmured in her mature, feminine voice, laden with a slight touch of sensuality. Qianyao couldn’t help but blush at those words, her whole body</p>
+<p>“So you were that… vigorous young couple,” Lingxue murmured in her mature, feminine voice, laden with a slight touch of sensuality. Qianyao couldn’t help but blush at those words, her whole body shuddering with embarrassment.</p>
 
-<p>shuddering with embarrassment.</p>
+<p>Had the matriarch seen everything? Even through the spatial isolation talisman?</p>
 
-<p>Had the matriarch seen everything? Even through the spatial isolation</p>
+<p>Sensing Qianyao’s reaction, Lingxue only let out a soft giggle, covering her lips with her right hand.</p>
 
-<p>talisman?</p>
+<p>“The dragon people really have been blessed in this generation, with two such talented young people already prepared to raise the seeds of the next generation.”</p>
 
-<p>Sensing Qianyao’s reaction, Lingxue only let out a soft giggle,</p>
-
-<p>covering her lips with her right hand.</p>
-
-<p>“The dragon people really have been blessed in this generation, with</p>
-
-<p>two such talented young people already prepared to raise the seeds</p>
-
-<p>of the next generation.”</p>
-
-<p>Lingxue whispered and stood up, her huge, heavy breasts heaving</p>
-
-<p>heavily.</p>
+<p>Lingxue whispered and stood up, her huge, heavy breasts heaving heavily.</p>
 
 <p>Ignoring Qianyao’s blushing face, she continued:</p>
 
 <p>“To be here, you were the winners of the divine beast tournament.</p>
 
-<p>You are the most talented young people of this generation of beastmen, those destined to one day be at the side of the divine</p>
-
-<p>beast.”</p>
+<p>You are the most talented young people of this generation of beastmen, those destined to one day be at the side of the divine beast.”</p>
 
 <p>Lingxue raised a hand. Her long light-green hair fluttered and her fluffy tail swayed behind her.</p>
 
-<p>An intense sky-green light emerged from the ground, engulfing Qianyao and Qingyi’s bodies at the same time, making them both let</p>
-
-<p>out soft grunts.</p>
+<p>An intense sky-green light emerged from the ground, engulfing Qianyao and Qingyi’s bodies at the same time, making them both let out soft grunts.</p>
 
 <p>That intense light was followed by a strange Qi, the likes of which Qingyi had never felt in his entire life.</p>
 
 <p>The energy swept through his body, passing through his meridians, even reaching his Dantian and his mind.</p>
 
-<p>Everything became clearer, from his connection with the Qi to the</p>
+<p>Everything became clearer, from his connection with the Qi to the speed with which his thoughts flowed.</p>
 
-<p>speed with which his thoughts flowed.</p>
+<p>[You have received a blessing from a nature spirit. All elemental affinities; +500]</p>
 
-<p>[You have received a blessing from a nature spirit. All elemental</p>
+<p>A single notification from the system reached Qingyi as the greenish glow dissipated, and a deep shock hit his mind.</p>
 
-<p>affinities; +500]</p>
+<p>His affinities with ice, lightning and fire had increased by fifty percent, and the ability to move Qi through his meridians had almost doubled.</p>
 
-<p>A single notification from the system reached Qingyi as the greenish</p>
-
-<p>glow dissipated, and a deep shock hit his mind.</p>
-
-<p>His affinities with ice, lightning and fire had increased by fifty</p>
-
-<p>percent, and the ability to move Qi through his meridians had almost</p>
-
-<p>doubled.</p>
-
-<p>He turned his face to Qianyao, who seemed to have made similar</p>
-
-<p>gains; her eyes trembled slightly as she looked at her own hands.</p>
+<p>He turned his face to Qianyao, who seemed to have made similar gains; her eyes trembled slightly as she looked at her own hands.</p>
 
 <p>‘So that was the blessing of the fox people, he thought. Even ignoring the improvement in affinity, it would already be something absurd for most high-level cultivators.</p>
 
-<p>At their current level? It was simply superior to anything Qingyi had</p>
-
-<p>ever imagined.</p>
+<p>At their current level? It was simply superior to anything Qingyi had ever imagined.</p>
 
 <p>The handsome young man raised his face slightly, bowing one last time to the matriarch.</p>
 
 <p>A single thought dominated his mind now.</p>
 
-<p>It was time to keep his promise to Xueyao; especially since there was</p>
+<p>It was time to keep his promise to Xueyao; especially since there was no sign of demonic energy in the matriarch.</p>
 
-<p>no sign of demonic energy in the matriarch.</p>
-
-<p>“Senior Lingxue,” Qingyi called out, facing her. “I’d like to speak to you</p>
-
-<p>alone.”</p>
+<p>“Senior Lingxue,” Qingyi called out, facing her. “I’d like to speak to you alone.”</p>
 
 <p>NT: Ye Lingxue’s art is already available on the character tab, for now, just her face. The censored version for the NovelFire will be coming soon. The uncensored version is available on my discord: .gg/ZMhMj7Dawz</p>

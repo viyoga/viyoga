@@ -67,9 +67,7 @@ chapter = 557
 
 <p>Body impulse pills without limiters almost always caused the body to explode without even entering the fight.</p>
 
-<p>Unless they were items made by a transcendent alchemist, with a level of skill beyond Qingyi’s comprehension, they were basically</p>
-
-<p>poison that would kill their users instantly.</p>
+<p>Unless they were items made by a transcendent alchemist, with a level of skill beyond Qingyi’s comprehension, they were basically poison that would kill their users instantly.</p>
 
 <p>“They must be items from the celestial heavens, and peak ones at that! Qingyi watched as the three swallowed the pills.</p>
 
@@ -77,9 +75,7 @@ chapter = 557
 
 <p>Their eyes changed to a deep red, a powerful demonic aura surrounding their bodies, Qi and Mana exploding in waves.</p>
 
-<p>Even the severed hand of the Rose Emperor healed immediately, flesh</p>
-
-<p>and bone rebuilt from nothing.</p>
+<p>Even the severed hand of the Rose Emperor healed immediately, flesh and bone rebuilt from nothing.</p>
 
 <p>“You are impressive, young man. Worthy of marrying the daughter of the Gold King and standing here before me.” The Enlightened Emperor declared, drawing his sword and pointing it at Qingyi.</p>
 
@@ -89,55 +85,35 @@ chapter = 557
 
 <p>“Come, all together.” He declared with contempt. “I’m afraid that if you come one at a time, you’ll barely serve as a warm-up.”</p>
 
-<p>The Enlightened Emperor’s expression fell, a deep frown taking over</p>
-
-<p>his face.</p>
+<p>The Enlightened Emperor’s expression fell, a deep frown taking over his face.</p>
 
 <p>“There’s no point in talking to this damn brat! We should just kill him, right now!” Emperor Rose roared, clenching his fists and feeling the new power flow through his body.</p>
 
-<p>With that pill he had received from his master especially for</p>
+<p>With that pill he had received from his master especially for emergencies, his power had more than doubled.</p>
 
-<p>emergencies, his power had more than doubled.</p>
+<p>He was sure it was more than enough to kill Qingyi, especially with the three of them at the same time.</p>
 
-<p>He was sure it was more than enough to kill Qingyi, especially with</p>
+<p>“Such ignorance…” The empress growled, golden flames appearing in her hands. “It will kill you one day, brat!”</p>
 
-<p>the three of them at the same time.</p>
-
-<p>“Such ignorance…” The empress growled, golden flames appearing in</p>
-
-<p>her hands. “It will kill you one day, brat!”</p>
-
-<p>“Oh… is that so?” Qingyi smiled, watching her face fill with shock as</p>
-
-<p>he covered the distance between them.</p>
+<p>“Oh… is that so?” Qingyi smiled, watching her face fill with shock as he covered the distance between them.</p>
 
 <p>He didn’t draw his sword. He didn’t think it was necessary.</p>
 
 <p>His bare hands tore through the air and a scream full of pain echoed, followed by a head being thrown into the skies.</p>
 
-<p>Qingyi’s fire Qi needed only a moment to find the empress’s fleeing</p>
+<p>Qingyi’s fire Qi needed only a moment to find the empress’s fleeing soul, burning it.</p>
 
-<p>soul, burning it.</p>
+<p>He barely moved, as if he had just killed an ant and not a powerful expert.</p>
 
-<p>He barely moved, as if he had just killed an ant and not a powerful</p>
+<p>“Hm… weak and pathetic.” The beautiful young man’s lips curved, calm and gentle, despite the hatred he held inside.</p>
 
-<p>expert.</p>
-
-<p>“Hm… weak and pathetic.” The beautiful young man’s lips curved, calm</p>
-
-<p>and gentle, despite the hatred he held inside.</p>
-
-<p>“Will you two be better than her?” he asked, staring at the two</p>
-
-<p>emperors who were in shock.</p>
+<p>“Will you two be better than her?” he asked, staring at the two emperors who were in shock.</p>
 
 <p>“NO!” The Enlightened Emperor finally reacted, his eyes focused on his wife’s collapsing body.</p>
 
 <p>“Oh… does that hurt?” Qingyi grabbed his neck.</p>
 
-<p>“How do you think my mother-in-law felt when your damn plans</p>
-
-<p>caused her father’s death, hm?”</p>
+<p>“How do you think my mother-in-law felt when your damn plans caused her father’s death, hm?”</p>
 
 <p>He squeezed, losing control of his anger for a brief moment, his murderous intent dominating everything around him.</p>
 
@@ -145,16 +121,12 @@ chapter = 557
 
 <p>In the end, only one remained.</p>
 
-<p>“I wanted to let Sapphire deliver the final blow…” Qingyi said,</p>
-
-<p>watching Emperor Rose turn his back on him and try to flee, overcome with the deepest terror and regret.</p>
+<p>“I wanted to let Sapphire deliver the final blow…” Qingyi said, watching Emperor Rose turn his back on him and try to flee, overcome with the deepest terror and regret.</p>
 
 <p>“But I don’t think you deserve to see her face one last time.”</p>
 
 <p>Needless to say, he didn’t get far.</p>
 
-<p>In the end, all that remained on that battlefield were the souls of tens</p>
-
-<p>of millions, the blood orb, and Qingyi.</p>
+<p>In the end, all that remained on that battlefield were the souls of tens of millions, the blood orb, and Qingyi.</p>
 
 <p>The beautiful young man looked up at the tear in the heavens, watching a light emerge from the sea of darkness that the opening was revealing.</p>

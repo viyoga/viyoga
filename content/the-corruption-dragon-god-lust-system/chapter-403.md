@@ -19,9 +19,7 @@ chapter = 403
 
 <p>Her waist was pressed against the mattress while her hips rose gently, her body forming the perfect shape of a violin, her full, perfect buttocks drawing a heart.</p>
 
-<p>“Nghnn~~ Hubby wants to fuck Isabel’s pussy in this naughty position today? Hehehe~~”</p>
-
-<p>Isabel giggled softly, patting her own huge, chocolatey tits, the mountains of soft, squishy flesh rippling like a rough sea.</p>
+<p>“Nghnn~~ Hubby wants to fuck Isabel’s pussy in this naughty position today? Hehehe~~” Isabel giggled softly, patting her own huge, chocolatey tits, the mountains of soft, squishy flesh rippling like a rough sea.</p>
 
 <p>Qingyi just smiled at those words.</p>
 
@@ -63,41 +61,27 @@ chapter = 403
 
 <p>“Aghnn~~ nghnn~~ aghnn~~ Hubby… it’s coming Hubby… my pussy is at its limit, release everything into my womb husband! NGHNN~~ FILL ME WITH YOUR- AGHNN~~” Isabel’s tongue escaped from her rosy lips, her face overcome with lewdness.</p>
 
-<p>“Seed…” She was barely able to complete the word as her pussy squirted nonstop, Qingyi’s hips sinking into her buttocks as he</p>
-
-<p>himself came.</p>
+<p>“Seed…” She was barely able to complete the word as her pussy squirted nonstop, Qingyi’s hips sinking into her buttocks as he himself came.</p>
 
 <p>“Nghnn~~ I can feel my husband inside me… ah…” Isabel placed her hand on her lower abdomen, feeling Qingyi’s thick spurts of cum invading her womb, one after another, filling her to the brim.</p>
 
-<p>“Ah…” Qingyi gasped, grabbing Isabel’s legs and turning her around,</p>
+<p>“Ah…” Qingyi gasped, grabbing Isabel’s legs and turning her around, making her lie on her back, now facing him.</p>
 
-<p>making her lie on her back, now facing him.</p>
-
-<p>Isabel immediately placed her hands around the sides of her enormous, round, full bosoms, squeezing them and presenting them</p>
-
-<p>to Qingyi.</p>
+<p>Isabel immediately placed her hands around the sides of her enormous, round, full bosoms, squeezing them and presenting them to Qingyi.</p>
 
 <p>She prevented them from spilling over her chest and made them appear even fuller against her delicate torso.</p>
 
-<p>Qingyi leaned over her, his tongue running the length of those</p>
+<p>Qingyi leaned over her, his tongue running the length of those perfect orbs, gathering her sweet, creamy milk until he finally reached her nipples; plump and puffy.</p>
 
-<p>perfect orbs, gathering her sweet, creamy milk until he finally reached her nipples; plump and puffy.</p>
-
-<p>His lips closed around them, sucking gently, drinking her milk</p>
-
-<p>voraciously.</p>
+<p>His lips closed around them, sucking gently, drinking her milk voraciously.</p>
 
 <p>When he finally felt satisfied, he released her breasts, withdrew his cock from her pussy, and then embraced her lovingly.</p>
 
 <p>He placed a kiss on her lips, feeling the warmth and weight of her breasts against his torso as he laid her on top of him.</p>
 
-<p>“Feeling better now?” He asked, his hands resting on her wide hips,</p>
+<p>“Feeling better now?” He asked, his hands resting on her wide hips, sinking into her creamy, sweaty skin.</p>
 
-<p>sinking into her creamy, sweaty skin.</p>
-
-<p>“Yeah… husband’s cock was delicious today, hehehe~~” Isabel giggled</p>
-
-<p>before hugging Qingyi.</p>
+<p>“Yeah… husband’s cock was delicious today, hehehe~~” Isabel giggled before hugging Qingyi.</p>
 
 <p>“Everything will be okay, right? With Dad? He can’t die…” She asked, her voice slightly trembling.</p>
 
@@ -107,14 +91,8 @@ chapter = 403
 
 <p>“Oh… look who remembered us! Fufufu~~” Ruxue’s mature and sensual laughter echoed through the bathroom, her naked, voluptuous body sinking almost halfway into the water.</p>
 
-<p>The moment Qingyi sat down at the edge of the pool next to Isabel,</p>
+<p>The moment Qingyi sat down at the edge of the pool next to Isabel, Ruxue moved, standing between Qingyi’s legs and grabbing his semi-erect cock, her small, delicate hands far from being able to wrap around the entire 23cm member.</p>
 
-<p>Ruxue moved, standing between Qingyi’s legs and grabbing his semi-erect cock, her small, delicate hands far from being able to wrap around the entire 23cm member.</p>
+<p>Masturbating him a few times, she sealed her lips around the tip, taking him into her tight, wet throat, her cheeks sinking with the suction.</p>
 
-<p>Masturbating him a few times, she sealed her lips around the tip, taking him into her tight, wet throat, her cheeks sinking with the</p>
-
-<p>suction.</p>
-
-<p>Qingyi just relaxed, grabbing Isabel’s breasts with one hand and Yunfei’s with the other. Yueli also soon joined Ruxue around Qingyi’s</p>
-
-<p>long, thick cock.</p>
+<p>Qingyi just relaxed, grabbing Isabel’s breasts with one hand and Yunfei’s with the other. Yueli also soon joined Ruxue around Qingyi’s long, thick cock.</p>

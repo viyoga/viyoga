@@ -17,9 +17,7 @@ chapter = 578
 
 <p>Yet there she was, giving her first kiss and her first touch to a man she had once sworn to kill.</p>
 
-<p>Not caring much about her inner thoughts, Qingyi simply wiped the tears from Auranys’ cheeks before hugging her, glancing at her status</p>
-
-<p>screen.</p>
+<p>Not caring much about her inner thoughts, Qingyi simply wiped the tears from Auranys’ cheeks before hugging her, glancing at her status screen.</p>
 
 <p>[Name: Auranys</p>
 
@@ -39,9 +37,7 @@ chapter = 578
 
 <p>Mana Manipulation: Twelfth ring (fallen from (access denied))</p>
 
-<p>Traits: Faithful, the blade of justice and redemption, fallen goddess,</p>
-
-<p>divine mommy, divine tightness.]</p>
+<p>Traits: Faithful, the blade of justice and redemption, fallen goddess, divine mommy, divine tightness.]</p>
 
 <p>‘Almost fourteen million years…! Qingyi gulped, unable to believe his eyes.</p>
 
@@ -83,13 +79,9 @@ chapter = 578
 
 <p>Too good.</p>
 
-<p>Qingyi smiled as he saw her corruption rise slightly, her wings moving</p>
+<p>Qingyi smiled as he saw her corruption rise slightly, her wings moving and closing around the two of them.</p>
 
-<p>and closing around the two of them.</p>
-
-<p>“I wondered what you would taste like,” he whispered, his hands finally reaching Auranys’ breasts under her dress and then squeezing</p>
-
-<p>them.</p>
+<p>“I wondered what you would taste like,” he whispered, his hands finally reaching Auranys’ breasts under her dress and then squeezing them.</p>
 
 <p>“Nghnn~~” The goddess moaned, her nails digging into his shoulders as she arched her back.</p>
 
@@ -107,78 +99,46 @@ chapter = 578
 
 <p>That was desire.</p>
 
-<p>She knew it well, but she wanted to deny it. She was a deity, a being</p>
-
-<p>of eternal purity.</p>
+<p>She knew it well, but she wanted to deny it. She was a deity, a being of eternal purity.</p>
 
 <p>How could she feel desire in front of Qingyi?</p>
 
-<p>“I will not take your chastity, not until you are ready,” Qingyi said,</p>
+<p>“I will not take your chastity, not until you are ready,” Qingyi said, looking into her eyes.</p>
 
-<p>looking into her eyes.</p>
-
-<p>Auranys lowered her head, trying to control the embarrassed</p>
-
-<p>expression that took over her face.</p>
+<p>Auranys lowered her head, trying to control the embarrassed expression that took over her face.</p>
 
 <p>Her long, delicate fingers flowed down to her neckline, and she moved until her breasts were level with Qingyi’s face.</p>
 
-<p>“I-I don’t need your pity…” She pulled open her dress, revealing those</p>
+<p>“I-I don’t need your pity…” She pulled open her dress, revealing those divine, pale tits in all their glory, covering Qingyi’s vision with nothing but their vastness.</p>
 
-<p>divine, pale tits in all their glory, covering Qingyi’s vision with nothing</p>
+<p>The handsome young man grabbed them, squeezing them together and admiring the beauty of those perfect orbs, his fingers swallowed by the voluptuous flesh, the meeting of the huge breasts creating a deep and sensual valley.</p>
 
-<p>but their vastness.</p>
+<p>Just one grab was enough for Qingyi to feel like he was in heaven, as if that skin melted in his grip.</p>
 
-<p>The handsome young man grabbed them, squeezing them together</p>
+<p>His lips parted, and then he took one of the puffy, pink nipples between them.</p>
 
-<p>and admiring the beauty of those perfect orbs, his fingers swallowed by the voluptuous flesh, the meeting of the huge breasts creating a deep and sensual valley.</p>
-
-<p>Just one grab was enough for Qingyi to feel like he was in heaven, as if</p>
-
-<p>that skin melted in his grip.</p>
-
-<p>His lips parted, and then he took one of the puffy, pink nipples</p>
-
-<p>between them.</p>
-
-<p>Qingyi sucked lightly, delighting in the moan that escaped Auranys’</p>
-
-<p>lips.</p>
+<p>Qingyi sucked lightly, delighting in the moan that escaped Auranys’ lips.</p>
 
 <p>His tongue brushed against the soft nipple, his hands moving across her breasts as if trying to milk her, their sweat serving as lubricant.</p>
 
 <p>After another moment of sucking, something finally came; milk, pure, creamy, and white, invading Qingyi’s lips.</p>
 
-<p>The young man froze, his body trembling, the grip on those huge</p>
-
-<p>divine tits getting even stronger.</p>
+<p>The young man froze, his body trembling, the grip on those huge divine tits getting even stronger.</p>
 
 <p>It was… delicious.</p>
 
 <p>But not only that.</p>
 
-<p>It was so rich in mana that if someone told him it was some kind of</p>
+<p>It was so rich in mana that if someone told him it was some kind of liquefied mana, and not the milk of a goddess, he would definitely believe it.</p>
 
-<p>liquefied mana, and not the milk of a goddess, he would definitely</p>
-
-<p>believe it.</p>
-
-<p>While Auranys’ right breast spilled its milk onto Qingyi’s lips, her left</p>
-
-<p>breast, under the touch and firm grip of his hands, let a gush of the perfect white liquid escape.</p>
+<p>While Auranys’ right breast spilled its milk onto Qingyi’s lips, her left breast, under the touch and firm grip of his hands, let a gush of the perfect white liquid escape.</p>
 
 <p>“I-is that milk?” Auranys stammered, in shock.</p>
 
-<p>Never in her entire life had she expected to be able to produce milk,</p>
+<p>Never in her entire life had she expected to be able to produce milk, even if she became pregnant.</p>
 
-<p>even if she became pregnant.</p>
-
-<p>Her face was overcome with a mixture of incomprehensible emotions,</p>
-
-<p>but in the end, only one remained.</p>
+<p>Her face was overcome with a mixture of incomprehensible emotions, but in the end, only one remained.</p>
 
 <p>A strange and sweet warmth.</p>
 
-<p>The discomfort of being milked by Qingyi lasted only a moment, and</p>
-
-<p>soon, muffled moans began to escape her lips as she embraced the young man, pulling him against her breasts even harder.</p>
+<p>The discomfort of being milked by Qingyi lasted only a moment, and soon, muffled moans began to escape her lips as she embraced the young man, pulling him against her breasts even harder.</p>

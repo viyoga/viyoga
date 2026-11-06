@@ -97,8 +97,6 @@ chapter = 311
 
 <p>“I – blergh…” He coughed up blood without stopping. “I’m not going to die like this!” He advanced towards Margareth, using what little strength he still had to try to cut her neck.</p>
 
-<p>20:36</p>
-
 <p>The beautiful mage closed her eyes, trying to activate some defensive artifact.</p>
 
 <p>But she didn’t even have enough mana left; she was completely drained.</p>

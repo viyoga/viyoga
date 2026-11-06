@@ -13,9 +13,7 @@ chapter = 594
 
 <p>The bathrooms were insufficient for so many people, but since the journey wouldn’t be long and cultivators didn’t really need to use them, being able to use Qi to keep themselves clean, that didn’t pose any major problems.</p>
 
-<p>What truly surprised those young people was not the</p>
-
-<p>accommodations, nor the meal served shortly afterward.</p>
+<p>What truly surprised those young people was not the accommodations, nor the meal served shortly afterward.</p>
 
 <p>But rather the fact that one of the young recruits among them, who was supposed to be just like everyone else, had been given a private dormitory, the kind reserved only for internal disciples.</p>
 
@@ -27,9 +25,7 @@ chapter = 594
 
 <p>Even as an Ascended with mediocre spiritual roots, the sheer level of perception required to finish the test so quickly was enough to make him any formation master’s dream.</p>
 
-<p>Many disappointed sighs echoed when they discovered that Qingyi seemed more interested in taking on a combat role than a production one. But in the end, he was a black dragon. They were beings of war</p>
-
-<p>and carnage.</p>
+<p>Many disappointed sighs echoed when they discovered that Qingyi seemed more interested in taking on a combat role than a production one. But in the end, he was a black dragon. They were beings of war and carnage.</p>
 
 <p>It would be strange to see a black dragon content to become a formation master.</p>
 
@@ -67,9 +63,7 @@ chapter = 594
 
 <p>‘Hm…’ Qingyi didn’t respond immediately.</p>
 
-<p>He had only been there a short while, but he had already heard a</p>
-
-<p>great deal about the sect leader’s daughter.</p>
+<p>He had only been there a short while, but he had already heard a great deal about the sect leader’s daughter.</p>
 
 <p>Many called her the jewel of the far north, saying that even powerful experts from the central regions had visited the sect and offered entire star systems in exchange for her hand in marriage.</p>
 
@@ -77,13 +71,9 @@ chapter = 594
 
 <p>[Is the sect leader’s daughter really that beautiful?] Qingyi asked, scratching his chin.</p>
 
-<p>[Honestly, “beautiful” doesn’t even begin to describe her. My father once saw her from afar when he had the chance to visit the sect’s</p>
+<p>[Honestly, “beautiful” doesn’t even begin to describe her. My father once saw her from afar when he had the chance to visit the sect’s main base.</p>
 
-<p>main base.</p>
-
-<p>My mother said that, for a whole month, he just stared into space, his heart deeply moved, even though he’d only caught a glimpse of her</p>
-
-<p>from afar.]</p>
+<p>My mother said that, for a whole month, he just stared into space, his heart deeply moved, even though he’d only caught a glimpse of her from afar.]</p>
 
 <p>Chen Wei paused briefly, taking a bite before continuing.</p>
 
@@ -97,15 +87,9 @@ chapter = 594
 
 <p>With that in mind, Qingyi’s eyes stared into the void.</p>
 
-<p>To cover the hundred meters of the Qi manipulation test, he had</p>
+<p>To cover the hundred meters of the Qi manipulation test, he had spent about ten seconds.</p>
 
-<p>spent about ten seconds.</p>
-
-<p>He highly doubted that woman was capable of beating his time on the</p>
-
-<p>second test, but on the first, where he had spent a full four minutes</p>
-
-<p>and had even received a little help from Ruxue?</p>
+<p>He highly doubted that woman was capable of beating his time on the second test, but on the first, where he had spent a full four minutes and had even received a little help from Ruxue?</p>
 
 <p>That was entirely possible.</p>
 
@@ -113,9 +97,7 @@ chapter = 594
 
 <p>Just thinking about it made Qingyi shudder.</p>
 
-<p>That girl’s eyes couldn’t be inferior to his for her to have done</p>
-
-<p>something like that.</p>
+<p>That girl’s eyes couldn’t be inferior to his for her to have done something like that.</p>
 
 <p>[Chen Wei… can you keep a secret?] Qingyi turned around, gripping his new friend’s shoulders.</p>
 
@@ -123,10 +105,6 @@ chapter = 594
 
 <p>What do I need to do to me et the sect leader’s daughter?</p>
 
-<p>[Oh… that’s no secret at all, senior brother, don’t worry, we all dream</p>
-
-<p>of getting the chance to meet her one day! Hehehe.] Chen Wei puffed</p>
-
-<p>out his chest.</p>
+<p>[Oh… that’s no secret at all, senior brother, don’t worry, we all dream of getting the chance to meet her one day! Hehehe.] Chen Wei puffed out his chest.</p>
 
 <p>Qingyi had saved his life. Now, it was time to repay him with all his great wisdom about the local beauties.</p>

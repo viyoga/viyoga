@@ -11,9 +11,7 @@ chapter = 401
 
 <p>This time, it was a woman of the church, a devout follower of Auranys who harbored a deep hatred for everything she considered heretical. As usual, she was disrupting the lives of the local residents.</p>
 
-<p>To be more specific, the woman was inside the main office of the Burning Red Pavilion, tormenting the poor manager of the</p>
-
-<p>establishment.</p>
+<p>To be more specific, the woman was inside the main office of the Burning Red Pavilion, tormenting the poor manager of the establishment.</p>
 
 <p>“Who do you think you are to deny donations to our holy church? You damned infidel! Do you think you won’t burn in the fires of eternal damnation?” The old woman yelled, pounding the table violently.</p>
 
@@ -39,9 +37,7 @@ chapter = 401
 
 <p>Regaining his composure and wiping the blood from his face, he prepared to respond politely.</p>
 
-<p>Fortunately, she had already left, muttering angry words along the</p>
-
-<p>way.</p>
+<p>Fortunately, she had already left, muttering angry words along the way.</p>
 
 <p>That had been his routine for the past few months. Every single day, religiously, that old woman came to disturb him.</p>
 
@@ -71,17 +67,13 @@ chapter = 401
 
 <p>He was an honest and dedicated employee whom she trusted almost completely.</p>
 
-<p>“N-nothing much, young lady, just… the new Lord of Eagle Peak Valley isn’t very friendly, hahaha.” The manager smiled awkwardly before</p>
-
-<p>making way for Meilin.</p>
+<p>“N-nothing much, young lady, just… the new Lord of Eagle Peak Valley isn’t very friendly, hahaha.” The manager smiled awkwardly before making way for Meilin.</p>
 
 <p>Obviously, the first thing they went to check were the vaults.</p>
 
 <p>The pavilion had two in total: a fake vault in the basement and a real one that used special spiritual distortion formations, capable of storing absurd amounts of resources.</p>
 
-<p>Even so, the place was already reaching its limit, filled with piles and piles of treasures, artifacts, jewels, and Qi crystals, more than they</p>
-
-<p>could count.</p>
+<p>Even so, the place was already reaching its limit, filled with piles and piles of treasures, artifacts, jewels, and Qi crystals, more than they could count.</p>
 
 <p>These were the gains from the last few months of trade at the Burning Red Pavilion.</p>
 
@@ -95,9 +87,7 @@ chapter = 401
 
 <p>She was quite impressed with herself.</p>
 
-<p>Her current wealth was probably not much less than what she had when she was the manager of the Blue Sea Kingdom branch of the</p>
-
-<p>Five Colors Pavilion.</p>
+<p>Her current wealth was probably not much less than what she had when she was the manager of the Blue Sea Kingdom branch of the Five Colors Pavilion.</p>
 
 <p>No, in fact, she was even richer.</p>
 
@@ -107,32 +97,20 @@ chapter = 401
 
 <p>With a satisfied sigh, she left the vault with Qingyi and the manager, asking for a little privacy.</p>
 
-<p>Soon, the couple found themselves alone in the private garden of the</p>
-
-<p>huge main building of the fiery red pavilion, enjoying each other’s</p>
-
-<p>warmth.</p>
+<p>Soon, the couple found themselves alone in the private garden of the huge main building of the fiery red pavilion, enjoying each other’s warmth.</p>
 
 <p>“We’re back… what shall we do now?” she asked.</p>
 
 <p>“I don’t know.” Qingyi shook his head. “I was thinking of going to the Western Continent, or maybe the Illuminated Sky Empire. My cultivation is stable, but I want to test my limits.”</p>
 
-<p>“Hm…” Meilin exhaled, turning her gaze to the horizon as she noticed</p>
+<p>“Hm…” Meilin exhaled, turning her gaze to the horizon as she noticed a figure approaching.</p>
 
-<p>a figure approaching.</p>
-
-<p>It was Margareth, who had gone to the lord’s mansion just to pick up</p>
-
-<p>some personal belongings.</p>
+<p>It was Margareth, who had gone to the lord’s mansion just to pick up some personal belongings.</p>
 
 <p>She seemed hurried, landing beside them.</p>
 
-<p>“Husband… while I was away, an important letter arrived for me. It’s</p>
+<p>“Husband… while I was away, an important letter arrived for me. It’s from the Kingdom of Valemont, regarding Isabel’s family.” Margareth said, handing the envelope to Qingyi.</p>
 
-<p>from the Kingdom of Valemont, regarding Isabel’s family.” Margareth said, handing the envelope to Qingyi.</p>
-
-<p>The moment the handsome young man read the contents, his heart</p>
-
-<p>sank.</p>
+<p>The moment the handsome young man read the contents, his heart sank.</p>
 
 <p>Apparently, the Western Continent was indeed his next goal.</p>

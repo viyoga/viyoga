@@ -51,9 +51,7 @@ chapter = 651
 
 <p>Handing out the tokens, the elder of the Cosmic Void Sect departed alongside the other three elders.</p>
 
-<p>The younger ones already seemed to have become friends, and now it</p>
-
-<p>was time for the elders, who hadn’t seen each other in years, to have a drink and catch up.</p>
+<p>The younger ones already seemed to have become friends, and now it was time for the elders, who hadn’t seen each other in years, to have a drink and catch up.</p>
 
 <p>With a sigh, Qingyi entered the pavilion alongside Rou’er and Fa Yun.</p>
 
@@ -69,43 +67,27 @@ chapter = 651
 
 <p>Wasn’t that pathetic?</p>
 
-<p>Heated discussions erupted throughout the hall, everyone wondering who this Long Qingyi was who had humiliated one of the two sons of</p>
+<p>Heated discussions erupted throughout the hall, everyone wondering who this Long Qingyi was who had humiliated one of the two sons of the wealthy and powerful Guo family.</p>
 
-<p>the wealthy and powerful Guo family.</p>
+<p>The moment Long Qingyi, with his long black horns, appeared with Rou’er, unique, adorable, and beautiful, clinging to his arm, all eyes fell upon them.</p>
 
-<p>The moment Long Qingyi, with his long black horns, appeared with Rou’er, unique, adorable, and beautiful, clinging to his arm, all eyes</p>
+<p>“Oh… it’s Senior Brother Qingyi! Is it true that you stole Tianhao’s wife?”</p>
 
-<p>fell upon them.</p>
-
-<p>“Oh… it’s Senior Brother Qingyi! Is it true that you stole Tianhao’s</p>
-
-<p>wife?”</p>
-
-<p>“And are the rumors that you’ve got your eye on Longwei’s wife true</p>
-
-<p>as well?”</p>
+<p>“And are the rumors that you’ve got your eye on Longwei’s wife true as well?”</p>
 
 <p>“Will you be attending tonight’s banquet?”</p>
 
 <p>Qingyi was about to brush off all those questions and head up to his room with Rou’er, but upon catching a murmur amid the buzz, he stopped in his tracks.</p>
 
-<p>“I heard that Black Rose, the Great Elder’s daughter and Longwei’s fiancée, is going to attend the banquet… I wonder how she’ll react to</p>
-
-<p>all this, hahaha.”</p>
+<p>“I heard that Black Rose, the Great Elder’s daughter and Longwei’s fiancée, is going to attend the banquet… I wonder how she’ll react to all this, hahaha.”</p>
 
 <p>Pausing for a moment, Qingyi smiled.</p>
 
 <p>Yes, he would attend that banquet!</p>
 
-<p>He had intended to spend the evening relaxing with Rou’er and ignore</p>
+<p>He had intended to spend the evening relaxing with Rou’er and ignore those pointless ceremonies, but taking a look at that woman so renowned for her beauty and called the Black Rose wouldn’t hurt, would it?</p>
 
-<p>those pointless ceremonies, but taking a look at that woman so renowned for her beauty and called the Black Rose wouldn’t hurt,</p>
-
-<p>would it?</p>
-
-<p>After all, Longwei was trying so hard to prove himself unworthy of her</p>
-
-<p>that Qingyi should be a good friend and help him with that!</p>
+<p>After all, Longwei was trying so hard to prove himself unworthy of her that Qingyi should be a good friend and help him with that!</p>
 
 <p>Of course, that wasn’t the only thing that excited Qingyi.</p>
 
@@ -115,11 +97,7 @@ chapter = 651
 
 <p>He’d earn way more by fucking Longwei’s fiancée than by simply killing him during the first phase of the secret realm.</p>
 
-<p>As she walked alongside Qingyi through the wide, luxurious</p>
-
-<p>corridors, heading toward his room, Rou’er shot him a sidelong</p>
-
-<p>glance.</p>
+<p>As she walked alongside Qingyi through the wide, luxurious corridors, heading toward his room, Rou’er shot him a sidelong glance.</p>
 
 <p>Her lips curved, and she threw herself into his arms, sealing his mouth in a deep kiss.</p>
 

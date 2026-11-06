@@ -27,9 +27,7 @@ chapter = 438
 
 <p>Unfortunately, despite its wealth, the imperial hand was much weaker in that region.</p>
 
-<p>The soldiers guarding the western borders were always under</p>
-
-<p>pressure from countless hordes of beasts and they were barely able to keep an eye on what was happening within their own territory.</p>
+<p>The soldiers guarding the western borders were always under pressure from countless hordes of beasts and they were barely able to keep an eye on what was happening within their own territory.</p>
 
 <p>And that was where the problem arose.</p>
 
@@ -43,15 +41,11 @@ chapter = 438
 
 <p>The time for new sacred heroes to emerge had come. The five pendants of the golden convergence had fallen to earth, and soon she would point out the chosen ones.</p>
 
-<p>That mission would be the first that those chosen would fulfill. The blood of those demons would mark them as the heroes of this</p>
-
-<p>generation.</p>
+<p>That mission would be the first that those chosen would fulfill. The blood of those demons would mark them as the heroes of this generation.</p>
 
 <p>Unfortunately, she did not respond to him again. Still, even without her pointing them out, the heroes began to emerge.</p>
 
-<p>In the bishop’s eyes, there was only one answer: these were the heroes chosen by the goddess. At this very moment, she was testing</p>
-
-<p>him.</p>
+<p>In the bishop’s eyes, there was only one answer: these were the heroes chosen by the goddess. At this very moment, she was testing him.</p>
 
 <p>It was his duty to pass that test and prove himself capable of leading the church of Auranys to eternal glory. And he would not fail.</p>
 
@@ -63,9 +57,7 @@ chapter = 438
 
 <p>The power of that danger was increasing.</p>
 
-<p>If they waited much longer, they would soon reach a situation where</p>
-
-<p>it would be impossible to defeat it with the power of the heroes alone, and the involvement of the imperial army would be necessary.</p>
+<p>If they waited much longer, they would soon reach a situation where it would be impossible to defeat it with the power of the heroes alone, and the involvement of the imperial army would be necessary.</p>
 
 <p>They needed to act immediately.</p>
 
@@ -89,31 +81,21 @@ chapter = 438
 
 <p>Aeryn was in her corner, enjoying her own personal space while drinking a mild green tea.</p>
 
-<p>Sapphire was also enjoying Aeryn’s personal space. Her enormous breasts pressed against the delicate elf’s back as they talked about</p>
+<p>Sapphire was also enjoying Aeryn’s personal space. Her enormous breasts pressed against the delicate elf’s back as they talked about magic arrays.</p>
 
-<p>magic arrays.</p>
-
-<p>Lucien, on the other hand, was in the opposite corner of the room,</p>
-
-<p>kneeling and praying silently.</p>
+<p>Lucien, on the other hand, was in the opposite corner of the room, kneeling and praying silently.</p>
 
 <p>The moment the golden door opened, he stood up. His eyes ignored everyone there, focusing only on Qingyi.</p>
 
 <p>“Oh… So you’re that Long Qingyi!” Sapphire immediately left Aeryn aside, rushing towards Qingyi.</p>
 
-<p>Her huge breasts bounced with every step, being thrown into the air before returning against her delicate torso, undulating like full, soft</p>
-
-<p>water balloons.</p>
+<p>Her huge breasts bounced with every step, being thrown into the air before returning against her delicate torso, undulating like full, soft water balloons.</p>
 
 <p>Her voice was sweet and slow as she stopped, leaning toward Qingyi.</p>
 
-<p>“We didn’t have a chance to properly introduce ourselves… I’m Sapphire. You did very well against Lucien, fufufu~~” Sapphire raised</p>
+<p>“We didn’t have a chance to properly introduce ourselves… I’m Sapphire. You did very well against Lucien, fufufu~~” Sapphire raised her hand.</p>
 
-<p>her hand.</p>
-
-<p>“I am Long Qingyi.” The handsome young man smiled, took her hand, and placed a soft kiss on it, moving a thin strand of draconic Qi</p>
-
-<p>toward her.</p>
+<p>“I am Long Qingyi.” The handsome young man smiled, took her hand, and placed a soft kiss on it, moving a thin strand of draconic Qi toward her.</p>
 
 <p>“Ah~~” A sharp, short, soft squeal escaped Sapphire’s lips. Her beautiful mature face flushed red and her legs instinctively closed.</p>
 
@@ -123,14 +105,10 @@ chapter = 438
 
 <p>“Y-yes… nghn~~ it’s a pleasure to meet you.” Sapphire turned away with trembling steps, immediately calling upon a spell of mental calm.</p>
 
-<p>She could feel a strange dampness in her panties… That was not</p>
-
-<p>normal…</p>
+<p>She could feel a strange dampness in her panties… That was not normal…</p>
 
 <p>Lucien heard the exchange between the two and shuddered for a brief moment, but in the end, he just stood up.</p>
 
-<p>Without hesitation, he walked toward Qingyi, stopped beside him,</p>
-
-<p>and bowed. It had only been a few hours since their duel, but he had already healed completely.</p>
+<p>Without hesitation, he walked toward Qingyi, stopped beside him, and bowed. It had only been a few hours since their duel, but he had already healed completely.</p>
 
 <p>“Brother Qingyi, thank you so much for teaching me the true path and healing my sinful heart!”</p>

@@ -27,9 +27,7 @@ chapter = 556
 
 <p>But what Qingyi was seeing there was completely different.</p>
 
-<p>More than two thousand demonic seeds, practically immortal, which had already absorbed the Qi and mana of tens of thousands of experts</p>
-
-<p>and millions of civilians.</p>
+<p>More than two thousand demonic seeds, practically immortal, which had already absorbed the Qi and mana of tens of thousands of experts and millions of civilians.</p>
 
 <p>In addition to them, there was at least one other seed of power similar to Nianxue’s, which was already one of the most terrifying existences in the entire immortal heavens, second only to Qingyi himself in power.</p>
 
@@ -53,9 +51,7 @@ chapter = 556
 
 <p>The demons, who had been killing nonstop, opened their mouths in screams of agony and pain, their eyes wide as their bodies seemed to dissolve into bloody slime.</p>
 
-<p>Like typhoons, this blood filled with Qi rose into the air, passing</p>
-
-<p>through the portal and surging over the sacred capital, joining the mana-filled blood of the demons that were there.</p>
+<p>Like typhoons, this blood filled with Qi rose into the air, passing through the portal and surging over the sacred capital, joining the mana-filled blood of the demons that were there.</p>
 
 <p>Everyone watched in shock as the blood gathered above the center of the city, exuding a Qi and mana so frightening that even the most powerful experts still alive felt their blood run cold.</p>
 
@@ -65,29 +61,21 @@ chapter = 556
 
 <p>An explosion echoed and the blood staining the ground beneath his feet moved, grabbing his ankles and holding him in place.</p>
 
-<p>In desperation, he attacked the ground, seeking to break free as</p>
-
-<p>quickly as possible, but nothing worked.</p>
+<p>In desperation, he attacked the ground, seeking to break free as quickly as possible, but nothing worked.</p>
 
 <p>His blows did little more than raise dust and kill his own allies, his armor quickly beginning to corrode.</p>
 
 <p>The king looked up, his eyes meeting Lucios’s from afar.</p>
 
-<p>He barely had time to extend a single hand before falling to the ground, his body turning into bloody slime and being carried up into the skies, joining the orb of blood floating a few hundred meters</p>
-
-<p>above the ground.</p>
+<p>He barely had time to extend a single hand before falling to the ground, his body turning into bloody slime and being carried up into the skies, joining the orb of blood floating a few hundred meters above the ground.</p>
 
 <p>The entire population, both of the enlightened imperial capital and of the Arca, capital of the sacred kingdom of Auranys, met the same fate.</p>
 
 <p>Together, more than thirty-five million people were killed.</p>
 
-<p>Such a level of destruction and loss was something the immortal heavens had only seen before when Khaedryss set fire to the Rose</p>
+<p>Such a level of destruction and loss was something the immortal heavens had only seen before when Khaedryss set fire to the Rose empire.</p>
 
-<p>empire.</p>
-
-<p>Lucios, miles away, could only be glad he had sent his most important</p>
-
-<p>soldiers back.</p>
+<p>Lucios, miles away, could only be glad he had sent his most important soldiers back.</p>
 
 <p>What would have happened if he had joined that crazy attack?</p>
 
@@ -95,17 +83,11 @@ chapter = 556
 
 <p>His eyes rose to the three monarchs, not far from the blood orb.</p>
 
-<p>He was the only powerful expert left alive, and naturally, he should be</p>
+<p>He was the only powerful expert left alive, and naturally, he should be the focus of those damned bastards’ attention.</p>
 
-<p>the focus of those damned bastards’ attention.</p>
+<p>But strangely, they barely acknowledged his existence, their eyes focused on only one figure.</p>
 
-<p>But strangely, they barely acknowledged his existence, their eyes</p>
-
-<p>focused on only one figure.</p>
-
-<p>The only one who was close to the holy city and had not been</p>
-
-<p>consumed.</p>
+<p>The only one who was close to the holy city and had not been consumed.</p>
 
 <p>A young man with long hair and black horns, sharp eyes and a powerful body, covered in elegant robes.</p>
 
@@ -113,9 +95,7 @@ chapter = 556
 
 <p>“You damn bastard! What gives you the courage to show your face here?” Emperor Rose roared, his eyes flashing with rage beneath his mask, meeting Qingyi’s cold, calm gaze.</p>
 
-<p>“Wait, you idiot!” The Enlightened Empress roared, trying to hold him</p>
-
-<p>back, but it was too late.</p>
+<p>“Wait, you idiot!” The Enlightened Empress roared, trying to hold him back, but it was too late.</p>
 
 <p>“Die!” He lunged forward, ignoring the pleas of his companions and exploding with power toward Qingyi.</p>
 
@@ -125,13 +105,9 @@ chapter = 556
 
 <p>“Is that all you’ve got?” he asked.</p>
 
-<p>A metallic clang echoed immediately after, the steel shattering like</p>
+<p>A metallic clang echoed immediately after, the steel shattering like glass and falling to the ground.</p>
 
-<p>glass and falling to the ground.</p>
-
-<p>The Rose Emperor shuddered, feeling the weight of the sword</p>
-
-<p>disappear from his hand, the blade barely leaving a mark on Qingyi’s finger before breaking.</p>
+<p>The Rose Emperor shuddered, feeling the weight of the sword disappear from his hand, the blade barely leaving a mark on Qingyi’s finger before breaking.</p>
 
 <p>His shock was so great that he didn’t even notice as his hand was torn off, from his fingers to his shoulder.</p>
 

@@ -61,9 +61,7 @@ chapter = 454
 
 <p>He said, his voice tinged with playfulness.</p>
 
-<p>“Oh! That’s kind of important too! But… uh…” Celestia looked away,</p>
-
-<p>blushing softly.</p>
+<p>“Oh! That’s kind of important too! But… uh…” Celestia looked away, blushing softly.</p>
 
 <p>She had no excuses.</p>
 
@@ -73,27 +71,19 @@ chapter = 454
 
 <p>What was wrong with valuing the time spent with her sisters more than the mission she had received from her goddess?</p>
 
-<p>Qingyi gave Celestia’s butt a gentle pat and kissed her lips. He pulled her against him, feeling the weight of those pale, perfect tits against</p>
-
-<p>his chest.</p>
+<p>Qingyi gave Celestia’s butt a gentle pat and kissed her lips. He pulled her against him, feeling the weight of those pale, perfect tits against his chest.</p>
 
 <p>Her lips were cold and sweet.</p>
 
-<p>She was probably devouring a tub of ice cream before Qingyi called</p>
+<p>She was probably devouring a tub of ice cream before Qingyi called her.</p>
 
-<p>her.</p>
-
-<p>“You naughty woman…” Qingyi squeezed Celestia’s ass cheeks,</p>
-
-<p>eliciting a soft, muffled moan from her.</p>
+<p>“You naughty woman…” Qingyi squeezed Celestia’s ass cheeks, eliciting a soft, muffled moan from her.</p>
 
 <p>He wanted to throw himself on top of her right there, but unfortunately, it wasn’t the right time for that.</p>
 
 <p>Turning around, they just started walking toward their destination.</p>
 
-<p>Countless miles away from there, a figure could be seen in a flooded</p>
-
-<p>swamp.</p>
+<p>Countless miles away from there, a figure could be seen in a flooded swamp.</p>
 
 <p>His body was covered by a dark cloak; only his beautiful blue eyes and short golden hair could be seen, shining softly.</p>
 
@@ -103,40 +93,24 @@ chapter = 454
 
 <p>Still, he bowed before the young man.</p>
 
-<p>“It won’t be necessary, hahaha.” The young hero replied, scratching</p>
+<p>“It won’t be necessary, hahaha.” The young hero replied, scratching the back of his neck awkwardly.</p>
 
-<p>the back of his neck awkwardly.</p>
-
-<p>The nobleman just shook his head in disappointment, but in the end,</p>
-
-<p>he didn’t insist.</p>
+<p>The nobleman just shook his head in disappointment, but in the end, he didn’t insist.</p>
 
 <p>He had seen the power of that young hero, who seemed to have no connection to any other powerful noble family.</p>
 
 <p>He wasn’t being too ambitious by wanting to create connections with someone like that, right?</p>
 
-<p>The young man simply turned his back on the nobleman and</p>
+<p>The young man simply turned his back on the nobleman and quickened his pace.</p>
 
-<p>quickened his pace.</p>
+<p>He jumped from tree to tree, running with his hands extended behind him in a pose that, if Qingyi had been there, he would have quickly recognized and burst out laughing.</p>
 
-<p>He jumped from tree to tree, running with his hands extended behind</p>
-
-<p>him in a pose that, if Qingyi had been there, he would have quickly</p>
-
-<p>recognized and burst out laughing.</p>
-
-<p>Lucien hated Qingyi from the depths of his heart, a hatred</p>
-
-<p>accompanied by deep jealousy.</p>
+<p>Lucien hated Qingyi from the depths of his heart, a hatred accompanied by deep jealousy.</p>
 
 <p>He tried to hide it at all costs. But in the end, he was still human, unable to completely erase that demon in his heart.</p>
 
-<p>“Ah… that bastard will never even come close to comparing to the</p>
-
-<p>future that the goddess has in store for me…” Lucien repeated in his mind, remembering the first time he arrived in that world and, above all, its most important trait.</p>
+<p>“Ah… that bastard will never even come close to comparing to the future that the goddess has in store for me…” Lucien repeated in his mind, remembering the first time he arrived in that world and, above all, its most important trait.</p>
 
 <p>[The destined eternal consort of the goddess of light and justice]</p>
 
-<p>He knew he was destined for endless greatness. And he was sure that Qingyi would never, ever be able to take that greatness away from</p>
-
-<p>him.</p>
+<p>He knew he was destined for endless greatness. And he was sure that Qingyi would never, ever be able to take that greatness away from him.</p>

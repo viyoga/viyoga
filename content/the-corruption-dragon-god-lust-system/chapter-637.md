@@ -7,9 +7,7 @@ chapter = 637
 
 <p>After satisfying Lingxue and Lanyin, Qingyi left his room and walked to the temple’s alchemy pavilion, where he was greeted by a tanned beauty, full of warmth and affection to offer.</p>
 
-<p>He had intended only to hand over the scroll he had bought for her and leave, but in the end, with those huge tanned tits already</p>
-
-<p>wrapped around his cock, there was little he could do but stay a few more hours.</p>
+<p>He had intended only to hand over the scroll he had bought for her and leave, but in the end, with those huge tanned tits already wrapped around his cock, there was little he could do but stay a few more hours.</p>
 
 <p>When Qingyi finally left the world of the mind, it was already dawn the next day.</p>
 
@@ -57,9 +55,7 @@ chapter = 637
 
 <p>“I don’t know about him. Ma Zhenwu is still in the main palace, and the news has just spread throughout the sect.</p>
 
-<p>That fool will probably isolate himself again to try to enter the</p>
-
-<p>Celestial Origin Realm.”</p>
+<p>That fool will probably isolate himself again to try to enter the Celestial Origin Realm.”</p>
 
 <p>Qingyi fell silent for a brief moment, his thoughts heavy.</p>
 
@@ -71,37 +67,23 @@ chapter = 637
 
 <p>Unfortunately, neither Elder Chen nor Ma Zhenwu seemed to care about that. They’d probably wear a shirt that said “Qingyi #1” without batting an eye if he offered it to them.</p>
 
-<p>What did he have that attracted these damn old men like that? If only</p>
-
-<p>it were a hot young granny…</p>
+<p>What did he have that attracted these damn old men like that? If only it were a hot young granny…</p>
 
 <p>“Ah… fuck it, let’s go have a drink.” Qingyi growled angrily, slapping Chen Wei on the back.</p>
 
-<p>He was about to leave when he sensed, coming from above, a familiar aura, followed by the piercing sound of a spaceship cutting through</p>
+<p>He was about to leave when he sensed, coming from above, a familiar aura, followed by the piercing sound of a spaceship cutting through the skies.</p>
 
-<p>the skies.</p>
+<p>He walked with Chen Wei out to the courtyard, ready to head into town to relax with a good drink, but the small, clearly luxurious ship landed right in front of them.</p>
 
-<p>He walked with Chen Wei out to the courtyard, ready to head into town to relax with a good drink, but the small, clearly luxurious ship</p>
-
-<p>landed right in front of them.</p>
-
-<p>When the side hatch opened, revealing its opulent interior and, sitting alone in the center, a beauty shrouded in darkened mist,</p>
-
-<p>Qingyi sighed.</p>
+<p>When the side hatch opened, revealing its opulent interior and, sitting alone in the center, a beauty shrouded in darkened mist, Qingyi sighed.</p>
 
 <p>He wanted to be angry, but upon activating his draconic eyes to see through the mist and observe that adorable little thing, the anger simply didn’t come.</p>
 
-<p>“Ah… I have a few things to take care of first. Drink without me today, Brother Chen Wei.” Qingyi left his friend behind and entered the small</p>
+<p>“Ah… I have a few things to take care of first. Drink without me today, Brother Chen Wei.” Qingyi left his friend behind and entered the small ship.</p>
 
-<p>ship.</p>
+<p>Young Master Chen could only watch the ship depart toward the main palace, his heart broken.</p>
 
-<p>Young Master Chen could only watch the ship depart toward the</p>
-
-<p>main palace, his heart broken.</p>
-
-<p>His senior brother, his master, the most incredible man he had ever</p>
-
-<p>met in his entire life.</p>
+<p>His senior brother, his master, the most incredible man he had ever met in his entire life.</p>
 
 <p>Why couldn’t he be honest once in a while?</p>
 
@@ -111,18 +93,10 @@ chapter = 637
 
 <p>Qingyi’s hands naturally slid down to her thighs, his strong fingers sinking into the supple, plump flesh as he pulled her close.</p>
 
-<p>[You touch the daughter of the Dragon God of Corruption in an</p>
+<p>[You touch the daughter of the Dragon God of Corruption in an extremely indecent manner! +15 lust points.]</p>
 
-<p>extremely indecent manner! +15 lust points.]</p>
+<p>And just like that, Qingyi had earned the points needed to advance to the Celestial Ascension Realm.</p>
 
-<p>And just like that, Qingyi had earned the points needed to advance to</p>
+<p>Rou’er was weaker than him, so how terrifying must her talent be for a single touch to earn him so many points?</p>
 
-<p>the Celestial Ascension Realm.</p>
-
-<p>Rou’er was weaker than him, so how terrifying must her talent be for</p>
-
-<p>a single touch to earn him so many points?</p>
-
-<p>He was curious, but apparently, even the system had trouble</p>
-
-<p>answering that.</p>
+<p>He was curious, but apparently, even the system had trouble answering that.</p>

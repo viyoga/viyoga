@@ -75,33 +75,23 @@ chapter = 632
 
 <p>They were mediocre.</p>
 
-<p>None of them even seemed to carry a bloodline, and they looked</p>
-
-<p>more like disposable trash meant to handle minor problems than</p>
-
-<p>legitimate subordinates.</p>
+<p>None of them even seemed to carry a bloodline, and they looked more like disposable trash meant to handle minor problems than legitimate subordinates.</p>
 
 <p>“So, who will be the first to die?” he asked, releasing the projection of his bloodline.</p>
 
-<p>It was only when the enormous black dragon roared behind Qingyi, that the henchmen overcame their shock and remembered their</p>
-
-<p>situation.</p>
+<p>It was only when the enormous black dragon roared behind Qingyi, that the henchmen overcame their shock and remembered their situation.</p>
 
 <p>It was difficult to move under the suppression of the bloodline, especially when the difference in cultivation was too small to break through it with brute force.</p>
 
 <p>Even so, Tianhao’s henchmen quickly regained their composure, positioning themselves to fight.</p>
 
-<p>They would be well paid for that service, and the young master’s trust</p>
-
-<p>in them would grow even further.</p>
+<p>They would be well paid for that service, and the young master’s trust in them would grow even further.</p>
 
 <p>None of them were willing to fail.</p>
 
 <p>“Surround him, each on one side! Avoid killing him and remember</p>
 
-<p>Young Master Tianhao’s orders. We must only cripple and castrate</p>
-
-<p>him!” The group’s leader roared.</p>
+<p>Young Master Tianhao’s orders. We must only cripple and castrate him!” The group’s leader roared.</p>
 
 <p>But then he felt a searing breeze run between his legs.</p>
 
@@ -111,27 +101,17 @@ chapter = 632
 
 <p>The leader’s pants filled with warm blood, and he let out a scream of agony, clutching his groin as his knees buckled.</p>
 
-<p>“For someone who talks so much about castrating others, you should</p>
-
-<p>be more careful with your own balls, shouldn’t you?” Qingyi smiled, leaning his body slightly backward and dodging a blade slashing toward his neck.</p>
+<p>“For someone who talks so much about castrating others, you should be more careful with your own balls, shouldn’t you?” Qingyi smiled, leaning his body slightly backward and dodging a blade slashing toward his neck.</p>
 
 <p>The sharp edge grazed his skin, barely leaving a pink mark.</p>
 
 <p>Casually, he kicked the attacker away, his knees landing on the man’s stomach with a dull thud.</p>
 
-<p>“F-fuck… take up the formation we learned! We have to kill this black</p>
+<p>“F-fuck… take up the formation we learned! We have to kill this black dragon son of a bitch!” The leader roared, still trying to recover from the pain of being castrated.</p>
 
-<p>dragon son of a bitch!” The leader roared, still trying to recover from</p>
+<p>Qingyi was genuinely surprised by how quickly the man regained his composure.</p>
 
-<p>the pain of being castrated.</p>
-
-<p>Qingyi was genuinely surprised by how quickly the man regained his</p>
-
-<p>composure.</p>
-
-<p>He had just been transformed into a woman, yet here he was again,</p>
-
-<p>ready to kill.</p>
+<p>He had just been transformed into a woman, yet here he was again, ready to kill.</p>
 
 <p>“Senior Brother Qingyi, be careful!” Peng Tao shouted with what little strength he had left.</p>
 
@@ -139,8 +119,6 @@ chapter = 632
 
 <p>His eyes were cold as he watched the ten henchmen slowly surround him, their swords pointed in his direction.</p>
 
-<p>From the sharp blades, a reddish thread began to emerge, connecting them one by one, and a dense, profane energy began to pulse in the</p>
-
-<p>air.</p>
+<p>From the sharp blades, a reddish thread began to emerge, connecting them one by one, and a dense, profane energy began to pulse in the air.</p>
 
 <p>“Demon Qi…” Qingyi’s eyes flashed, and his heart burned with rage. This was getting dangerous.</p>

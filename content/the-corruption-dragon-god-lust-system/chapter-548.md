@@ -33,9 +33,7 @@ chapter = 548
 
 <p>He was a man who deserved the daughter he had. A man of true honor and dignity.</p>
 
-<p>‘I wonder if we would have been as close as Tai’Ren and I are if I had met him just a little earlier… Qingyi thought to himself before shaking</p>
-
-<p>his head.</p>
+<p>‘I wonder if we would have been as close as Tai’Ren and I are if I had met him just a little earlier… Qingyi thought to himself before shaking his head.</p>
 
 <p>“I’ll stay with her for a while. If you need anything, let me know.” He said before leaving.</p>
 
@@ -61,21 +59,15 @@ chapter = 548
 
 <p>“Nah..” Qingyi smiled bitterly, memories of a distant life entering his mind. “My father… wasn’t the type to show those things.”</p>
 
-<p>He was ashamed to admit it, but he had almost forgotten his father’s</p>
-
-<p>face, and his mother’s too.</p>
+<p>He was ashamed to admit it, but he had almost forgotten his father’s face, and his mother’s too.</p>
 
 <p>His father wasn’t a bad man, nor was he cruel or despicable. He was just… broken.</p>
 
-<p>‘I wonder if we’ll ever see each other again…! He thought, but quickly pushed those thoughts out of his mind and focused on what</p>
-
-<p>mattered: his Biyue.</p>
+<p>‘I wonder if we’ll ever see each other again…! He thought, but quickly pushed those thoughts out of his mind and focused on what mattered: his Biyue.</p>
 
 <p>“Hm…” Biyue seemed to be thinking about something, but quickly looked away, giggling.</p>
 
-<p>“Father always told me that I should find a man who would accept no</p>
-
-<p>other woman but me… I don’t think he would be very happy to see how many sisters I have now.”</p>
+<p>“Father always told me that I should find a man who would accept no other woman but me… I don’t think he would be very happy to see how many sisters I have now.”</p>
 
 <p>“Oh… and how many wives did he have?” Qingyi asked, turning his face.</p>
 
@@ -91,15 +83,11 @@ chapter = 548
 
 <p>Time passed so quickly… Fortunately, alongside Qingyi, they had all of eternity to themselves.</p>
 
-<p>She turned away, letting the incense burn out as she buried her face</p>
-
-<p>in Qingyi’s chest, drying her teary eyes.</p>
+<p>She turned away, letting the incense burn out as she buried her face in Qingyi’s chest, drying her teary eyes.</p>
 
 <p>She couldn’t, and wouldn’t, spend that eternity clinging to a pain that should have passed so long ago.</p>
 
-<p>After a few more moments there, she finally escaped Qingyi’s arms</p>
-
-<p>and stood up.</p>
+<p>After a few more moments there, she finally escaped Qingyi’s arms and stood up.</p>
 
 <p>“I’m going to join Feiyan now… she was preparing for us to start a big project together,” Biyue said, watching Qingyi get up as well.</p>
 
@@ -107,27 +95,17 @@ chapter = 548
 
 <p>And so went the rest of Qingyi’s day.</p>
 
-<p>He accompanied Feiyan, Biyue, Margareth, and Sapphire in their</p>
+<p>He accompanied Feiyan, Biyue, Margareth, and Sapphire in their alchemy studies, and then even helped Aeryn and Celestia train their fighting and healing skills a little.</p>
 
-<p>alchemy studies, and then even helped Aeryn and Celestia train their</p>
-
-<p>fighting and healing skills a little.</p>
-
-<p>When it was all over, he began his almost daily double cultivation session, gathering more and more lust points while preparing his</p>
-
-<p>base.</p>
+<p>When it was all over, he began his almost daily double cultivation session, gathering more and more lust points while preparing his base.</p>
 
 <p>He would reach the astral body realm before returning to the illuminated imperial capital.</p>
 
 <p>At the end of it all, just before dawn, Qingyi found himself lying among voluptuous, perfect, sweaty bodies.</p>
 
-<p>His hands were buried in a pair of huge tits while Nianxue took care of his cock, her delicate throat working incessantly along the huge</p>
+<p>His hands were buried in a pair of huge tits while Nianxue took care of his cock, her delicate throat working incessantly along the huge member.</p>
 
-<p>member.</p>
-
-<p>“Hm… life is good…” He smiled slightly, stretching and relaxing, his cock throbbing painfully before spurting into her mouth, Nianxue’s</p>
-
-<p>cheeks inflating with the amount.</p>
+<p>“Hm… life is good…” He smiled slightly, stretching and relaxing, his cock throbbing painfully before spurting into her mouth, Nianxue’s cheeks inflating with the amount.</p>
 
 <p>To his right was Isabel, and to his left, Lingxue, the two’s huge, perfect boobs fighting for space on his chest, Lingxue’s milky pale skin contrasting with Isabel’s creamy chocolaty skin.</p>
 

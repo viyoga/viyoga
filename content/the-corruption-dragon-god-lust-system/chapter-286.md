@@ -25,9 +25,7 @@ chapter = 286
 
 <p>After a moment like that, she finally pulled back, revealing Qingyi’s cock drenched in saliva that splashed over her lips and tits in thick, pearly strands.</p>
 
-<p>“You’re doing great for your first time, sister, the husband will be filling you up with his cum soon, fufufu~~”</p>
-
-<p>Feiyan giggled provocatively, grabbing Isabel’s tits with both hands, squeezing them against each other as she guided Isabel to stand up, just enough to reach the height of Qingyi’s abdomen, engulfing his cock in that valley of creamy, chocolatey skin, using Isabel’s own saliva as lubricant.</p>
+<p>“You’re doing great for your first time, sister, the husband will be filling you up with his cum soon, fufufu~~” Feiyan giggled provocatively, grabbing Isabel’s tits with both hands, squeezing them against each other as she guided Isabel to stand up, just enough to reach the height of Qingyi’s abdomen, engulfing his cock in that valley of creamy, chocolatey skin, using Isabel’s own saliva as lubricant.</p>
 
 <p>“Nghnn~~” Isabel grabbed her own breasts, her hands on Feiyan’s hands as she looked down, seeing only the tip of Qingyi’s cock emerging from the deep valley of her tits.</p>
 

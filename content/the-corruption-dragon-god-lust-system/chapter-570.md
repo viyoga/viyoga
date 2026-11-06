@@ -53,11 +53,7 @@ chapter = 570
 
 <p>Following his fall came an explosion, hundreds of meters around Qingyi engulfed in pure destruction.</p>
 
-<p>Lucios, who had already engaged in combat with a second orc</p>
-
-<p>warchief, also from the twelfth ring, could not help but open his</p>
-
-<p>mouth in admiration.</p>
+<p>Lucios, who had already engaged in combat with a second orc warchief, also from the twelfth ring, could not help but open his mouth in admiration.</p>
 
 <p>One of the most powerful beasts in the entire world, defeated cleanly with a single blow.</p>
 
@@ -95,17 +91,13 @@ chapter = 570
 
 <p>The moment his voice fell, he charged forward.</p>
 
-<p>His body became a blur, and the thousand green rays spread out in all</p>
-
-<p>directions. cutting through countless orcs like sharp razors.</p>
+<p>His body became a blur, and the thousand green rays spread out in all directions. cutting through countless orcs like sharp razors.</p>
 
 <p>The orc warchief didn’t even bother to dodge. His face glowed with excitement as he faced the attack head-on.</p>
 
 <p>His mana exploded around his weapon, colliding with Lucios’ saber.</p>
 
-<p>He expected to block the attack like that. But he didn’t notice</p>
-
-<p>something.</p>
+<p>He expected to block the attack like that. But he didn’t notice something.</p>
 
 <p>Lucios’ blade stopped, but the lightning surrounding it did not.</p>
 
@@ -115,9 +107,7 @@ chapter = 570
 
 <p>Around him, more than three thousand ethereal swords formed with the Fourth Form of the Tempest Monarch Sword Art flew rapidly, cutting through orcs without stopping.</p>
 
-<p>Each of them had power equivalent to that of an immortal emperor- and together, they were more than enough to deal with any expert in</p>
-
-<p>the astral body realm.</p>
+<p>Each of them had power equivalent to that of an immortal emperor- and together, they were more than enough to deal with any expert in the astral body realm.</p>
 
 <p>Watching that scene, Lucios could only shake his head.</p>
 
@@ -125,10 +115,6 @@ chapter = 570
 
 <p>How many orcs had Qingyi killed in that short time? Thirty thousand?</p>
 
-<p>Even for an expert of his level, killing so many so quickly was difficult, especially considering that many of those orcs had reached the</p>
+<p>Even for an expert of his level, killing so many so quickly was difficult, especially considering that many of those orcs had reached the twelfth ring.</p>
 
-<p>twelfth ring.</p>
-
-<p>Sighing in defeat, the old elf took a mana recovery potion and joined</p>
-
-<p>the slaughter again.</p>
+<p>Sighing in defeat, the old elf took a mana recovery potion and joined the slaughter again.</p>

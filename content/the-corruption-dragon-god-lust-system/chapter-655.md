@@ -55,13 +55,9 @@ chapter = 655
 
 <p>With a small sigh, he settled for the basics.</p>
 
-<p>The cost was so trivial that not even 0.1 G Lust Points was taken from</p>
+<p>The cost was so trivial that not even 0.1 G Lust Points was taken from his balance.</p>
 
-<p>his balance.</p>
-
-<p>The young man’s eyes narrowed the moment the transaction completed, his breath seizing as a searing pain flooded every inch of</p>
-
-<p>his body.</p>
+<p>The young man’s eyes narrowed the moment the transaction completed, his breath seizing as a searing pain flooded every inch of his body.</p>
 
 <p>Cheap elements or not, nothing dulled the agony of having his meridians torn apart and rebuilt from the ground up.</p>
 
@@ -75,17 +71,11 @@ chapter = 655
 
 <p>“Huh?” Confusion flickered across Qingyi’s face.</p>
 
-<p>He extended his Qi senses throughout his body, probing deep into his</p>
+<p>He extended his Qi senses throughout his body, probing deep into his dantian.</p>
 
-<p>dantian.</p>
+<p>His new elements felt strange. they were intertwined. Yet not in a chaotic way.</p>
 
-<p>His new elements felt strange. they were intertwined. Yet not in a</p>
-
-<p>chaotic way.</p>
-
-<p>Instead, they were neatly fused, one supporting the next like a</p>
-
-<p>foundation of a building.</p>
+<p>Instead, they were neatly fused, one supporting the next like a foundation of a building.</p>
 
 <p>Curious, Qingyi circulated all five Qi at once. Immediately, an intense, rainbow-hued aura erupted around his body, radiating a power far greater than any of them could have achieved on their own.</p>
 
@@ -103,27 +93,17 @@ chapter = 655
 
 <p>A broad smile split his face.</p>
 
-<p>In a blink, Qingyi departed the world of the mind and, in his bedroom,</p>
+<p>In a blink, Qingyi departed the world of the mind and, in his bedroom, stepped into the sea of the mind, where he raised one hand and a sword materialized in his grip.</p>
 
-<p>stepped into the sea of the mind, where he raised one hand and a</p>
-
-<p>sword materialized in his grip.</p>
-
-<p>Recalling the foundation of the Heaven-Shattering Divine Slash, he</p>
-
-<p>drew in a deep breath.</p>
+<p>Recalling the foundation of the Heaven-Shattering Divine Slash, he drew in a deep breath.</p>
 
 <p>First, he wove together sword Qi and lightning Qi within his blade, then layered in spatial Qi, all forged into a single keen edge.</p>
 
 <p>On the right side of the weapon, light Qi. On the left, shadow Qi. That alone was enough to make the entire sea of mind shudder. So many Qi bound into a single blade was not something natural. It was not something the primordial laws had ever been built to handle. Qingyi grunted through a sharp stab of pain, finally summoning the flames of primordial chaos and the last two remaining types of Qi. The metal of the blade trembled, a high-pitched whistle slicing through the air as the weapon threatened to disintegrate in his hand.</p>
 
-<p>Across the beautiful young man’s body, an aura took shape. Every color at once, and no color at all. It blazed bright enough to</p>
+<p>Across the beautiful young man’s body, an aura took shape. Every color at once, and no color at all. It blazed bright enough to blind any onlooker, and yet it was black as the deepest abyss.</p>
 
-<p>blind any onlooker, and yet it was black as the deepest abyss.</p>
-
-<p>Qingyi exhaled. Took a single step forward. And then he unleashed</p>
-
-<p>the Heaven-Shattering Divine Slash.</p>
+<p>Qingyi exhaled. Took a single step forward. And then he unleashed the Heaven-Shattering Divine Slash.</p>
 
 <p>For a moment, there was only silence.</p>
 

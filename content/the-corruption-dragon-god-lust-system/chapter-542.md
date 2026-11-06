@@ -7,9 +7,7 @@ chapter = 542
 
 <p>“Hm… open your mouth and eat a little, this is good.” A voice echoed in one of the rooms that had previously been empty in the temple.</p>
 
-<p>It was a mature, sweet, and gentle tone, overflowing with love and</p>
-
-<p>care.</p>
+<p>It was a mature, sweet, and gentle tone, overflowing with love and care.</p>
 
 <p>The owner of the voice was Elize. She was sitting on the edge of the bed, holding a bowl full of soup and a spoon.</p>
 
@@ -85,53 +83,35 @@ chapter = 542
 
 <p>***</p>
 
-<p>Outside the temple, five figures appeared: Qingyi, Ruxue, and the</p>
-
-<p>three fox girls.</p>
+<p>Outside the temple, five figures appeared: Qingyi, Ruxue, and the three fox girls.</p>
 
 <p>Lanyin and Lingxue couldn’t help but gasp heavily as they watched that world.</p>
 
-<p>Such Qi density was absurd… And they weren’t even in a cultivation room. That was just the natural Qi density of the place, infinitely</p>
+<p>Such Qi density was absurd… And they weren’t even in a cultivation room. That was just the natural Qi density of the place, infinitely superior to anything they had in their lands.</p>
 
-<p>superior to anything they had in their lands.</p>
+<p>Qingyi just smiled at their reaction, but soon noticed something. The demonic energy corrupting Lanyin was changing.</p>
 
-<p>Qingyi just smiled at their reaction, but soon noticed something. The</p>
+<p>‘Shit… did that demon activate the demonic energy?’ He shuddered, already ready to ask Ruxue to blow her up.</p>
 
-<p>demonic energy corrupting Lanyin was changing.</p>
-
-<p>‘Shit… did that demon activate the demonic energy?’ He shuddered,</p>
-
-<p>already ready to ask Ruxue to blow her up.</p>
-
-<p>But fortunately, he stopped himself from doing so, paying a little more</p>
-
-<p>attention.</p>
+<p>But fortunately, he stopped himself from doing so, paying a little more attention.</p>
 
 <p>The demonic energy wasn’t being activated; it was dissipating!</p>
 
-<p>Qingyi activated his draconic eyes and examined Lanyin’s status. The</p>
-
-<p>demonic corruption had truly disappeared!</p>
+<p>Qingyi activated his draconic eyes and examined Lanyin’s status. The demonic corruption had truly disappeared!</p>
 
 <p>With a sigh, he left Lanyin and Lingxue in Xueyao’s care, immediately departing with Ruxue.</p>
 
 <p>It was time for him to take a look at that little demon!</p>
 
-<p>Halfway there, he encountered Elize, who was coming from the</p>
-
-<p>direction of Nianxue’s room.</p>
+<p>Halfway there, he encountered Elize, who was coming from the direction of Nianxue’s room.</p>
 
 <p>“Husband! You’re back earlier than I expected, hehehe~~”</p>
 
 <p>A big smile spread across Elize’s face as she threw herself into Qingyi’s arms. The handsome young man smiled back, holding her by the hips and planting a kiss on her lips.</p>
 
-<p>“I had some things to take care of, but everything is fine now… how is</p>
+<p>“I had some things to take care of, but everything is fine now… how is our guest?”</p>
 
-<p>our guest?”</p>
-
-<p>“Nianxue? She’s fine… She doesn’t know much about the world, but</p>
-
-<p>she’s still a sweet woman. Are you going to see her now, hubby?”</p>
+<p>“Nianxue? She’s fine… She doesn’t know much about the world, but she’s still a sweet woman. Are you going to see her now, hubby?”</p>
 
 <p>“Yes,” Qingyi nodded, patting Elize’s butt.</p>
 
@@ -139,35 +119,21 @@ chapter = 542
 
 <p>With Elize gone, Qingyi continued on his way with Ruxue.</p>
 
-<p>“Does the heavenly demon still have some control over her?” he asked</p>
+<p>“Does the heavenly demon still have some control over her?” he asked after walking for a few moments.</p>
 
-<p>after walking for a few moments.</p>
-
-<p>“No… she doesn’t even have the characteristic eyes of his race,</p>
-
-<p>honestly. They’re not red like Ruyan’s.”</p>
+<p>“No… she doesn’t even have the characteristic eyes of his race, honestly. They’re not red like Ruyan’s.”</p>
 
 <p>“Hm…” Qingyi scratched his chin.</p>
 
-<p>Yes, almost all descendants of the demonic cult in the mortal sky had</p>
+<p>Yes, almost all descendants of the demonic cult in the mortal sky had red eyes; it was what differentiated a pure bloodline from an impure one.</p>
 
-<p>red eyes; it was what differentiated a pure bloodline from an impure</p>
-
-<p>one.</p>
-
-<p>But Nianxue wasn’t simply a bloodline, she was a member of the race</p>
-
-<p>itself. There was no way her blood wasn’t pure. Her eyes should be</p>
-
-<p>red, not blue.</p>
+<p>But Nianxue wasn’t simply a bloodline, she was a member of the race itself. There was no way her blood wasn’t pure. Her eyes should be red, not blue.</p>
 
 <p>“Ah…” Qingyi sighed, entering the room where Ruxue had left</p>
 
 <p>Nianxue.</p>
 
-<p>After taking a single step, he stopped, observing the naked beauty</p>
-
-<p>sitting on the bed, studying the stitches on the noble sheets that covered the soft mattress.</p>
+<p>After taking a single step, he stopped, observing the naked beauty sitting on the bed, studying the stitches on the noble sheets that covered the soft mattress.</p>
 
 <p>Her eyes rose, meeting Qingyi’s.</p>
 
@@ -175,6 +141,4 @@ chapter = 542
 
 <p>“Uh… are you the Hubby? I’m sorry for hurting you earlier!”</p>
 
-<p>NT: Nianxue’s art is now available in the characters tab! The art</p>
-
-<p>available here is an extremely censored and even cropped version! You can access the uncensored, uncropped version on my discord: .gg/ZMhMj7Dawz</p>
+<p>NT: Nianxue’s art is now available in the characters tab! The art available here is an extremely censored and even cropped version! You can access the uncensored, uncropped version on my discord: .gg/ZMhMj7Dawz</p>

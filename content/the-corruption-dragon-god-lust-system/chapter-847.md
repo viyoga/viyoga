@@ -15,9 +15,7 @@ chapter = 847
 
 <p>Only after the seventh gulp did she finally pull back, the enormous member slipping from her rosy lips with a wet pop that echoed through the room.</p>
 
-<p>"Aghnn~~ Fufufu~~"</p>
-
-<p>The tigress purred, the taste of her husband’s semen still coating her tongue, her striped tail swaying behind her plump ass, brushing sensually against the soft, ripe cheeks with each languid sweep.</p>
+<p>"Aghnn~~ Fufufu~~" The tigress purred, the taste of her husband’s semen still coating her tongue, her striped tail swaying behind her plump ass, brushing sensually against the soft, ripe cheeks with each languid sweep.</p>
 
 <p>Her lips glistened, drenched in saliva mixed with cum, still connected to the thick tip of his cock by long, sticky strands of semen.</p>
 

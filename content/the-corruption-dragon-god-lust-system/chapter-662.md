@@ -31,9 +31,7 @@ chapter = 662
 
 <p>The man was already fully recovered, his arms stronger than ever and his aura as imposing as always.</p>
 
-<p>“Taoist Brother Fa Yun,” Qingyi took the initiative to apologize for</p>
-
-<p>having gone too hard on him right from the start, “I’m sorry for hurting you like that. I ended up using too much force.”</p>
+<p>“Taoist Brother Fa Yun,” Qingyi took the initiative to apologize for having gone too hard on him right from the start, “I’m sorry for hurting you like that. I ended up using too much force.”</p>
 
 <p>“Oh… don’t worry, Taoist Brother Qingyi!” Fa Yun roared with laughter. “I’m neither a child nor an arrogant young master. My master taught me humility and discipline! I’m just happy to have experienced the strength of a black dragon firsthand! Hahahaha.”</p>
 
@@ -85,13 +83,9 @@ chapter = 662
 
 <p>Fortunately, it wasn’t necessary.</p>
 
-<p>As quickly as it had come, that terrifying aura vanished, leaving</p>
+<p>As quickly as it had come, that terrifying aura vanished, leaving behind nothing but pale, gasping, sweat-drenched faces. Even the stellar sovereigns shuddered.</p>
 
-<p>behind nothing but pale, gasping, sweat-drenched faces. Even the stellar sovereigns shuddered.</p>
-
-<p>That attack had taken place far from them. Probably at the border of the southern region with the central region, countless light-years</p>
-
-<p>away.</p>
+<p>That attack had taken place far from them. Probably at the border of the southern region with the central region, countless light-years away.</p>
 
 <p>Still, they felt the effect immediately, as if the very speed of light were nothing and as if the cosmos itself were bowing before that power.</p>
 
@@ -107,15 +101,11 @@ chapter = 662
 
 <p>The young dragon didn’t seem terrified. He seemed shocked. “Oh… I see, you came from the immortal heavens, Qingyi. This is the power of a celestial emperor! With your talent, perhaps one day you’ll reach the central region and even be lucky enough to see one of them up close!” The monk laughed, patting Qingyi on the shoulder. The handsome young man nodded silently.</p>
 
-<p>What shocked him was not what Fa Yun had expected. Quite the</p>
-
-<p>opposite.</p>
+<p>What shocked him was not what Fa Yun had expected. Quite the opposite.</p>
 
 <p>He recognized that Qi, and it took no more than an instant for a familiar voice to echo in his head.</p>
 
-<p>[Husband… what was that Qi? We can sense it even from here. Why</p>
-
-<p>do I feel Father’s aura?] Long Qianyao asked, using Qingyi’s connection with Ruxue.</p>
+<p>[Husband… what was that Qi? We can sense it even from here. Why do I feel Father’s aura?] Long Qianyao asked, using Qingyi’s connection with Ruxue.</p>
 
 <p>‘It was probably your father… don’t worry, love. Soon, I’ll go after him!</p>
 
@@ -123,57 +113,33 @@ chapter = 662
 
 <p>He didn’t tell Qianyao that, alongside Tianjin’s aura, he sensed a second aura spreading through the cosmos, much fainter. The disgusting, repulsive aura of the Heavenly Demon…</p>
 
-<p>Just thinking that they were trading blows right now made his blood</p>
+<p>Just thinking that they were trading blows right now made his blood boil.</p>
 
-<p>boil.</p>
-
-<p>He wanted to reach the realm of the Celestial Emperor as soon as</p>
-
-<p>possible.</p>
+<p>He wanted to reach the realm of the Celestial Emperor as soon as possible.</p>
 
 <p>He wanted to ascend to the peak of peaks, kill the Heavenly Demon, and bring his loved ones to the Celestial Heavens.</p>
 
-<p>And then, relax for the rest of eternity, caring for her future children</p>
+<p>And then, relax for the rest of eternity, caring for her future children and grandchildren, alongside everyone she loved. But to do that, he couldn’t falter.</p>
 
-<p>and grandchildren, alongside everyone she loved. But to do that, he couldn’t falter.</p>
+<p>Qingyi maintained a serious gaze as he stared at the white tiger across the room.</p>
 
-<p>Qingyi maintained a serious gaze as he stared at the white tiger across</p>
+<p>Calm and composed, as if the burst of aura from a celestial emperor were nothing.</p>
 
-<p>the room.</p>
+<p>The tiger was the only one who hadn’t reacted at all, drinking a liquor strong enough that even nearby cultivators would get drunk just from the smell alone.</p>
 
-<p>Calm and composed, as if the burst of aura from a celestial emperor</p>
+<p>And yet, he was completely relaxed, showing not a single trace of intoxication.</p>
 
-<p>were nothing.</p>
-
-<p>The tiger was the only one who hadn’t reacted at all, drinking a liquor</p>
-
-<p>strong enough that even nearby cultivators would get drunk just from the smell alone.</p>
-
-<p>And yet, he was completely relaxed, showing not a single trace of</p>
-
-<p>intoxication.</p>
-
-<p>Taking a sip, the tiger’s eyes focused and fell upon Qingyi. His maw revealed a smile full of sharp teeth, and he tossed the enormous bottle of liquor, containing over ten liters of drink, in the direction of</p>
-
-<p>the young dragon.</p>
+<p>Taking a sip, the tiger’s eyes focused and fell upon Qingyi. His maw revealed a smile full of sharp teeth, and he tossed the enormous bottle of liquor, containing over ten liters of drink, in the direction of the young dragon.</p>
 
 <p>Qingyi caught it in midair, took a single gulp that burned its way down his throat, and then returned the tiger’s savage smile.</p>
 
 <p>He was starting to like that big cat.</p>
 
-<p>And so, with the sect returning to normal and no signs that the battle</p>
+<p>And so, with the sect returning to normal and no signs that the battle in the celestial sky was continuing, the sect leader declared the start of the second round.</p>
 
-<p>in the celestial sky was continuing, the sect leader declared the start</p>
+<p>This round was much longer than the first, with hundreds of battles, many fierce enough to last several minutes. The sounds of clashing steel and bursts of Qi filled the arena for hours on end.</p>
 
-<p>of the second round.</p>
-
-<p>This round was much longer than the first, with hundreds of battles,</p>
-
-<p>many fierce enough to last several minutes. The sounds of clashing steel and bursts of Qi filled the arena for hours on end.</p>
-
-<p>The young warriors, healed and eager to prove themselves after their</p>
-
-<p>miserable defeat at Qingyi’s hands, fought with everything they had, each of them trying to show their best possible performance.</p>
+<p>The young warriors, healed and eager to prove themselves after their miserable defeat at Qingyi’s hands, fought with everything they had, each of them trying to show their best possible performance.</p>
 
 <p>In the end, when it was all over, more than fifteen hours had passed.</p>
 
@@ -185,12 +151,8 @@ chapter = 662
 
 <p>When all one hundred spots were filled, the tournament came to an end and the protectors went to find their protégés. Naturally, it didn’t take long for Qingyi to have a little attention-seeking gremlin in his arms, rubbing her face against his powerful chest.</p>
 
-<p>“What’s up, big sis Xue Hua? Want to come into big bro Qingyi’s</p>
+<p>“What’s up, big sis Xue Hua? Want to come into big bro Qingyi’s embrace too?” Rou’er looked back, where Xue Hua stood with her arms crossed and a disinterested expression.</p>
 
-<p>embrace too?” Rou’er looked back, where Xue Hua stood with her arms crossed and a disinterested expression.</p>
-
-<p>“He’s warm, smells good, and super protective. Come on, join me and</p>
-
-<p>get away from your stinky, cuckold fiancé!” she declared arrogantly to Xue Hua, Longwei’s fiancée.</p>
+<p>“He’s warm, smells good, and super protective. Come on, join me and get away from your stinky, cuckold fiancé!” she declared arrogantly to Xue Hua, Longwei’s fiancée.</p>
 
 <p>Longwei, who wasn’t far away, felt his heart burn with humiliation as he watched everyone’s eyes in that room turn to him immediately, the booming laughter of his protector, the enormous white tiger, echoing.</p>

@@ -69,17 +69,11 @@ chapter = 586
 
 <p>It was like the attack of dozens of Heavenly Demons united into a single one, falling upon him as divine punishment.</p>
 
-<p>Qingyi took a deep breath and then leaped into the heavens,</p>
+<p>Qingyi took a deep breath and then leaped into the heavens, executing the Heaven-Shattering Divine Slash.</p>
 
-<p>executing the Heaven-Shattering Divine Slash.</p>
+<p>His sword tore through the very fabric of space around him, the sharp blade meeting the silver lightning.</p>
 
-<p>His sword tore through the very fabric of space around him, the</p>
-
-<p>sharp blade meeting the silver lightning.</p>
-
-<p>It was as if the world were about to end, Qingyi’s lightning and that of</p>
-
-<p>the heavens colliding with terrifying power.</p>
+<p>It was as if the world were about to end, Qingyi’s lightning and that of the heavens colliding with terrifying power.</p>
 
 <p>Beneath them, the peak had turned to dust, every drop of water evaporating and every living being instantly incinerated within an area spanning dozens of kilometers.</p>
 
@@ -87,13 +81,9 @@ chapter = 586
 
 <p>“Two more…” Qingyi gritted his teeth, feeling his meridians burn.</p>
 
-<p>“Are you afraid?” he asked, his lips curving into a smile full of</p>
+<p>“Are you afraid?” he asked, his lips curving into a smile full of contempt. “Good…”</p>
 
-<p>contempt. “Good…”</p>
-
-<p>The moment his voice fell, the second heavenly lightning began to form, with even more power than the first, the black clouds</p>
-
-<p>trembling.</p>
+<p>The moment his voice fell, the second heavenly lightning began to form, with even more power than the first, the black clouds trembling.</p>
 
 <p>Qingyi covered himself with the black dragon’s scales, and his eyes grew cold.</p>
 
@@ -103,13 +93,9 @@ chapter = 586
 
 <p>Terrifying tremors overwhelmed everything, and chaos spread.</p>
 
-<p>Qingyi let out a bestial roar, feeling the meridians in his fingers on the</p>
+<p>Qingyi let out a bestial roar, feeling the meridians in his fingers on the Heaven-Defying Thunder Sword being torn apart, strands of celestial thunder slicing through his body.</p>
 
-<p>Heaven-Defying Thunder Sword being torn apart, strands of celestial thunder slicing through his body.</p>
-
-<p>Right behind the second thunderclap, which had not yet fully descended, a third began to form, gathering every drop of power the</p>
-
-<p>heavens could concentrate there.</p>
+<p>Right behind the second thunderclap, which had not yet fully descended, a third began to form, gathering every drop of power the heavens could concentrate there.</p>
 
 <p>“So you’re not messing around, huh? Hahahaha.” Qingyi roared with laughter, revealing bloody teeth as he summoned the most powerful force within himself.</p>
 
@@ -117,9 +103,7 @@ chapter = 586
 
 <p>The flames that were, according to an ancient prophecy, destined to one day burn the heavens themselves.</p>
 
-<p>The heat around Qingyi suddenly surged, everything surrounding</p>
-
-<p>him beginning to melt immediately, from forests hundreds of kilometers away to what remained of the mountain below him.</p>
+<p>The heat around Qingyi suddenly surged, everything surrounding him beginning to melt immediately, from forests hundreds of kilometers away to what remained of the mountain below him.</p>
 
 <p>Nothing escaped the flames of primordial chaos.</p>
 
@@ -129,34 +113,18 @@ chapter = 586
 
 <p>Qingyi unleashed absolutely everything, Qi and Mana, all his elements, and even his draconic Qi.</p>
 
-<p>He groaned in pain as the black scales were forcibly torn from his</p>
+<p>He groaned in pain as the black scales were forcibly torn from his body by the thunderbolts piercing him, tearing deep gashes in his flesh.</p>
 
-<p>body by the thunderbolts piercing him, tearing deep gashes in his</p>
-
-<p>flesh.</p>
-
-<p>The heavens tried with every ounce of strength they could muster in the immortal heavens to defeat Qingyi right there, eliminating that</p>
-
-<p>danger once and for all.</p>
+<p>The heavens tried with every ounce of strength they could muster in the immortal heavens to defeat Qingyi right there, eliminating that danger once and for all.</p>
 
 <p>But it was not enough.</p>
 
-<p>The flames of primordial chaos swallowed the celestial lightning and</p>
+<p>The flames of primordial chaos swallowed the celestial lightning and rose toward the heavens, consuming everything in their path.</p>
 
-<p>rose toward the heavens, consuming everything in their path.</p>
-
-<p>An explosion echoed and the heavens tore apart, as if a portal to</p>
-
-<p>another universe were opening.</p>
+<p>An explosion echoed and the heavens tore apart, as if a portal to another universe were opening.</p>
 
 <p>“Ah… finally…” Qingyi sighed, relaxing.</p>
 
-<p>[What are you waiting for? Go on and start healing yourself as soon as</p>
+<p>[What are you waiting for? Go on and start healing yourself as soon as possible!] Ruxue’s voice echoed in his mind, clearly trembling with concern.</p>
 
-<p>possible!] Ruxue’s voice echoed in his mind, clearly trembling with</p>
-
-<p>concern.</p>
-
-<p>“I’m going, love.” Qingyi took a slight step forward, and then his body</p>
-
-<p>vanished.</p>
+<p>“I’m going, love.” Qingyi took a slight step forward, and then his body vanished.</p>

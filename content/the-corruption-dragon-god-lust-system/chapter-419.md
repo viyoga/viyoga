@@ -51,17 +51,13 @@ chapter = 419
 
 <p>Exchanging glances, Qingyi and Meilin prepared to leave when a distant voice interrupted them.</p>
 
-<p>Their arrival had already caused some commotion among the commoners and workers who came and went along the wide street</p>
-
-<p>where the couple had landed.</p>
+<p>Their arrival had already caused some commotion among the commoners and workers who came and went along the wide street where the couple had landed.</p>
 
 <p>Their strange clothes and transcendental beauty naturally attract attention.</p>
 
 <p>This commotion only intensified when, on the horizon, a figure appeared: a middle-aged woman of ordinary and noble appearance, surrounded by soldiers in silver armor.</p>
 
-<p>She was Duchess Mary, from the prosperous port city of Bluestorm,</p>
-
-<p>where Qingyi and Meilin were.</p>
+<p>She was Duchess Mary, from the prosperous port city of Bluestorm, where Qingyi and Meilin were.</p>
 
 <p>“Your Highness… to what do I owe your visit to my lands?” Mary asked, bowing gently.</p>
 
@@ -69,17 +65,11 @@ chapter = 419
 
 <p>“Yes, I do, hahaha.” Mary returned Qingyi’s smile.</p>
 
-<p>Honestly, she had a lot of admiration for this young man, especially</p>
-
-<p>since her husband had been one of those who died in the fight</p>
-
-<p>against Belgrath.</p>
+<p>Honestly, she had a lot of admiration for this young man, especially since her husband had been one of those who died in the fight against Belgrath.</p>
 
 <p>Knowing that he had avenged her husband certainly made her see him in a much more positive light.</p>
 
-<p>“His Majesty has already contacted me, and I have arranged everything necessary to begin construction, but we would need your signature for a few things, in addition to, of course, drawing up the plans for the building,” Mary said, her eyes shifting from Qingyi to</p>
-
-<p>Meilin.</p>
+<p>“His Majesty has already contacted me, and I have arranged everything necessary to begin construction, but we would need your signature for a few things, in addition to, of course, drawing up the plans for the building,” Mary said, her eyes shifting from Qingyi to Meilin.</p>
 
 <p>She didn’t know that Qingyi had other wives and couldn’t help but feel a little uncomfortable about it.</p>
 
@@ -91,9 +81,7 @@ chapter = 419
 
 <p>Shortly after this brief conversation, Qingyi and Meilin accompanied Mary to the mansion of the Lord of the city, where the daughter of the King of Gold was able to create a design for the construction of the main building of her chamber of commerce.</p>
 
-<p>She had to, of course, adapt the architecture considerably to create something that the builders of this world would be capable of, while preserving part of its original appearance and, above all, its</p>
-
-<p>functionality.</p>
+<p>She had to, of course, adapt the architecture considerably to create something that the builders of this world would be capable of, while preserving part of its original appearance and, above all, its functionality.</p>
 
 <p>Under the impressed eyes of Duchess Mary, Qingyi, and other city government officials, Meilin finished quickly.</p>
 
@@ -103,13 +91,9 @@ chapter = 419
 
 <p>After arranging everything for construction, Meilin simply used a long-range communication talisman to send a message to the main branch, giving a set of instructions to the manager so that they could finally begin to integrate the branch that would be built in Valemont.</p>
 
-<p>In addition, she also needed materials and training masters to build cultivation rooms, so she needed to ensure the masters’ journey to</p>
+<p>In addition, she also needed materials and training masters to build cultivation rooms, so she needed to ensure the masters’ journey to that region.</p>
 
-<p>that region.</p>
-
-<p>When they finished organizing all of this, Qingyi and Meilin returned to the capital, where the handsome young man immediately locked</p>
-
-<p>himself in a meditation room.</p>
+<p>When they finished organizing all of this, Qingyi and Meilin returned to the capital, where the handsome young man immediately locked himself in a meditation room.</p>
 
 <p>Glancing at his status screen, he smiled.</p>
 
@@ -129,9 +113,7 @@ chapter = 419
 
 <p>Charm: 1500 (can be upgraded in the lust store)</p>
 
-<p>Spiritual roots: Immortal-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can</p>
-
-<p>be bought in the lust store).</p>
+<p>Spiritual roots: Immortal-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can be bought in the lust store).</p>
 
 <p>Lineage: Blood of the Corruption Dragon God (Transcendental grade,</p>
 

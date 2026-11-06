@@ -5,9 +5,7 @@ weight = 471
 chapter = 471
 +++
 
-<p>There was a brief resistance as the Primordial Chaos Flames and the lightning of tribulation met. The former devoured the latter</p>
-
-<p>voraciously.</p>
+<p>There was a brief resistance as the Primordial Chaos Flames and the lightning of tribulation met. The former devoured the latter voraciously.</p>
 
 <p>For miles, gravity seemed to reverse. Rocks were thrown into the air, vaporizing everything that had not yet been destroyed by Qingyi’s training.</p>
 
@@ -17,9 +15,7 @@ chapter = 471
 
 <p>A stream of draconic Qi immediately invaded his mind, clearing it. This allowed him to regain control of the flames, just long enough to push the tribulation back.</p>
 
-<p>His feet sank into the ground, and after another moment of</p>
-
-<p>resistance, he finally managed to finish his cut. The Primordial Chaos Flames spread through the air, consuming everything above him.</p>
+<p>His feet sank into the ground, and after another moment of resistance, he finally managed to finish his cut. The Primordial Chaos Flames spread through the air, consuming everything above him.</p>
 
 <p>“Ah… fuck.” Qingyi fell to his knees.</p>
 
@@ -65,17 +61,13 @@ chapter = 471
 
 <p>“Hm… did hubby miss me? Hehehe~~” Elize giggled, feeling Qingyi’s hands sink into her breasts, squeezing gently.</p>
 
-<p>“I never stopped missing you. Qingyi laughed, depositing a kiss on her</p>
-
-<p>lips and sitting down on the bench, placing her on his lap.</p>
+<p>“I never stopped missing you. Qingyi laughed, depositing a kiss on her lips and sitting down on the bench, placing her on his lap.</p>
 
 <p>She immediately hugged him, pulling his face into the deep, warm, soft valley of her breasts.</p>
 
 <p>Qingyi just let himself sink in there. His fingers sank into the soft skin of Elize’s wide hips as he relaxed.</p>
 
-<p>Even sweaty, she hadn’t lost her sweet natural scent; on the contrary,</p>
-
-<p>it seemed much more intense than before.</p>
+<p>Even sweaty, she hadn’t lost her sweet natural scent; on the contrary, it seemed much more intense than before.</p>
 
 <p>After a moment like this, Qingyi finally pulled back, patting Elize’s butt.</p>
 
@@ -95,17 +87,11 @@ chapter = 471
 
 <p>Qingyi was finally ready to fulfill his promise!</p>
 
-<p>The handsome young man just laughed, watching Elize’s bright face</p>
+<p>The handsome young man just laughed, watching Elize’s bright face as she jumped up and down with joy on his lap.</p>
 
-<p>as she jumped up and down with joy on his lap.</p>
+<p>With each jump, her perfect, round butt rose, hitting Qingyi’s lap with a little more force, the soft flesh squeezing his member. Suddenly, Elize stopped and the smile that had taken over her face changed.</p>
 
-<p>With each jump, her perfect, round butt rose, hitting Qingyi’s lap with</p>
-
-<p>a little more force, the soft flesh squeezing his member. Suddenly, Elize stopped and the smile that had taken over her face changed.</p>
-
-<p>Her pure happiness turned into a sensual smile and her hands moved down, invading Qingyi’s pants, grabbing a long, thick, throbbing</p>
-
-<p>member.</p>
+<p>Her pure happiness turned into a sensual smile and her hands moved down, invading Qingyi’s pants, grabbing a long, thick, throbbing member.</p>
 
 <p>“Husband seems to be very happy too, hehehe…” Elize said.</p>
 
@@ -121,25 +107,15 @@ chapter = 471
 
 <p>The two placed their huge, heavy breasts on their husband’s lap. The mountains met right in the center, squeezing against each other and, of course, against Qingyi’s cock.</p>
 
-<p>“Oh…” Qingyi was unable to stop an excited sigh from escaping his lips</p>
+<p>“Oh…” Qingyi was unable to stop an excited sigh from escaping his lips at that sight, at the feeling of his cock being swallowed by those masses of warm, soft flesh.</p>
 
-<p>at that sight, at the feeling of his cock being swallowed by those masses of warm, soft flesh.</p>
-
-<p>He reached down, gently patting those huge tits, watching them</p>
-
-<p>ripple softly.</p>
+<p>He reached down, gently patting those huge tits, watching them ripple softly.</p>
 
 <p>Yes… that was good.</p>
 
-<p>The two beauties then grabbed the sides of their breasts. Their</p>
+<p>The two beauties then grabbed the sides of their breasts. Their delicate hands sank into the vastness of perfect flesh, squeezing them a little harder, Elize’s sweat already serving as lubricant. Slowly, they lifted their breasts, sliding them down Qingyi’s cock before letting them fall onto his lap again. A loud, wet smack echoed.</p>
 
-<p>delicate hands sank into the vastness of perfect flesh, squeezing them</p>
-
-<p>a little harder, Elize’s sweat already serving as lubricant. Slowly, they lifted their breasts, sliding them down Qingyi’s cock before letting them fall onto his lap again. A loud, wet smack echoed.</p>
-
-<p>“Do you like that, hubby?” Isabel asked, increasing her speed</p>
-
-<p>alongside Elize.</p>
+<p>“Do you like that, hubby?” Isabel asked, increasing her speed alongside Elize.</p>
 
 <p>Their tits fought to milk every last drop from Qingyi. Qingyi just stroked their hair while enjoying the breast work.</p>
 

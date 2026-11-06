@@ -55,9 +55,7 @@ chapter = 375
 
 <p>‘Ugh… do I really have to reach the celestial heavens to know that?’ Qingyi sighed in defeat.</p>
 
-<p>[Before the heavens ruled everything below the celestial heavens, this world was very different. The seed of creation is from before this</p>
-
-<p>time, before the heavens were even forged.</p>
+<p>[Before the heavens ruled everything below the celestial heavens, this world was very different. The seed of creation is from before this time, before the heavens were even forged.</p>
 
 <p>Don’t speak It’s name in vain, not beneath the heavens, just mentioning it could cause heavenly tribulation].</p>
 
@@ -81,29 +79,19 @@ chapter = 375
 
 <p>If he were powerful enough, he could cut through the immortal heavens like that too, couldn’t he? Like he did in the mortal heavens.</p>
 
-<p>“Yes, Heaven-Shattering Divine Slash will do.” Qingyi smiled, choosing</p>
-
-<p>that name.</p>
+<p>“Yes, Heaven-Shattering Divine Slash will do.” Qingyi smiled, choosing that name.</p>
 
 <p>[You’ve created a new technique!]</p>
 
 <p>[Combat Technique: Heaven -Shattering Divine Slash</p>
 
-<p>Description: Forged by an incomparable young talent, it’s a technique</p>
-
-<p>capable of cutting through the heavens themselves, its heat and</p>
-
-<p>sharpness unrivaled.</p>
+<p>Description: Forged by an incomparable young talent, it’s a technique capable of cutting through the heavens themselves, its heat and sharpness unrivaled.</p>
 
 <p>Rank: Astral (can be improved with future enlightenment)]</p>
 
 <p>That last notification took Qingyi by surprise.</p>
 
-<p>He knew the technique would be powerful, but astral grade, the</p>
-
-<p>rarest grade of techniques and items in the immortal heaven? That</p>
-
-<p>was something he really hadn’t expected.</p>
+<p>He knew the technique would be powerful, but astral grade, the rarest grade of techniques and items in the immortal heaven? That was something he really hadn’t expected.</p>
 
 <p>Now I had not only an incomparable spiritual root, but even an incomparable technique…</p>
 
@@ -125,9 +113,7 @@ chapter = 375
 
 <p>He had won the divine beast tournament and, as well as the chance to be blessed by the fox people, he would also receive a gift in person from the patriarch of the dragon people, Long Tianjin.</p>
 
-<p>The moment he appeared on the grand golden staircase, he was greeted by two draconic guards and was then guided through the</p>
-
-<p>palace to a luxurious throne room.</p>
+<p>The moment he appeared on the grand golden staircase, he was greeted by two draconic guards and was then guided through the palace to a luxurious throne room.</p>
 
 <p>There, he immediately saw two figures.</p>
 
@@ -139,6 +125,4 @@ chapter = 375
 
 <p>“Long Qingyi greets senior Long Tianjin,” Qingyi bowed, watching that golden dragon’s eyes shift from the scroll to him.</p>
 
-<p>“Long Qingyi, get up, don’t be so polite, hahaha,” Tianjin said, flashing</p>
-
-<p>a tired smile and then walking over to Qingyi. “Tell me, young man, what do you plan to do after receiving the blessing of the fox people?”</p>
+<p>“Long Qingyi, get up, don’t be so polite, hahaha,” Tianjin said, flashing a tired smile and then walking over to Qingyi. “Tell me, young man, what do you plan to do after receiving the blessing of the fox people?”</p>

@@ -55,9 +55,7 @@ chapter = 622
 
 <p>It was a fragment of the will of an expert from the past, clearly someone who had attained the realm of the stellar sovereign in life.</p>
 
-<p>It would not be wrong to call him a ghost whose soul had been bound</p>
-
-<p>to that pavilion to welcome the heir of the secret realm.</p>
+<p>It would not be wrong to call him a ghost whose soul had been bound to that pavilion to welcome the heir of the secret realm.</p>
 
 <p>“You have proven yourself a member of our family and passed the test of soul and heart; you are-“</p>
 
@@ -87,73 +85,43 @@ chapter = 622
 
 <p>That would sell well at an auction.</p>
 
-<p>“Then why are you still taking the items? They belong to the Yan</p>
-
-<p>family!” the ghost declared, indignant.</p>
+<p>“Then why are you still taking the items? They belong to the Yan family!” the ghost declared, indignant.</p>
 
 <p>“Because it took me a bit of effort to get here, and because whoever made that damn trap room is, without a doubt, a son of a bitch.” Qingyi replied indifferently, stowing away another item without even looking at the ghost.</p>
 
 <p>“And I’m stealing from you right in front of you right now. Do you really think I give a damn about your Yan family?”</p>
 
-<p>There was no way to respond to that, and the ghost had no means of attack, so all he could do was watch in silence as his treasures</p>
+<p>There was no way to respond to that, and the ghost had no means of attack, so all he could do was watch in silence as his treasures disappeared one by one.</p>
 
-<p>disappeared one by one.</p>
-
-<p>The secret realm actually had a self-destruct system to prevent this</p>
-
-<p>kind of situation, but it was only activated when an expert from a higher realm tried to break through the cultivation limit and force</p>
-
-<p>their way in.</p>
+<p>The secret realm actually had a self-destruct system to prevent this kind of situation, but it was only activated when an expert from a higher realm tried to break through the cultivation limit and force their way in.</p>
 
 <p>In this case, the self-destruct was merely a deterrent, a standard mechanism in all secret realms of this type.</p>
 
-<p>In the end, the ghost could only watch with a defeated expression as</p>
+<p>In the end, the ghost could only watch with a defeated expression as Qingyi took both the elixir and the talisman.</p>
 
-<p>Qingyi took both the elixir and the talisman.</p>
+<p>“What is this?” Qingyi asked, holding the talisman and examining it with curiosity.</p>
 
-<p>“What is this?” Qingyi asked, holding the talisman and examining it</p>
-
-<p>with curiosity.</p>
-
-<p>“It’s an attack talisman capable of killing even a celestial emperor with</p>
-
-<p>a single strike…” The ghost sighed, already completely defeated.</p>
+<p>“It’s an attack talisman capable of killing even a celestial emperor with a single strike…” The ghost sighed, already completely defeated.</p>
 
 <p>“No chance.” Qingyi laughed.</p>
 
-<p>A celestial emperor was the pinnacle of cultivation in the celestial</p>
+<p>A celestial emperor was the pinnacle of cultivation in the celestial realm. How could there be an item capable of killing even such a being with a single strike?</p>
 
-<p>realm. How could there be an item capable of killing even such a being</p>
-
-<p>with a single strike?</p>
-
-<p>The smile on Qingyi’s face lasted only until he read the item’s</p>
-
-<p>description using the system.</p>
+<p>The smile on Qingyi’s face lasted only until he read the item’s description using the system.</p>
 
 <p>It was, indeed, a talisman capable of unleashing an attack powerful enough to kill an expert of the celestial emperor realm.</p>
 
 <p>How the hell could such a thing exist here?</p>
 
-<p>Qingyi didn’t know, but with a broad smile on his face, he stored it in</p>
-
-<p>his space ring.</p>
+<p>Qingyi didn’t know, but with a broad smile on his face, he stored it in his space ring.</p>
 
 <p>After being assaulted and brutally ignored, the ghost found himself alone in that silent chamber.</p>
 
-<p>His eyes were distant, and his ethereal face bore a heavy expression,</p>
+<p>His eyes were distant, and his ethereal face bore a heavy expression, like that of someone who finally realizes they’ve waited for nothing for far too long.</p>
 
-<p>like that of someone who finally realizes they’ve waited for nothing for</p>
+<p>“Well, I tried my best. Screw the Yan family too. I’ve been stuck here for a million years for nothing…</p>
 
-<p>far too long.</p>
-
-<p>“Well, I tried my best. Screw the Yan family too. I’ve been stuck here</p>
-
-<p>for a million years for nothing…</p>
-
-<p>With one last sigh, the ghost dissolved, finally allowing himself to</p>
-
-<p>enter the wheel of reincarnation.</p>
+<p>With one last sigh, the ghost dissolved, finally allowing himself to enter the wheel of reincarnation.</p>
 
 <p>***</p>
 
@@ -163,24 +131,16 @@ chapter = 622
 
 <p>“Ah… another failure…” the old man muttered, defeated.</p>
 
-<p>He had truly held out hope this time, but seeing Qingyi emerge so</p>
+<p>He had truly held out hope this time, but seeing Qingyi emerge so soon took away any remaining trace of it.</p>
 
-<p>soon took away any remaining trace of it.</p>
-
-<p>Every young person who had challenged that secret realm had always</p>
-
-<p>met the same fate.</p>
+<p>Every young person who had challenged that secret realm had always met the same fate.</p>
 
 <p>They emerged tired, exhausted, recounting a corridor of endless traps that quickly drained their Qi.</p>
 
-<p>Even the most talented rarely took more than twenty steps before</p>
-
-<p>becoming so desperate and drained that they were forced to retreat. But all of them, without exception, lasted at least a few hours.</p>
+<p>Even the most talented rarely took more than twenty steps before becoming so desperate and drained that they were forced to retreat. But all of them, without exception, lasted at least a few hours.</p>
 
 <p>If Qingyi had been able to traverse that secret realm so easily, the old man would personally promise his beautiful and talented granddaughter’s hand in marriage to that young man.</p>
 
-<p>His granddaughter was the family’s treasure, a woman of transcendent beauty and talent who had been taken by an expert to train in the central regions of the celestial heavens, where even he</p>
-
-<p>was but a mere speck.</p>
+<p>His granddaughter was the family’s treasure, a woman of transcendent beauty and talent who had been taken by an expert to train in the central regions of the celestial heavens, where even he was but a mere speck.</p>
 
 <p>The old man even made that promise to the heavens in a low, joking whisper, without even imagining how soon he would regret it.</p>

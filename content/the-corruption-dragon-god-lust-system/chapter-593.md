@@ -11,9 +11,7 @@ chapter = 593
 
 <p>Although arrays of Qi and mana allowed for the existence of modern technologies and even flying ships, it was still, for the most part, a medieval world.</p>
 
-<p>Long-distance communication systems were rare, almost</p>
-
-<p>non-existent, and most of the technology was geared towards war and the well-being of the elites.</p>
+<p>Long-distance communication systems were rare, almost non-existent, and most of the technology was geared towards war and the well-being of the elites.</p>
 
 <p>In the celestial heavens, however, things were a little different.</p>
 
@@ -31,9 +29,7 @@ chapter = 593
 
 <p>Soon, Elder Shen himself also organized his recruits, standing next to the other elders of the recruitment pavilion.</p>
 
-<p>“Any interesting talents?” One of the elders approached, his eyes</p>
-
-<p>focused on the little more than sixty recruits who had just arrived.</p>
+<p>“Any interesting talents?” One of the elders approached, his eyes focused on the little more than sixty recruits who had just arrived.</p>
 
 <p>He was surprised to see a young black dragon among the recruits, but didn’t think much of it.</p>
 
@@ -91,19 +87,11 @@ chapter = 593
 
 <p>The emperor’s hand, in the immortal heaven, could easily kill an astral body realm expert with a single blow, but that expert could also cut it in half just as easily.</p>
 
-<p>The difference was that a cultivator was faster, more agile, and could</p>
+<p>The difference was that a cultivator was faster, more agile, and could make a thousand strikes in the time it took a warship to fire a single shot.</p>
 
-<p>make a thousand strikes in the time it took a warship to fire a single</p>
+<p>Even though the huge cruiser theoretically had a power equivalent to that of the sect leader, in practice it was just a piece of metal in front of any real expert.</p>
 
-<p>shot.</p>
-
-<p>Even though the huge cruiser theoretically had a power equivalent to that of the sect leader, in practice it was just a piece of metal in front</p>
-
-<p>of any real expert.</p>
-
-<p>Their Qi shields could hold out for a while, but in the end, experts and swords were and always have been the main base of combat</p>
-
-<p>power in the celestial heavens.</p>
+<p>Their Qi shields could hold out for a while, but in the end, experts and swords were and always have been the main base of combat power in the celestial heavens.</p>
 
 <p>Regardless of the size of the war fleets created by merchants and large industrial worlds, a single flick of the finger from a peak expert was all it took for everything to be reduced to scrap metal.</p>
 
@@ -113,11 +101,7 @@ chapter = 593
 
 <p>“Your strength will be refined, as well as your will.</p>
 
-<p>Those who surpass the astral body realm will also be able to accept</p>
-
-<p>missions on behalf of the sect, for which they will receive payment in</p>
-
-<p>celestial spirit crystals.”</p>
+<p>Those who surpass the astral body realm will also be able to accept missions on behalf of the sect, for which they will receive payment in celestial spirit crystals.”</p>
 
 <p>Hearing this, many excited whispers echoed among the disciples.</p>
 
@@ -129,8 +113,6 @@ chapter = 593
 
 <p>There was no exception.</p>
 
-<p>Everyone wanted celestial spirit crystals, and Qingyi was obviously on</p>
-
-<p>that list too.</p>
+<p>Everyone wanted celestial spirit crystals, and Qingyi was obviously on that list too.</p>
 
 <p>The world of the mind needed a source of energy, and celestial spirit crystals were perfect for that.</p>

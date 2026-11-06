@@ -23,17 +23,13 @@ chapter = 592
 
 <p>Neither of them drew their weapons; fists flew freely toward one another.</p>
 
-<p>The punches collided in the air, which collapsed into a powerful shockwave, the dust of the arena rising in a whirlwind around the</p>
-
-<p>two.</p>
+<p>The punches collided in the air, which collapsed into a powerful shockwave, the dust of the arena rising in a whirlwind around the two.</p>
 
 <p>To everyone’s surprise, Qingyi took only three steps back while the inner disciple took one.</p>
 
 <p>It looked like a victory for the inner disciple, even considering the difference in cultivation between them.</p>
 
-<p>Wasn’t that a bit absurd? Even without the inner disciple using his full</p>
-
-<p>power, it was still hard to imagine such a scenario.</p>
+<p>Wasn’t that a bit absurd? Even without the inner disciple using his full power, it was still hard to imagine such a scenario.</p>
 
 <p>“Uh… I’ve always heard about the strength of black dragons… it wasn’t a lie.” The inner disciple sighed, calming his heart.</p>
 
@@ -71,9 +67,7 @@ chapter = 592
 
 <p>Qingyi didn’t pay much attention to those words, simply relaxing.</p>
 
-<p>Yes, he was powerful, and it had been a good fight, but he didn’t dwell</p>
-
-<p>on it for long.</p>
+<p>Yes, he was powerful, and it had been a good fight, but he didn’t dwell on it for long.</p>
 
 <p>For now, his only priority was to grow stronger without his lineage of the Corruption Dragon God being discovered.</p>
 
@@ -93,21 +87,15 @@ chapter = 592
 
 <p>Of the slightly more than sixty youths, fifteen received approval from the inner disciples.</p>
 
-<p>The others could still take up combat positions, but were better suited as training masters or in other production roles within the</p>
-
-<p>sect.</p>
+<p>The others could still take up combat positions, but were better suited as training masters or in other production roles within the sect.</p>
 
 <p>Gathering the youths in a corner, Elder Shen led them out of that place, which was immediately swallowed by a concealment array, erasing it completely.</p>
 
-<p>That location was used only for recruitment every few years,</p>
-
-<p>spending most of its time hidden.</p>
+<p>That location was used only for recruitment every few years, spending most of its time hidden.</p>
 
 <p>“Stay in formation and wait.” The elder rose into the air, looking up.</p>
 
-<p>On the horizon, among the clouds, a vessel tore through the skies toward them, propelled by powerful Qi thrusters and covered by a thin barrier that seemed to serve both to keep oxygen inside and to</p>
-
-<p>regulate gravity.</p>
+<p>On the horizon, among the clouds, a vessel tore through the skies toward them, propelled by powerful Qi thrusters and covered by a thin barrier that seemed to serve both to keep oxygen inside and to regulate gravity.</p>
 
 <p>‘A spaceship… Qingyi’s heart raced, nearly leaping out of his chest. He had seen so much, defeated so many enemies.</p>
 
@@ -127,20 +115,14 @@ chapter = 592
 
 <p>Dust swirled up, fluttering everyone’s robes; a terrifying pressure overwhelmed them for an instant before subsiding.</p>
 
-<p>The ship’s hatch, bearing the sect’s symbol, slowly opened, revealing</p>
-
-<p>the interior.</p>
+<p>The ship’s hatch, bearing the sect’s symbol, slowly opened, revealing the interior.</p>
 
 <p>The elder stepped inside, and the disciples immediately followed him.</p>
 
-<p>“Country bumpkins.” Young Master Luo growled through clenched teeth, watching as Qingyi and Chen Wei gazed at the spacecraft in</p>
-
-<p>awe.</p>
+<p>“Country bumpkins.” Young Master Luo growled through clenched teeth, watching as Qingyi and Chen Wei gazed at the spacecraft in awe.</p>
 
 <p>Quickening his pace, he stood side by side with Guo Tianhao, who gave him a gentle smile.</p>
 
 <p>Fortunately for Young Master Luo, Tianhao, whose background was incomparable to his own, had shown him great goodwill.</p>
 
-<p>So what if Chen Wei was friends with Qingyi? He had Tianhao by his</p>
-
-<p>side! That alone was enough to guarantee him glory and wealth that even someone as powerful as Qingyi could never even begin to imagine.</p>
+<p>So what if Chen Wei was friends with Qingyi? He had Tianhao by his side! That alone was enough to guarantee him glory and wealth that even someone as powerful as Qingyi could never even begin to imagine.</p>

@@ -63,9 +63,7 @@ chapter = 642
 
 <p>Shortly after, Ruxue confirmed that all the girls were ready.</p>
 
-<p>It didn’t take long for the previously silent ship to fill with</p>
-
-<p>high-pitched, breathy sighs brimming with excitement, as dozens of voluptuous women spread out through the corridors.</p>
+<p>It didn’t take long for the previously silent ship to fill with high-pitched, breathy sighs brimming with excitement, as dozens of voluptuous women spread out through the corridors.</p>
 
 <p>Elize, naturally, made a beeline for the kitchen. Others drifted toward the engine room, the dining hall, the many bedrooms, and of course, the spiritual energy pool.</p>
 
@@ -73,19 +71,13 @@ chapter = 642
 
 <p>She threw herself into Qingyi’s lap, her plump, round ass landing on him with a firm smack that sent a ripple through her generous curves.</p>
 
-<p>She hugged him without a second thought, her huge creamy tits pressing warmly against his chest while her lips curved into a sensual</p>
-
-<p>smile.</p>
+<p>She hugged him without a second thought, her huge creamy tits pressing warmly against his chest while her lips curved into a sensual smile.</p>
 
 <p>“Hubby really never ceases to amaze me, hehehe…” she said with a mischievous giggle, brushing a strand of white hair away from her beautiful face.</p>
 
 <p>“Isn’t this the perfect throne for hubby to fuck Isabel’s huge tits?” she asked, already leaning forward and letting her ass slide slowly down his lap, the orbs dragging along his thighs.</p>
 
-<p>Her enormous tits soon swallowed his lap whole, her ass coming to</p>
-
-<p>rest against his feet while her fingers curled around the waistband of</p>
-
-<p>his pants.</p>
+<p>Her enormous tits soon swallowed his lap whole, her ass coming to rest against his feet while her fingers curled around the waistband of his pants.</p>
 
 <p>Glancing around the cockpit and finding that her sisters were occupied elsewhere, Isabel let out a soft giggle.</p>
 
@@ -93,23 +85,15 @@ chapter = 642
 
 <p>She tugged his pants down, freeing his massive dragon, thick and throbbing, which sank into the valley between her breasts and painted her dark skin with burning streaks of pre-cum.</p>
 
-<p>“Ah…” Qingyi exhaled slowly and sank back into the seat, one hand drifting to stroke Isabel’s white hair as she cupped her own breasts with both arms, her forearms pressing deep into the generous,</p>
-
-<p>pillowy flesh.</p>
+<p>“Ah…” Qingyi exhaled slowly and sank back into the seat, one hand drifting to stroke Isabel’s white hair as she cupped her own breasts with both arms, her forearms pressing deep into the generous, pillowy flesh.</p>
 
 <p>She moaned, squeezing as hard as she could, the soft mass closing around him in an unmatched, smothering grip.</p>
 
 <p>“How’s the Celestial Heaven? Missing your family?” Qingyi asked, his gaze dropping to meet Isabel’s mischievous green eyes.</p>
 
-<p>“Hm… it’s been good. I miss Mom and Dad, but it’s nice to always be by</p>
+<p>“Hm… it’s been good. I miss Mom and Dad, but it’s nice to always be by my husband’s side.” She smiled up at him, lifting her breasts around his cock, her own saliva serving as lubricant as the enormous mounds slid slowly along the shaft.</p>
 
-<p>my husband’s side.” She smiled up at him, lifting her breasts around his cock, her own saliva serving as lubricant as the enormous mounds</p>
-
-<p>slid slowly along the shaft.</p>
-
-<p>She held them high, letting his full length disappear between them,</p>
-
-<p>then let them drop.</p>
+<p>She held them high, letting his full length disappear between them, then let them drop.</p>
 
 <p>*Clap*</p>
 
@@ -125,16 +109,10 @@ chapter = 642
 
 <p>She clearly wanted to make him come as fast as possible.</p>
 
-<p>He didn’t hold back, and it didn’t take long for those enormous tits to</p>
+<p>He didn’t hold back, and it didn’t take long for those enormous tits to push him right to the edge.</p>
 
-<p>push him right to the edge.</p>
-
-<p>“Nghnn~~ Yeah! Cum on my tits, hubby!♡” Isabel cried out, feeling his</p>
-
-<p>cock throb and swell between her breasts.</p>
+<p>“Nghnn~~ Yeah! Cum on my tits, hubby!♡” Isabel cried out, feeling his cock throb and swell between her breasts.</p>
 
 <p>With a deep throb, he erupted.</p>
 
-<p>Thick spurts of cum flooded the valley between her mounds, overflowing and spilling in every direction, painting her dark skin in wide streaks of white while the excess splattered onto the clean floor</p>
-
-<p>of the ship below.</p>
+<p>Thick spurts of cum flooded the valley between her mounds, overflowing and spilling in every direction, painting her dark skin in wide streaks of white while the excess splattered onto the clean floor of the ship below.</p>

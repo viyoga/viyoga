@@ -29,9 +29,7 @@ chapter = 492
 
 <p>From within, a stone gate began to open.</p>
 
-<p>“When I rise again, you must gather all your troops, every dragon and knight of fighting age, for together we will bring death to our</p>
-
-<p>enemies!” the patriarch declared with force.</p>
+<p>“When I rise again, you must gather all your troops, every dragon and knight of fighting age, for together we will bring death to our enemies!” the patriarch declared with force.</p>
 
 <p>The most extreme shouted with excitement while the moderates watched their leader in shock.</p>
 
@@ -39,21 +37,15 @@ chapter = 492
 
 <p>They had been in relative peace with the empire for over five hundred years, a peace that he himself had forged!</p>
 
-<p>Did he want to tear up all the treaties that had guaranteed the</p>
+<p>Did he want to tear up all the treaties that had guaranteed the stability of his people for so long?</p>
 
-<p>stability of his people for so long?</p>
-
-<p>Everyone turned their faces to Lucios, who watched everything with</p>
-
-<p>a bored and disinterested expression.</p>
+<p>Everyone turned their faces to Lucios, who watched everything with a bored and disinterested expression.</p>
 
 <p>He was the most powerful expert of his people, he had to do something!</p>
 
 <p>Unfortunately for them, Lucios did not move.</p>
 
-<p>He continued to drink relaxed, as if that matter was not even his</p>
-
-<p>concern.</p>
+<p>He continued to drink relaxed, as if that matter was not even his concern.</p>
 
 <p>“Patriarch, please reconsider!” One of the moderate purebloods stood up, a powerful warrior of the eleventh ring and leader of one of the twelve great families.</p>
 
@@ -63,9 +55,7 @@ chapter = 492
 
 <p>If the patriarch would not act, he would!</p>
 
-<p>However, in the next moment, he had to change his mind. Twenty powerful auras fell upon everyone there, each belonging to an expert</p>
-
-<p>from the peak of the eleventh ring.</p>
+<p>However, in the next moment, he had to change his mind. Twenty powerful auras fell upon everyone there, each belonging to an expert from the peak of the eleventh ring.</p>
 
 <p>Their bodies were covered in cloaks, their crimson armor shining in the sunlight.</p>
 
@@ -85,19 +75,13 @@ chapter = 492
 
 <p>Stopping a few inches from the huge gate, he took a step forward, followed by Red Death right behind him.</p>
 
-<p>The moment they both disappeared inside the gate, it began to slowly</p>
+<p>The moment they both disappeared inside the gate, it began to slowly fade away.</p>
 
-<p>fade away.</p>
-
-<p>“It’s time…” Qingyi murmured, moving his spatial Qi, his hand closing around Seraphine’s delicate wrist, sending her toward the world of</p>
-
-<p>the mind.</p>
+<p>“It’s time…” Qingyi murmured, moving his spatial Qi, his hand closing around Seraphine’s delicate wrist, sending her toward the world of the mind.</p>
 
 <p>“You bastard, how dare you!” Viola roared behind him, but he couldn’t pay any less attention to her.</p>
 
-<p>Her saber slid out of its leather sheath with a loud, sharp whistle,</p>
-
-<p>cutting through the air toward Qingyi’s neck.</p>
+<p>Her saber slid out of its leather sheath with a loud, sharp whistle, cutting through the air toward Qingyi’s neck.</p>
 
 <p>She didn’t ask for an explanation for what had just happened.</p>
 
@@ -107,9 +91,7 @@ chapter = 492
 
 <p>Her blade barely managed to scratch Qingyi’s skin before sliding through empty air, his body suddenly disappearing.</p>
 
-<p>The patriarch’s guards also moved, forming a steel barrier in front of the gate, everything around them collapsing as their manas expanded. Trees were incinerated instantly, the temperature of the surrounding air reaching thousands of degrees Celsius in a single moment. They didn’t care who got in their way, the important thing was that</p>
-
-<p>that bastard couldn’t enter that chamber.</p>
+<p>The patriarch’s guards also moved, forming a steel barrier in front of the gate, everything around them collapsing as their manas expanded. Trees were incinerated instantly, the temperature of the surrounding air reaching thousands of degrees Celsius in a single moment. They didn’t care who got in their way, the important thing was that that bastard couldn’t enter that chamber.</p>
 
 <p>Unfortunately for them, it was already too late.</p>
 
@@ -123,35 +105,21 @@ chapter = 492
 
 <p>The moment his words fell, dozens of voices rose against him.</p>
 
-<p>Even the most moderate, who totally disagreed with the patriarch’s</p>
+<p>Even the most moderate, who totally disagreed with the patriarch’s plans, spoke out against Lord Lucios’ decision.</p>
 
-<p>plans, spoke out against Lord Lucios’ decision.</p>
+<p>What did their disagreement with the ambitions of a damn jerk matter to Karlan’s heart?</p>
 
-<p>What did their disagreement with the ambitions of a damn jerk matter</p>
+<p>“Lord Lucios, please, even your granddaughter is with that young man, don’t you care about her life?” The captain of the guard insisted, raising his voice even further.</p>
 
-<p>to Karlan’s heart?</p>
-
-<p>“Lord Lucios, please, even your granddaughter is with that young</p>
-
-<p>man, don’t you care about her life?” The captain of the guard insisted,</p>
-
-<p>raising his voice even further.</p>
-
-<p>The moment he received a stern look from Lucios, his eyes went to</p>
-
-<p>the floor again.</p>
+<p>The moment he received a stern look from Lucios, his eyes went to the floor again.</p>
 
 <p>He didn’t dare say anything else.</p>
 
-<p>“I understand your concerns.” Lucios stood up. “My granddaughter is</p>
-
-<p>fine, don’t worry. As for my son…”</p>
+<p>“I understand your concerns.” Lucios stood up. “My granddaughter is fine, don’t worry. As for my son…”</p>
 
 <p>Pulsing veins appeared on Lucios’ aged neck, his powerful mana crushing everyone there against the floor.</p>
 
-<p>“If he can’t even handle this brat, he doesn’t deserve to be everything</p>
-
-<p>he aspires to be.”</p>
+<p>“If he can’t even handle this brat, he doesn’t deserve to be everything he aspires to be.”</p>
 
 <p>Hearing those words, everyone’s eyes fell to the floor. If that was Lord</p>
 

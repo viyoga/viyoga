@@ -31,9 +31,7 @@ chapter = 574
 
 <p>“This is the third time you’ve declared who you are.” Qingyi interrupted him with an angry snort.</p>
 
-<p>“Are you going to keep yapping, or are you going to try to kill me? You’re not going to tell me that you’re actually the god of yapping and</p>
-
-<p>not war, are you?”</p>
+<p>“Are you going to keep yapping, or are you going to try to kill me? You’re not going to tell me that you’re actually the god of yapping and not war, are you?”</p>
 
 <p>With those words, the god of war finally fell silent.</p>
 
@@ -61,9 +59,7 @@ chapter = 574
 
 <p>Suddenly, the world seemed silent.</p>
 
-<p>The sun shone brightly in the sky, but there were no shadows,</p>
-
-<p>neither under the buildings nor under the god of war himself.</p>
+<p>The sun shone brightly in the sky, but there were no shadows, neither under the buildings nor under the god of war himself.</p>
 
 <p>They had all flowed toward Qingyi, swirling like a whirlwind around his sword, electric rays tearing through them.</p>
 
@@ -71,9 +67,7 @@ chapter = 574
 
 <p>The soldiers froze. Their eyes widened, and then, death.</p>
 
-<p>Their swords were cut. Their armor too. With the same ease that their</p>
-
-<p>flesh, bones, and entrails were scattered across the ground.</p>
+<p>Their swords were cut. Their armor too. With the same ease that their flesh, bones, and entrails were scattered across the ground.</p>
 
 <p>The god of war turned his face slightly, just in time to avoid being decapitated.</p>
 
@@ -93,60 +87,40 @@ chapter = 574
 
 <p>Neither of them held back, their bodies disappearing with speed.</p>
 
-<p>When they reappeared, they were face to face, sword and axe</p>
-
-<p>meeting.</p>
+<p>When they reappeared, they were face to face, sword and axe meeting.</p>
 
 <p>The shockwave from their bursts of speed came shortly after their blades met.</p>
 
-<p>On one side, a sea of thunder. On the other, a sea of crimson flames,</p>
-
-<p>dividing the world in two.</p>
+<p>On one side, a sea of thunder. On the other, a sea of crimson flames, dividing the world in two.</p>
 
 <p>For miles, all that remained was destruction, flames and lightning engulfing everything around them.</p>
 
-<p>The golden palace, not far from them, only remained standing</p>
+<p>The golden palace, not far from them, only remained standing because the golden barrier recovered just in time.</p>
 
-<p>because the golden barrier recovered just in time.</p>
-
-<p>It wasn’t enough to withstand a direct hit, but at least it could resist</p>
-
-<p>the residual energies of their clashes.</p>
+<p>It wasn’t enough to withstand a direct hit, but at least it could resist the residual energies of their clashes.</p>
 
 <p>Which was good, since both of them were interested in keeping the one inside safe, albeit for completely different reasons.</p>
 
 <p>“Damn bastard… What courage made you meddle in my affairs? No…</p>
 
-<p>how the hell did you even get here?” The god of war growled, his</p>
+<p>how the hell did you even get here?” The god of war growled, his blade crossing with Qingyi’s.</p>
 
-<p>blade crossing with Qingyi’s.</p>
-
-<p>He was angry, especially when he realized he was unable to push his</p>
-
-<p>opponent back.</p>
+<p>He was angry, especially when he realized he was unable to push his opponent back.</p>
 
 <p>Was he losing in a contest of strength?</p>
 
 <p>No… he couldn’t believe it.</p>
 
-<p>Among his peers, he had always been the strongest physically, perhaps even stronger than Heavenly Father himself, the creator of all</p>
+<p>Among his peers, he had always been the strongest physically, perhaps even stronger than Heavenly Father himself, the creator of all the gods who once ruled the celestial heavens but were now fallen.</p>
 
-<p>the gods who once ruled the celestial heavens but were now fallen.</p>
+<p>He refused to believe that he would lose in a contest of strength to anyone.</p>
 
-<p>He refused to believe that he would lose in a contest of strength to</p>
-
-<p>anyone.</p>
-
-<p>The god of war roared, putting all his strength into it and then</p>
-
-<p>pushing Qingyi back.</p>
+<p>The god of war roared, putting all his strength into it and then pushing Qingyi back.</p>
 
 <p>An explosion erupted between the two. The god of war was forced to take three steps back, but Qingyi, on the other hand, only needed to take one.</p>
 
 <p>“I am here at the request of one of my wives.” Qingyi spoke casually, swinging the Heaven-Defying Thunder Sword.</p>
 
-<p>“I promised her that I would take Auranys as my wife and that they</p>
-
-<p>could be together for all eternity.”</p>
+<p>“I promised her that I would take Auranys as my wife and that they could be together for all eternity.”</p>
 
 <p>After a moment of silence, he concluded. “You’re just an annoying ant that I have to kill along the way.”</p>

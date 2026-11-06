@@ -5,9 +5,7 @@ weight = 424
 chapter = 424
 +++
 
-<p>Qingyi woke up early in the morning, his eyes opening slightly. The familiar weight of Isabel’s breasts against his chest immediately</p>
-
-<p>overwhelmed him.</p>
+<p>Qingyi woke up early in the morning, his eyes opening slightly. The familiar weight of Isabel’s breasts against his chest immediately overwhelmed him.</p>
 
 <p>As a true immortal, he could go decades, perhaps centuries without sleeping or eating. But in the end, what life would be worth living without these small pleasures?</p>
 
@@ -37,9 +35,7 @@ chapter = 424
 
 <p>Besides, time was dangerous to mess with, and the heavens certainly did not take lightly those who tried to control them.</p>
 
-<p>The stories he heard from Ruxue about it were certainly not pretty. He himself did not know if he would be able to withstand such a</p>
-
-<p>powerful heavenly tribulation of extermination.</p>
+<p>The stories he heard from Ruxue about it were certainly not pretty. He himself did not know if he would be able to withstand such a powerful heavenly tribulation of extermination.</p>
 
 <p>With a sigh, he continued searching, finally stopping at three very specific spirit roots.</p>
 
@@ -59,66 +55,42 @@ chapter = 424
 
 <p>All of them leaked out of his body at the same time, the temperature around him ranging from thousands of degrees to tens of degrees below zero.</p>
 
-<p>The very stone that surrounded him seemed about to melt, the lightning tearing everything apart while the sword Qi cut deep, sharp</p>
-
-<p>gashes.</p>
+<p>The very stone that surrounded him seemed about to melt, the lightning tearing everything apart while the sword Qi cut deep, sharp gashes.</p>
 
 <p>If there was anything alive there, it would be immediately cut into thousands of pieces.</p>
 
-<p>If the walls of that meditation room weren’t several meters thick and covered by powerful mana arrays, they would have probably</p>
+<p>If the walls of that meditation room weren’t several meters thick and covered by powerful mana arrays, they would have probably collapsed already.</p>
 
-<p>collapsed already.</p>
-
-<p>Qingyi just held on tightly, feeling the three new elements reach hist</p>
-
-<p>body, flowing through his meridians.</p>
+<p>Qingyi just held on tightly, feeling the three new elements reach hist body, flowing through his meridians.</p>
 
 <p>This part, as always, was painful.</p>
 
-<p>His meridians had to be torn apart and his dantian had to be expanded by brute force, prepared to withstand the new power of his</p>
+<p>His meridians had to be torn apart and his dantian had to be expanded by brute force, prepared to withstand the new power of his spirit roots.</p>
 
-<p>spirit roots.</p>
+<p>Qingyi just gritted his teeth, barely a grunt escaping his lips as a wave of knowledge flooded his mind, all seven elements merging perfectly into his spirit root.</p>
 
-<p>Qingyi just gritted his teeth, barely a grunt escaping his lips as a wave of knowledge flooded his mind, all seven elements merging perfectly</p>
-
-<p>into his spirit root.</p>
-
-<p>An intense golden light engulfed Qingyi’s body, soon replaced by a darkness so deep that it completely erased Qingyi’s aura, as if he</p>
-
-<p>ceased to exist.</p>
+<p>An intense golden light engulfed Qingyi’s body, soon replaced by a darkness so deep that it completely erased Qingyi’s aura, as if he ceased to exist.</p>
 
 <p>After those two, there was nothing.</p>
 
-<p>Qingyi’s spatial element did not respond, a powerful shockwave leaving his body as he fell to the ground, a little confused. [Your spiritual roots have changed! Primordial Creation Seed spirit root (Lightning, sword, fire, ice) -&gt; Primordial Creation Seed spirit</p>
-
-<p>root (Lightning, sword, fire, ice, space, light, shadow)] Qingyi stared at that notification for a moment, scratching his chin. Then, raising his right hand, he first called upon his light Qi.</p>
+<p>Qingyi’s spatial element did not respond, a powerful shockwave leaving his body as he fell to the ground, a little confused. [Your spiritual roots have changed! Primordial Creation Seed spirit root (Lightning, sword, fire, ice) -&gt; Primordial Creation Seed spirit root (Lightning, sword, fire, ice, space, light, shadow)] Qingyi stared at that notification for a moment, scratching his chin. Then, raising his right hand, he first called upon his light Qi.</p>
 
 <p>His entire body was surrounded by a calm energy, a blinding light leaving his hands.</p>
 
 <p>Auranys was, after all, a goddess of light. Although it was of little use to Qingyi at the moment, he didn’t worry too much about it.</p>
 
-<p>The important thing was that he was seen as an unshakable hero of</p>
-
-<p>light.</p>
+<p>The important thing was that he was seen as an unshakable hero of light.</p>
 
 <p>Soon after that, he called upon the shadows, hiding his body in the darkness before finally calling upon his spatial Qi.</p>
 
 <p>This time, things changed and the space around him became unstable for a brief moment before finally collapsing in on itself.</p>
 
-<p>A painful grunt escaped Qingyi’s lips, accompanied by a burst of</p>
+<p>A painful grunt escaped Qingyi’s lips, accompanied by a burst of blood.</p>
 
-<p>blood.</p>
-
-<p>His hand disappeared from his wrist before reappearing a few meters</p>
-
-<p>ahead, hitting the wall with a thud, his arm gushing blood nonstop. “Shit…” Qingyi gritted his teeth, the Qi of the seed of life immediately beginning to act, healing his hand instantly.</p>
+<p>His hand disappeared from his wrist before reappearing a few meters ahead, hitting the wall with a thud, his arm gushing blood nonstop. “Shit…” Qingyi gritted his teeth, the Qi of the seed of life immediately beginning to act, healing his hand instantly.</p>
 
 <p>Obviously, controlling space would not be that simple.</p>
 
-<p>After all, even Margareth had devoted much of her life to studying</p>
+<p>After all, even Margareth had devoted much of her life to studying spatial magic, and yet she could barely use a basic spell capable of transporting an apple.</p>
 
-<p>spatial magic, and yet she could barely use a basic spell capable of transporting an apple.</p>
-
-<p>With a defeated sigh, Qingyi simply opened the system store, searching for pills capable of improving his affinity with space, light,</p>
-
-<p>and shadow.</p>
+<p>With a defeated sigh, Qingyi simply opened the system store, searching for pills capable of improving his affinity with space, light, and shadow.</p>

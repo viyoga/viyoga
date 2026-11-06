@@ -35,9 +35,7 @@ chapter = 538
 
 <p>“Hm… Bai Nianxue would be better for you.” Qingyi’s voice sounded gentle to her.</p>
 
-<p>It was no longer angry, cold, and full of murderous intent. It was</p>
-
-<p>sweet, masculine, and protective.</p>
+<p>It was no longer angry, cold, and full of murderous intent. It was sweet, masculine, and protective.</p>
 
 <p>Her lips parted and she felt something enter her mouth. It was warm and wet, immediately going down her throat.</p>
 
@@ -75,17 +73,13 @@ chapter = 538
 
 <p>“From how little mind control the Heavenly Demon has over her, I believe it didn’t work very well.”</p>
 
-<p>Ruxue crouched down, touching Nianxue’s face with one of her</p>
-
-<p>hands and making strange symbols with the other, drawing in the air.</p>
+<p>Ruxue crouched down, touching Nianxue’s face with one of her hands and making strange symbols with the other, drawing in the air.</p>
 
 <p>“I didn’t know you had knowledge of array creation.”</p>
 
 <p>“Hm… it’s nothing too complex, just a bomb in case she does something wrong… it will detonate her dantian.” Ruxue laughed, running her hand over Nianxue’s face.</p>
 
-<p>“Now… let’s see what this little demonic creature that deserved</p>
-
-<p>hubby’s pity looks like.” Ruxue giggled.</p>
+<p>“Now… let’s see what this little demonic creature that deserved hubby’s pity looks like.” Ruxue giggled.</p>
 
 <p>Although she spoke of Qingyi’s pity, she herself couldn’t help but feel pity.</p>
 
@@ -93,55 +87,37 @@ chapter = 538
 
 <p>After Ruyan, Ruxue no longer defined every demon she saw as a being deserving of death just for existing.</p>
 
-<p>In the end, failed demon seeds like her were usually blank canvases, and for Nianxue, the first color she painted on this canvas was</p>
+<p>In the end, failed demon seeds like her were usually blank canvases, and for Nianxue, the first color she painted on this canvas was empathy, something no demon should have.</p>
 
-<p>empathy, something no demon should have.</p>
+<p>Ruxue’s eyes sparkled when she finally wiped Nianxue’s face clean, her body blocking Qingyi’s view.</p>
 
-<p>Ruxue’s eyes sparkled when she finally wiped Nianxue’s face clean,</p>
-
-<p>her body blocking Qingyi’s view.</p>
-
-<p>“What is it?” the handsome young man asked, but Ruxue did not</p>
-
-<p>answer, only laughing as she picked Nianxue up in her arms.</p>
+<p>“What is it?” the handsome young man asked, but Ruxue did not answer, only laughing as she picked Nianxue up in her arms.</p>
 
 <p>“I’m leaving, I’ll wait for you in the World of the Mind~~” With a gentle push, Ruxue disappeared, leaving Qingyi alone behind.</p>
 
 <p>“Ah… I hope I don’t regret this…” Qingyi sighed.</p>
 
-<p>Pity was a dangerous feeling to have in a world like this. But in the</p>
-
-<p>end, he was still human.</p>
+<p>Pity was a dangerous feeling to have in a world like this. But in the end, he was still human.</p>
 
 <p>For many, the journey of cultivation was the struggle against their own humanity and everything that made them mortal.</p>
 
 <p>But in the end, those who denied themselves always ended up dead.</p>
 
-<p>Without thinking about it any further, Qingyi closed his eyes and just continued to heal himself, the terrible wounds covering his body</p>
+<p>Without thinking about it any further, Qingyi closed his eyes and just continued to heal himself, the terrible wounds covering his body quickly disappearing.</p>
 
-<p>quickly disappearing.</p>
-
-<p>Qingyi suddenly looked up, sensing a pair of powerful Qi approaching</p>
-
-<p>rapidly.</p>
+<p>Qingyi suddenly looked up, sensing a pair of powerful Qi approaching rapidly.</p>
 
 <p>It was Ye Lingxue and Hu Lanyin.</p>
 
 <p>“Did you succeed? Did you kill her?” The matriarch of the fox people exclaimed, her eyes filled with emotion.</p>
 
-<p>She stopped a few feet away from Qingyi, her hands clasped in front</p>
-
-<p>of her ample bosom, her lips trembling as her greenish tail moved</p>
-
-<p>anxiously.</p>
+<p>She stopped a few feet away from Qingyi, her hands clasped in front of her ample bosom, her lips trembling as her greenish tail moved anxiously.</p>
 
 <p>Lanyin had the same reaction, observing the destruction around her.</p>
 
 <p>Was this something an Ancestral Emperor was capable of causing?</p>
 
-<p>“Hm… almost, we’ll talk more about it after I rest a bit.” Qingyi stood up, but immediately regretted it, a deep pain spreading through his</p>
-
-<p>body.</p>
+<p>“Hm… almost, we’ll talk more about it after I rest a bit.” Qingyi stood up, but immediately regretted it, a deep pain spreading through his body.</p>
 
 <p>He gritted his teeth, his legs buckling as his body fell forward.</p>
 
@@ -151,6 +127,4 @@ chapter = 538
 
 <p>“I’m fine… just lacking Qi.” Qingyi smiled, his hands instinctively reaching for Lingxue’s boobs as his lips parted.</p>
 
-<p>Fortunately, he had some massive reserves of Qi at his disposal right</p>
-
-<p>there.</p>
+<p>Fortunately, he had some massive reserves of Qi at his disposal right there.</p>

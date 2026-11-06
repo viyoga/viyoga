@@ -29,9 +29,7 @@ chapter = 678
 
 <p>Everything remained confined to the northern region.</p>
 
-<p>Still, many rumors circulated about the possibility that Qingyi might</p>
-
-<p>go after the Ma family’s heiress in the central region of the Celestial Sky.</p>
+<p>Still, many rumors circulated about the possibility that Qingyi might go after the Ma family’s heiress in the central region of the Celestial Sky.</p>
 
 <p>And if he managed to win over all three great beauties of the northern region, plus the beast emperor’s only daughter, who could easily be considered the fourth great beauty if she weren’t so isolated?</p>
 
@@ -59,9 +57,7 @@ chapter = 678
 
 <p>This time, he wouldn’t let his actions make everything worse!</p>
 
-<p>Just as he was about to laugh, he froze. His eyes shot upward. With a single push from his feet, he broke through the clouds and</p>
-
-<p>reached the space above, his aged body coming to a halt in the planet’s low orbit.</p>
+<p>Just as he was about to laugh, he froze. His eyes shot upward. With a single push from his feet, he broke through the clouds and reached the space above, his aged body coming to a halt in the planet’s low orbit.</p>
 
 <p>The silence of the void pressed against his ears. He looked around, searching.</p>
 
@@ -95,9 +91,7 @@ chapter = 678
 
 <p>But what could he do?</p>
 
-<p>He would rather die ten thousand deaths than kill an innocent</p>
-
-<p>disciple. And it was all his fault.</p>
+<p>He would rather die ten thousand deaths than kill an innocent disciple. And it was all his fault.</p>
 
 <p>In the end, Zhenwu could only curse fate with a bitter laugh.</p>
 
@@ -105,9 +99,7 @@ chapter = 678
 
 <p>While Zhenwu whined about the cruelty of fate, Guo Tianhao was isolated in a cultivation chamber.</p>
 
-<p>His body was bursting with power as his dantian rebuilt itself and formed its own origin. Raw energy vibrated in the air, cracks running</p>
-
-<p>along the walls of the room like spreading veins.</p>
+<p>His body was bursting with power as his dantian rebuilt itself and formed its own origin. Raw energy vibrated in the air, cracks running along the walls of the room like spreading veins.</p>
 
 <p>His eyes opened.</p>
 
@@ -119,9 +111,7 @@ chapter = 678
 
 <p>He had finally advanced to the realm of the Celestial Origin. Now, Qingyi was little more than an ant in his eyes.</p>
 
-<p>The moment he left the cultivation room, his gaze fell on Li Tianfa,</p>
-
-<p>who wore a bitter yet amused smile.</p>
+<p>The moment he left the cultivation room, his gaze fell on Li Tianfa, who wore a bitter yet amused smile.</p>
 
 <p>“What is it?” Tianhao asked. “Are you going to tell me that Qingyi is dead and I won’t get a chance to take my revenge?”</p>
 

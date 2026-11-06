@@ -57,9 +57,7 @@ chapter = 423
 
 <p>Isabel’s words were suddenly cut off. Her eyes widened and she shuddered, an intense explosion of pleasure overwhelming her entire body.</p>
 
-<p>Her pussy squirted nonstop around Qingyi’s cock as he himself</p>
-
-<p>released.</p>
+<p>Her pussy squirted nonstop around Qingyi’s cock as he himself released.</p>
 
 <p>The first gush of hot, viscous cum invaded Isabel’s womb, followed by another and then another, filling her to the brim.</p>
 
@@ -73,9 +71,7 @@ chapter = 423
 
 <p>“Hm… what does hubby want to do now?” Isabel asked, blushing softly. “You’re not going to stay here for long, right? Things are stable now, my father is fine.”</p>
 
-<p>“I can’t stay here, I need to keep growing,” Qingyi said, patting Isabel’s</p>
-
-<p>butt.</p>
+<p>“I can’t stay here, I need to keep growing,” Qingyi said, patting Isabel’s butt.</p>
 
 <p>“Hm…” She exhaled, a little disappointed.</p>
 
@@ -87,13 +83,9 @@ chapter = 423
 
 <p>“To the Rose Empire,” Qingyi finally replied.</p>
 
-<p>He remembered that he hadn’t told her about the pendant he had obtained. Not that he thought she would be able to recognize the</p>
+<p>He remembered that he hadn’t told her about the pendant he had obtained. Not that he thought she would be able to recognize the object.</p>
 
-<p>object.</p>
-
-<p>Margareth only knew what that pendant was because she was a studious mage who had come into contact with hundreds of magical</p>
-
-<p>artifacts like it.</p>
+<p>Margareth only knew what that pendant was because she was a studious mage who had come into contact with hundreds of magical artifacts like it.</p>
 
 <p>“And then?” Isabel asked again, making Qingyi think for a moment.</p>
 
@@ -103,11 +95,7 @@ chapter = 423
 
 <p>He had promised that one day he would reunite them.</p>
 
-<p>Since the Grand Duchy of Vaeldrinn, land of the dragon elves, was a</p>
-
-<p>little north of the Rose Empire, he really shouldn’t miss the chance to</p>
-
-<p>go there.</p>
+<p>Since the Grand Duchy of Vaeldrinn, land of the dragon elves, was a little north of the Rose Empire, he really shouldn’t miss the chance to go there.</p>
 
 <p>Still, Qingyi had one concern on his mind: the power of the patriarch of the dragon elves, Elize’s father.</p>
 

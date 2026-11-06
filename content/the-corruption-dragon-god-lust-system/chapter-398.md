@@ -11,9 +11,7 @@ chapter = 398
 
 <p>On the other hand, his kingdom was bankrupt.</p>
 
-<p>With the enormous interest rates, what he owed to the Burning Red Pavilion was quickly piling up, becoming a debt that seemed</p>
-
-<p>increasingly unpayable.</p>
+<p>With the enormous interest rates, what he owed to the Burning Red Pavilion was quickly piling up, becoming a debt that seemed increasingly unpayable.</p>
 
 <p>The possibility of getting rid of that debt and, on top of that, having access to more support from the Pavilion to pay for the damage caused by his brother would certainly be welcome.</p>
 
@@ -21,9 +19,7 @@ chapter = 398
 
 <p>After careful consideration, the king let a long, defeated sigh escape his lips as he stood up.</p>
 
-<p>“Jin Tianshi, I, as the legitimate sovereign of this nation, recognize you as the rightful heir to the Burning Red Pavilion Chamber of</p>
-
-<p>Commerce, which was founded and registered in my kingdom.”</p>
+<p>“Jin Tianshi, I, as the legitimate sovereign of this nation, recognize you as the rightful heir to the Burning Red Pavilion Chamber of Commerce, which was founded and registered in my kingdom.”</p>
 
 <p>I hereby grant you command of a thousand royal soldiers to take immediate control of all establishments that were under the direct or indirect control of the late young lady Jin Meilin.”</p>
 
@@ -43,9 +39,7 @@ chapter = 398
 
 <p>Tianshi was about to leave the throne room when his footsteps suddenly stopped.</p>
 
-<p>The ground beneath his feet shook violently, and it was not the tremor of his wife’s heavy footsteps, which caused him so much</p>
-
-<p>terror.</p>
+<p>The ground beneath his feet shook violently, and it was not the tremor of his wife’s heavy footsteps, which caused him so much terror.</p>
 
 <p>It was the tremor of a powerful flying ship suddenly stopping in the skies, one whose mana signature he knew well.</p>
 
@@ -59,9 +53,7 @@ chapter = 398
 
 <p>A young man, tall and powerful. His white robes fluttered in the wind, while his beautiful purple eyes coldly observed those below him.</p>
 
-<p>Beside him stood a woman of delicate and incomparable beauty. Her beautiful dark eyes focused on Tianshi, her brother, her face no</p>
-
-<p>different from that of a porcelain doll.</p>
+<p>Beside him stood a woman of delicate and incomparable beauty. Her beautiful dark eyes focused on Tianshi, her brother, her face no different from that of a porcelain doll.</p>
 
 <p>“Third Prince.”</p>
 
@@ -81,33 +73,21 @@ chapter = 398
 
 <p>“Who the hell do you think you are, brat? You’re talking to your king!” The thunderous voice of a powerful and courageous noble echoed, untouched by the fear Qingyi had instilled in everyone there. Qingyi turned his face gently, stared at that man, and then smiled.</p>
 
-<p>That was a young noble from a remote region who had not heard much about Qingyi other than legends and rumors. This was his first</p>
-
-<p>time in the capital.</p>
+<p>That was a young noble from a remote region who had not heard much about Qingyi other than legends and rumors. This was his first time in the capital.</p>
 
 <p>Qingyi raised a single hand toward the nobleman, forming a small ball of fire at the tip of his index finger.</p>
 
 <p>The next moment, as he threw it, a brutal explosion echoed.</p>
 
-<p>This was followed by the shrill scream of a noble woman, covered in</p>
-
-<p>the blood of that young man, whose head had exploded like a</p>
-
-<p>watermelon.</p>
+<p>This was followed by the shrill scream of a noble woman, covered in the blood of that young man, whose head had exploded like a watermelon.</p>
 
 <p>“Kill this bastard, I’ll take care of the king!”</p>
 
-<p>The True Immortal on the king’s right exclaimed to the one on the</p>
+<p>The True Immortal on the king’s right exclaimed to the one on the left, who advanced toward Qingyi.</p>
 
-<p>left, who advanced toward Qingyi.</p>
+<p>The air around him boiled as he swung his sword with full power, forcing everyone around him to retreat.</p>
 
-<p>The air around him boiled as he swung his sword with full power,</p>
-
-<p>forcing everyone around him to retreat.</p>
-
-<p>His idea was simple: attack Qingyi with full force and send him far</p>
-
-<p>away, where they could fight more freely.</p>
+<p>His idea was simple: attack Qingyi with full force and send him far away, where they could fight more freely.</p>
 
 <p>His sword struck Qingyi’s, and in the next moment, the True</p>
 
@@ -115,21 +95,15 @@ chapter = 398
 
 <p>The Heaven-Defying Thunder Sword sank into the enemy’s blade as if it were nothing but butter, molten metal falling to the ground.</p>
 
-<p>The expert stomped on the ground hard, trying to retreat, but it was</p>
-
-<p>too late.</p>
+<p>The expert stomped on the ground hard, trying to retreat, but it was too late.</p>
 
 <p>One slash from Qingyi’s sword, and his head flew off.</p>
 
-<p>In that True Immortal’s mind, that clash lasted for ages. But in reality,</p>
-
-<p>it happened in the blink of an eye.</p>
+<p>In that True Immortal’s mind, that clash lasted for ages. But in reality, it happened in the blink of an eye.</p>
 
 <p>The moment the melted tip of his sword touched the ground, a powerful shockwave echoed for miles, raising dust and fluttering Qingyi’s clothes.</p>
 
-<p>The other True Immortal was about to act when the king stepped</p>
-
-<p>forward.</p>
+<p>The other True Immortal was about to act when the king stepped forward.</p>
 
 <p>“Qingyi, stop! I am the King of the Blue Sea Kingdom! Do you really want to be stained with the title of regicide?”</p>
 

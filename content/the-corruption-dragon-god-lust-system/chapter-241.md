@@ -89,9 +89,7 @@ chapter = 241
 
 <p>“M-miss spirit… w-what are you doing?” Xueyao stammered, unable to contain the excited wagging of her tail.</p>
 
-<p>“Just taking a look at the husband’s new wife… that womanizing scoundrel really doesn’t forgive anyone… not even something as cute as that,”</p>
-
-<p>Ruxue purred, glancing out of the corner of her eye at Qingyi, who was just watching the show of the two voluptuous bodies rubbing up against each other.</p>
+<p>“Just taking a look at the husband’s new wife… that womanizing scoundrel really doesn’t forgive anyone… not even something as cute as that,” Ruxue purred, glancing out of the corner of her eye at Qingyi, who was just watching the show of the two voluptuous bodies rubbing up against each other.</p>
 
 <p>Apparently, he could still earn a few more lust points before finally returning to the orthodox alliance.</p>
 

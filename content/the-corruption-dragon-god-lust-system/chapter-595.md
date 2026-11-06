@@ -71,25 +71,17 @@ chapter = 595
 
 <p>Her fingers, long and delicate, traced the powerful muscles of his chest before flowing down to her own, grasping the neckline of her dress and then pulling.</p>
 
-<p>The fabric slid down her delicate shoulders; her breasts, freed from their constraints, sprang out, their purplish nipples hardening in the</p>
-
-<p>cool air.</p>
+<p>The fabric slid down her delicate shoulders; her breasts, freed from their constraints, sprang out, their purplish nipples hardening in the cool air.</p>
 
 <p>Qingyi couldn’t refuse such a request. With a gentle movement, he stood up, grabbing Ruxue’s hips and leading her to the bathroom.</p>
 
 <p>The shower stall was barely large enough to fit the two of them comfortably, its transparent glass quickly fogging up as Qingyi turned on the water.</p>
 
-<p>“Are the girls happy with the increase in Qi density?” Qingyi asked as the showerhead above them poured warm, pleasant water over their</p>
+<p>“Are the girls happy with the increase in Qi density?” Qingyi asked as the showerhead above them poured warm, pleasant water over their naked bodies.</p>
 
-<p>naked bodies.</p>
+<p>Since the Qi density within the mind world varied by region, he didn’t think it would be any different with his ascension to the celestial heavens.</p>
 
-<p>Since the Qi density within the mind world varied by region, he didn’t think it would be any different with his ascension to the celestial</p>
-
-<p>heavens.</p>
-
-<p>“Yes… it’s increased by about forty or fifty times… it’s much more pleasant now…” Ruxue nodded, picking up a small bottle of liquid soap</p>
-
-<p>and pouring it over her own bosom.</p>
+<p>“Yes… it’s increased by about forty or fifty times… it’s much more pleasant now…” Ruxue nodded, picking up a small bottle of liquid soap and pouring it over her own bosom.</p>
 
 <p>Qingyi’s hands didn’t hesitate, immediately moving up toward those pale, perfect orbs, gripping them firmly.</p>
 
@@ -99,11 +91,7 @@ chapter = 595
 
 <p>“You never get tired of these huge tits, huh? You shameless hubby…” She gasped, leaning against Qingyi’s shoulders.</p>
 
-<p>“No… I don’t get tired… and I never will.” Qingyi moved his hands from</p>
-
-<p>her breasts to her delicate waist, his lips pressing against hers in a</p>
-
-<p>passionate kiss.</p>
+<p>“No… I don’t get tired… and I never will.” Qingyi moved his hands from her breasts to her delicate waist, his lips pressing against hers in a passionate kiss.</p>
 
 <p>When they parted, their tongues connected by a thin thread of saliva, Qingyi turned her around, pressing her against the shower stall. Ruxue’s back arched, her ass rising against his lap, her breasts pressed against the glass walls, squeezing obscenely, her nipples appearing as sensual, purplish smudges on the other side of the fogged glass. “But it’s not just your breasts.” Qingyi moved his hands.</p>
 
@@ -111,8 +99,6 @@ chapter = 595
 
 <p>“Aghnn~~ be gentle, you- ah…!”</p>
 
-<p>A loud smack echoed, Qingyi’s palm landing on Ruxue’s plump,</p>
-
-<p>perfect ass, a powerful shockwave spreading across her pale, now-marked cheeks.</p>
+<p>A loud smack echoed, Qingyi’s palm landing on Ruxue’s plump, perfect ass, a powerful shockwave spreading across her pale, now-marked cheeks.</p>
 
 <p>“I also love this ass and this plump, juicy little pussy.”</p>

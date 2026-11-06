@@ -35,9 +35,7 @@ chapter = 541
 
 <p>Enough to finally elevate both his lineage and constitution to the astral grade and, if he prepared for a little longer, reach the Astral Body Realm.</p>
 
-<p>He had already fucked up the Heavenly Demon’s plans in the</p>
-
-<p>Immortal Heaven quite a bit. If he also reached the Astral Body Realm, even if that bastard achieved his perfect avatar, Qingyi was confident he could kill him.</p>
+<p>He had already fucked up the Heavenly Demon’s plans in the Immortal Heaven quite a bit. If he also reached the Astral Body Realm, even if that bastard achieved his perfect avatar, Qingyi was confident he could kill him.</p>
 
 <p>“Hm… don’t you think it’s time to wake up?” Qingyi chuckled and moved his hands, gently patting the asses of the two beauties on his lap, feeling the weight of those huge tits against his chest.</p>
 
@@ -65,33 +63,25 @@ chapter = 541
 
 <p>“Ah… at least say hello properly to your two new sisters.” Qingyi laughed, planting a kiss on Xueyao and accepting her hug before covering himself as well.</p>
 
-<p>“Hehehe~~ now that hubby has taken Big Sister and the Matriarch,</p>
-
-<p>will we be able to live together forever in the Mind World?</p>
+<p>“Hehehe~~ now that hubby has taken Big Sister and the Matriarch, will we be able to live together forever in the Mind World?</p>
 
 <p>Will the Matriarch come with us?” Xueyao asked excitedly.</p>
 
 <p>For the first time in a long time, Qingyi’s face fell.</p>
 
-<p>There was something he hadn’t taken into consideration. Both Lanyin and Lingxue were the greatest experts and protectors of the fox</p>
-
-<p>people.</p>
+<p>There was something he hadn’t taken into consideration. Both Lanyin and Lingxue were the greatest experts and protectors of the fox people.</p>
 
 <p>These people needed to stay there to guard the Tree of Life, and they couldn’t just leave their people behind, right?</p>
 
 <p>Qingyi looked at the two of them, waiting for their answer.</p>
 
-<p>“Little Snow… we can’t…” Lanyin’s lips parted, but before she could</p>
-
-<p>finish her answer, she was interrupted.</p>
+<p>“Little Snow… we can’t…” Lanyin’s lips parted, but before she could finish her answer, she was interrupted.</p>
 
 <p>“You should go with him.”</p>
 
 <p>A voice echoed.</p>
 
-<p>It was noble, but old, clearly that of a woman who had once, in her youth, possessed great beauty, but now had not even a shred left to</p>
-
-<p>call her own.</p>
+<p>It was noble, but old, clearly that of a woman who had once, in her youth, possessed great beauty, but now had not even a shred left to call her own.</p>
 
 <p>“A-Ancient Matriarch!” Lanyin and Lingxue exclaimed at the same time, watching as a figure appeared.</p>
 
@@ -103,25 +93,17 @@ chapter = 541
 
 <p>The old woman laughed excitedly.</p>
 
-<p>It had been more than twenty thousand years since she had last been</p>
+<p>It had been more than twenty thousand years since she had last been so happy.</p>
 
-<p>so happy.</p>
-
-<p>Unfortunately, she soon stopped laughing, her eyes falling on Qingyi,</p>
-
-<p>cold and composed.</p>
+<p>Unfortunately, she soon stopped laughing, her eyes falling on Qingyi, cold and composed.</p>
 
 <p>“So you are the young man who tamed Little Snow and even Lingxue and Lanyin… You even have the Seed of Life…”</p>
 
-<p>The old woman took a step forward. Her voice was as loud as before,</p>
-
-<p>but now, only Qingyi could hear her.</p>
+<p>The old woman took a step forward. Her voice was as loud as before, but now, only Qingyi could hear her.</p>
 
 <p>“If the Divine Beast were still alive, she would curse you and your damned lineage to death a thousand times over…</p>
 
-<p>But she is no longer alive, nor is the one who once carried your</p>
-
-<p>lineage. Don’t be like him, young man. Don’t lose yourself.”</p>
+<p>But she is no longer alive, nor is the one who once carried your lineage. Don’t be like him, young man. Don’t lose yourself.”</p>
 
 <p>Time seemed to stop for everyone there as the Ancient Matriarch addressed Qingyi.</p>
 
@@ -133,9 +115,7 @@ chapter = 541
 
 <p>Qingyi shuddered, taking a step back. Truly, the world was very big. “Ancient Matriarch, we can’t, we have to protect the fox people!” “Oh… girl, who will bring us harm? Last time, I couldn’t do anything because I was poisoned, but now? A thousand experts from the Astral Body Realm would be dried corpses at my feet.”</p>
 
-<p>The old woman held the shoulders of the two beauties, pulling them</p>
-
-<p>into her embrace.</p>
+<p>The old woman held the shoulders of the two beauties, pulling them into her embrace.</p>
 
 <p>“I am old, but I still have an eternity of life ahead of me, caring for the Tree of Life and rebuilding our people.</p>
 

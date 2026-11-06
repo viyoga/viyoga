@@ -57,9 +57,7 @@ chapter = 433
 
 <p>His shoulders were broad, his black cloak unable to hide his powerful muscles.</p>
 
-<p>His aura was so subtle, so silent, similar to Aeryn’s in a way, but</p>
-
-<p>different.</p>
+<p>His aura was so subtle, so silent, similar to Aeryn’s in a way, but different.</p>
 
 <p>Her aura was like a gentle breeze; that figure’s was like a caged beast forced to remain silent.</p>
 
@@ -81,9 +79,7 @@ chapter = 433
 
 <p>With a gentle movement, he signaled for them to stand up.</p>
 
-<p>“Yes, my Emperor. He came to visit me. The news from the west is</p>
-
-<p>troubling.”</p>
+<p>“Yes, my Emperor. He came to visit me. The news from the west is troubling.”</p>
 
 <p>“It is… Does the goddess insist that her heroes deal with this?” The Emperor asked, stopping a single step away from Qingyi, his eyes sweeping over him coldly with a subtle hint of hostility.</p>
 
@@ -91,23 +87,15 @@ chapter = 433
 
 <p>Qingyi was already a tall man, and with his improved lineage, he had grown a few more inches, reaching one meter ninety. But even so, he was still a head shorter than the Emperor.</p>
 
-<p>“They are the heroes of this generation, those chosen by fate… The goddess would never send them if she were not certain of their victory.” The bishop declared, eliciting a long, cold grunt from the</p>
+<p>“They are the heroes of this generation, those chosen by fate… The goddess would never send them if she were not certain of their victory.” The bishop declared, eliciting a long, cold grunt from the Emperor.</p>
 
-<p>Emperor.</p>
+<p>“I just want to fix the problem quickly. The risk is increasing more and more, and soon we will have to intervene personally. When that happens, there will be blood.</p>
 
-<p>“I just want to fix the problem quickly. The risk is increasing more and</p>
-
-<p>more, and soon we will have to intervene personally. When that happens, there will be blood.</p>
-
-<p>You will be on the front line, so you should worry about this more than anyone else.” The Emperor whispered, more like a threat than</p>
-
-<p>anything else.</p>
+<p>You will be on the front line, so you should worry about this more than anyone else.” The Emperor whispered, more like a threat than anything else.</p>
 
 <p>The bishop shuddered, but in the end, he could only sigh.</p>
 
-<p>‘Goddess… Where are you to guide me out of this situation?’ He asked</p>
-
-<p>himself.</p>
+<p>‘Goddess… Where are you to guide me out of this situation?’ He asked himself.</p>
 
 <p>Soon, he would have to make a trip to the Divine Kingdom. Ignoring him, the Emperor just kept walking, stopping in front of Sapphire, who had already separated from Aeryn.</p>
 

@@ -27,9 +27,7 @@ chapter = 689
 
 <p>The important thing was that the traitor was dead and at least some of the boxes had been recovered!</p>
 
-<p>Carefully tucking everything away, she prepared the necessary documents, skimmed off her hefty commission, and handed the rewards to Qingyi, who smiled immediately and asked for another</p>
-
-<p>mission.</p>
+<p>Carefully tucking everything away, she prepared the necessary documents, skimmed off her hefty commission, and handed the rewards to Qingyi, who smiled immediately and asked for another mission.</p>
 
 <p>Unfortunately for her, this time, he requested missions focused purely on speed, the kind anyone could complete quickly. Naturally, she preferred giving him difficult yet fast missions rather than cheap ones. After all, she still wanted to squeeze out as much profit as possible, and, well, she was almost certain he could handle anything.</p>
 
@@ -69,9 +67,7 @@ chapter = 689
 
 <p>Spiritual Roots: Eternal-level Primordial Creation Seed Spirit Root</p>
 
-<p>(Lightning, Sword, Fire, Ice, Wind, Metal, Water, Earth, Space, Light,</p>
-
-<p>Shadow) (1000 G Lust Points to upgrade).</p>
+<p>(Lightning, Sword, Fire, Ice, Wind, Metal, Water, Earth, Space, Light, Shadow) (1000 G Lust Points to upgrade).</p>
 
 <p>Spiritual Roots2: None / Eternal-level Primordial Creation Seed Mana Heart (1000 G Lust Points to upgrade).</p>
 
@@ -93,15 +89,11 @@ chapter = 689
 
 <p>He even considered taking that final step right then and there, but in the end, he shook his head.</p>
 
-<p>First, he had to stabilize his cultivation. Then could he continue</p>
-
-<p>climbing without worry.</p>
+<p>First, he had to stabilize his cultivation. Then could he continue climbing without worry.</p>
 
 <p>And so, for the rest of the week, Qingyi practiced in silence.</p>
 
-<p>Meanwhile, outside, the Celestial Fairy Pavilion buzzed with</p>
-
-<p>excitement.</p>
+<p>Meanwhile, outside, the Celestial Fairy Pavilion buzzed with excitement.</p>
 
 <p>Hundreds of the sect’s most talented disciples had gathered, debating the requirements in hushed yet eager voices, many already at the early stages of the Celestial Origin Realm, all hoping to seize the chance of becoming the pavilion master’s adopted son or daughter.</p>
 
@@ -109,38 +101,20 @@ chapter = 689
 
 <p>As such, only orphaned disciples could participate in the competition.</p>
 
-<p>Some might even try to deceive the pavilion master, lying through</p>
+<p>Some might even try to deceive the pavilion master, lying through their teeth that they had no family in truth.</p>
 
-<p>their teeth that they had no family in truth.</p>
+<p>But for that, it took courage. A lot of courage. Soon, over a hundred entries filled a massive registration list, a number that ballooned to five hundred by the day before the selection.</p>
 
-<p>But for that, it took courage. A lot of courage. Soon, over a hundred entries filled a massive registration list, a</p>
-
-<p>number that ballooned to five hundred by the day before the</p>
-
-<p>selection.</p>
-
-<p>Qingyi’s name, despite him being in secluded cultivation, mysteriously appeared at the very top of the list, even though he had</p>
-
-<p>never gone to register.</p>
+<p>Qingyi’s name, despite him being in secluded cultivation, mysteriously appeared at the very top of the list, even though he had never gone to register.</p>
 
 <p>Naturally, Rou’er had taken care of this.</p>
 
-<p>Knowing the requirements perfectly, she was already extolling Long Qingyi’s virtues, explaining to Rouxi in great detail just how righteous</p>
+<p>Knowing the requirements perfectly, she was already extolling Long Qingyi’s virtues, explaining to Rouxi in great detail just how righteous and pure he was.</p>
 
-<p>and pure he was.</p>
+<p>If Qingyi knew what she was up to, he would probably burst out laughing at the image of that adorable petite beauty singing his praises to Rouxi.</p>
 
-<p>If Qingyi knew what she was up to, he would probably burst out</p>
+<p>In the end, it wasn’t until the morning of the competition that Qingyi’s eyes slowly opened, the power of his cultivation humming in his muscles.</p>
 
-<p>laughing at the image of that adorable petite beauty singing his praises to Rouxi.</p>
-
-<p>In the end, it wasn’t until the morning of the competition that</p>
-
-<p>Qingyi’s eyes slowly opened, the power of his cultivation humming in</p>
-
-<p>his muscles.</p>
-
-<p>He rose to his feet, feeling the cool air of the room brush against his</p>
-
-<p>skin, and then smiled.</p>
+<p>He rose to his feet, feeling the cool air of the room brush against his skin, and then smiled.</p>
 
 <p>It was time to become the adopted son of a hot milf!</p>

@@ -27,9 +27,7 @@ chapter = 402
 
 <p>Obviously, in a normal situation, this would not be Qingyi’s problem. He couldn’t care less about the existence of a small, isolated kingdom like that.</p>
 
-<p>But he would have to go to the western continent at some point, and of course, he couldn’t let the family of his beloved Isabel end up like</p>
-
-<p>that.</p>
+<p>But he would have to go to the western continent at some point, and of course, he couldn’t let the family of his beloved Isabel end up like that.</p>
 
 <p>What should he do? Abandon them? Tell Isabel that her husband found it too troublesome to deal with some insects for her? That he let her family die because of it?</p>
 
@@ -67,17 +65,11 @@ chapter = 402
 
 <p>“I know.” Qingyi smiled back, planting a kiss on her lips.</p>
 
-<p>His tongue invaded her mouth, feeling every bit of the sweet taste of</p>
+<p>His tongue invaded her mouth, feeling every bit of the sweet taste of those incomparable lips.</p>
 
-<p>those incomparable lips.</p>
+<p>He could feel Isabel’s breasts pressed against his chest, gently undulating before calming down between the tightness of their bodies.</p>
 
-<p>He could feel Isabel’s breasts pressed against his chest, gently undulating before calming down between the tightness of their</p>
-
-<p>bodies.</p>
-
-<p>Her hands flowed down to Qingyi’s shoulders, while his descended to her slim, delicate waist, which seemed about to break under the</p>
-
-<p>weight of those huge, dark mountains of flesh.</p>
+<p>Her hands flowed down to Qingyi’s shoulders, while his descended to her slim, delicate waist, which seemed about to break under the weight of those huge, dark mountains of flesh.</p>
 
 <p>When their lips parted, connected only by a thin thread of saliva, she focused her eyes on her husband.</p>
 
@@ -85,35 +77,23 @@ chapter = 402
 
 <p>“You know I always need that…” Qingyi laughed.</p>
 
-<p>He slapped Isabel’s butt, enjoying her sweet, high-pitched squeal, watching her flushed, naughty face. Unfortunately, he soon had to</p>
+<p>He slapped Isabel’s butt, enjoying her sweet, high-pitched squeal, watching her flushed, naughty face. Unfortunately, he soon had to put on a serious expression.</p>
 
-<p>put on a serious expression.</p>
+<p>“Something happened in your family’s land. Some nobles seem to have revolted after your father was seriously injured in an expedition against some green-skins,” Qingyi explained.</p>
 
-<p>“Something happened in your family’s land. Some nobles seem to have revolted after your father was seriously injured in an expedition</p>
+<p>The moment she heard those words, the expression on Isabel’s face fell completely. Her beautiful green eyes trembled.</p>
 
-<p>against some green-skins,” Qingyi explained.</p>
-
-<p>The moment she heard those words, the expression on Isabel’s face</p>
-
-<p>fell completely. Her beautiful green eyes trembled.</p>
-
-<p>“It was that damn Lord Belcuck, wasn’t it? He must be feeling entitled to something after I had that filthy pig of a son of his castrated!” Isabel</p>
-
-<p>declared, gritting her teeth.</p>
+<p>“It was that damn Lord Belcuck, wasn’t it? He must be feeling entitled to something after I had that filthy pig of a son of his castrated!” Isabel declared, gritting her teeth.</p>
 
 <p>Her eyes overflowed with pure rage as she hugged Qingyi.</p>
 
 <p>The kingdom had been quite stable when she left; even the Orgh tribes weren’t causing much trouble at the border. How could everything have fallen apart so quickly?</p>
 
-<p>“Husband will fix everything, right? You won’t let those filthy bastards live for another moment, will you?” she asked, almost begging, tears</p>
-
-<p>beginning to fall.</p>
+<p>“Husband will fix everything, right? You won’t let those filthy bastards live for another moment, will you?” she asked, almost begging, tears beginning to fall.</p>
 
 <p>Qingyi felt his heart tear at that sight. Why did someone always have to cause pain to his wives?</p>
 
-<p>“Yes, love… I will kill them, and their death will be slow and painful. They will not forget for a single moment the wrong they have done to</p>
-
-<p>your family…”</p>
+<p>“Yes, love… I will kill them, and their death will be slow and painful. They will not forget for a single moment the wrong they have done to your family…”</p>
 
 <p>Qingyi kissed Isabel one last time, hugging her tightly and struggling to calm his burning Qi.</p>
 

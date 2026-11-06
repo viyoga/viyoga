@@ -63,43 +63,29 @@ chapter = 545
 
 <p>Within a radius that basically encompassed the entire world, a single thought was enough and he would be there.</p>
 
-<p>Wasn’t that ability too broken? He could break through spatial</p>
+<p>Wasn’t that ability too broken? He could break through spatial barriers and enter or leave any battle at any time.</p>
 
-<p>barriers and enter or leave any battle at any time.</p>
-
-<p>With a gentle smile, Qingyi appeared above the capital of the cat</p>
-
-<p>people.</p>
+<p>With a gentle smile, Qingyi appeared above the capital of the cat people.</p>
 
 <p>It was night, and everything was quiet.</p>
 
 <p>With a slight gesture, he released a small pulse of Qi.</p>
 
-<p>It took only a few seconds, and then a powerful aura emerged from</p>
+<p>It took only a few seconds, and then a powerful aura emerged from the residence of the cat people’s patriarch.</p>
 
-<p>the residence of the cat people’s patriarch.</p>
-
-<p>Qingyi just stood there, watching that brute approach, his body</p>
-
-<p>looking more like a tiger than a cat.</p>
+<p>Qingyi just stood there, watching that brute approach, his body looking more like a tiger than a cat.</p>
 
 <p>“Son-in-law, have you finally come to see me? You disrespectful brat!”</p>
 
 <p>Tai Ren laughed, pulling Qingyi into a bear hug.</p>
 
-<p>“I’ve been very busy, father-in-law. How is mother-in-law?” Qingyi</p>
-
-<p>returned the hug.</p>
+<p>“I’ve been very busy, father-in-law. How is mother-in-law?” Qingyi returned the hug.</p>
 
 <p>Tai Ren was no longer as tired as before; quite the contrary.</p>
 
-<p>Although he was still far from reaching the second stage, he even seemed to have made a small breakthrough in the realm of the astral</p>
+<p>Although he was still far from reaching the second stage, he even seemed to have made a small breakthrough in the realm of the astral body.</p>
 
-<p>body.</p>
-
-<p>“She’s fine, not a single day goes by without her thinking about our little lioness…” Tai’Ren’s face grew a little serious. “You’re taking good</p>
-
-<p>care of her, right?”</p>
+<p>“She’s fine, not a single day goes by without her thinking about our little lioness…” Tai’Ren’s face grew a little serious. “You’re taking good care of her, right?”</p>
 
 <p>“Of course I am, father-in-law. Do you doubt your son-in-law?” Qingyi puffed out his chest with pride, eliciting a laugh from Tai’Ren.</p>
 
@@ -107,46 +93,30 @@ chapter = 545
 
 <p>Hearing this, Qingyi nodded. That was exactly why he was there.</p>
 
-<p>With a smooth movement, the two disappeared, swallowed by the</p>
-
-<p>horizon.</p>
+<p>With a smooth movement, the two disappeared, swallowed by the horizon.</p>
 
 <p>Only when they were at least five hundred kilometers from the nearest inhabited settlement did they allow themselves to begin.</p>
 
 <p>Tai Ren fought like never before in his life.</p>
 
-<p>His punches erased mountains and his Qi made the heavens tremble,</p>
-
-<p>but nothing was enough.</p>
+<p>His punches erased mountains and his Qi made the heavens tremble, but nothing was enough.</p>
 
 <p>Every punch he landed on Qingyi was met with an even more powerful one, every unblocked move doing little more than sending</p>
 
 <p>Qingyi a few steps back into the air.</p>
 
-<p>There came a point when Tai’Ren began to think that he was the ancient emperor and Qingyi was the expert of the astral body realm,</p>
-
-<p>but he was not saddened by this.</p>
+<p>There came a point when Tai’Ren began to think that he was the ancient emperor and Qingyi was the expert of the astral body realm, but he was not saddened by this.</p>
 
 <p>Quite the contrary.</p>
 
-<p>Spitting blood, he advanced again and again, giving and taking</p>
+<p>Spitting blood, he advanced again and again, giving and taking punches, testing each other’s endurance.</p>
 
-<p>punches, testing each other’s endurance.</p>
+<p>This was his son-in-law, the husband of his Linyue, the man destined to rule the heavens.</p>
 
-<p>This was his son-in-law, the husband of his Linyue, the man destined</p>
+<p>At the end of it all, when the fight was over, he returned home happy, even though he had lost.</p>
 
-<p>to rule the heavens.</p>
+<p>Qingyi was no different; it had been a long time since he had enjoyed a fight so much.</p>
 
-<p>At the end of it all, when the fight was over, he returned home happy,</p>
-
-<p>even though he had lost.</p>
-
-<p>Qingyi was no different; it had been a long time since he had enjoyed</p>
-
-<p>a fight so much.</p>
-
-<p>Without hesitation, he returned to the Mind World, but soon noticed</p>
-
-<p>something strange.</p>
+<p>Without hesitation, he returned to the Mind World, but soon noticed something strange.</p>
 
 <p>Why was Nianxue alone in the main bedroom of the purple palace?</p>

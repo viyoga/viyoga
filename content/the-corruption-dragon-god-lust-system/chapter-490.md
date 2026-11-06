@@ -71,9 +71,7 @@ chapter = 490
 
 <p>Lucios was one of these experts, his power capable of affecting an entire continent.</p>
 
-<p>Even if Qingyi could wreak destruction hundreds of kilometers around him if he used his maximum power, it was still incomparable</p>
-
-<p>to Lucios.</p>
+<p>Even if Qingyi could wreak destruction hundreds of kilometers around him if he used his maximum power, it was still incomparable to Lucios.</p>
 
 <p>In the end, what else could he do but sit next to the old man?</p>
 
@@ -83,9 +81,7 @@ chapter = 490
 
 <p>The moment he smelled the strong aroma of that drink, Qingyi’s eyes widened. Was that… whiskey?</p>
 
-<p>Without hesitation, he took the cup from Lucios’ hands, drinking it in</p>
-
-<p>a single gulp.</p>
+<p>Without hesitation, he took the cup from Lucios’ hands, drinking it in a single gulp.</p>
 
 <p>It wasn’t exactly a drink he enjoyed, just one that wasn’t available in the system and that he missed a little.</p>
 
@@ -93,9 +89,7 @@ chapter = 490
 
 <p>Why did his father-in-law have to be that damn cuckold patriarch and not this friendly old man?</p>
 
-<p>“Where did you get this?” Qingyi asked, his eyes shining as Lucios</p>
-
-<p>poured him another sip.</p>
+<p>“Where did you get this?” Qingyi asked, his eyes shining as Lucios poured him another sip.</p>
 
 <p>“From the body of a stranger from your land that I killed a few tens of thousands of years ago. He talked a lot, unfortunately, not enough to make up for his pathetic combat skills, hahaha.” Lucios laughed, patting Qingyi on the shoulder.</p>
 
@@ -113,9 +107,7 @@ chapter = 490
 
 <p>‘I hope I don’t have to kill him…’ Qingyi whispered to himself.</p>
 
-<p>As he took a last sip of whiskey, he sent some to his space ring. Later,</p>
-
-<p>he would take it to Feiyan and Biyue.</p>
+<p>As he took a last sip of whiskey, he sent some to his space ring. Later, he would take it to Feiyan and Biyue.</p>
 
 <p>They would probably be able to reverse engineer it to recreate it.</p>
 

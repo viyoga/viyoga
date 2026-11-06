@@ -29,9 +29,7 @@ chapter = 518
 
 <p>“Hm…” The Gold King scratched his chin thoughtfully. “If a servant of my son tried to rob you, it’s only fair that my son compensates you for it. Tell me, son-in-law, what do you want?”</p>
 
-<p>The third young master shuddered upon hearing those words. Would</p>
-
-<p>his father really side with someone he had just met?</p>
+<p>The third young master shuddered upon hearing those words. Would his father really side with someone he had just met?</p>
 
 <p>“I am your son…” The third young master growled, probing Qingyi and sensing the Qi he exuded.</p>
 
@@ -83,17 +81,11 @@ chapter = 518
 
 <p>“Daughter… your cultivation…” the Gold King whispered.</p>
 
-<p>He had been so focused on Qingyi that he hadn’t even noticed how</p>
-
-<p>much his own daughter had changed. He looked at his son-in-law,</p>
-
-<p>overflowing with shock.</p>
+<p>He had been so focused on Qingyi that he hadn’t even noticed how much his own daughter had changed. He looked at his son-in-law, overflowing with shock.</p>
 
 <p>“How?” he asked.</p>
 
-<p>How could Meilin have advanced so much in such a short time? That</p>
-
-<p>shouldn’t be possible!</p>
+<p>How could Meilin have advanced so much in such a short time? That shouldn’t be possible!</p>
 
 <p>He had seen imperial experiments that attempted to leverage the level of cultivators as quickly as possible.</p>
 
@@ -105,18 +97,12 @@ chapter = 518
 
 <p>Yes, her cultivation was much stronger, but it wasn’t just that; her own innate talent had improved dramatically.</p>
 
-<p>Jin Hao looked at Qingyi again. Frightening talent, unmatched power, and an evolution that simply wouldn’t stop. Qingyi was behind this,</p>
+<p>Jin Hao looked at Qingyi again. Frightening talent, unmatched power, and an evolution that simply wouldn’t stop. Qingyi was behind this, wasn’t he?</p>
 
-<p>wasn’t he?</p>
-
-<p>A hint of greed flashed in the Gold King’s heart, but he suppressed it</p>
-
-<p>immediately.</p>
+<p>A hint of greed flashed in the Gold King’s heart, but he suppressed it immediately.</p>
 
 <p>At this very moment, he was not a money-mad merchant. He was a father about to marry his beloved daughter to a son-in-law whom, fortunately, he respected.</p>
 
-<p>“You did well, dear. I’ll take care of your brother. You can relax with</p>
-
-<p>Qingyi and show him the city; my accountant will prepare the budget for your wedding.”</p>
+<p>“You did well, dear. I’ll take care of your brother. You can relax with Qingyi and show him the city; my accountant will prepare the budget for your wedding.”</p>
 
 <p>The Gold King sighed, releasing his daughter’s wrist and heading toward the skies, following the third young master.</p>

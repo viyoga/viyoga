@@ -7,9 +7,7 @@ chapter = 606
 
 <p>Instructor Cang’s class, as he himself had said, lasted until shortly after noon.</p>
 
-<p>There were a few more sparring matches, and he even exchanged a few blows with some of the disciples, just for demonstration</p>
-
-<p>purposes.</p>
+<p>There were a few more sparring matches, and he even exchanged a few blows with some of the disciples, just for demonstration purposes.</p>
 
 <p>In the end, with a weary smile and a touch of reluctance, he dismissed all his disciples.</p>
 
@@ -23,9 +21,7 @@ chapter = 606
 
 <p>***</p>
 
-<p>“Are you really not going to attend Instructor Cang’s classes</p>
-
-<p>anymore?” Chen Wei spoke from beside Qingyi, his voice slightly subdued.</p>
+<p>“Are you really not going to attend Instructor Cang’s classes anymore?” Chen Wei spoke from beside Qingyi, his voice slightly subdued.</p>
 
 <p>He felt he still had a debt to repay, but the longer he stood beside Qingyi, the more he realized he lacked the ability to offer anything worthy of him.</p>
 
@@ -73,9 +69,7 @@ chapter = 606
 
 <p>He was no match for Qingyi.</p>
 
-<p>Silently, he simply followed his new friend, not even realizing that</p>
-
-<p>Qingyi was, deep down, very happy.</p>
+<p>Silently, he simply followed his new friend, not even realizing that Qingyi was, deep down, very happy.</p>
 
 <p>Casual conversations and banter with a friend, complete with rage baits, insults, and the occasional shove.</p>
 
@@ -85,39 +79,27 @@ chapter = 606
 
 <p>“I’m heading to the mission hall now. Breakthrough before that damn Luo tries to take his frustration out on you.” Qingyi said, turning his back on Chen Wei.</p>
 
-<p>“I’ll.” Chen Wei nodded and soon could only watch Qingyi walk away, a</p>
-
-<p>gentle smile on his face.</p>
+<p>“I’ll.” Chen Wei nodded and soon could only watch Qingyi walk away, a gentle smile on his face.</p>
 
 <p>***</p>
 
-<p>In each of the nine main pavilions of the Cosmic Dawn Sect, there was</p>
-
-<p>a mission pavilion.</p>
+<p>In each of the nine main pavilions of the Cosmic Dawn Sect, there was a mission pavilion.</p>
 
 <p>These mission pavilions, unlike most of the internal structures of the main pavilions, were under the direct control of the main palace and the Grand Elder, ranking in authority only below the sect leader himself and the nine pavilion masters.</p>
 
-<p>Each was commanded by an elder from the First Step of the Path of Extinction Realm and had dozens of staff members offering thousands</p>
+<p>Each was commanded by an elder from the First Step of the Path of Extinction Realm and had dozens of staff members offering thousands of missions of all kinds.</p>
 
-<p>of missions of all kinds.</p>
-
-<p>From exterminating pirates to assassinating traitors and carrying out</p>
-
-<p>arrests.</p>
+<p>From exterminating pirates to assassinating traitors and carrying out arrests.</p>
 
 <p>That was a place where outer, inner, and core disciples mingled.</p>
 
 <p>Qingyi arrived at the building, which was about eight stories tall, and immediately looked up in admiration.</p>
 
-<p>It was made of pure red wood, with dozens of luxurious pavilions serving as venues for meetings between powerful experts and new clients, and two pure blue lakes crossed by a long bridge that served</p>
-
-<p>as the entrance.</p>
+<p>It was made of pure red wood, with dozens of luxurious pavilions serving as venues for meetings between powerful experts and new clients, and two pure blue lakes crossed by a long bridge that served as the entrance.</p>
 
 <p>On the right side, there was a small dock that received spaceships belonging to high-ranking officials and well-known clients.</p>
 
-<p>Qingyi simply admired the ships landing and taking off every few</p>
-
-<p>minutes, with a mixture of envy and admiration.</p>
+<p>Qingyi simply admired the ships landing and taking off every few minutes, with a mixture of envy and admiration.</p>
 
 <p>It was funny.</p>
 
@@ -125,19 +107,11 @@ chapter = 606
 
 <p>Wasn’t that laughable?</p>
 
-<p>He had already dumped his cum down a goddess’s throat, had already</p>
+<p>He had already dumped his cum down a goddess’s throat, had already made her moan his name.</p>
 
-<p>made her moan his name.</p>
+<p>A real goddess. One who once ruled over thousands of planets full of faithful followers.</p>
 
-<p>A real goddess. One who once ruled over thousands of planets full of</p>
-
-<p>faithful followers.</p>
-
-<p>And yet, there he stood, staring at those spaceships like a child</p>
-
-<p>looking at candy, or a young teenager gazing at a Mustang in a car</p>
-
-<p>dealership.</p>
+<p>And yet, there he stood, staring at those spaceships like a child looking at candy, or a young teenager gazing at a Mustang in a car dealership.</p>
 
 <p>He’d never cared much for flying ships, but damn…</p>
 
@@ -147,9 +121,7 @@ chapter = 606
 
 <p>Qianyao’s father, Tianjin…”</p>
 
-<p>Qingyi’s lips curved higher and higher as he recalled that golden</p>
-
-<p>dragon.</p>
+<p>Qingyi’s lips curved higher and higher as he recalled that golden dragon.</p>
 
 <p>He knew that Tianjin held a position equivalent to that of a Heavenly Demon within the orthodox faction.</p>
 
@@ -159,6 +131,4 @@ chapter = 606
 
 <p>Since Qingyi and Qianyao hadn’t officially married yet, he would probably want at least a better ceremony.</p>
 
-<p>This was the perfect opportunity to honestly extort his dear father-in-law, who loved his daughter more than anything in the</p>
-
-<p>world! With a cheerful expression, Qingyi decided it was time to stop daydreaming and find a suitable mission.</p>
+<p>This was the perfect opportunity to honestly extort his dear father-in-law, who loved his daughter more than anything in the world! With a cheerful expression, Qingyi decided it was time to stop daydreaming and find a suitable mission.</p>

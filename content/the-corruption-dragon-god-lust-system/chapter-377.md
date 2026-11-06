@@ -11,9 +11,7 @@ chapter = 377
 
 <p>When Qingyi got there, he immediately saw the figures of Tai Ren, his wife and the worried Linyue.</p>
 
-<p>“Nyan, hubby!” Linyue hugged Qingyi tightly, throwing herself into his</p>
-
-<p>arms.</p>
+<p>“Nyan, hubby!” Linyue hugged Qingyi tightly, throwing herself into his arms.</p>
 
 <p>“Dad said I could stay with you, nyan! We won’t have to separate anymore!” She squealed excitedly. “You just need to find a place for me to hunt now.”</p>
 
@@ -81,9 +79,7 @@ chapter = 377
 
 <p>Qingyi barely had time to look at that notification screen before he saw a pair of huge tits cover his vision, his face engulfed in a sea of endless softness, thick, smooth thighs wrapping around his hips. “Thank you, you’re the best husband in the world!” Ruxue exclaimed, her heart full of happiness.</p>
 
-<p>It had been some time since she had erased her doubts about Qingyi’s ability to take her back to the heavenly sky and recover all her</p>
-
-<p>fragments.</p>
+<p>It had been some time since she had erased her doubts about Qingyi’s ability to take her back to the heavenly sky and recover all her fragments.</p>
 
 <p>Even so, each fragment recovered made her heart tremble with shock.</p>
 
@@ -95,13 +91,9 @@ chapter = 377
 
 <p>The dress had already slipped down to her waist, revealing her puffy, purplish nipples.</p>
 
-<p>“You’re still a shameless, womanizing scoundrel… just one I like a little more… Ruxue brought her face up to Qingyi’s, pressing her full lips</p>
+<p>“You’re still a shameless, womanizing scoundrel… just one I like a little more… Ruxue brought her face up to Qingyi’s, pressing her full lips against his.</p>
 
-<p>against his.</p>
-
-<p>When they parted, Qingyi smiled, slapping her on the ass and making her kneel in front of him, her beautiful, flushed face inches from his</p>
-
-<p>pants.</p>
+<p>When they parted, Qingyi smiled, slapping her on the ass and making her kneel in front of him, her beautiful, flushed face inches from his pants.</p>
 
 <p>“Good, because you’ve just made this shameless womanizing bastard very hard…” He smiled, unzipping his pants and revealing his cock.</p>
 
@@ -109,27 +101,17 @@ chapter = 377
 
 <p>Her purplish lips closed around the reddened glans, her jaw aching slightly as she pushed further in, feeling the twenty-three centimeters of meat slide into her throat.</p>
 
-<p>The moment her lips touched the base of Qingyi’s cock, she pulled</p>
-
-<p>back, the member sliding almost to the tip.</p>
+<p>The moment her lips touched the base of Qingyi’s cock, she pulled back, the member sliding almost to the tip.</p>
 
 <p>She was about to swallow it all again when she felt Qingyi’s hands grabbing her head, his legs trembling with pleasure.</p>
 
-<p>“Oghn~~!!!” Ruxue’s eyes widened as Qingyi shoved it all in at once, her throat desperately clutching at the member, struggling to milk it</p>
+<p>“Oghn~~!!!” Ruxue’s eyes widened as Qingyi shoved it all in at once, her throat desperately clutching at the member, struggling to milk it dry.</p>
 
-<p>dry.</p>
+<p>her purple eyes watered, her hands resting on Qingyi’s thighs as he moved his hips without stopping, fucking her mouth as if it were her fat, tight pussy.</p>
 
-<p>her purple eyes watered, her hands resting on Qingyi’s thighs as he moved his hips without stopping, fucking her mouth as if it were her</p>
+<p>If she had been a mortal woman, she would have been hurt. Fortunately, she had a powerful body and was easily able to withstand that fucking.</p>
 
-<p>fat, tight pussy.</p>
-
-<p>If she had been a mortal woman, she would have been hurt. Fortunately, she had a powerful body and was easily able to withstand</p>
-
-<p>that fucking.</p>
-
-<p>Raising her eyes to Qingyi’s, she displayed an obscene expression full</p>
-
-<p>of pleasure.</p>
+<p>Raising her eyes to Qingyi’s, she displayed an obscene expression full of pleasure.</p>
 
 <p>Suddenly, her moans interspersed with Qingyi’s thrusts stopped, her eyes widening as he came deep inside her throat…</p>
 

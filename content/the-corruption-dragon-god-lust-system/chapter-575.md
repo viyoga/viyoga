@@ -77,25 +77,17 @@ chapter = 575
 
 <p>From the depths of his lineage projection’s throat, a sea of purple flames surged forth like a death laser, colliding with the golden orb.</p>
 
-<p>The flash of the explosion was bright enough to erase any shadow and blind any animal, mortal or immortal, within a radius of more than</p>
-
-<p>a hundred kilometers.</p>
+<p>The flash of the explosion was bright enough to erase any shadow and blind any animal, mortal or immortal, within a radius of more than a hundred kilometers.</p>
 
 <p>Qingyi did not stand still either.</p>
 
-<p>He moved the Heaven-Defying Thunder Sword in a lunge, quickly being swallowed by the sea of purple flames from the dragon behind</p>
-
-<p>him.</p>
+<p>He moved the Heaven-Defying Thunder Sword in a lunge, quickly being swallowed by the sea of purple flames from the dragon behind him.</p>
 
 <p>He could feel his body burning just from being close to the golden orb, the pressure enough to collapse his lungs.</p>
 
-<p>With each gust of wind, black scales were torn from his body and his</p>
+<p>With each gust of wind, black scales were torn from his body and his flesh was ripped apart.</p>
 
-<p>flesh was ripped apart.</p>
-
-<p>The god of war, in a position not much better, roared with more anger</p>
-
-<p>than ever.</p>
+<p>The god of war, in a position not much better, roared with more anger than ever.</p>
 
 <p>He was close… so close…</p>
 
@@ -103,47 +95,29 @@ chapter = 575
 
 <p>Why did he have to get in his way like this?</p>
 
-<p>A glimmer of happiness appeared on the god of war’s face when he</p>
-
-<p>saw Qingyi’s body being swallowed by his attack.</p>
+<p>A glimmer of happiness appeared on the god of war’s face when he saw Qingyi’s body being swallowed by his attack.</p>
 
 <p>But this happiness did not last long.</p>
 
-<p>From the golden orb, Qingyi emerged, his sword finding the god of</p>
-
-<p>war’s chest.</p>
+<p>From the golden orb, Qingyi emerged, his sword finding the god of war’s chest.</p>
 
 <p>“Die.” A single word sounded, cold and calm.</p>
 
-<p>In the next moment, the god of war was pushed away and engulfed</p>
+<p>In the next moment, the god of war was pushed away and engulfed by purple flames.</p>
 
-<p>by purple flames.</p>
-
-<p>When the calm returned, there was not a single building left standing</p>
-
-<p>in the hundreds of kilometers that the city stretched across.</p>
+<p>When the calm returned, there was not a single building left standing in the hundreds of kilometers that the city stretched across.</p>
 
 <p>The only exception was the golden palace.</p>
 
-<p>The flying island seemed about to collapse, and on the horizon,</p>
+<p>The flying island seemed about to collapse, and on the horizon, Qingyi saw a figure fall to the ground.</p>
 
-<p>Qingyi saw a figure fall to the ground.</p>
-
-<p>The beautiful young man was already destroyed, his clothes reduced</p>
-
-<p>to dust and his nakedness covered only by what remained of his torn</p>
-
-<p>pants.</p>
+<p>The beautiful young man was already destroyed, his clothes reduced to dust and his nakedness covered only by what remained of his torn pants.</p>
 
 <p>The figure on the ground trembled and, for a moment, seemed powerless, but that soon changed.</p>
 
-<p>Golden flames engulfed the body of the god of war as he slowly</p>
+<p>Golden flames engulfed the body of the god of war as he slowly floated, his wounds healing rapidly.</p>
 
-<p>floated, his wounds healing rapidly.</p>
-
-<p>[Shit… he wants to burn his own divinity to make a final attack!] Ruxue</p>
-
-<p>shouted in Qingyi’s mind.</p>
+<p>[Shit… he wants to burn his own divinity to make a final attack!] Ruxue shouted in Qingyi’s mind.</p>
 
 <p>No god in his right mind should have the courage to do such a thing.</p>
 
@@ -155,6 +129,4 @@ chapter = 575
 
 <p>“But I don’t have time for this bullshit.”</p>
 
-<p>The head of a fallen god was thrown into the sky, and the world was</p>
-
-<p>enveloped in silence.</p>
+<p>The head of a fallen god was thrown into the sky, and the world was enveloped in silence.</p>

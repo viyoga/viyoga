@@ -63,9 +63,7 @@ chapter = 618
 
 <p>***</p>
 
-<p>If Qingyi knew what the chubby man had said, he’d probably burst</p>
-
-<p>out laughing.</p>
+<p>If Qingyi knew what the chubby man had said, he’d probably burst out laughing.</p>
 
 <p>Power of friendship… what a joke.</p>
 
@@ -79,11 +77,7 @@ chapter = 618
 
 <p>It was beautiful, far more beautiful than the universe Qingyi remembered observing from Earth.</p>
 
-<p>Unfortunately, he couldn’t pay much attention to the girls, since they</p>
-
-<p>would have to leave quickly to make room for the others, and besides, he himself still didn’t feel safe exposing them to the dangers of the celestial heavens without being certain he could defend them with his</p>
-
-<p>own power.</p>
+<p>Unfortunately, he couldn’t pay much attention to the girls, since they would have to leave quickly to make room for the others, and besides, he himself still didn’t feel safe exposing them to the dangers of the celestial heavens without being certain he could defend them with his own power.</p>
 
 <p>After a few minutes, they were all able to admire the celestial heavens before returning to the world of the mind.</p>
 
@@ -91,9 +85,7 @@ chapter = 618
 
 <p>It was a mostly desert world, but dotted with lakes and forests dominated by powerful cultivator families that had served the Cosmic Dawn Sect for hundreds of thousands of years.</p>
 
-<p>It was not a fully terraformed world and did not have a large</p>
-
-<p>permanent mortal population.</p>
+<p>It was not a fully terraformed world and did not have a large permanent mortal population.</p>
 
 <p>It was maintained, frankly, only because its spiritual veins were powerful, only slightly inferior to those of the Ascending Dawn planet.</p>
 
@@ -101,34 +93,20 @@ chapter = 618
 
 <p>The moment he crossed the Qi barrier that maintained a breathable atmosphere in that region, a powerful, heavy Qi fell upon him like an invisible wall.</p>
 
-<p>After a moment, the token on his robes glowed and the pressure</p>
+<p>After a moment, the token on his robes glowed and the pressure ceased.</p>
 
-<p>ceased.</p>
-
-<p>“Hm… it’s an interesting system…” Qingyi scratched his chin, his eyes resting on a strange structure in the middle of the forest: a massive</p>
-
-<p>golden pavilion.</p>
+<p>“Hm… it’s an interesting system…” Qingyi scratched his chin, his eyes resting on a strange structure in the middle of the forest: a massive golden pavilion.</p>
 
 <p>That was the destination of his mission.</p>
 
-<p>Accelerating the ship, he cut through the skies and stopped in front of the pavilion, making a hard landing with some difficulty. “Ah… taking off is easier than landing this thing…” He sighed, letting</p>
+<p>Accelerating the ship, he cut through the skies and stopped in front of the pavilion, making a hard landing with some difficulty. “Ah… taking off is easier than landing this thing…” He sighed, letting out a bitter laugh that lasted only a second as he stepped out of his ship. His eyes grew cold and turned toward the forest.</p>
 
-<p>out a bitter laugh that lasted only a second as he stepped out of his</p>
+<p>“You took advantage of the opening I made in the barrier to enter unimpeded, didn’t you?” Qingyi’s lips curled. “Come out now, or would you prefer that I come to you?”</p>
 
-<p>ship. His eyes grew cold and turned toward the forest.</p>
-
-<p>“You took advantage of the opening I made in the barrier to enter</p>
-
-<p>unimpeded, didn’t you?” Qingyi’s lips curled. “Come out now, or would you prefer that I come to you?”</p>
-
-<p>Dozens of murderous intentions surged from the forest, all focused</p>
-
-<p>on him. Among them, a voice echoed, cold and deadly.</p>
+<p>Dozens of murderous intentions surged from the forest, all focused on him. Among them, a voice echoed, cold and deadly.</p>
 
 <p>“Nothing personal, my friend… Young Master Guo just asked me to make you regret setting his sights on his woman.”</p>
 
-<p>“Oh… so it was that little cuckold Guo Tianhao, hahahaha.” Qingyi</p>
-
-<p>roared with laughter, the coldness in his voice dissolving completely, replaced by a friendly, relaxed tone.</p>
+<p>“Oh… so it was that little cuckold Guo Tianhao, hahahaha.” Qingyi roared with laughter, the coldness in his voice dissolving completely, replaced by a friendly, relaxed tone.</p>
 
 <p>“I picked a nice spot for your graves, didn’t I? It’s quite pleasant. Most aren’t lucky enough to die in such a beautiful forest.”</p>

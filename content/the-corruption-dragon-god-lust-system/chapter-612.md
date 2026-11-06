@@ -63,9 +63,7 @@ chapter = 612
 
 <p>***</p>
 
-<p>As Qingyi entered the mind world and prepared to get to work, the main palace, residence of the sect leader, was quiet. “Young miss, your trip to the Fallen Void Sect is scheduled for three</p>
-
-<p>months from now… An elder has already been assigned as your escort, and a disciple will also be needed to accompany you and represent you. Should I inform Guo Tianhao?”</p>
+<p>As Qingyi entered the mind world and prepared to get to work, the main palace, residence of the sect leader, was quiet. “Young miss, your trip to the Fallen Void Sect is scheduled for three months from now… An elder has already been assigned as your escort, and a disciple will also be needed to accompany you and represent you. Should I inform Guo Tianhao?”</p>
 
 <p>A cold, feminine voice echoed through a strange yet luxurious room.</p>
 
@@ -75,9 +73,7 @@ chapter = 612
 
 <p>“Hmm… he’s annoying.” A voice replied, so sweet and gentle that it made even the composed and well-trained maid shudder.</p>
 
-<p>It was impossible to see the face or even the body of the girl lying on</p>
-
-<p>the bed.</p>
+<p>It was impossible to see the face or even the body of the girl lying on the bed.</p>
 
 <p>It was always like this.</p>
 
@@ -91,19 +87,13 @@ chapter = 612
 
 <p>Finally, she turned on her side, giving the maid a brief glimpse of her large, bright, and unique eyes.</p>
 
-<p>One of them, the one on the left, was a deep pink, similar to the color of her room. The other was purple, as beautiful and incomparable as the celestial cosmos, contrasting with the adorable pink pupil on the</p>
+<p>One of them, the one on the left, was a deep pink, similar to the color of her room. The other was purple, as beautiful and incomparable as the celestial cosmos, contrasting with the adorable pink pupil on the left.</p>
 
-<p>left.</p>
-
-<p>The maid could only sigh at those words, averting her eyes from the</p>
-
-<p>girl.</p>
+<p>The maid could only sigh at those words, averting her eyes from the girl.</p>
 
 <p>She knew it was dangerous to look into them, especially for her, a low-level cultivator.</p>
 
-<p>Honestly, what kind of woman would see Young Master Guo as</p>
-
-<p>unattractive?</p>
+<p>Honestly, what kind of woman would see Young Master Guo as unattractive?</p>
 
 <p>The maid herself dreamed of having such a handsome man doing everything to court her.</p>
 
@@ -119,55 +109,33 @@ chapter = 612
 
 <p>“Hm…” The girl fell silent for a moment.</p>
 
-<p>She looked pensive, and beneath the mist shrouding her beautiful features, it was clear that her lips were curving ever wider into a</p>
-
-<p>growing smile.</p>
+<p>She looked pensive, and beneath the mist shrouding her beautiful features, it was clear that her lips were curving ever wider into a growing smile.</p>
 
 <p>“Hm… I don’t care, and fuck the requirements!” She finally declared proudly, puffing out her chest with dignity.</p>
 
-<p>“Young lady… please, be respectful…” The servant lowered her head in</p>
+<p>“Young lady… please, be respectful…” The servant lowered her head in frustration.</p>
 
-<p>frustration.</p>
-
-<p>She hated how eccentric that girl was. She didn’t even seem like a</p>
-
-<p>serious adult.</p>
+<p>She hated how eccentric that girl was. She didn’t even seem like a serious adult.</p>
 
 <p>Why couldn’t she be like the others her age?</p>
 
 <p>It hadn’t always been this way.</p>
 
-<p>The sect leader’s daughter had changed quite a bit over the past four</p>
+<p>The sect leader’s daughter had changed quite a bit over the past four years, but no one gave it much thought.</p>
 
-<p>years, but no one gave it much thought.</p>
+<p>She had always been eccentric, and now she was just showing it a little more.</p>
 
-<p>She had always been eccentric, and now she was just showing it a</p>
+<p>With a sigh, the maid simply gave up arguing with the young lady and left.</p>
 
-<p>little more.</p>
-
-<p>With a sigh, the maid simply gave up arguing with the young lady and</p>
-
-<p>left.</p>
-
-<p>Qingyi didn’t know it, but very soon he would receive a letter from</p>
-
-<p>the chief maid of the heiress of the main palace; He had two months</p>
-
-<p>to reach the realm of celestial ascension, or he would be punished by the chief maid herself.</p>
+<p>Qingyi didn’t know it, but very soon he would receive a letter from the chief maid of the heiress of the main palace; He had two months to reach the realm of celestial ascension, or he would be punished by the chief maid herself.</p>
 
 <p>That mission was far too important… there was something dormant within that girl’s heart, and only with a worthy representative would she have a chance to receive help from the Fallen Void Sect.</p>
 
-<p>The head maid couldn’t take any chances. Qingyi had to prove himself</p>
+<p>The head maid couldn’t take any chances. Qingyi had to prove himself worthy, or she would kill him so that the young miss could choose another representative!</p>
 
-<p>worthy, or she would kill him so that the young miss could choose another representative!</p>
+<p>Alone, the girl gave a soft chuckle and lay down on the bed again, hugging a huge, soft stuffed animal.</p>
 
-<p>Alone, the girl gave a soft chuckle and lay down on the bed again,</p>
-
-<p>hugging a huge, soft stuffed animal.</p>
-
-<p>Rubbing her face against the soft fabric, her lips parted, her cheeks</p>
-
-<p>slightly flushed.</p>
+<p>Rubbing her face against the soft fabric, her lips parted, her cheeks slightly flushed.</p>
 
 <p>“hehehehe Daddy’s heir… found you♡”</p>
 

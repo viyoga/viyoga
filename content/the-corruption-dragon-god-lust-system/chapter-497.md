@@ -5,9 +5,7 @@ weight = 497
 chapter = 497
 +++
 
-<p>Qingyi began to run, feeling Lucios’ aura fall upon him for a brief</p>
-
-<p>moment.</p>
+<p>Qingyi began to run, feeling Lucios’ aura fall upon him for a brief moment.</p>
 
 <p>The pressure wasn’t even focused on him, but still, it was thunderous enough to knock all the air out of his lungs.</p>
 
@@ -19,9 +17,7 @@ chapter = 497
 
 <p>Still, he didn’t stop running.</p>
 
-<p>Using every drop of Qi and mana, he continued until he found himself hundreds of kilometers away from the capital, where he finally</p>
-
-<p>calmed down.</p>
+<p>Using every drop of Qi and mana, he continued until he found himself hundreds of kilometers away from the capital, where he finally calmed down.</p>
 
 <p>His body fell to the ground with a powerful impact, his back breaking dozens of trees until he finally came to a stop.</p>
 
@@ -55,9 +51,7 @@ chapter = 497
 
 <p>He should have talked to Ruxue before allowing Khaedryss to eat that.</p>
 
-<p>“Don’t blame yourself…” Ruxue grabbed her husband’s hand. “These things are rare. I didn’t say anything because, even in a billion</p>
-
-<p>chances, I never thought something like this would happen.”</p>
+<p>“Don’t blame yourself…” Ruxue grabbed her husband’s hand. “These things are rare. I didn’t say anything because, even in a billion chances, I never thought something like this would happen.”</p>
 
 <p>Qingyi lowered his head. Ruxue was right, but that didn’t change anything.</p>
 
@@ -85,13 +79,9 @@ chapter = 497
 
 <p>Khaedryss’s enormous body was nowhere to be seen and all of the tremendous amount of mana in that place flowed in a single direction, a point in the center of that sea of gold.</p>
 
-<p>Qingyi tried to force his way in, but soon gave up, realizing that he was only causing further chaos in Khaedryss’s already uncontrolled</p>
+<p>Qingyi tried to force his way in, but soon gave up, realizing that he was only causing further chaos in Khaedryss’s already uncontrolled energy.</p>
 
-<p>energy.</p>
-
-<p>[Just push all the mana toward the center, Khaedryss’s own body will</p>
-
-<p>do the rest.]</p>
+<p>[Just push all the mana toward the center, Khaedryss’s own body will do the rest.]</p>
 
 <p>“Okay.” Qingyi nodded.</p>
 
@@ -105,65 +95,41 @@ chapter = 497
 
 <p>“Ugh…” Qingyi groaned.</p>
 
-<p>He felt his meridians begin to tear, his eyes becoming bloodshot. The speed at which his body was being destroyed briefly outpaced the</p>
-
-<p>speed at which the Seed of Life could heal him.</p>
+<p>He felt his meridians begin to tear, his eyes becoming bloodshot. The speed at which his body was being destroyed briefly outpaced the speed at which the Seed of Life could heal him.</p>
 
 <p>Still, he pushed forward, one second after another.</p>
 
-<p>His eyes filled with surprise as he approached the center, beginning</p>
+<p>His eyes filled with surprise as he approached the center, beginning to make out a silhouette.</p>
 
-<p>to make out a silhouette.</p>
-
-<p>It wasn’t the usual silhouette of Khaedryss’s beastly, powerful body;</p>
-
-<p>quite the opposite.</p>
+<p>It wasn’t the usual silhouette of Khaedryss’s beastly, powerful body; quite the opposite.</p>
 
 <p>What he saw was a figure a few inches shorter than him, her eyes were tightly closed and her delicate body revealed curves so perfect that Qingyi was almost unable to believe his own gaze.</p>
 
-<p>Her high, aristocratic cheeks were flushed with a dark pink, almost purple, as were her lips and the contours of her shoulders, knees, and</p>
+<p>Her high, aristocratic cheeks were flushed with a dark pink, almost purple, as were her lips and the contours of her shoulders, knees, and elbows.</p>
 
-<p>elbows.</p>
-
-<p>Everything was so delicate, dark pink contours contrasting with the obsidian skin that covered her perfect curves, small clusters of black</p>
-
-<p>scales elegantly decorating her voluptuous body.</p>
+<p>Everything was so delicate, dark pink contours contrasting with the obsidian skin that covered her perfect curves, small clusters of black scales elegantly decorating her voluptuous body.</p>
 
 <p>Qingyi didn’t question why this humanoid figure was there and just pushed a little harder until he finally reached her.</p>
 
 <p>His arms wrapped around her delicate hips.</p>
 
-<p>Her large, heavy breasts pressed against his chest, her puffy, dark</p>
+<p>Her large, heavy breasts pressed against his chest, her puffy, dark pink nipples slightly hardened.</p>
 
-<p>pink nipples slightly hardened.</p>
-
-<p>Behind her, his hands clung to her back and her long black hair,</p>
-
-<p>decorated with long, sharp horns.</p>
+<p>Behind her, his hands clung to her back and her long black hair, decorated with long, sharp horns.</p>
 
 <p>“Nghnn~~”</p>
 
-<p>Qingyi heard a pained moan in his arms, feeling his own clothes being</p>
-
-<p>torn from his body, the incomparable softness of that perfect obsidian</p>
-
-<p>skin pressing directly against his body.</p>
+<p>Qingyi heard a pained moan in his arms, feeling his own clothes being torn from his body, the incomparable softness of that perfect obsidian skin pressing directly against his body.</p>
 
 <p>He could feel everything.</p>
 
-<p>Her thick, soft thighs wrapping around his hips, his cock sliding through the fat, perfect lips of the protruding mount of her puffy</p>
-
-<p>pussy.</p>
+<p>Her thick, soft thighs wrapping around his hips, his cock sliding through the fat, perfect lips of the protruding mount of her puffy pussy.</p>
 
 <p>Still, none of that took his attention away.</p>
 
-<p>Not even the sensation of the tip of his cock, already fully erect,</p>
+<p>Not even the sensation of the tip of his cock, already fully erect, sinking between the perfect, soft obsidian orbs that formed her buttocks, so tight they seemed to struggle to crush him.</p>
 
-<p>sinking between the perfect, soft obsidian orbs that formed her buttocks, so tight they seemed to struggle to crush him.</p>
-
-<p>“It’s okay, love…” He hugged her a little tighter. “I’m here.” The moment his voice fell, the golden cocoon collapsed and he fell to</p>
-
-<p>the floor, with that incomparable and voluptuous beauty in his arms.</p>
+<p>“It’s okay, love…” He hugged her a little tighter. “I’m here.” The moment his voice fell, the golden cocoon collapsed and he fell to the floor, with that incomparable and voluptuous beauty in his arms.</p>
 
 <p>NT: Khaedryss’ art is now available in the characters tab, vote for your favorite character there!</p>
 

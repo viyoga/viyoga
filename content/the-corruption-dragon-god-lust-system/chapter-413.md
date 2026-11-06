@@ -5,9 +5,7 @@ weight = 413
 chapter = 413
 +++
 
-<p>“What do you think of them?” David Valemont asked, walking</p>
-
-<p>alongside Qingyi.</p>
+<p>“What do you think of them?” David Valemont asked, walking alongside Qingyi.</p>
 
 <p>The king wore casual, light robes, as if he had just woken up, carrying a small metal container filled with rum in his right hand.</p>
 
@@ -83,35 +81,23 @@ chapter = 413
 
 <p>Only one was flying alongside Qingyi.</p>
 
-<p>He was a general who had only recently reached the ninth ring and who would replace the last guardian of the kingdom, killed by</p>
+<p>He was a general who had only recently reached the ninth ring and who would replace the last guardian of the kingdom, killed by Belgrath in an ambush.</p>
 
-<p>Belgrath in an ambush.</p>
+<p>He was a tall, honest, and quiet man with short black hair, blue eyes, and fair skin.</p>
 
-<p>He was a tall, honest, and quiet man with short black hair, blue eyes,</p>
+<p>“How far are we from Belgrath’s forces?” Qingyi asked, turning his face to the general.</p>
 
-<p>and fair skin.</p>
-
-<p>“How far are we from Belgrath’s forces?” Qingyi asked, turning his</p>
-
-<p>face to the general.</p>
-
-<p>“No more than two weeks, Your Highness. Belgrath set out many days</p>
-
-<p>ago, and orcs are fast.”</p>
+<p>“No more than two weeks, Your Highness. Belgrath set out many days ago, and orcs are fast.”</p>
 
 <p>“Hmm… I don’t think they’re very interested in ambushes, are they?”</p>
 
-<p>“No, Your Highness. Orcs don’t ambush, they just attack head-on,” the</p>
-
-<p>general shook his head.</p>
+<p>“No, Your Highness. Orcs don’t ambush, they just attack head-on,” the general shook his head.</p>
 
 <p>“Good…” Qingyi flashed a big smile.</p>
 
 <p>And so, the journey continued.</p>
 
-<p>They passed through large forests and lush groves, full of mana</p>
-
-<p>beasts.</p>
+<p>They passed through large forests and lush groves, full of mana beasts.</p>
 
 <p>They were different creatures from the ones Qingyi used to encounter on the eastern continent, though very similar.</p>
 
@@ -121,9 +107,7 @@ chapter = 413
 
 <p>That was the fastest passage Belgrath could use to reach the capital.</p>
 
-<p>Since he was accompanied by an orc army, Qingyi’s officers stated</p>
-
-<p>that Belgrath would likely follow that route.</p>
+<p>Since he was accompanied by an orc army, Qingyi’s officers stated that Belgrath would likely follow that route.</p>
 
 <p>So, the army began to organize.</p>
 
@@ -145,14 +129,8 @@ chapter = 413
 
 <p>Belgrath’s armies should be no more than a hundred kilometers away.</p>
 
-<p>At the orcs’ marching speed, it shouldn’t take them more than a day</p>
+<p>At the orcs’ marching speed, it shouldn’t take them more than a day to get there.</p>
 
-<p>to get there.</p>
+<p>Qingyi’s lips parted, ready to say something. But before he could, his body froze.</p>
 
-<p>Qingyi’s lips parted, ready to say something. But before he could, his</p>
-
-<p>body froze.</p>
-
-<p>A powerful murderous intent fell upon his entire army and his lips</p>
-
-<p>parted in a broad smile. The enemy was coming.</p>
+<p>A powerful murderous intent fell upon his entire army and his lips parted in a broad smile. The enemy was coming.</p>

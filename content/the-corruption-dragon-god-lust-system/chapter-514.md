@@ -5,9 +5,7 @@ weight = 514
 chapter = 514
 +++
 
-<p>Although technically a corporate establishment, the reception areas of the Five-Color Pavilion branches almost always resembled</p>
-
-<p>restaurants.</p>
+<p>Although technically a corporate establishment, the reception areas of the Five-Color Pavilion branches almost always resembled restaurants.</p>
 
 <p>And the main branch, founded tens of thousands of years ago and carved by the Gold King himself, was no different.</p>
 
@@ -27,9 +25,7 @@ chapter = 514
 
 <p>“Come on, Father must be waiting,” Meilin said, walking alongside Qingyi toward the main hall of the Gold King’s mansion.</p>
 
-<p>Immediately after their feet stepped onto the wide white jade floors, Meilin stopped when a figure rose from the ground, immediately</p>
-
-<p>bowing to her.</p>
+<p>Immediately after their feet stepped onto the wide white jade floors, Meilin stopped when a figure rose from the ground, immediately bowing to her.</p>
 
 <p>“Young Miss Meilin… You arrived earlier than expected,” the figure said, his voice dignified, masculine, and strong.</p>
 
@@ -39,11 +35,7 @@ chapter = 514
 
 <p>“We were in a bit of a hurry, so we left Valemont early… Can Father meet us now?” Meilin flashed a gentle smile, beckoning for the shadow to stand up.</p>
 
-<p>“Hm…” The shadow seemed to think. His eyes, red dots on an</p>
-
-<p>obscured and almost non-existent face, focused on nothingness for a</p>
-
-<p>brief moment before returning to the couple.</p>
+<p>“Hm…” The shadow seemed to think. His eyes, red dots on an obscured and almost non-existent face, focused on nothingness for a brief moment before returning to the couple.</p>
 
 <p>“He’s having a meeting with an important client right now. As soon as he’s done, I’ll let you know,” the shadow said, coldly and hoarsely.</p>
 
@@ -57,13 +49,9 @@ chapter = 514
 
 <p>From the tenth brother to the first sister, everyone else only knew martial arts and cultivation; she was one of the few who truly took an interest in the family business.</p>
 
-<p>After a minute of silence, Meilin just shook her head before speaking: “Let’s go for a walk, husband. Father’s personal cook makes rice cakes</p>
+<p>After a minute of silence, Meilin just shook her head before speaking: “Let’s go for a walk, husband. Father’s personal cook makes rice cakes that are second only to Elize’s.”</p>
 
-<p>that are second only to Elize’s.”</p>
-
-<p>If she couldn’t find her father now, at least she would take advantage of this time alone with Qingyi to show him the place where she grew</p>
-
-<p>up!</p>
+<p>If she couldn’t find her father now, at least she would take advantage of this time alone with Qingyi to show him the place where she grew up!</p>
 
 <p>***</p>
 
@@ -75,45 +63,29 @@ chapter = 514
 
 <p>Even the most recent of these corpses was at least a million years old.</p>
 
-<p>This was the Cemetery of the Immortals, a region frozen in time</p>
+<p>This was the Cemetery of the Immortals, a region frozen in time where almost no one dared to set foot.</p>
 
-<p>where almost no one dared to set foot.</p>
-
-<p>Yet, in the midst of all this desolation and destruction, there were two</p>
-
-<p>people.</p>
+<p>Yet, in the midst of all this desolation and destruction, there were two people.</p>
 
 <p>Both were clearly unmatched experts.</p>
 
-<p>The first, a mana user, was a man with an aged face, clear blue eyes,</p>
+<p>The first, a mana user, was a man with an aged face, clear blue eyes, and golden hair.</p>
 
-<p>and golden hair.</p>
-
-<p>His armor was a deep silver, and on his back, he carried a long</p>
-
-<p>two-handed sword.</p>
+<p>His armor was a deep silver, and on his back, he carried a long two-handed sword.</p>
 
 <p>The second was a cultivator, even older, dressed in golden robes and carrying a gentle gaze.</p>
 
 <p>A long, sharp saber was in his right hand, while his left hand stroked his long white beard.</p>
 
-<p>“What’s the matter, old friend? Don’t you want to continue our duel?” The old man asked, swinging his blade a few times and stretching his</p>
+<p>“What’s the matter, old friend? Don’t you want to continue our duel?” The old man asked, swinging his blade a few times and stretching his limbs.</p>
 
-<p>limbs.</p>
-
-<p>“I wouldn’t mind continuing to fight for the next twenty or thirty years, but duty calls… My emperor wants war, and he shall have it,”</p>
-
-<p>the knight replied.</p>
+<p>“I wouldn’t mind continuing to fight for the next twenty or thirty years, but duty calls… My emperor wants war, and he shall have it,” the knight replied.</p>
 
 <p>“Ugh… what about those promises to take care of me until I became a bag of old, useless bones? What will a poor, abandoned old man like me do without my fighting partner?” the cultivator insisted, a miserable expression taking over his face.</p>
 
-<p>“Poor, abandoned old man? You are the father of the wife of one of</p>
+<p>“Poor, abandoned old man? You are the father of the wife of one of the richest men in the world-“</p>
 
-<p>the richest men in the world-“</p>
-
-<p>“The richest man in the world, not ‘one of,” the old man corrected the</p>
-
-<p>knight, puffing out his chest with pride.</p>
+<p>“The richest man in the world, not ‘one of,” the old man corrected the knight, puffing out his chest with pride.</p>
 
 <p>“My daughter certainly knows how to choose husbands, doesn’t she?</p>
 
@@ -123,19 +95,13 @@ chapter = 514
 
 <p>“Ask your son-in-law for a pension. Duty calls.”</p>
 
-<p>The moment that noble voice fell, the body of the knight in silver</p>
-
-<p>armor disappeared, swallowed by an explosion of light and rising into</p>
-
-<p>the heavens.</p>
+<p>The moment that noble voice fell, the body of the knight in silver armor disappeared, swallowed by an explosion of light and rising into the heavens.</p>
 
 <p>“Ugh… show-off jerk!” The old cultivator shook his head, snapping his fingers and sheathing his saber.</p>
 
 <p>Well, like it or not, that battle had already lasted too long.</p>
 
-<p>They had lived through good times, torn reality apart in a single exchange of attacks, and learned a lot from each other in almost three</p>
-
-<p>years of combat.</p>
+<p>They had lived through good times, torn reality apart in a single exchange of attacks, and learned a lot from each other in almost three years of combat.</p>
 
 <p>But even cultivators of the Astral Body Realm had limits to their stamina, especially in battles where they didn’t want to kill each other.</p>
 

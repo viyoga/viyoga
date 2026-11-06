@@ -31,9 +31,7 @@ chapter = 627
 
 <p>More than a month and a half remained. With the help of his wives and a few visits to Rou’er, he was certain he could reach the Celestial Ascension Realm without much difficulty.</p>
 
-<p>By the time Qingyi finally reached his dormitory, night had already fallen. To his surprise, Elder Shen was there, waiting in front of his</p>
-
-<p>room.</p>
+<p>By the time Qingyi finally reached his dormitory, night had already fallen. To his surprise, Elder Shen was there, waiting in front of his room.</p>
 
 <p>“Outer disciple Long Qingyi greets Elder Shen…” Qingyi bowed respectfully, clasping his fists. “To what do I owe your visit?”</p>
 
@@ -51,9 +49,7 @@ chapter = 627
 
 <p>Elder Shen took a step forward, grabbing Qingyi’s shoulders without giving him time to respond.</p>
 
-<p>“I spoke with Chen Wei and I know you’re interested in entering the</p>
-
-<p>competition to become Rouxi’s adopted son. You still need eight missions, right? Give it up and focus solely on your cultivation and on succeeding as Rou’er’s representative in the Cosmic Void Sect.”</p>
+<p>“I spoke with Chen Wei and I know you’re interested in entering the competition to become Rouxi’s adopted son. You still need eight missions, right? Give it up and focus solely on your cultivation and on succeeding as Rou’er’s representative in the Cosmic Void Sect.”</p>
 
 <p>Qingyi didn’t respond right away. His eyes grew cold.</p>
 
@@ -73,17 +69,13 @@ chapter = 627
 
 <p>What troubled the elder even more was the absence of arrogance in Qingyi’s voice.</p>
 
-<p>There was no boasting in his words, no reckless pride. He spoke as though he were simply stating a natural and well-known fact, as if</p>
-
-<p>surpassing Tianhao in three months were nothing.</p>
+<p>There was no boasting in his words, no reckless pride. He spoke as though he were simply stating a natural and well-known fact, as if surpassing Tianhao in three months were nothing.</p>
 
 <p>Qingyi watched the old man’s expression shift with a quiet smile.</p>
 
 <p>He knew he couldn’t realistically reach Tianhao’s level in such a short time without a massive source of G Lust Points, like Rou’er, but that wasn’t what he needed.</p>
 
-<p>He simply needed to grow strong enough to handle Tianhao’s assassins. After all, Tianhao was far too arrogant to face Qingyi</p>
-
-<p>himself.</p>
+<p>He simply needed to grow strong enough to handle Tianhao’s assassins. After all, Tianhao was far too arrogant to face Qingyi himself.</p>
 
 <p>In about seven months, when the selection for the Celestial Fairy Pavilion Mistress’s new adopted child began, Qingyi was certain he would already be capable of killing Tianhao with ease.</p>
 

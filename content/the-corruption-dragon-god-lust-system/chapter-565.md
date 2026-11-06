@@ -29,9 +29,7 @@ chapter = 565
 
 <p>Ninety percent of the imperial family forces had been wiped out, and the Emperor’s Hand itself, despite having withdrawn in time to avoid the battle between Qingyi and the celestial demon, had suffered terrible damage, repairs that could take decades.</p>
 
-<p>In the end, all the imperial family could do was cower behind the</p>
-
-<p>Gold King and his power.</p>
+<p>In the end, all the imperial family could do was cower behind the Gold King and his power.</p>
 
 <p>After about a month, the Enlightened imperial capital had been almost completely cleaned up.</p>
 
@@ -59,9 +57,7 @@ chapter = 565
 
 <p>After all, he was the one who died refusing to abandon the capital’s defenses, even when he could have simply fled.</p>
 
-<p>The funeral had taken place quietly a few days ago and Meilin was, at</p>
-
-<p>that very moment, in one of her mansions with her mother, still dealing with the loss of her grandfather.</p>
+<p>The funeral had taken place quietly a few days ago and Meilin was, at that very moment, in one of her mansions with her mother, still dealing with the loss of her grandfather.</p>
 
 <p>Fortunately, given the size of the Enlightened imperial capital, there were still many regions that were not as affected by the battle.</p>
 
@@ -73,9 +69,7 @@ chapter = 565
 
 <p>How could the death of a man he had known for such a short time cause him so much pain?</p>
 
-<p>In a world of immortals and transcendents, perhaps lives were so long and filled with so many deaths that some simply grew numb to such</p>
-
-<p>pain.</p>
+<p>In a world of immortals and transcendents, perhaps lives were so long and filled with so many deaths that some simply grew numb to such pain.</p>
 
 <p>But Qingyi was not one of those people.</p>
 
@@ -83,61 +77,39 @@ chapter = 565
 
 <p>Silently, the two walked through the capital under reconstruction.</p>
 
-<p>The streets, once perfect and pristine, were now potholed, with large</p>
+<p>The streets, once perfect and pristine, were now potholed, with large craters swallowing entire neighborhoods.</p>
 
-<p>craters swallowing entire neighborhoods.</p>
+<p>Soon, they reached the outskirts, far from the center, the great families, and the focus of the battles between experts.</p>
 
-<p>Soon, they reached the outskirts, far from the center, the great</p>
+<p>This had been one of the least affected areas, just east of the imperial palace.</p>
 
-<p>families, and the focus of the battles between experts.</p>
-
-<p>This had been one of the least affected areas, just east of the imperial</p>
-
-<p>palace.</p>
-
-<p>Jin Hao, who had been walking calmly, suddenly stopped. His eyes</p>
-
-<p>fixed on a small, isolated establishment.</p>
+<p>Jin Hao, who had been walking calmly, suddenly stopped. His eyes fixed on a small, isolated establishment.</p>
 
 <p>It was a corner tavern. The kind frequented by bandits and adventurers, where blood was spilled every night.</p>
 
-<p>This was one of the oldest neighborhoods in the capital, and Jin Hao remembered well that in his youth, there had been a tavern in exactly</p>
+<p>This was one of the oldest neighborhoods in the capital, and Jin Hao remembered well that in his youth, there had been a tavern in exactly that spot.</p>
 
-<p>that spot.</p>
-
-<p>Of course, that had been more than fifty thousand years ago, it wasn’t</p>
-
-<p>the same one. But still, it was close enough.</p>
+<p>Of course, that had been more than fifty thousand years ago, it wasn’t the same one. But still, it was close enough.</p>
 
 <p>“Let’s wet our throats.” Jin Hao entered the tavern.</p>
 
 <p>Painful glances fell on him and Qingyi.</p>
 
-<p>Parents who had lost their families, children who had been left alone</p>
+<p>Parents who had lost their families, children who had been left alone in the world.</p>
 
-<p>in the world.</p>
-
-<p>From teenagers to old people about to die, everyone drank there,</p>
-
-<p>trying to forget.</p>
+<p>From teenagers to old people about to die, everyone drank there, trying to forget.</p>
 
 <p>The owner himself had a bitter and distant look, still hearing in his mind the cries of despair from that night.</p>
 
-<p>He had hidden in the basement and prayed, prayed until it was all</p>
-
-<p>over.</p>
+<p>He had hidden in the basement and prayed, prayed until it was all over.</p>
 
 <p>He was one of the few survivors. All his friends and family had died.</p>
 
 <p>But life had to go on.</p>
 
-<p>Beer still needed to be served, and miserable souls still needed</p>
+<p>Beer still needed to be served, and miserable souls still needed somewhere to drown themselves.</p>
 
-<p>somewhere to drown themselves.</p>
-
-<p>Qingyi and Jin Hao sat at the counter, sliding a low-level spirit crystal</p>
-
-<p>to the old bartender.</p>
+<p>Qingyi and Jin Hao sat at the counter, sliding a low-level spirit crystal to the old bartender.</p>
 
 <p>They didn’t order any expensive liquor or refined wine.</p>
 
@@ -145,6 +117,4 @@ chapter = 565
 
 <p>Cheap and bitter.</p>
 
-<p>It perfectly matched the shadow that covered the Enlightened</p>
-
-<p>imperial capital.</p>
+<p>It perfectly matched the shadow that covered the Enlightened imperial capital.</p>

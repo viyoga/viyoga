@@ -29,9 +29,7 @@ chapter = 516
 
 <p>With a quick movement, he pulled the fish out of the water: a blue-eyed spirit carp.</p>
 
-<p>A small knife appeared in his hands, tearing open the fish’s belly and</p>
-
-<p>removing its guts and scales in a single motion. A second gesture salted the fish, which immediately went onto the grill.</p>
+<p>A small knife appeared in his hands, tearing open the fish’s belly and removing its guts and scales in a single motion. A second gesture salted the fish, which immediately went onto the grill.</p>
 
 <p>All this in less than three seconds.</p>
 
@@ -67,9 +65,7 @@ chapter = 516
 
 <p>Qingyi froze at those words, unable to find a clear answer. He had never thought about it.</p>
 
-<p>Ruling everything under the heavens naturally brought responsibilities, which he would need to shoulder in order to fulfill</p>
-
-<p>his greatest ambitions.</p>
+<p>Ruling everything under the heavens naturally brought responsibilities, which he would need to shoulder in order to fulfill his greatest ambitions.</p>
 
 <p>“What if I just appoint someone to rule in my place?” Qingyi said.</p>
 
@@ -77,13 +73,9 @@ chapter = 516
 
 <p>“That’s all it takes to corrupt a system. You must understand this if you wish to rule everything and everyone. Your eyes are the heavenly judgment; if they fail, countless innocents die.”</p>
 
-<p>The Gold King stood up, setting his rod aside as he watched Qingyi</p>
+<p>The Gold King stood up, setting his rod aside as he watched Qingyi pull in another carp.</p>
 
-<p>pull in another carp.</p>
-
-<p>With a deft movement, the young man gutted and scaled it, tossing it</p>
-
-<p>onto the grill, where Jin Hao salted it.</p>
+<p>With a deft movement, the young man gutted and scaled it, tossing it onto the grill, where Jin Hao salted it.</p>
 
 <p>“This one is ready,” the Gold King said, taking the carp he had caught earlier and placing it on a plate at a small table just in front of the grill.</p>
 
@@ -95,42 +87,28 @@ chapter = 516
 
 <p>Qingyi watched as his father-in-law stood up. The white marble beneath his feet was overtaken by a deep gold, while tiny particles, like liquid gold, rose into the air.</p>
 
-<p>“In my entire life, son-in-law, I have never seen a young man as talented as you, and I am sure that this will not change, not even in</p>
-
-<p>the Celestial Heaven.”</p>
+<p>“In my entire life, son-in-law, I have never seen a young man as talented as you, and I am sure that this will not change, not even in the Celestial Heaven.”</p>
 
 <p>The Gold King continued, his Qi falling upon Qingyi as the gold particles around them became sharp razors.</p>
 
-<p>Under the young man’s feet, the gold began to rise, sinking into his</p>
+<p>Under the young man’s feet, the gold began to rise, sinking into his skin.</p>
 
-<p>skin.</p>
-
-<p>That was the domain of the Gold King, one of the most powerful in all</p>
-
-<p>of existence.</p>
+<p>That was the domain of the Gold King, one of the most powerful in all of existence.</p>
 
 <p>“Before I give my daughter to you, I need to know.” Jin Hao took a step forward, grabbing Qingyi’s shoulders.</p>
 
 <p>All the power of an Peak Ancestral Emperor fell upon the young man.</p>
 
-<p>“Are you the man who will rule everything under the heavens, or the</p>
+<p>“Are you the man who will rule everything under the heavens, or the man who will never kneel to anyone?”</p>
 
-<p>man who will never kneel to anyone?”</p>
-
-<p>The Gold King’s voice echoed throughout the room, followed by a</p>
-
-<p>powerful tremor.</p>
+<p>The Gold King’s voice echoed throughout the room, followed by a powerful tremor.</p>
 
 <p>Qingyi’s eyes rose with an intense glow.</p>
 
-<p>“The one who will rule everything under the heavens, or the one who</p>
-
-<p>will never kneel to anyone?” Qingyi growled, moving his own Qi.</p>
+<p>“The one who will rule everything under the heavens, or the one who will never kneel to anyone?” Qingyi growled, moving his own Qi.</p>
 
 <p>“What nonsense.”</p>
 
-<p>The moment his voice echoed, the world around them seemed about</p>
-
-<p>to end. The roar of a dragon engulfed the entire royal capital as a black-scaled beast appeared on Qingyi’s back.</p>
+<p>The moment his voice echoed, the world around them seemed about to end. The roar of a dragon engulfed the entire royal capital as a black-scaled beast appeared on Qingyi’s back.</p>
 
 <p>“I will rule even the heavens themselves.”</p>

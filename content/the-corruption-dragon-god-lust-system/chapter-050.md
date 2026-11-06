@@ -111,9 +111,7 @@ chapter = 50
 
 <p>He thought inwardly, but didn’t let it show and just closed his eyes, listening to Tang Biyue’s instructions.</p>
 
-<p>“There must be two types of Qi in your Dantian, one of these Qi is that of your lightning sword spirit root, the other must be that of your bloodline,”</p>
-
-<p>she spoke, walking around Qingyi.</p>
+<p>“There must be two types of Qi in your Dantian, one of these Qi is that of your lightning sword spirit root, the other must be that of your bloodline,” she spoke, walking around Qingyi.</p>
 
 <p>“Circulate this Qi, try to spread it through the air around you while thinking of the image of the one who originated this lineage, even if you don’t know what he looks like.”</p>
 

@@ -27,9 +27,7 @@ chapter = 564
 
 <p>Love, affection and the urge to be seen and appreciated were the most primal desires a being could ever have.</p>
 
-<p>Everyone needed to tell and understand their own stories by living them fully. And stories without these aspects would be tasteless and</p>
-
-<p>bland.</p>
+<p>Everyone needed to tell and understand their own stories by living them fully. And stories without these aspects would be tasteless and bland.</p>
 
 <p>But no matter how much she wanted all of those, Noah was untrustworthy in her eyes. And Harusu decided to be alone rather than choose a man who already had more than 20 wives.</p>
 
@@ -77,19 +75,13 @@ chapter = 564
 
 <p>To add, love was a sickness of the heart. A sickness that could cause her downfall.</p>
 
-<p>Thus, Diatah Taraji Desdomona rejected love. Just like how her family</p>
+<p>Thus, Diatah Taraji Desdomona rejected love. Just like how her family had always done.</p>
 
-<p>had always done.</p>
-
-<p>Noah knew not the full picture, but his eyes and his new Subclass ‘Primordial Husband’ helped him greatly in guessing the feelings of his</p>
-
-<p>wife.</p>
+<p>Noah knew not the full picture, but his eyes and his new Subclass ‘Primordial Husband’ helped him greatly in guessing the feelings of his wife.</p>
 
 <p>He sighed faintly, deciding to be patient.</p>
 
-<p>Next he cracked his neck, exhaling through his nose, “Let’s do it,</p>
-
-<p>Providence.”</p>
+<p>Next he cracked his neck, exhaling through his nose, “Let’s do it, Providence.”</p>
 
 <p>He smiled,</p>
 
@@ -97,31 +89,21 @@ chapter = 564
 
 <p>&lt;As you wish, Husband.&gt;</p>
 
-<p>A crimson-gold light erupted from Noah’s body, the transformation</p>
-
-<p>beginning.</p>
+<p>A crimson-gold light erupted from Noah’s body, the transformation beginning.</p>
 
 <p>Now beside the ring obtained during the Lord of Harmony stage, Noah obtained a crimson-gold earring on his left ear.</p>
 
-<p>Another State appeared, being the State of Cloud, which gave him the</p>
-
-<p>ability to spread his own existence like drifting clouds through his</p>
-
-<p>subordinates.</p>
+<p>Another State appeared, being the State of Cloud, which gave him the ability to spread his own existence like drifting clouds through his subordinates.</p>
 
 <p>Another Authority was thus born.</p>
 
 <p>The Second Authority: Bestow.</p>
 
-<p>Soon enough, the transformation ended, and Noah was finally at</p>
-
-<p>Primordial level.</p>
+<p>Soon enough, the transformation ended, and Noah was finally at Primordial level.</p>
 
 <p>With that newfound power, he finally entered the Tree of Ashes hidden realm.</p>
 
-<p>High above the realm of Ashes, or according to Providence, the</p>
-
-<p>Library of Records, the sky parted away like unveiled veils, showing Noah and Diatah descending down.</p>
+<p>High above the realm of Ashes, or according to Providence, the Library of Records, the sky parted away like unveiled veils, showing Noah and Diatah descending down.</p>
 
 <p>Immediately, the women, sitting on The Tree of Ashes with faces edged by a tinge of worry, snapped their heads upward.</p>
 
@@ -133,33 +115,21 @@ chapter = 564
 
 <p>It could only be faintly perceived.</p>
 
-<p>Maryam, Light, Love and Shadow and Idalia – the last two chained</p>
-
-<p>completely – were the only ones feeling the full burn of his power thanks to their habit of being close to Primordial level, and their eyes</p>
-
-<p>went wide.</p>
+<p>Maryam, Light, Love and Shadow and Idalia – the last two chained completely – were the only ones feeling the full burn of his power thanks to their habit of being close to Primordial level, and their eyes went wide.</p>
 
 <p>However, that shock turned into dread when their eyes settled on Diatah looking down on all of them with frowned eyes. Clearly, the Desdomona’s offspring disliked what she was seeing.</p>
 
-<p>However, all of that didn’t register inside Noah’s mind. Seeing all his</p>
-
-<p>wives surrounding him with such love and affection and support, he could no longer control himself.</p>
+<p>However, all of that didn’t register inside Noah’s mind. Seeing all his wives surrounding him with such love and affection and support, he could no longer control himself.</p>
 
 <p>From their death in the Waking Universe until now, so many things happened, especially for him.</p>
 
-<p>He didn’t have time to truly take care of his wives, and show them the</p>
-
-<p>love and affection they deserved.</p>
+<p>He didn’t have time to truly take care of his wives, and show them the love and affection they deserved.</p>
 
 <p>But not anymore.</p>
 
-<p>He finally achieved Primordial level, and obtained the full authority of</p>
+<p>He finally achieved Primordial level, and obtained the full authority of the Spirit World of their Universe.</p>
 
-<p>the Spirit World of their Universe.</p>
-
-<p>With his blessing, time was meaningless – he could stop it inside his</p>
-
-<p>own realm with no problem.</p>
+<p>With his blessing, time was meaningless – he could stop it inside his own realm with no problem.</p>
 
 <p>So with all of that in mind, he gently grabbed the hand of Emmy and plastered her body into his, his eyes and voice hungry,</p>
 
@@ -169,21 +139,13 @@ chapter = 564
 
 <p>“I will not accept to be excluded from what’s about to come.”</p>
 
-<p>They giggled, and Dominique slammed her lips into Noah’s before</p>
+<p>They giggled, and Dominique slammed her lips into Noah’s before Emmy even got the time.</p>
 
-<p>Emmy even got the time.</p>
-
-<p>Justicia acted next, kissing and hugging Noah with a hunger that was</p>
-
-<p>not hers. She looked restless, afraid even, as if seeking his warmth and</p>
-
-<p>scent to forget some hurried trauma.</p>
+<p>Justicia acted next, kissing and hugging Noah with a hunger that was not hers. She looked restless, afraid even, as if seeking his warmth and scent to forget some hurried trauma.</p>
 
 <p>Noah gave her plenty and more. “Come, my darling.” He whispered to her.</p>
 
-<p>“Am I yours, Noah?” She asked suddenly, voice husky with both lust</p>
-
-<p>and hidden fear.</p>
+<p>“Am I yours, Noah?” She asked suddenly, voice husky with both lust and hidden fear.</p>
 
 <p>Noah caressed her cheeks gently, “Always.”</p>
 

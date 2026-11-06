@@ -31,9 +31,7 @@ chapter = 481
 
 <p>His nose was red, clearly broken.</p>
 
-<p>“This is going to be interesting, hehehe…” Old Lucios laughed, the long, sharp nail of his index finger tapping against the black steel of</p>
-
-<p>his throne.</p>
+<p>“This is going to be interesting, hehehe…” Old Lucios laughed, the long, sharp nail of his index finger tapping against the black steel of his throne.</p>
 
 <p>Lux took only a single moment before recovering, clutching his chest and then roaring.</p>
 
@@ -67,29 +65,17 @@ chapter = 481
 
 <p>Lux’s body spun in the air, his feet hitting the ground before he was violently thrown against the protective barrier.</p>
 
-<p>Under Qingyi’s feet, everything turned to dust, and the arrays</p>
+<p>Under Qingyi’s feet, everything turned to dust, and the arrays surrounding them shook violently.</p>
 
-<p>surrounding them shook violently.</p>
-
-<p>Even though they were able to contain most of the power shock of an Immortal Emperor like Qingyi, they still couldn’t contain it all, and</p>
-
-<p>small cracks spread across the ground.</p>
+<p>Even though they were able to contain most of the power shock of an Immortal Emperor like Qingyi, they still couldn’t contain it all, and small cracks spread across the ground.</p>
 
 <p>Mixed reactions took over the faces of all the spectators.</p>
 
-<p>Many family and faction leaders stood up from their thrones, looking</p>
+<p>Many family and faction leaders stood up from their thrones, looking at that young man with endless greed.</p>
 
-<p>at that young man with endless greed.</p>
+<p>They wanted to take him as their champion right now, brainwash him, train him, and turn him into an unmatched blade against their enemies.</p>
 
-<p>They wanted to take him as their champion right now, brainwash him,</p>
-
-<p>train him, and turn him into an unmatched blade against their</p>
-
-<p>enemies.</p>
-
-<p>But none of them dared to say anything, waiting for old Lucios’</p>
-
-<p>reaction.</p>
+<p>But none of them dared to say anything, waiting for old Lucios’ reaction.</p>
 
 <p>The guard sent by Seraphine, Viola, was no different, although now her mind was focused on something else.</p>
 
@@ -101,21 +87,15 @@ chapter = 481
 
 <p>So Viola focused on Qingyi.</p>
 
-<p>Much more handsome than Lux, with strange clothes, strange habits,</p>
-
-<p>and even a strange way of walking.</p>
+<p>Much more handsome than Lux, with strange clothes, strange habits, and even a strange way of walking.</p>
 
 <p>Still, accompanying him was extreme power.</p>
 
 <p>“Boy…” Lucios’ voice echoed, snapping Viola out of her stupor.</p>
 
-<p>“I was only looking for a champion, a warrior who would serve my</p>
+<p>“I was only looking for a champion, a warrior who would serve my family forever and who would one day ride a dragon by my side.” Lucios rose from his throne, puffing out his chest.</p>
 
-<p>family forever and who would one day ride a dragon by my side.” Lucios rose from his throne, puffing out his chest.</p>
-
-<p>Usually, they would only begin choosing their champions after the</p>
-
-<p>last battle; those were the rules.</p>
+<p>Usually, they would only begin choosing their champions after the last battle; those were the rules.</p>
 
 <p>But he couldn’t give a fuck about the rules.</p>
 
@@ -123,27 +103,17 @@ chapter = 481
 
 <p>The other eleven great families trembled at his power.</p>
 
-<p>“But I’ve changed my mind, become my apprentice-no, my godson! If</p>
-
-<p>you want, I’ll even marry you to one of my granddaughters and make you my heir!” Lucios roared, opening his arms as if to pull Qingyi into</p>
-
-<p>an embrace.</p>
+<p>“But I’ve changed my mind, become my apprentice-no, my godson! If you want, I’ll even marry you to one of my granddaughters and make you my heir!” Lucios roared, opening his arms as if to pull Qingyi into an embrace.</p>
 
 <p>Those words caused even more shock among the thrones, but no one dared to say anything.</p>
 
-<p>Qingyi thought for a moment, scratched his chin, and then shook his</p>
-
-<p>head.</p>
+<p>Qingyi thought for a moment, scratched his chin, and then shook his head.</p>
 
 <p>The smile on Lucios’ face disappeared, but he didn’t care.</p>
 
-<p>“I beg your pardon, senior, but this junior came here with the sole</p>
+<p>“I beg your pardon, senior, but this junior came here with the sole intention of serving Lady Seraphine. I will not accept any invitation that does not come from her faction.”</p>
 
-<p>intention of serving Lady Seraphine. I will not accept any invitation that does not come from her faction.”</p>
-
-<p>The shock caused by Lucios’ words was incomparable to the shock</p>
-
-<p>caused by Qingyi’s refusal.</p>
+<p>The shock caused by Lucios’ words was incomparable to the shock caused by Qingyi’s refusal.</p>
 
 <p>“What an insolent brat!”</p>
 

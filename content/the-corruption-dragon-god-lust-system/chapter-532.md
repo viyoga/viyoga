@@ -73,15 +73,11 @@ chapter = 532
 
 <p>“Dad! Linyue missed you so much! Nyan!” The cat girl exclaimed, her voice full of excitement. “Where’s Mom? Is she okay? Linyue wants to see her too!”</p>
 
-<p>Tai Ren needed a second to recover, finally remembering what it was like to have the excited silhouette of his beloved daughter around</p>
-
-<p>him.</p>
+<p>Tai Ren needed a second to recover, finally remembering what it was like to have the excited silhouette of his beloved daughter around him.</p>
 
 <p>He had missed her too.</p>
 
-<p>“Your mother is here, on our flying ship. Do you want to see her right</p>
-
-<p>now?”</p>
+<p>“Your mother is here, on our flying ship. Do you want to see her right now?”</p>
 
 <p>“Yes!”</p>
 
@@ -89,35 +85,25 @@ chapter = 532
 
 <p>“I missed you, Father…” she said, her voice almost a whisper.</p>
 
-<p>“I missed you too, dear.” Tianjin replied, placing loving hands on his daughter’s delicate shoulders, his eyes immediately focusing on</p>
-
-<p>Qingyi.</p>
+<p>“I missed you too, dear.” Tianjin replied, placing loving hands on his daughter’s delicate shoulders, his eyes immediately focusing on Qingyi.</p>
 
 <p>“Father-in-law Tianjin, Father-in-law Tai’Ren, your son-in-law greets you.” Qingyi clasped his fists, bowing gently.</p>
 
 <p>“You are stronger, son-in-law.” Tai’Ren was the first to respond.</p>
 
-<p>Linyue had already left him behind, flying toward the place where the</p>
-
-<p>cat people’s flying ship was docked.</p>
+<p>Linyue had already left him behind, flying toward the place where the cat people’s flying ship was docked.</p>
 
 <p>He approached, looking Qingyi up and down.</p>
 
-<p>Not only did he look like a complete dragon now, but even his</p>
-
-<p>cultivation had exploded, reaching the Ancestral Emperor Realm. Such cultivation speed was simply unheard of in the entire Immortal</p>
+<p>Not only did he look like a complete dragon now, but even his cultivation had exploded, reaching the Ancestral Emperor Realm. Such cultivation speed was simply unheard of in the entire Immortal</p>
 
 <p>Heaven.</p>
 
 <p>“I haven’t neglected my cultivation, father-in-law, and I see you haven’t either.” Qingyi laughed, sensing Tai’Ren’s cultivation. Hearing that, the patriarch of the cat people laughed heartily, his powerful muscles flexing beneath his robes.</p>
 
-<p>It had been so long since he had exchanged a few good punches with</p>
+<p>It had been so long since he had exchanged a few good punches with anyone.</p>
 
-<p>anyone.</p>
-
-<p>Fortunately, his son-in-law was now here, and he could make up for</p>
-
-<p>this lack!</p>
+<p>Fortunately, his son-in-law was now here, and he could make up for this lack!</p>
 
 <p>“Let’s train a little, son-in-law. Show your old man how much you’ve improved,” Tai’Ren said.</p>
 
@@ -127,28 +113,18 @@ chapter = 532
 
 <p>We can train later.”</p>
 
-<p>Tai Ren was not happy about that, but in the end, he did not insist. He</p>
-
-<p>was not a child.</p>
+<p>Tai Ren was not happy about that, but in the end, he did not insist. He was not a child.</p>
 
 <p>After a few more minutes of conversation, he left Qingyi, Qianyao, and Tianjin alone, going after his wife and daughter.</p>
 
-<p>“How is your body, father-in-law?” Qingyi asked, flashing a bitter</p>
-
-<p>smile at Tianjin.</p>
+<p>“How is your body, father-in-law?” Qingyi asked, flashing a bitter smile at Tianjin.</p>
 
 <p>Qianyao, standing beside them, shuddered but struggled to maintain her composure.</p>
 
 <p>“I’ve been better.” Tianjin flashed a bitter smile.</p>
 
-<p>He was reaching his limit, he knew that well. But honestly, he didn’t</p>
+<p>He was reaching his limit, he knew that well. But honestly, he didn’t care.</p>
 
-<p>care.</p>
+<p>His daughter was in good hands, and he had a firm connection to his real body.</p>
 
-<p>His daughter was in good hands, and he had a firm connection to his</p>
-
-<p>real body.</p>
-
-<p>Even if his avatar collapsed, he would only need to wait until Qingyi broke through the Immortal Heavens for them to meet again. “Come on in. Let’s talk more privately,” Tianjin said, motioning for</p>
-
-<p>Qingyi and his daughter to follow him into a private office surrounded by sound suppression formations.</p>
+<p>Even if his avatar collapsed, he would only need to wait until Qingyi broke through the Immortal Heavens for them to meet again. “Come on in. Let’s talk more privately,” Tianjin said, motioning for Qingyi and his daughter to follow him into a private office surrounded by sound suppression formations.</p>

@@ -29,9 +29,7 @@ chapter = 620
 
 <p>“Greetings, Senior.” Qingyi clasped his fists respectfully and, from his robes, withdrew a rolled-up scroll. “This junior is Long Qingyi, an outer disciple of the Cosmic Dawn Sect. I am here to fulfill a mission received from the sect.”</p>
 
-<p>He handed the scroll to the guard, who examined it for a brief</p>
-
-<p>moment before nodding in confirmation.</p>
+<p>He handed the scroll to the guard, who examined it for a brief moment before nodding in confirmation.</p>
 
 <p>“You are the fourth this year.” The guard returned the scroll, studying Qingyi with an appraising gaze. “Are you confident you’ll do better? I had to retrieve the last one’s corpse myself.”</p>
 
@@ -83,17 +81,13 @@ chapter = 620
 
 <p>No… it wasn’t dark.</p>
 
-<p>If it were dark, he could simply summon a flame to light it up. But even when he did so, Qingyi saw no change whatsoever in the</p>
-
-<p>environment around him.</p>
+<p>If it were dark, he could simply summon a flame to light it up. But even when he did so, Qingyi saw no change whatsoever in the environment around him.</p>
 
 <p>His sense of sight had been suppressed.</p>
 
 <p>He took a step forward and immediately regretted it.</p>
 
-<p>Thousands of small auras exploded around him as his foot sank</p>
-
-<p>slightly, and the sound of mechanisms firing filled the silence at the same time.</p>
+<p>Thousands of small auras exploded around him as his foot sank slightly, and the sound of mechanisms firing filled the silence at the same time.</p>
 
 <p>He had stepped on a trap that launched thousands of darts at him.</p>
 
@@ -105,38 +99,26 @@ chapter = 620
 
 <p>It wasn’t much, but it was clear those darts weren’t there to kill. Their purpose was simply to drain as much Qi as possible, something that would be devastatingly effective against ordinary cultivators. “No… it can’t be that simple. There must be more layers.” Qingyi didn’t take a single step further.</p>
 
-<p>Closing his eyes, he spread his senses, sending out small pulses of Qi</p>
+<p>Closing his eyes, he spread his senses, sending out small pulses of Qi in all directions.</p>
 
-<p>in all directions.</p>
-
-<p>Each pulse returned at a different angle, intensity, and time, even</p>
-
-<p>though they were all sent out at the same speed.</p>
+<p>Each pulse returned at a different angle, intensity, and time, even though they were all sent out at the same speed.</p>
 
 <p>With this, Qingyi could at least map the walls surrounding him. But there was still a problem: how to identify the traps?</p>
 
 <p>He took a step forward, his foot sinking immediately.</p>
 
-<p>A massive log plummeted toward his head shortly after, easily over a</p>
-
-<p>hundred tons propelled by a Qi cannon that launched it at such a high speed that it shattered upon impact.</p>
+<p>A massive log plummeted toward his head shortly after, easily over a hundred tons propelled by a Qi cannon that launched it at such a high speed that it shattered upon impact.</p>
 
 <p>“Fuck…” Qingyi growled, a single drop of blood slowly trickling down his forehead as his irritation grew.</p>
 
-<p>If he were an ordinary cultivator, he would have been crushed right</p>
-
-<p>there.</p>
+<p>If he were an ordinary cultivator, he would have been crushed right there.</p>
 
 <p>He read the flow of Qi carefully this time, detecting the path that seemed safest, and quickly took a step forward.</p>
 
-<p>His foot sank in again, and this time, a spear shot up from below,</p>
-
-<p>nearly decapitating his lower dragon.</p>
+<p>His foot sank in again, and this time, a spear shot up from below, nearly decapitating his lower dragon.</p>
 
 <p>Qingyi stepped back just in time, but then stepped into a new trap, and a torrent of liquid drenched him from head to toe.</p>
 
-<p>It looked like water, but it boiled at the temperature of a volcano’s</p>
-
-<p>core.</p>
+<p>It looked like water, but it boiled at the temperature of a volcano’s core.</p>
 
 <p>“Don’t fuck with me… This has to be a joke…” Qingyi whispered, soaked and steaming, unable to contain the murderous intent that was beginning to seep from his body.</p>

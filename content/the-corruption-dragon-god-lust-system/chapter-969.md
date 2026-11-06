@@ -65,9 +65,7 @@ chapter = 969
 
 <p>"Hm..." Mingzhu listened to it all in silence, closing her eyes again and nestling her face against his chest.</p>
 
-<p>"You know, a few months ago, everyone would have called you crazy for saying something like that... I think even Tianjin, in his youth, would have been called crazy for saying something like that, hahaha~"</p>
-
-<p>She laughed softly, the warm breath of her laughter brushing against his skin.</p>
+<p>"You know, a few months ago, everyone would have called you crazy for saying something like that... I think even Tianjin, in his youth, would have been called crazy for saying something like that, hahaha~" She laughed softly, the warm breath of her laughter brushing against his skin.</p>
 
 <p>"Well, that’s true." Qingyi nodded, gazing at the ceiling of his bedroom.</p>
 

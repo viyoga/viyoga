@@ -31,15 +31,11 @@ chapter = 546
 
 <p>It was only natural. The one who was supposed to be her master had created her only to die, while Qingyi had decided to spare her and erased the pain she felt.</p>
 
-<p>Since that day, there had been no more pain in the short existence of</p>
-
-<p>her consciousness and she did little more than enjoy the beauties of this world and eat delicious things with Elize.</p>
+<p>Since that day, there had been no more pain in the short existence of her consciousness and she did little more than enjoy the beauties of this world and eat delicious things with Elize.</p>
 
 <p>All of this had been thanks to that handsome young man with purple eyes, and she wanted to reward him!</p>
 
-<p>A soft tremor spread through Nianxue’s body as the bedroom door opened, revealing a young man with piercing eyes and a</p>
-
-<p>transcendental face.</p>
+<p>A soft tremor spread through Nianxue’s body as the bedroom door opened, revealing a young man with piercing eyes and a transcendental face.</p>
 
 <p>“Hello… m-master- hubby… uh…” Nianxue stammered, blushing and looking at the floor.</p>
 
@@ -67,9 +63,7 @@ chapter = 546
 
 <p>With a smooth motion, he lifted her off his lap and threw her toward the bed.</p>
 
-<p>“Ah!” A sharp squeal escaped her pink lips. Her body bounced on the soft mattress, her fat, perfect tits rippling against her delicate</p>
-
-<p>torso.</p>
+<p>“Ah!” A sharp squeal escaped her pink lips. Her body bounced on the soft mattress, her fat, perfect tits rippling against her delicate torso.</p>
 
 <p>“W-what are you, nghnnn~~ doing?” Nianxue barely had time to question as his hands flowed down to the soft skin of her thighs, forcing her legs apart.</p>
 
@@ -81,51 +75,33 @@ chapter = 546
 
 <p>“Ah… do you like that?” he asked before going down again, his tongue circling his partner’s clitoris in a quick circular motion.</p>
 
-<p>“Y-yeah… I… like that-oghnnn~~” Nianxue nodded shyly, her fingers white from the force with which she clenched her fists, each</p>
-
-<p>movement of Qingyi’s eliciting another moan from her lips.</p>
+<p>“Y-yeah… I… like that-oghnnn~~” Nianxue nodded shyly, her fingers white from the force with which she clenched her fists, each movement of Qingyi’s eliciting another moan from her lips.</p>
 
 <p>She had to admit… this was even better than Elize’s food!</p>
 
-<p>Qingyi smiled, and feeling that Nianxue was ready, finally let his tongue move upward, stopping shortly after on her slim and delicate</p>
+<p>Qingyi smiled, and feeling that Nianxue was ready, finally let his tongue move upward, stopping shortly after on her slim and delicate belly.</p>
 
-<p>belly.</p>
-
-<p>He stood up and then leaned down, pressing his lips against hers as he ripped off her dress, the sound of fabric tearing echoing through</p>
-
-<p>the room.</p>
+<p>He stood up and then leaned down, pressing his lips against hers as he ripped off her dress, the sound of fabric tearing echoing through the room.</p>
 
 <p>Nianxue responded to the kiss awkwardly, her tongue tangling with his as her legs closed around his hips.</p>
 
-<p>When they finally separated, Qingyi reached for his own pants. He unzipped the tight zipper, releasing his long, thick, throbbing lower</p>
+<p>When they finally separated, Qingyi reached for his own pants. He unzipped the tight zipper, releasing his long, thick, throbbing lower dragon.</p>
 
-<p>dragon.</p>
-
-<p>A soft snap echoed as the member, freed and already hard as steel, struck the fat, perfect lips of the virgin pussy, eliciting another moan</p>
-
-<p>from Nianxue.</p>
+<p>A soft snap echoed as the member, freed and already hard as steel, struck the fat, perfect lips of the virgin pussy, eliciting another moan from Nianxue.</p>
 
 <p>“So big… will it fit inside me?~~” she questioned, grabbing her own enormous breasts and squeezing them hard, her delighted fingers sinking into the soft, vast flesh.</p>
 
 <p>It was exactly as her older sisters had told her.</p>
 
-<p>Her eyes closed in anticipation as the young man moved, pressing the</p>
-
-<p>tip of his cock against the bluish, plump lips of her vulva.</p>
+<p>Her eyes closed in anticipation as the young man moved, pressing the tip of his cock against the bluish, plump lips of her vulva.</p>
 
 <p>He pushed forward.</p>
 
-<p>The resistance lasted only a single moment before the red, bulbous</p>
-
-<p>head entered, the walls of Nianxue’s pussy clenching desperately</p>
-
-<p>around the invading member.</p>
+<p>The resistance lasted only a single moment before the red, bulbous head entered, the walls of Nianxue’s pussy clenching desperately around the invading member.</p>
 
 <p>Qingyi paused for a moment, then pressed forward.</p>
 
-<p>His huge cock plowed its way into that tight pussy, breaking through</p>
-
-<p>the girl’s virginity and hitting the walls of her womb.</p>
+<p>His huge cock plowed its way into that tight pussy, breaking through the girl’s virginity and hitting the walls of her womb.</p>
 
 <p>“Oghnn~~ hubby~~ so nghnn~~ full…” Nianxue moaned, salivating as her body bounced with the impact of his thrusts.</p>
 

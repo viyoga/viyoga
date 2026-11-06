@@ -29,9 +29,7 @@ chapter = 607
 
 <p>In other words, he was too weak and too poor.</p>
 
-<p>He could even buy celestial spirit crystals from the system store and use them to rent a spaceship, but the crystals in the store were</p>
-
-<p>simply too expensive to be wasted like that.</p>
+<p>He could even buy celestial spirit crystals from the system store and use them to rent a spaceship, but the crystals in the store were simply too expensive to be wasted like that.</p>
 
 <p>“Ah… Ruxue, isn’t there at least one hidden treasure with billions in spirit crystals somewhere?” Qingyi sighed in defeat.</p>
 
@@ -79,23 +77,13 @@ chapter = 607
 
 <p>Was Elder Shen really bragging about him to everyone? And what about him could possibly interest the sect leader’s daughter? There were reasons for him to be interested in her, of course, but…. He was just a humble outer disciple, after all, even with his achievement in the Hidden Moonlight Secret Realm.</p>
 
-<p>A girl like her shouldn’t be interested in a man like him, even if she</p>
+<p>A girl like her shouldn’t be interested in a man like him, even if she was known for being quite eccentric.</p>
 
-<p>was known for being quite eccentric.</p>
+<p>To Qingyi, that was just a nuisance. To Zhentian, it was a great comedy show.</p>
 
-<p>To Qingyi, that was just a nuisance. To Zhentian, it was a great</p>
+<p>Zhentian himself felt a little threatened by Guo Tianhao, whose time in the secret realm had been only one hour and twenty minutes. That’s why it was so satisfying to know that Tianhao had been surpassed, especially by such a wide margin.</p>
 
-<p>comedy show.</p>
-
-<p>Zhentian himself felt a little threatened by Guo Tianhao, whose time</p>
-
-<p>in the secret realm had been only one hour and twenty minutes. That’s why it was so satisfying to know that Tianhao had been surpassed, especially by such a wide margin.</p>
-
-<p>“Your perception must be absurd to complete the Hidden Moonlight Secret Realm in just five minutes… When it was my turn, I thought I really wouldn’t even be able to get past that damn iron door.” Zhentian muttered, motioning for the other disciples to follow him. There was a vice-captain in the group, also an inner disciple and the</p>
-
-<p>one responsible for piloting the ship, but it was Qingyi who stayed by his side as he claimed the mission and then began walking toward the</p>
-
-<p>spaceship.</p>
+<p>“Your perception must be absurd to complete the Hidden Moonlight Secret Realm in just five minutes… When it was my turn, I thought I really wouldn’t even be able to get past that damn iron door.” Zhentian muttered, motioning for the other disciples to follow him. There was a vice-captain in the group, also an inner disciple and the one responsible for piloting the ship, but it was Qingyi who stayed by his side as he claimed the mission and then began walking toward the spaceship.</p>
 
 <p>Although he wasn’t as wealthy as Guo Tianhao, Han Zhentian came from an extremely wealthy family and even had an uncle who was a sect elder, so he never lacked for money.</p>
 

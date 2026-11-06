@@ -31,9 +31,7 @@ chapter = 533
 
 <p>He knew the Heavenly Demon very well. He had even crossed blades with him in the past and led an expedition to try to kill him.</p>
 
-<p>“There are nearly a thousand demon seeds in the imperial capital</p>
-
-<p>alone and both the Rose Emperor and the Emperor and Empress of the Enlightened Empire are corrupt.</p>
+<p>“There are nearly a thousand demon seeds in the imperial capital alone and both the Rose Emperor and the Emperor and Empress of the Enlightened Empire are corrupt.</p>
 
 <p>I don’t know what that bastard wants here, but I know it has something to do with uniting Mana and Qi.”</p>
 
@@ -75,13 +73,9 @@ chapter = 533
 
 <p>“Qingyi… Son-in-law… You must stop the Heavenly Demon at all costs. Your body is the key to great power, and he will not give up on it.”</p>
 
-<p>Qingyi listened to those words seriously, strengthening his</p>
+<p>Qingyi listened to those words seriously, strengthening his determination and nodding.</p>
 
-<p>determination and nodding.</p>
-
-<p>So the Seed of Primordial Creation came from the soul of the creator</p>
-
-<p>of everything…</p>
+<p>So the Seed of Primordial Creation came from the soul of the creator of everything…</p>
 
 <p>That answered many of his questions, but…</p>
 
@@ -91,13 +85,9 @@ chapter = 533
 
 <p>“What do you think will become of us?” A voice echoed in a land not far away. It was old and ethereal, clearly tired.</p>
 
-<p>“I don’t know, Ancient Matriarch. If we recover the Tree of Life, then maybe…” Another voice sounded. This time younger, soft, sweet, and</p>
+<p>“I don’t know, Ancient Matriarch. If we recover the Tree of Life, then maybe…” Another voice sounded. This time younger, soft, sweet, and calm.</p>
 
-<p>calm.</p>
-
-<p>The owner of this voice was Hu Lanyin, the Black Fox, Grand Master of the fox people, who ruled that people in the absence of the current</p>
-
-<p>matriarch.</p>
+<p>The owner of this voice was Hu Lanyin, the Black Fox, Grand Master of the fox people, who ruled that people in the absence of the current matriarch.</p>
 
 <p>The other voice, aged, came not from a person, but from a projection on one of the many roots that cut through the land of the fox people.</p>
 
@@ -107,25 +97,17 @@ chapter = 533
 
 <p>Now, she had almost completely merged with the Tree of Life.</p>
 
-<p>Of course, with demonic power dominating the roots of the tree, she</p>
+<p>Of course, with demonic power dominating the roots of the tree, she could only hide, her ancestral power extremely limited.</p>
 
-<p>could only hide, her ancestral power extremely limited.</p>
-
-<p>Once, before the demonic seed was planted, she could even cure</p>
-
-<p>death. Unfortunately, those days were gone.</p>
+<p>Once, before the demonic seed was planted, she could even cure death. Unfortunately, those days were gone.</p>
 
 <p>“Yes…” The Ancient Matriarch whispered. “If we could heal the Tree of Life, everything would be fine. We could use it to give birth to new children and heal the corruption that afflicts our people, but…</p>
 
-<p>“What a foolish and forgotten dream… Your sister should just leave,</p>
-
-<p>leaving our doomed souls behind.”</p>
+<p>“What a foolish and forgotten dream… Your sister should just leave, leaving our doomed souls behind.”</p>
 
 <p>“She should.” Lanyin nodded.</p>
 
-<p>She did not disagree with the Old Matriarch’s words; she knew well</p>
-
-<p>that it was the truth.</p>
+<p>She did not disagree with the Old Matriarch’s words; she knew well that it was the truth.</p>
 
 <p>They were doomed.</p>
 
@@ -139,21 +121,15 @@ chapter = 533
 
 <p>The Ancient Matriarch’s voice died suddenly.</p>
 
-<p>There was a second of silence before she continued, serious and</p>
+<p>There was a second of silence before she continued, serious and composed: “We have visitors.”</p>
 
-<p>composed: “We have visitors.”</p>
-
-<p>“Visitors? What visitors?” Lanyin turned her face slightly, but received</p>
-
-<p>no answer.</p>
+<p>“Visitors? What visitors?” Lanyin turned her face slightly, but received no answer.</p>
 
 <p>Giving up on insisting, she simply left her room, hearing a commotion outside the fox people’s land.</p>
 
 <p>There, above all, she saw a familiar yet different figure.</p>
 
-<p>The pure white robes were nowhere to be seen, replaced by deep</p>
-
-<p>black robes.</p>
+<p>The pure white robes were nowhere to be seen, replaced by deep black robes.</p>
 
 <p>The eyes, once dark, were now purple, like an endless sea of stars.</p>
 
@@ -163,14 +139,10 @@ chapter = 533
 
 <p>Lanyin covered her lips in shock.</p>
 
-<p>That was the young dragon who had visited them in the past… He was</p>
-
-<p>already back, and so powerful….</p>
+<p>That was the young dragon who had visited them in the past… He was already back, and so powerful….</p>
 
 <p>How?</p>
 
-<p>She placed her hand on her own chest, her fingers sinking into the</p>
-
-<p>vast, soft mountains.</p>
+<p>She placed her hand on her own chest, her fingers sinking into the vast, soft mountains.</p>
 
 <p>Her eyes weren’t lying to her, were they?</p>

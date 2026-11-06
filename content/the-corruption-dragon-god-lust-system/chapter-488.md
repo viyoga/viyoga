@@ -63,15 +63,11 @@ chapter = 488
 
 <p>Other than that, she was already a respected powerhouse.</p>
 
-<p>With a sigh, Qingyi just continued to walk silently through the</p>
-
-<p>temple, arriving at the woods at the back.</p>
+<p>With a sigh, Qingyi just continued to walk silently through the temple, arriving at the woods at the back.</p>
 
 <p>Next to the hot springs, he saw a figure lying in an open area.</p>
 
-<p>Her voluptuous body was bathed in sunlight, covered by nothing but</p>
-
-<p>a tiny bikini, her tanned skin glistening slightly with sweat.</p>
+<p>Her voluptuous body was bathed in sunlight, covered by nothing but a tiny bikini, her tanned skin glistening slightly with sweat.</p>
 
 <p>It was Feiyan, her eyes tightly closed as she relaxed.</p>
 
@@ -89,9 +85,7 @@ chapter = 488
 
 <p>In response, Qingyi just gave that fat, creamy, tanned ass a firm slap, feeling the round, perfect cheeks ripple violently under his fingers.</p>
 
-<p>The two bodies pulled apart for a brief moment, and Qingyi’s fingers</p>
-
-<p>sank into Feiyan’s wide hips as their eyes met.</p>
+<p>The two bodies pulled apart for a brief moment, and Qingyi’s fingers sank into Feiyan’s wide hips as their eyes met.</p>
 
 <p>There was something different about her…</p>
 
@@ -99,17 +93,13 @@ chapter = 488
 
 <p>She was still his Feiyan, but still, totally different.</p>
 
-<p>He moved one of his hands down slightly, pulling the thong that sank between the fat, pale lips of her vulva before sticking his thumb into</p>
-
-<p>the hot, wet valley.</p>
+<p>He moved one of his hands down slightly, pulling the thong that sank between the fat, pale lips of her vulva before sticking his thumb into the hot, wet valley.</p>
 
 <p>“Aghnnn~~” Feiyan moaned, her whole body trembling as she leaned on Qingyi’s shoulders, her fingers digging into his skin.</p>
 
 <p>Her body shivered with excitement as her plump, red lips parted in a sensual smile.</p>
 
-<p>“Hubby noticed, right? I’ve made great progress recently, fufufu~~”</p>
-
-<p>Feiyan purred.</p>
+<p>“Hubby noticed, right? I’ve made great progress recently, fufufu~~” Feiyan purred.</p>
 
 <p>Her words prompted Qingyi to open her status screen.</p>
 
@@ -147,12 +137,8 @@ chapter = 488
 
 <p>But… what the heck is an original-grade alchemist?</p>
 
-<p>Qingyi had no idea, and apparently, Feiyan herself didn’t know much</p>
+<p>Qingyi had no idea, and apparently, Feiyan herself didn’t know much about it either.</p>
 
-<p>about it either.</p>
-
-<p>She knew that her alchemical abilities had exploded, but in the end,</p>
-
-<p>she was still from the mortal realm.</p>
+<p>She knew that her alchemical abilities had exploded, but in the end, she was still from the mortal realm.</p>
 
 <p>Such a level of alchemy didn’t exist there.</p>

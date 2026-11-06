@@ -31,9 +31,7 @@ chapter = 448
 
 <p>It was Khaedryss.</p>
 
-<p>Her body was already over seventy meters long, and between her</p>
-
-<p>sharp claws, she carried the carcass of a giant bull with green horns, one of the tastiest types of spirit beasts.</p>
+<p>Her body was already over seventy meters long, and between her sharp claws, she carried the carcass of a giant bull with green horns, one of the tastiest types of spirit beasts.</p>
 
 <p>She turned her powerful body toward the temple door, where Qingyi stood next to Celestia and Ruxue.</p>
 
@@ -81,31 +79,21 @@ chapter = 448
 
 <p>Were all of Qingyi’s wives this open?</p>
 
-<p>She closed her eyes, bringing her hand to her chest and whispering a</p>
-
-<p>quick prayer in the name of Auranys.</p>
+<p>She closed her eyes, bringing her hand to her chest and whispering a quick prayer in the name of Auranys.</p>
 
 <p>In the end, she could only give in, a sweet and embarrassed voice echoing from her lips: “Yes… hubby’s cock is delicious…”</p>
 
-<p>“Hehehe~~ it’s good that we agree on something. Come on, Elize is</p>
-
-<p>already starting to prepare dinner.</p>
+<p>“Hehehe~~ it’s good that we agree on something. Come on, Elize is already starting to prepare dinner.</p>
 
 <p>Celestia’s eyes fell on Khaedryss.</p>
 
-<p>The beast didn’t seem very interested in them and soon lay down on</p>
+<p>The beast didn’t seem very interested in them and soon lay down on the ground, closing her eyes as her hot breath made the green grass below scorch.</p>
 
-<p>the ground, closing her eyes as her hot breath made the green grass below scorch.</p>
-
-<p>“Let’s go.” Qingyi picked up the bull that Khaedryss had dropped on</p>
-
-<p>the ground.</p>
+<p>“Let’s go.” Qingyi picked up the bull that Khaedryss had dropped on the ground.</p>
 
 <p>The beast weighing over ten tons felt strangely light in his hands, at least until he entered the central courtyard of the temple and the eyes of the many lightning priestesses fell on him.</p>
 
-<p>As always, they were training under the supervision of Yunfei and</p>
-
-<p>Yueli.</p>
+<p>As always, they were training under the supervision of Yunfei and Yueli.</p>
 
 <p>Although the two did not believe they had much more to teach their sisters, they still tried their best, maintaining a daily training routine. All of them were in the False Immortal Realm, and the moment they saw Qingyi, their swords fell to the ground.</p>
 
@@ -115,18 +103,12 @@ chapter = 448
 
 <p>Of course, no one there cared much about that.</p>
 
-<p>It had been a while since Qingyi had paid them any attention, and</p>
+<p>It had been a while since Qingyi had paid them any attention, and they were all absolutely thirsty.</p>
 
-<p>they were all absolutely thirsty.</p>
-
-<p>Even Yunfei and Yueli, who were trying to scold their sisters, ended</p>
-
-<p>up gathering around Qingyi.</p>
+<p>Even Yunfei and Yueli, who were trying to scold their sisters, ended up gathering around Qingyi.</p>
 
 <p>“Are they always this… excited?” Celestia asked, watching Qingyi’s many other wives notice their husband’s arrival.</p>
 
-<p>“Well… only when their husband is here. I guess no matter how old</p>
-
-<p>they get, they’ll always be a bunch of naughty little brats.” Ruxue shook her head, a bitter smile playing on her full, purple lips.</p>
+<p>“Well… only when their husband is here. I guess no matter how old they get, they’ll always be a bunch of naughty little brats.” Ruxue shook her head, a bitter smile playing on her full, purple lips.</p>
 
 <p>“Just like this little kitten and that naughty little fox…” Ruxue reached out and gently stroked Linyue’s head, watching as Xueyao approached, her fluffy tail wagging excitedly. Their hubby was back, and everyone was happy.</p>

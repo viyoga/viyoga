@@ -29,9 +29,7 @@ chapter = 645
 
 <p>He looked up, meeting Tianhao’s gaze.</p>
 
-<p>The young master of the Guo family had always wanted to see Rou’er’s face. But she rarely revealed it, always refusing his requests,</p>
-
-<p>so all he could do was brood in frustration.</p>
+<p>The young master of the Guo family had always wanted to see Rou’er’s face. But she rarely revealed it, always refusing his requests, so all he could do was brood in frustration.</p>
 
 <p>Today was supposed to be a happy day. The day he could finally appreciate the beauty of his beloved.</p>
 
@@ -77,9 +75,7 @@ chapter = 645
 
 <p>A cultivator at the peak of the Stellar Sovereign realm.</p>
 
-<p>Seated on his throne, his eyes opened only when a man with firm</p>
-
-<p>features and a stern gaze appeared before him.</p>
+<p>Seated on his throne, his eyes opened only when a man with firm features and a stern gaze appeared before him.</p>
 
 <p>“Have you received news from the Cosmic Dawn Sect?” The leader leaned forward slightly.</p>
 
@@ -89,15 +85,11 @@ chapter = 645
 
 <p>A single thought, and the leader could kill thousands like him.</p>
 
-<p>“Yes, my lord. The Cosmic Dawn Sect sent Rou’er here, but… there is something strange. It is not their young prodigy, Tianhao, who is representing them, but rather a young black dragon. Long Qingyi.” “Huh?” The Cosmic Void Sect leader’s expression changed. Many of the great sects in that region sent their young disciples to</p>
-
-<p>the secret realm every few decades. For disciples without combat power, it was common to send them with representatives. Sometimes powerful, sometimes weak.</p>
+<p>“Yes, my lord. The Cosmic Dawn Sect sent Rou’er here, but… there is something strange. It is not their young prodigy, Tianhao, who is representing them, but rather a young black dragon. Long Qingyi.” “Huh?” The Cosmic Void Sect leader’s expression changed. Many of the great sects in that region sent their young disciples to the secret realm every few decades. For disciples without combat power, it was common to send them with representatives. Sometimes powerful, sometimes weak.</p>
 
 <p>But a person like Rou’er, represented by some random disciple instead of the generation’s greatest talent? Was the leader of the Cosmic Dawn Sect out of his mind?</p>
 
-<p>“Even if she fails the selection and doesn’t participate in the first phase, she must participate in the second. At any cost, do you</p>
-
-<p>understand?</p>
+<p>“Even if she fails the selection and doesn’t participate in the first phase, she must participate in the second. At any cost, do you understand?</p>
 
 <p>Kill everyone and make it look like we gave her the spot because of this, if necessary. We cannot fail at this!”</p>
 
@@ -117,16 +109,10 @@ chapter = 645
 
 <p>That was the thought that shook him the most.</p>
 
-<p>He didn’t know what rewards he would receive for this service. But he</p>
+<p>He didn’t know what rewards he would receive for this service. But he knew that voice did not belong to a being of the Celestial Heaven.</p>
 
-<p>knew that voice did not belong to a being of the Celestial Heaven.</p>
+<p>He had seen a celestial emperor from afar once. They were terrifying, but they barely seemed to possess a fraction of a fraction of the power carried by that voice.</p>
 
-<p>He had seen a celestial emperor from afar once. They were terrifying,</p>
-
-<p>but they barely seemed to possess a fraction of a fraction of the power carried by that voice.</p>
-
-<p>Whatever that girl’s origin, whatever her family’s true power, he knew</p>
-
-<p>one thing.</p>
+<p>Whatever that girl’s origin, whatever her family’s true power, he knew one thing.</p>
 
 <p>They were terrifying.</p>

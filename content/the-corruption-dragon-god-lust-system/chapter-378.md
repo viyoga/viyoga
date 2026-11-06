@@ -23,9 +23,7 @@ chapter = 378
 
 <p>The girls in the temple were obviously happy with such an improvement, abandoning their chores to go cultivate.</p>
 
-<p>“And that’s not all… with the mind world, I can speed up the growth of spirit herbs and spirit beasts even more, as well as extending the size of the mind world even further,”</p>
-
-<p>Ruxue spoke, taking to the skies, floating a few hundred meters off the ground.</p>
+<p>“And that’s not all… with the mind world, I can speed up the growth of spirit herbs and spirit beasts even more, as well as extending the size of the mind world even further,” Ruxue spoke, taking to the skies, floating a few hundred meters off the ground.</p>
 
 <p>Qingyi only smiled at the sight, also flying to catch up with her, observing the sparkle in her eyes. It was rare to see that arrogant voluptuous spirit so excited about something.</p>
 
@@ -51,33 +49,21 @@ chapter = 378
 
 <p>While Qingyi looked at the prices, Ruxue took care of making the new modifications to the world of the mind, creating invisible divisions and barriers, expanding it a little more and separating a forest area of more than five thousand square kilometers just for the spirit beasts. After a short moment, Qingyi just sighed.</p>
 
-<p>The average price of a spirit beast in the Ascension Realm was five</p>
-
-<p>million lust points.</p>
+<p>The average price of a spirit beast in the Ascension Realm was five million lust points.</p>
 
 <p>Of course, this was the price of a wild spirit beast that couldn’t be tamed in any way; those that could be tamed were way more expensive.</p>
 
-<p>Thinking for a brief moment, Qingyi spent around ten billion lust points, buying just over a thousand spirit beasts of varying rarity and</p>
-
-<p>power.</p>
+<p>Thinking for a brief moment, Qingyi spent around ten billion lust points, buying just over a thousand spirit beasts of varying rarity and power.</p>
 
 <p>Reaching the skies, in the region separated by Ruxue, he stretched out a single hand.</p>
 
 <p>The next moment, a blinding light engulfed him, like a portal to hell. A sea of beasts rained down on the earth.</p>
 
-<p>From giant horned boars to fake dragons and ice eagles, all the beasts fell to the forest floor, running around confusedly, some already</p>
+<p>From giant horned boars to fake dragons and ice eagles, all the beasts fell to the forest floor, running around confusedly, some already engaged in battle.</p>
 
-<p>engaged in battle.</p>
+<p>Fortunately, they were too confused to kill each other and soon spread out through the forest, some even hitting the invisible barriers created by Ruxue.</p>
 
-<p>Fortunately, they were too confused to kill each other and soon</p>
-
-<p>spread out through the forest, some even hitting the invisible barriers</p>
-
-<p>created by Ruxue.</p>
-
-<p>After a short moment, Ruxue appeared at Qingyi’s side, embracing</p>
-
-<p>him lovingly, pressing her face against his powerful chest.</p>
+<p>After a short moment, Ruxue appeared at Qingyi’s side, embracing him lovingly, pressing her face against his powerful chest.</p>
 
 <p>“I’ll prepare the arrays to speed up their growth soon. It’s good to give them time to multiply before releasing Khaedryss here…” She murmured, her voice mature and sensual.</p>
 
@@ -95,8 +81,6 @@ chapter = 378
 
 <p>His sword was much stronger, just as he himself was much stronger.</p>
 
-<p>From what he had heard about the fox people’s blessing, it was something that could also bring wonderful gains so, naturally, Qingyi</p>
-
-<p>was excited.</p>
+<p>From what he had heard about the fox people’s blessing, it was something that could also bring wonderful gains so, naturally, Qingyi was excited.</p>
 
 <p>“Ah… tomorrow’s going to be a busy day,” he muttered, sitting down cross-legged.</p>

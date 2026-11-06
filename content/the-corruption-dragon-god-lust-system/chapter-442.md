@@ -61,9 +61,7 @@ chapter = 442
 
 <p>Qingyi barely knew this woman, but he already loved every bit of her. He sucked a little harder, wrapping his tongue around one of her pink nipples and feeling a soft gush of milk invade his lips.</p>
 
-<p>“Mghnn~~ chosen hero… I-is that… milk?” Celestia moaned, clinging</p>
-
-<p>to Qingyi’s head for support.</p>
+<p>“Mghnn~~ chosen hero… I-is that… milk?” Celestia moaned, clinging to Qingyi’s head for support.</p>
 
 <p>Her hips instinctively rose, Qingyi’s cock sliding between the plump, perfect cheeks of her ass, using her own sweat as lubricant.</p>
 
@@ -77,59 +75,35 @@ chapter = 442
 
 <p>“Ghghnn~~”</p>
 
-<p>A moan echoed, muffled and confused, Celestia’s lips parting and Qingyi’s tongue entering the inside of her mouth, tasting her</p>
+<p>A moan echoed, muffled and confused, Celestia’s lips parting and Qingyi’s tongue entering the inside of her mouth, tasting her delicious flavor.</p>
 
-<p>delicious flavor.</p>
-
-<p>Clumsily and inexperienced, she tried to respond to the kiss, her</p>
-
-<p>whole body trembling as a second slap landed on her ample ass,</p>
-
-<p>Qingyi’s fingers gripping tightly.</p>
+<p>Clumsily and inexperienced, she tried to respond to the kiss, her whole body trembling as a second slap landed on her ample ass, Qingyi’s fingers gripping tightly.</p>
 
 <p>Slowly, their tongues swirled around each other, tasting the maximum of each other’s nectar until Qingyi pulled back.</p>
 
-<p>Celestia’s tongue escaped her lips, following Qingyi’s until the thin,</p>
+<p>Celestia’s tongue escaped her lips, following Qingyi’s until the thin, sweet thread of saliva separating them broke.</p>
 
-<p>sweet thread of saliva separating them broke.</p>
+<p>She stood there, that lascivious expression on her face: burning eyes, flushed cheeks, and, accompanying her heavy breathing, her tongue hanging out of her lips.</p>
 
-<p>She stood there, that lascivious expression on her face: burning eyes, flushed cheeks, and, accompanying her heavy breathing, her tongue</p>
-
-<p>hanging out of her lips.</p>
-
-<p>“Don’t call me the chosen hero…” Qingyi said, enjoying the view. “Call</p>
-
-<p>me hubby.”</p>
+<p>“Don’t call me the chosen hero…” Qingyi said, enjoying the view. “Call me hubby.”</p>
 
 <p>“H-hubby?” Celestia repeated, her voice almost a moan.</p>
 
 <p>“Yes..”</p>
 
-<p>Qingyi made her kneel above him, aligning his cock with her fat,</p>
-
-<p>perfect pussy.</p>
+<p>Qingyi made her kneel above him, aligning his cock with her fat, perfect pussy.</p>
 
 <p>He moved a strand of curly golden hair from her face, the tip of his cock already pressing against Celestia’s pussy, the pale, fat lips of her vulva gently squeezed by the pressure.</p>
 
-<p>She continued to leak nonstop, already soaking Qingyi’s cock with her</p>
+<p>She continued to leak nonstop, already soaking Qingyi’s cock with her love juices.</p>
 
-<p>love juices.</p>
+<p>“Now, tell me… do you want your hubby to fuck your plump, tight little pussy, just like he’s going to do to your goddess and all your other sisters?”</p>
 
-<p>“Now, tell me… do you want your hubby to fuck your plump, tight little pussy, just like he’s going to do to your goddess and all your</p>
-
-<p>other sisters?”</p>
-
-<p>For any other member of the clergy, Qingyi’s words would be treated</p>
-
-<p>as the most absolute blasphemy, and even in the slightest case, he</p>
-
-<p>would be persecuted eternally by the church.</p>
+<p>For any other member of the clergy, Qingyi’s words would be treated as the most absolute blasphemy, and even in the slightest case, he would be persecuted eternally by the church.</p>
 
 <p>But not for Celestia.</p>
 
-<p>In her pure and naive mind, clouded by corruption, it was the most</p>
-
-<p>natural thing in the world.</p>
+<p>In her pure and naive mind, clouded by corruption, it was the most natural thing in the world.</p>
 
 <p>Qingyi was the hero chosen by prophecy. He had the right to fuck her, just as he had the right to fuck Auranys.</p>
 

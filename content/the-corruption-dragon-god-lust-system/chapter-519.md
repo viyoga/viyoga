@@ -49,13 +49,9 @@ chapter = 519
 
 <p>“Hm… I’m really no different…” Qingyi relaxed as he received Meilin’s blowjob. That little mouth was almost as good as her ass, almost… ‘Ruxue… is everything okay?’ Qingyi asked mentally. His hand flowed to Meilin’s head, caressing her hair carefully.</p>
 
-<p>[More than okay, fufufu~~] Ruxue’s laughter echoed in Qingyi’s mind,</p>
+<p>[More than okay, fufufu~~] Ruxue’s laughter echoed in Qingyi’s mind, full of excitement.</p>
 
-<p>full of excitement.</p>
-
-<p>[The world of the mind is complete, and my power has increased even more… Even in the Celestial Heaven, my metal must be</p>
-
-<p>unmatched!] Ruxue laughed again.</p>
+<p>[The world of the mind is complete, and my power has increased even more… Even in the Celestial Heaven, my metal must be unmatched!] Ruxue laughed again.</p>
 
 <p>Qingyi couldn’t see her, but he imagined she would be dancing alone at this very moment.</p>
 
@@ -71,58 +67,34 @@ chapter = 519
 
 <p>Slowly, Qingyi’s eyes drifted down to Meilin.</p>
 
-<p>Her movements were getting faster and faster, and the suction force</p>
+<p>Her movements were getting faster and faster, and the suction force in her mouth became even more powerful as she struggled to milk every last drop from him.</p>
 
-<p>in her mouth became even more powerful as she struggled to milk</p>
+<p>Her dark eyes rose, misty and full of desire as a small pool of love juices formed between her legs.</p>
 
-<p>every last drop from him.</p>
-
-<p>Her dark eyes rose, misty and full of desire as a small pool of love</p>
-
-<p>juices formed between her legs.</p>
-
-<p>She closed her eyes, feeling the pressure build and Qingyi’s cock</p>
-
-<p>throb with increasing force.</p>
+<p>She closed her eyes, feeling the pressure build and Qingyi’s cock throb with increasing force.</p>
 
 <p>She could feel it; it was coming, it was so close.</p>
 
-<p>Suddenly, Meilin froze. Her eyes widened as a flood of hot, sticky cum</p>
+<p>Suddenly, Meilin froze. Her eyes widened as a flood of hot, sticky cum invaded her mouth.</p>
 
-<p>invaded her mouth.</p>
+<p>“Nghnn~~ gulp~~ gulp~~ gulp~~” Her delicate throat worked incessantly, greedy gulps going down her esophagus as a single pearly string escaped her lips.</p>
 
-<p>“Nghnn~~ gulp~~ gulp~~ gulp~~” Her delicate throat worked incessantly, greedy gulps going down her esophagus as a single pearly</p>
+<p>“Ah…” Meilin’s lips parted as the last gulp went down, and Qingyi’s cock finally escaped the grip of her mouth.</p>
 
-<p>string escaped her lips.</p>
-
-<p>“Ah…” Meilin’s lips parted as the last gulp went down, and Qingyi’s</p>
-
-<p>cock finally escaped the grip of her mouth.</p>
-
-<p>“Hm… hubby had so much today~~” She smiled. Her index finger traced the string of cum dripping down her chin, collecting the sperm</p>
-
-<p>to bring it to her tongue.</p>
+<p>“Hm… hubby had so much today~~” She smiled. Her index finger traced the string of cum dripping down her chin, collecting the sperm to bring it to her tongue.</p>
 
 <p>“Delicious as always-aghnn!~~” Meilin’s voice was interrupted by a sharp clap as Qingyi pulled her up, slapping her ass.</p>
 
-<p>“Don’t you think you’re spending too much time with Feiyan? You’re turning into a pervert just like her…” Qingyi whispered, hugging her</p>
-
-<p>tightly.</p>
+<p>“Don’t you think you’re spending too much time with Feiyan? You’re turning into a pervert just like her…” Qingyi whispered, hugging her tightly.</p>
 
 <p>“Ghnn~~ you made me a pervert like this, not big sister Feiyan… take responsibility for all this naughtiness!” Meilin demanded, puffing out her chest and eliciting a sigh from Qingyi.</p>
 
 <p>She wasn’t wrong; he was responsible for making her this way.</p>
 
-<p>“Ah… where is your cultivation room? I think I’m ready to reach the</p>
+<p>“Ah… where is your cultivation room? I think I’m ready to reach the realm of the ancient emperor.”</p>
 
-<p>realm of the ancient emperor.”</p>
+<p>Honestly, he had already regretted not having made this breakthrough earlier.</p>
 
-<p>Honestly, he had already regretted not having made this</p>
-
-<p>breakthrough earlier.</p>
-
-<p>He was dying of anxiety at the thought of what his domain might</p>
-
-<p>possibly be.</p>
+<p>He was dying of anxiety at the thought of what his domain might possibly be.</p>
 
 <p>Hearing Qingyi’s words, Meilin nodded, waiting for all the girls to leave the mind world before guiding Qingyi to her cultivation room. After all, while Qingyi was cultivating, they might as well start planning the wedding.</p>

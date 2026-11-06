@@ -57,17 +57,13 @@ chapter = 670
 
 <p>“If your sons fail, we’ll have to rely solely on the numbers. You know what that means, don’t you?” The demon’s eyes grew cold, and Lingyun shuddered.</p>
 
-<p>His capital planet had a colossal population. As a totally urbanized</p>
-
-<p>world, it numbered over nine hundred billion inhabitants.</p>
+<p>His capital planet had a colossal population. As a totally urbanized world, it numbered over nine hundred billion inhabitants.</p>
 
 <p>So many souls… even if a considerable portion were mortal, it would likely be more than enough for the sacrifice.</p>
 
 <p>It was obvious that sacrificing his planet caused him pain. How could it not?</p>
 
-<p>His family had fought for tens of thousands of years, eliminating and subjugating countless rival families and even escaping the</p>
-
-<p>expansionist ambitions of a powerful sect once.</p>
+<p>His family had fought for tens of thousands of years, eliminating and subjugating countless rival families and even escaping the expansionist ambitions of a powerful sect once.</p>
 
 <p>All that work would be reduced to nothing, but it was necessary.</p>
 
@@ -79,35 +75,21 @@ chapter = 670
 
 <p>She would be his, he was sure of it!</p>
 
-<p>What else could happen? Someone stealing her right from under his</p>
-
-<p>nose?</p>
+<p>What else could happen? Someone stealing her right from under his nose?</p>
 
 <p>“And the man who killed my son?” Lingyun asked through clenched teeth.</p>
 
-<p>He wasn’t exactly saddened by Longwei’s death, since he could have another son at any time, but still, as a father, he couldn’t help but feel</p>
+<p>He wasn’t exactly saddened by Longwei’s death, since he could have another son at any time, but still, as a father, he couldn’t help but feel a slight irritation.</p>
 
-<p>a slight irritation.</p>
-
-<p>He had given up a lot for the boy and for the chance to marry him to Xue Hua, to win her over as the sacrifice that would bring glory to his</p>
-
-<p>family.</p>
+<p>He had given up a lot for the boy and for the chance to marry him to Xue Hua, to win her over as the sacrifice that would bring glory to his family.</p>
 
 <p>Now, with Longwei dead, it had all been a waste.</p>
 
-<p>“Hm… I’m not sure about that.” The demon scratched his chin, closing</p>
+<p>“Hm… I’m not sure about that.” The demon scratched his chin, closing his eyes and activating his reading ability.</p>
 
-<p>his eyes and activating his reading ability.</p>
+<p>It should have been just some random young talent, or perhaps a stroke of bad luck. But the moment he saw the karmas related to Longwei’s death, four in total, he shuddered.</p>
 
-<p>It should have been just some random young talent, or perhaps a</p>
-
-<p>stroke of bad luck. But the moment he saw the karmas related to</p>
-
-<p>Longwei’s death, four in total, he shuddered.</p>
-
-<p>His eyes widened. A mouthful of blood rose up his throat and trickled from the corner of his mouth as he fell to his knees, gasping for</p>
-
-<p>breath.</p>
+<p>His eyes widened. A mouthful of blood rose up his throat and trickled from the corner of his mouth as he fell to his knees, gasping for breath.</p>
 
 <p>Among those four fates that shone with the light of a thousand suns, he saw a star. The Star of Heavenly Slaughter.</p>
 
@@ -115,9 +97,7 @@ chapter = 670
 
 <p>The star of heavenly slaughter was there.</p>
 
-<p>What did this mean? What bloodbath was in store for the heavens in</p>
-
-<p>the future?</p>
+<p>What did this mean? What bloodbath was in store for the heavens in the future?</p>
 
 <p>***</p>
 
@@ -125,9 +105,7 @@ chapter = 670
 
 <p>It was large enough for hundreds of millions of people, floating in the abyss itself and connected to nine moons that surrounded it by golden chains.</p>
 
-<p>Each of these moons was commanded by a celestial emperor, and the</p>
-
-<p>palace itself, built of gold, was guarded by a thousand experts from the realm of the false deity and their leader, Long Tianjin.</p>
+<p>Each of these moons was commanded by a celestial emperor, and the palace itself, built of gold, was guarded by a thousand experts from the realm of the false deity and their leader, Long Tianjin.</p>
 
 <p>The golden dragon, the scourge of the venerable spear, the wisest and most powerful expert in all of the celestial heavens.</p>
 

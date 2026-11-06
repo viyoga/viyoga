@@ -27,9 +27,7 @@ chapter = 686
 
 <p>His eyes fell on the scroll he had received, the one containing the tracking coordinates of the traitorous captain.</p>
 
-<p>“Hm… how do I use this thing?” he wondered aloud, waving his hand</p>
-
-<p>so that a small console materialized beside his seat.</p>
+<p>“Hm… how do I use this thing?” he wondered aloud, waving his hand so that a small console materialized beside his seat.</p>
 
 <p>He was a little confused, but luckily, he had his beautiful wife Ruxue, that sassy little spirit, always by his side.</p>
 
@@ -75,45 +73,27 @@ chapter = 686
 
 <p>With a final kiss, he sent her back to the mental world and took control of his ship, which now drifted a few dozen kilometers above the lower atmosphere of the red planet before him.</p>
 
-<p>Though it looked like any other desert world, this place endured temperatures of minus fifty degrees even at midday, and the nights</p>
-
-<p>plunged far colder still.</p>
+<p>Though it looked like any other desert world, this place endured temperatures of minus fifty degrees even at midday, and the nights plunged far colder still.</p>
 
 <p>Qingyi guided the Dragon’s Pride as it broke through the planet’s thin atmosphere. On the console beside him, the map shifted, a red dot pulsing to mark the exact location of his target.</p>
 
-<p>Activating his draconic eyes and keeping a high altitude, he swept his gaze across the entire world below until something finally caught his</p>
-
-<p>attention: a ship.</p>
+<p>Activating his draconic eyes and keeping a high altitude, he swept his gaze across the entire world below until something finally caught his attention: a ship.</p>
 
 <p>It was clearly wrecked, half buried in a crater from a hard landing.</p>
 
-<p>Beside it, a cave exuded an intense Qi, likely the hideout of the expert</p>
+<p>Beside it, a cave exuded an intense Qi, likely the hideout of the expert he hunted.</p>
 
-<p>he hunted.</p>
+<p>Qingyi didn’t hesitate to send the Dragon’s Pride back into the mind world, and soon he hovered alone in the skies, his focus locked on that distant point.</p>
 
-<p>Qingyi didn’t hesitate to send the Dragon’s Pride back into the mind</p>
+<p>With a slight thrust, he tore through space and reappeared directly above the cave and the damaged ship.</p>
 
-<p>world, and soon he hovered alone in the skies, his focus locked on</p>
+<p>He knew the cargo he sought lay inside the wreckage, but for now, he ignored it, his eyes fixed on the cave.</p>
 
-<p>that distant point.</p>
-
-<p>With a slight thrust, he tore through space and reappeared directly</p>
-
-<p>above the cave and the damaged ship.</p>
-
-<p>He knew the cargo he sought lay inside the wreckage, but for now, he</p>
-
-<p>ignored it, his eyes fixed on the cave.</p>
-
-<p>With light steps, he entered, walking down a corridor that sloped</p>
-
-<p>gently for several dozen meters.</p>
+<p>With light steps, he entered, walking down a corridor that sloped gently for several dozen meters.</p>
 
 <p>“Who’s there?!”</p>
 
-<p>A roar echoed off the walls as Qingyi arrived in a vast chamber, every</p>
-
-<p>surface scored with sword marks.</p>
+<p>A roar echoed off the walls as Qingyi arrived in a vast chamber, every surface scored with sword marks.</p>
 
 <p>The walls looked as though they’d been torn apart by frenzied blades, deep gouges slashing through the rock in every direction.</p>
 
@@ -121,9 +101,7 @@ chapter = 686
 
 <p>His beard was unkempt and shaggy, his long hair matted and filthy.</p>
 
-<p>“Ah… they found me! They found me!” he shouted upon seeing Qingyi’s robes. But soon he sensed Qingyi’s cultivation, and a smile</p>
-
-<p>twisted his lips, his stained teeth gleaming in the dim light.</p>
+<p>“Ah… they found me! They found me!” he shouted upon seeing Qingyi’s robes. But soon he sensed Qingyi’s cultivation, and a smile twisted his lips, his stained teeth gleaming in the dim light.</p>
 
 <p>“You’re dead, brat! Dead! Hahahahaha!”</p>
 

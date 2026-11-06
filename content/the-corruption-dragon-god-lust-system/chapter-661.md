@@ -57,9 +57,7 @@ chapter = 661
 
 <p>Fortunately, her mother had been able to send her away and spare her from that terrible fate.</p>
 
-<p>“Oh… how could I possibly hurt such an adorable little thing? Hahaha” The Heavenly Demon cackled with contempt. “You orthodox types are</p>
-
-<p>far too sensitive.”</p>
+<p>“Oh… how could I possibly hurt such an adorable little thing? Hahaha” The Heavenly Demon cackled with contempt. “You orthodox types are far too sensitive.”</p>
 
 <p>“Anyway, if you find Qingyi before I do, tell him that I’ve already found the soul of that girl, the original master of the sword he wields.</p>
 
@@ -69,9 +67,7 @@ chapter = 661
 
 <p>The Heavenly Demon smiled.</p>
 
-<p>He wanted Qingyi to hurry and come running into his arms. Knowing how much that young man loved his wives, he was certain it would</p>
-
-<p>work.</p>
+<p>He wanted Qingyi to hurry and come running into his arms. Knowing how much that young man loved his wives, he was certain it would work.</p>
 
 <p>The disgust Tianjin felt only intensified.</p>
 
@@ -81,31 +77,21 @@ chapter = 661
 
 <p>The most beautiful and talented swordswoman to ever set foot in the entire celestial realm, the one who received the title of most beautiful under the heavens after the death of the wife of the Dragon God of Corruption.</p>
 
-<p>It had always been a great stain on the Orthodox Alliance that she had not only been poisoned, but also kidnapped by the Heavenly Demon</p>
+<p>It had always been a great stain on the Orthodox Alliance that she had not only been poisoned, but also kidnapped by the Heavenly Demon right before his eyes.</p>
 
-<p>right before his eyes.</p>
-
-<p>Alongside the death of the Dragon God of Corruption, the fact that she had been condemned to such a terrible fate was one of the</p>
-
-<p>greatest sorrows in Tianjin’s heart.</p>
+<p>Alongside the death of the Dragon God of Corruption, the fact that she had been condemned to such a terrible fate was one of the greatest sorrows in Tianjin’s heart.</p>
 
 <p>He was so powerful and respected, but in his heart, his failures tortured him every day.</p>
 
-<p>He just wanted his daughter back by his side. He wanted to protect her, just as he wanted to protect Qingyi and Rou’er, if she were still</p>
-
-<p>alive.</p>
+<p>He just wanted his daughter back by his side. He wanted to protect her, just as he wanted to protect Qingyi and Rou’er, if she were still alive.</p>
 
 <p>But to do that, he needed to kill the Heavenly Demon.</p>
 
-<p>He needed to ensure that every fragment of his will was wiped from</p>
-
-<p>the face of the earth.</p>
+<p>He needed to ensure that every fragment of his will was wiped from the face of the earth.</p>
 
 <p>Only then could he sleep peacefully.</p>
 
-<p>Only then could he prepare to be a grandfather, for the day his</p>
-
-<p>daughter gave birth to Qingyi’s child, and care for her for all eternity.</p>
+<p>Only then could he prepare to be a grandfather, for the day his daughter gave birth to Qingyi’s child, and care for her for all eternity.</p>
 
 <p>A golden spear appeared in Tianjin’s hands.</p>
 
@@ -113,19 +99,13 @@ chapter = 661
 
 <p>His power surged forth.</p>
 
-<p>The star on his back was swept away like dust, collapsing into a black</p>
+<p>The star on his back was swept away like dust, collapsing into a black hole as the pressure exploded all around.</p>
 
-<p>hole as the pressure exploded all around.</p>
-
-<p>The spear tore through the void toward the Heavenly Demon, carrying a power so profound that even Qingyi would be unable to</p>
-
-<p>imagine it.</p>
+<p>The spear tore through the void toward the Heavenly Demon, carrying a power so profound that even Qingyi would be unable to imagine it.</p>
 
 <p>The cosmos lit up with an intense golden light as the power of two incomparable Celestial Emperors collided.</p>
 
-<p>A laugh full of contempt echoed, and the spear met nothing but</p>
-
-<p>emptiness.</p>
+<p>A laugh full of contempt echoed, and the spear met nothing but emptiness.</p>
 
 <p>“Hahahaha, I’ll be on my way now, my old friend. Don’t worry, I’ve already warned the elders of the Orthodox Alliance about your connection to the heir of the Dragon God of Corruption.”</p>
 
@@ -133,9 +113,7 @@ chapter = 661
 
 <p>Soon, he found himself alone in the void.</p>
 
-<p>His eyes, once filled with rage and revulsion, calmed as he closed his</p>
-
-<p>eyelids.</p>
+<p>His eyes, once filled with rage and revulsion, calmed as he closed his eyelids.</p>
 
 <p>So much power… and for what?</p>
 
@@ -143,6 +121,4 @@ chapter = 661
 
 <p>“Ah… I have a lot to explain to the Orthodox Alliance…” Tianjin sighed, recalling the Heavenly Demon’s last words.</p>
 
-<p>Now that the great elders of the Orthodox Alliance knew the heir of</p>
-
-<p>the Dragon God of Corruption was in the Celestial Heavens, he needed to act quickly.</p>
+<p>Now that the great elders of the Orthodox Alliance knew the heir of the Dragon God of Corruption was in the Celestial Heavens, he needed to act quickly.</p>

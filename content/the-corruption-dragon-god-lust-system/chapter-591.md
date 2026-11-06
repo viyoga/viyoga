@@ -29,9 +29,7 @@ chapter = 591
 
 <p>Perhaps Qingyi had, in fact, simply been lucky, or possessed some unknown perceptual ability.</p>
 
-<p>Young Master Guo Tianhao, standing beside the two, also let out a</p>
-
-<p>smirk, puffing out his chest.</p>
+<p>Young Master Guo Tianhao, standing beside the two, also let out a smirk, puffing out his chest.</p>
 
 <p>It was obvious it had been luck.</p>
 
@@ -63,19 +61,13 @@ chapter = 591
 
 <p>Another thirty minutes passed, and then two doors opened at the same time, revealing the figures of Young Master Chen Wei and Young Master Luo.</p>
 
-<p>The two exchanged glances filled with contempt and anger, fighting the urge to throw themselves at each other to decide who had</p>
-
-<p>finished first.</p>
+<p>The two exchanged glances filled with contempt and anger, fighting the urge to throw themselves at each other to decide who had finished first.</p>
 
 <p>Even a lead of a few seconds would be enough to make them feel satisfied.</p>
 
-<p>In the end, they merely greeted Elder Shen and took comfortable</p>
+<p>In the end, they merely greeted Elder Shen and took comfortable seats.</p>
 
-<p>seats.</p>
-
-<p>Chen Wei stood beside Qingyi and wanted to ask about Qingyi’s time, but since the elder had not given permission to speak, being, at that very moment, absorbed in reading a book, the young master remained</p>
-
-<p>silent, meditating.</p>
+<p>Chen Wei stood beside Qingyi and wanted to ask about Qingyi’s time, but since the elder had not given permission to speak, being, at that very moment, absorbed in reading a book, the young master remained silent, meditating.</p>
 
 <p>The selection was far from over.</p>
 
@@ -83,9 +75,7 @@ chapter = 591
 
 <p>Well, “great crowd” was an exaggeration, since, in total, only sixty of the nearly ten thousand youths had passed.</p>
 
-<p>All the others? Most hadn’t even passed the first test, and many died</p>
-
-<p>in the middle of the second.</p>
+<p>All the others? Most hadn’t even passed the first test, and many died in the middle of the second.</p>
 
 <p>No one there was shocked.</p>
 
@@ -95,25 +85,17 @@ chapter = 591
 
 <p>With all that, the cultivation world faced a terrible problem of overpopulation.</p>
 
-<p>If it weren’t so violent and bloody, it wouldn’t take long for cultivation</p>
-
-<p>society to collapse, simply because there were too many people for the amount of resources available in the celestial heavens. “Very well.” The elder stood up after ten hours, watching the last of the youths exit through one of the many doors leading out of that</p>
-
-<p>place.</p>
+<p>If it weren’t so violent and bloody, it wouldn’t take long for cultivation society to collapse, simply because there were too many people for the amount of resources available in the celestial heavens. “Very well.” The elder stood up after ten hours, watching the last of the youths exit through one of the many doors leading out of that place.</p>
 
 <p>It was Peng Tao, Chen Wei’s servant.</p>
 
 <p>In total, just over sixty youths had passed the tests.</p>
 
-<p>All the others had died in the second test, while those trapped in the</p>
-
-<p>first had been released and teleported out.</p>
+<p>All the others had died in the second test, while those trapped in the first had been released and teleported out.</p>
 
 <p>Stroking his long white beard, the elder revealed a gentle smile.</p>
 
-<p>“Now, we will move on to the third test: an assessment of your combat ability, where you will face inner disciples in one-on-one</p>
-
-<p>duels.”</p>
+<p>“Now, we will move on to the third test: an assessment of your combat ability, where you will face inner disciples in one-on-one duels.”</p>
 
 <p>The moment the words fell, frightened sighs echoed through the room, and many were already losing hope right there.</p>
 

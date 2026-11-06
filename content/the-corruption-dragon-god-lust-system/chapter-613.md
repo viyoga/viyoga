@@ -87,15 +87,11 @@ chapter = 613
 
 <p>Between her shapely, soft thighs, Qingyi’s strong fingers worked on her pussy, gently massaging the full, plump lips of her vulva.</p>
 
-<p>Nianxue was the woman he liked best when he was gentle and loving, so he always took care when having sex with her, letting things flow</p>
-
-<p>slowly.</p>
+<p>Nianxue was the woman he liked best when he was gentle and loving, so he always took care when having sex with her, letting things flow slowly.</p>
 
 <p>As for the second demoness, the one between his legs, she enjoyed every kind of sex.</p>
 
-<p>She liked having her pale ass turned red by his spanking, she liked it when he was gentle, she liked it when he mercilessly fucked her</p>
-
-<p>throat.</p>
+<p>She liked having her pale ass turned red by his spanking, she liked it when he was gentle, she liked it when he mercilessly fucked her throat.</p>
 
 <p>Ruyan didn’t have any specific preferences, though she loved getting spanked on the ass.</p>
 
@@ -103,23 +99,15 @@ chapter = 613
 
 <p>“Ah… hubby’s cock is so thick and hard in Ruyan’s tight little throat…” The naughty little demoness smiled, grabbing and stroking the shaft against her lips, her small, pale, delicate hands moving against the veiny, throbbing member.</p>
 
-<p>“I wonder who made him like this, huh?” Qingyi smiled, pulling away from Nianxue’s lips for a moment and stroking Ruyan’s black hair. “Little sister Nianxue, obviously… she’s devouring hubby’s lips so voraciously. Fufufu♡~~” Ruyan sealed her lips around the tip of the</p>
-
-<p>cock, her cheeks hollowed out by the suction.</p>
+<p>“I wonder who made him like this, huh?” Qingyi smiled, pulling away from Nianxue’s lips for a moment and stroking Ruyan’s black hair. “Little sister Nianxue, obviously… she’s devouring hubby’s lips so voraciously. Fufufu♡~~” Ruyan sealed her lips around the tip of the cock, her cheeks hollowed out by the suction.</p>
 
 <p>Her red eyes sparkled when she saw Nianxue’s blue skin take on a pinkish hue, full of shame.</p>
 
 <p>She loved teasing that little blue porcelain doll.</p>
 
-<p>Nianxue didn’t respond, a soft moan escaping her lips as a third finger</p>
+<p>Nianxue didn’t respond, a soft moan escaping her lips as a third finger sank into her pussy, massaging her clit.</p>
 
-<p>sank into her pussy, massaging her clit.</p>
-
-<p>“Mmhm~~ H-husband loves Nianxue’s blue skin… Nianxue knows that</p>
-
-<p>very well, hehehe.” The blue demoness finally formed words, flushed</p>
-
-<p>and stuttering.</p>
+<p>“Mmhm~~ H-husband loves Nianxue’s blue skin… Nianxue knows that very well, hehehe.” The blue demoness finally formed words, flushed and stuttering.</p>
 
 <p>Her slender torso, bearing large, magnificent blue tits, rose up, pulling away from Qingyi’s ribs and aligning itself with his face.</p>
 
@@ -127,15 +115,9 @@ chapter = 613
 
 <p>“Hahaha, smart girl…” Qingyi laughed heartily, his voice muffled by Nianxue’s large, blue jugs.</p>
 
-<p>Increasing the speed at which he moved his fingers inside her pussy,</p>
+<p>Increasing the speed at which he moved his fingers inside her pussy, he revelled in Nianxue’s rising, trembling moans as she melted into pleasure.</p>
 
-<p>he revelled in Nianxue’s rising, trembling moans as she melted into</p>
-
-<p>pleasure.</p>
-
-<p>Ruyan wasn’t far behind either, her lips working ceaselessly around</p>
-
-<p>his cock.</p>
+<p>Ruyan wasn’t far behind either, her lips working ceaselessly around his cock.</p>
 
 <p>Moving her head forward, she swallowed him until there was no room left, a long, thick, pulsing bulge rising in her delicate neck, her throat struggling to crush and milk his sweet nectar.</p>
 
@@ -143,16 +125,10 @@ chapter = 613
 
 <p>Ruyan had no time to think.</p>
 
-<p>The very moment Nianxue let out a loud, high-pitched, shrill moan,</p>
+<p>The very moment Nianxue let out a loud, high-pitched, shrill moan, Qingyi’s cock exploded.</p>
 
-<p>Qingyi’s cock exploded.</p>
+<p>It was too much even for her, a torrent of cum mercilessly flooding her throat, delivered straight into her esophagus and then, into her stomach.</p>
 
-<p>It was too much even for her, a torrent of cum mercilessly flooding her throat, delivered straight into her esophagus and then, into her</p>
-
-<p>stomach.</p>
-
-<p>When Ruyan finally pulled back, releasing his member and taking one last spurt of cum on her face, she smiled and touched her own</p>
-
-<p>stomach.</p>
+<p>When Ruyan finally pulled back, releasing his member and taking one last spurt of cum on her face, she smiled and touched her own stomach.</p>
 
 <p>“Ah… hubby’s milk is the best… so yummy and nutritious, fufufu♡”</p>

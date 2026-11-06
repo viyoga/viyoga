@@ -55,9 +55,7 @@ chapter = 624
 
 <p>Chen Wei grabbed hold of Qingyi’s robes without ceremony.</p>
 
-<p>“While your weak little junior brother was suffering, trying to survive against that damned Young Master Luo and Guo Tianhao, you were</p>
-
-<p>going after the real prize…” He sniffed dramatically. “Teach me your ways, master.”</p>
+<p>“While your weak little junior brother was suffering, trying to survive against that damned Young Master Luo and Guo Tianhao, you were going after the real prize…” He sniffed dramatically. “Teach me your ways, master.”</p>
 
 <p>“If you give me your mother, I might consider looking into your case,” Qingyi replied with a gentle smile, and Chen Wei hung his head in despair.</p>
 
@@ -67,31 +65,21 @@ chapter = 624
 
 <p>Ignoring the drama, Qingyi simply kept walking, with Chen Wei dragging his feet beside him.</p>
 
-<p>“I’ve never met the sect leader’s daughter, believe me. Honestly, I don’t even know what made that crazy girl fixate on me so much,” he</p>
-
-<p>said thoughtfully, furrowing his brow slightly.</p>
+<p>“I’ve never met the sect leader’s daughter, believe me. Honestly, I don’t even know what made that crazy girl fixate on me so much,” he said thoughtfully, furrowing his brow slightly.</p>
 
 <p>The fact that she was so obsessed with a man she didn’t even know really didn’t make sense. Did she know something he didn’t? Who could that woman be?</p>
 
-<p>The thought made Qingyi uncomfortable, so he simply changed the</p>
+<p>The thought made Qingyi uncomfortable, so he simply changed the subject.</p>
 
-<p>subject.</p>
+<p>“You’ve advanced to the first stage of the Astral Blood Realm. Are you still getting beaten up by Young Master Luo?” Qingyi asked, changing the subject.</p>
 
-<p>“You’ve advanced to the first stage of the Astral Blood Realm. Are you still getting beaten up by Young Master Luo?” Qingyi asked, changing</p>
-
-<p>the subject.</p>
-
-<p>“Getting beaten?” The drama on Chen Wei’s face vanished in an</p>
-
-<p>instant, replaced by genuine pride. “I’ve been beating him up, teaching him who’s boss! That bastard only has the upper hand against me because he has so many minions.</p>
+<p>“Getting beaten?” The drama on Chen Wei’s face vanished in an instant, replaced by genuine pride. “I’ve been beating him up, teaching him who’s boss! That bastard only has the upper hand against me because he has so many minions.</p>
 
 <p>Qingyi merely nodded.</p>
 
 <p>In fact, he didn’t believe Young Master Luo was a match for Chen Wei.</p>
 
-<p>He had never fought Chen Wei personally, but he knew full well that his power was real, forged through life-and-death experiences. Young Master Luo, on the other hand, had always been protected by</p>
-
-<p>his many subordinates, even within the sect, where he grew up under Tianhao’s wing and, as a result, amassed a multitude of followers among the outer disciples.</p>
+<p>He had never fought Chen Wei personally, but he knew full well that his power was real, forged through life-and-death experiences. Young Master Luo, on the other hand, had always been protected by his many subordinates, even within the sect, where he grew up under Tianhao’s wing and, as a result, amassed a multitude of followers among the outer disciples.</p>
 
 <p>That was his greatest and only advantage.</p>
 
@@ -101,38 +89,24 @@ chapter = 624
 
 <p>Who wouldn’t love something like that?</p>
 
-<p>“Hahaha, keep dreaming.” Qingyi laughed, patting the other man on</p>
+<p>“Hahaha, keep dreaming.” Qingyi laughed, patting the other man on the shoulder.</p>
 
-<p>the shoulder.</p>
-
-<p>The conversation continued for a few more moments, exchanging</p>
-
-<p>basic updates on what was happening in the sect, before the two</p>
-
-<p>finally parted ways.</p>
+<p>The conversation continued for a few more moments, exchanging basic updates on what was happening in the sect, before the two finally parted ways.</p>
 
 <p>Alone again, Qingyi made his way back to the building where his room was located, a path winding through a dense forest.</p>
 
-<p>Normally, he would simply fly over the trails, seeking to reach his destination as quickly as possible. But this time, something held him</p>
-
-<p>back.</p>
+<p>Normally, he would simply fly over the trails, seeking to reach his destination as quickly as possible. But this time, something held him back.</p>
 
 <p>A sensation. Subtle, yet unmistakable.</p>
 
 <p>As if something were watching him.</p>
 
-<p>With slow steps, Qingyi left the trail and walked a few hundred</p>
-
-<p>meters until he reached a small clearing, where a stream flowed quietly among the rocks, the murmur of the water breaking the forest’s silence.</p>
+<p>With slow steps, Qingyi left the trail and walked a few hundred meters until he reached a small clearing, where a stream flowed quietly among the rocks, the murmur of the water breaking the forest’s silence.</p>
 
 <p>He took a step toward the water and then stopped.</p>
 
 <p>From behind him, a voice echoed.</p>
 
-<p>Sweet, high-pitched, and serene, the kind of voice that could only come from the mouth of a woman so adorable that even the most</p>
-
-<p>selfish of men would throw himself into a pot of boiling oil to rescue</p>
-
-<p>her.</p>
+<p>Sweet, high-pitched, and serene, the kind of voice that could only come from the mouth of a woman so adorable that even the most selfish of men would throw himself into a pot of boiling oil to rescue her.</p>
 
 <p>“Oh… so you really are Daddy’s heir! Hehehe~~”</p>

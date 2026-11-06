@@ -15,15 +15,11 @@ chapter = 531
 
 <p>Silently, Qingyi appeared beside the wide walls surrounding the imperial palace.</p>
 
-<p>It was a monumental construction, large enough to comfortably house thirty or forty thousand people between guests, guards, and</p>
-
-<p>servants.</p>
+<p>It was a monumental construction, large enough to comfortably house thirty or forty thousand people between guests, guards, and servants.</p>
 
 <p>Qingyi passed the first group of guards protecting the outer walls and soon hid in the shadow of a tree in the imperial garden, activating his Draconic Eyes.</p>
 
-<p>Everything seemed normal. He could sense dozens of powerful auras, while the defensive and detection formations were operating</p>
-
-<p>correctly.</p>
+<p>Everything seemed normal. He could sense dozens of powerful auras, while the defensive and detection formations were operating correctly.</p>
 
 <p>But there was something else, a strange and oppressive feeling. Qingyi stepped out of the shadows, pressing a single hand against the palace walls.</p>
 
@@ -79,19 +75,13 @@ chapter = 531
 
 <p>“I need to speak with you privately,” Qingyi replied, hesitating for a brief moment. “Are you aware that the Emperor and Empress are demonic cultivators?”</p>
 
-<p>The Gold King took those words as a joke, bringing his right hand to</p>
-
-<p>his belly as he laughed.</p>
+<p>The Gold King took those words as a joke, bringing his right hand to his belly as he laughed.</p>
 
 <p>“Demonic cultists? Son-in-law, are you kidding?</p>
 
-<p>Do you know what you’re talking about? The Emperor would never be</p>
+<p>Do you know what you’re talking about? The Emperor would never be a demon cultivator.”</p>
 
-<p>a demon cultivator.”</p>
-
-<p>The Gold King laughed loudly, but soon fell silent. Qingyi’s expression</p>
-
-<p>had not changed; it remained serious and composed.</p>
+<p>The Gold King laughed loudly, but soon fell silent. Qingyi’s expression had not changed; it remained serious and composed.</p>
 
 <p>“Are you sure?” The Gold King lowered his voice.</p>
 
@@ -103,27 +93,19 @@ chapter = 531
 
 <p>Both the Emperor and Empress of the Enlightened Empire, as well as Emperor Rose, possessed both energies.”</p>
 
-<p>He spread his arms, summoning Qi in one hand and Mana in the other. At that moment, Jin Hao’s already shocked face was overcome</p>
-
-<p>by an even greater tremor.</p>
+<p>He spread his arms, summoning Qi in one hand and Mana in the other. At that moment, Jin Hao’s already shocked face was overcome by an even greater tremor.</p>
 
 <p>He stood up with trembling legs.</p>
 
-<p>Qingyi was actually using Qi and Mana simultaneously, something</p>
+<p>Qingyi was actually using Qi and Mana simultaneously, something that simply shouldn’t be possible.</p>
 
-<p>that simply shouldn’t be possible.</p>
-
-<p>“Father-in-law, I want you to leave with me. There are hundreds of demon seeds under the imperial capital, and at some point, they will</p>
-
-<p>hatch.”</p>
+<p>“Father-in-law, I want you to leave with me. There are hundreds of demon seeds under the imperial capital, and at some point, they will hatch.”</p>
 
 <p>Qingyi sighed, already imagining the slaughter that would occur when that happened.</p>
 
 <p>“I can’t leave.” The Gold King shook his head.</p>
 
-<p>“My life is not in danger. I have that damn old man by my side, and besides, this place is a mobile fortress. With a thought, we’ll be out of</p>
-
-<p>here.”</p>
+<p>“My life is not in danger. I have that damn old man by my side, and besides, this place is a mobile fortress. With a thought, we’ll be out of here.”</p>
 
 <p>Standing up, Jin Hao walked to the edge of a window, looking out at the beautiful capital stretching out before him.</p>
 
@@ -131,8 +113,6 @@ chapter = 531
 
 <p>In the end, the young man just shook his head in defeat. One look from the Gold King was enough to understand that his father-in-law would not change his mind.</p>
 
-<p>“I will be going to the land of the fox people soon. I will return as soon</p>
-
-<p>as possible,” Qingyi whispered before his body was swallowed by the darkness.</p>
+<p>“I will be going to the land of the fox people soon. I will return as soon as possible,” Qingyi whispered before his body was swallowed by the darkness.</p>
 
 <p>“Don’t you dare die without Meilin’s permission.”</p>

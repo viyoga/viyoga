@@ -79,55 +79,35 @@ chapter = 427
 
 <p>“You’re a dragon…” Aeryn whispered.</p>
 
-<p>Her pale, high cheeks were taken over by a soft, reddish blush, her</p>
-
-<p>noble features curving in satisfaction.</p>
+<p>Her pale, high cheeks were taken over by a soft, reddish blush, her noble features curving in satisfaction.</p>
 
 <p>Of course, how could an honored divine spirit stay with just any human?</p>
 
-<p>Qingyi merely enjoyed Aeryn’s reaction, her eyes adorably avoiding his. There was still arrogance in her, but not the total indifference of</p>
+<p>Qingyi merely enjoyed Aeryn’s reaction, her eyes adorably avoiding his. There was still arrogance in her, but not the total indifference of her first glance.</p>
 
-<p>her first glance.</p>
+<p>“What’s going on here?” Suddenly, an old female voice caught everyone’s attention.</p>
 
-<p>“What’s going on here?” Suddenly, an old female voice caught</p>
-
-<p>everyone’s attention.</p>
-
-<p>From inside the church, an old woman emerged. She was no less than</p>
-
-<p>eighty years old, Clearly a nun, carrying a cross on her chest.</p>
+<p>From inside the church, an old woman emerged. She was no less than eighty years old, Clearly a nun, carrying a cross on her chest.</p>
 
 <p>“Mother!” Alice squirmed in Ruxue’s arms, her little feet tapping excitedly on the floor as she threw herself into the nun’s arms.</p>
 
 <p>The old woman was not Alice’s real mother, but the leader of that church, which also served as an orphanage. But that didn’t matter much to the little girl.</p>
 
-<p>“Alice, where were you, dear? I told you not to run away like that!” the</p>
+<p>“Alice, where were you, dear? I told you not to run away like that!” the old woman said.</p>
 
-<p>old woman said.</p>
+<p>Another group of children soon appeared at the church door, watching the newcomers with curiosity.</p>
 
-<p>Another group of children soon appeared at the church door,</p>
-
-<p>watching the newcomers with curiosity.</p>
-
-<p>“I was just-” Before Alice could even finish her sentence, she was met</p>
-
-<p>with another barrage of scolding.</p>
+<p>“I was just-” Before Alice could even finish her sentence, she was met with another barrage of scolding.</p>
 
 <p>Soon, with her head bowed, she was forced into the orphanage.</p>
 
 <p>Of course, her discouragement was short-lived.</p>
 
-<p>Soon, Qingyi could hear her excited voice, telling her friends how she</p>
-
-<p>was attacked by a monster and how Qingyi exterminated them in a</p>
-
-<p>single moment.</p>
+<p>Soon, Qingyi could hear her excited voice, telling her friends how she was attacked by a monster and how Qingyi exterminated them in a single moment.</p>
 
 <p>The old nun just sighed, her eyes focusing on Aeryn. Honestly, she didn’t like having that woman there.</p>
 
-<p>She was a chosen hero, yes, but she was not a true follower of</p>
-
-<p>Auranys.</p>
+<p>She was a chosen hero, yes, but she was not a true follower of Auranys.</p>
 
 <p>Just like every other damn elf, she was an infidel. How could she become one of the chosen heroes?</p>
 
@@ -135,15 +115,11 @@ chapter = 427
 
 <p>Aeryn had noticed this, but paid little attention to it.</p>
 
-<p>Of course, the nun couldn’t react so coldly, her face filling with the</p>
-
-<p>deepest shock.</p>
+<p>Of course, the nun couldn’t react so coldly, her face filling with the deepest shock.</p>
 
 <p>“I-is that… Impossible!” The old woman said, approaching Qingyi.</p>
 
-<p>She grabbed the item she carried on her own chest, pointing it</p>
-
-<p>toward Qingyi’s chest.</p>
+<p>She grabbed the item she carried on her own chest, pointing it toward Qingyi’s chest.</p>
 
 <p>Immediately, there was a reaction, the item glowing brightly.</p>
 
@@ -151,15 +127,11 @@ chapter = 427
 
 <p>The old woman clutched her own chest tightly, turning to Aeryn.</p>
 
-<p>“Didn’t you see that this man is also one of the chosen heroes?” The</p>
-
-<p>nun asked.</p>
+<p>“Didn’t you see that this man is also one of the chosen heroes?” The nun asked.</p>
 
 <p>“Hm… is he?” Aeryn turned her face slightly before answering.</p>
 
-<p>She spoke with all the force of someone who was absolutely not there</p>
-
-<p>for political reasons and who really cared about Auranys: “Cool.”</p>
+<p>She spoke with all the force of someone who was absolutely not there for political reasons and who really cared about Auranys: “Cool.”</p>
 
 <p>The old woman was unable to stop her mouth from dropping.</p>
 

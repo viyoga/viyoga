@@ -57,13 +57,9 @@ chapter = 376
 
 <p>[Long Qianyao’s Lust increased by 10%]</p>
 
-<p>[Long Qianyao’s Corruption increased by 5 points! +100 million lust</p>
+<p>[Long Qianyao’s Corruption increased by 5 points! +100 million lust points]</p>
 
-<p>points]</p>
-
-<p>[You touched a woman of much higher origin than you</p>
-
-<p>inappropriately! +50 million lust points].</p>
+<p>[You touched a woman of much higher origin than you inappropriately! +50 million lust points].</p>
 
 <p>Qingyi opened his mouth to say something, but Qianyao had already turned around.</p>
 
@@ -77,13 +73,9 @@ chapter = 376
 
 <p>Qianyao immediately grabbed her dress and pulled.</p>
 
-<p>The thin fabric slid down her delicate shoulders, temporarily catching on the curves of her huge breasts before, with a step forward, falling</p>
+<p>The thin fabric slid down her delicate shoulders, temporarily catching on the curves of her huge breasts before, with a step forward, falling to the floor, revealing her pink nipples.</p>
 
-<p>to the floor, revealing her pink nipples.</p>
-
-<p>Qianyao looked down, her fingers sinking between her thighs and then into her precious femininity, never corrupted by the touch or</p>
-
-<p>even the gaze of any man.</p>
+<p>Qianyao looked down, her fingers sinking between her thighs and then into her precious femininity, never corrupted by the touch or even the gaze of any man.</p>
 
 <p>She was drenched, her fat, pale outer lips glistening with moisture.</p>
 
@@ -91,25 +83,15 @@ chapter = 376
 
 <p>When she withdrew this finger. It was soaked with her love fluids.</p>
 
-<p>Qianyao blushed even more and threw herself onto the wide bed, her breathing slightly labored as she lay on her back, feeling the weight of</p>
+<p>Qianyao blushed even more and threw herself onto the wide bed, her breathing slightly labored as she lay on her back, feeling the weight of her boobs against her torso.</p>
 
-<p>her boobs against her torso.</p>
+<p>Closing her eyes and grabbing her tits with both hands, she remembered her first contact with Qingyi.</p>
 
-<p>Closing her eyes and grabbing her tits with both hands, she</p>
+<p>He had called them beautiful and hadn’t stopped watching them for a moment, even though he knew who she was.</p>
 
-<p>remembered her first contact with Qingyi.</p>
+<p>Now, he had even dared to grab her hips. Of course, she knew it was her fault, but that hardly mattered.</p>
 
-<p>He had called them beautiful and hadn’t stopped watching them for a</p>
-
-<p>moment, even though he knew who she was.</p>
-
-<p>Now, he had even dared to grab her hips. Of course, she knew it was</p>
-
-<p>her fault, but that hardly mattered.</p>
-
-<p>What would her people think if someone saw her rubbing her breasts</p>
-
-<p>against some man?</p>
+<p>What would her people think if someone saw her rubbing her breasts against some man?</p>
 
 <p>No other man dared look at her for so long, let alone touch her.</p>
 
@@ -121,9 +103,7 @@ chapter = 376
 
 <p>She was confused and a little scared.</p>
 
-<p>Not because she had been touched, but because she was unable to</p>
-
-<p>feel sickened by that touch.</p>
+<p>Not because she had been touched, but because she was unable to feel sickened by that touch.</p>
 
 <p>Her heart was beating faster than ever and her baby pink nipples, fluffy and protruding, were slightly hardened.</p>
 

@@ -17,9 +17,7 @@ chapter = 663
 
 <p>“She’s too good for you anyway, Longwei, just be happy.” The tiger laughed even harder as he met Longwei’s furious glare.</p>
 
-<p>The other youths, unlike the tiger, didn’t dare to show their</p>
-
-<p>entertainment at the drama, though they all kept their eyes fixed on Longwei.</p>
+<p>The other youths, unlike the tiger, didn’t dare to show their entertainment at the drama, though they all kept their eyes fixed on Longwei.</p>
 
 <p>“Xue Hua… my fiancée, I command you to come into your husband’s embrace immediately!” Longwei shouted, opening his arms toward her.</p>
 
@@ -33,9 +31,7 @@ chapter = 663
 
 <p>Her eyes filled with petty vengeance, and she walked alongside Qingyi, flashing a sweet smile at Rou’er.</p>
 
-<p>There was no way she could hate that cute little thing, but</p>
-
-<p>sometimes, it was annoying how Rou’er tried to push her toward Qingyi.</p>
+<p>There was no way she could hate that cute little thing, but sometimes, it was annoying how Rou’er tried to push her toward Qingyi.</p>
 
 <p>What happened next shattered Longwei’s heart.</p>
 
@@ -67,9 +63,7 @@ chapter = 663
 
 <p>Should he accept punishment for breaking a promise to the heavens right now, having reached the realm where he could be truly eternal? Xue Hua paid no mind to the many eyes around her, but upon feeling that same strange sensation again, she gasped softly.</p>
 
-<p>It was on a lesser level, yet she still felt her groin tingle, begging for</p>
-
-<p>contact.</p>
+<p>It was on a lesser level, yet she still felt her groin tingle, begging for contact.</p>
 
 <p>Ignoring that and noticing her fiancé’s shattered gaze upon her, she smiled wickedly.</p>
 
@@ -79,29 +73,19 @@ chapter = 663
 
 <p>“Oh… big sister Xue Hua should tell your father to call off your wedding to this Longwei and marry you to big brother Qingyi instead! He’s so much better than your pants-soiling fiancé, isn’t he?”</p>
 
-<p>Xue Hua shuddered at those words. Her eyes closed for a brief</p>
-
-<p>moment as a hot blush spread across her cheeks.</p>
+<p>Xue Hua shuddered at those words. Her eyes closed for a brief moment as a hot blush spread across her cheeks.</p>
 
 <p>Her petty revenge had already been enough.</p>
 
-<p>“You seem to be enjoying my waist…” She purred against Qingyi’s</p>
+<p>“You seem to be enjoying my waist…” She purred against Qingyi’s chest, her voice carrying a certain deadly aura.</p>
 
-<p>chest, her voice carrying a certain deadly aura.</p>
-
-<p>“And you seem to be loving my chest…” Qingyi replied nonchalantly,</p>
-
-<p>amused to see Xue Hua blush even more.</p>
+<p>“And you seem to be loving my chest…” Qingyi replied nonchalantly, amused to see Xue Hua blush even more.</p>
 
 <p>Without hesitation, she pushed him away, stepping back with trembling steps.</p>
 
 <p>“The announcement of the secret realm’s opening will take place tonight. By morning, we must be ready. Be at the Golden Gate of Grace at dawn.”</p>
 
-<p>Xue Hua turned and walked away with a sweet sway of her hips, the</p>
-
-<p>fabric of her robes following the gentle movement of her curves as</p>
-
-<p>she wore a tense, flushed expression.</p>
+<p>Xue Hua turned and walked away with a sweet sway of her hips, the fabric of her robes following the gentle movement of her curves as she wore a tense, flushed expression.</p>
 
 <p>Watching her walk away, Longwei nearly fell to his knees.</p>
 
@@ -109,33 +93,23 @@ chapter = 663
 
 <p>He was certain of it!</p>
 
-<p>Qingyi must have done the same thing he did to steal Rou’er from his</p>
+<p>Qingyi must have done the same thing he did to steal Rou’er from his brother. He must have brainwashed Xue Hua.</p>
 
-<p>brother. He must have brainwashed Xue Hua.</p>
-
-<p>There was no way his beloved fiancée would act like that with another man in front of him of her own free will. She must be under</p>
-
-<p>some kind of mind control!</p>
+<p>There was no way his beloved fiancée would act like that with another man in front of him of her own free will. She must be under some kind of mind control!</p>
 
 <p>Longwei stood frozen for long minutes, trapped in his delusions.</p>
 
-<p>Qingyi had already left that place with Rou’er, but Longwei remained</p>
-
-<p>there, frozen beside Bai Hu Lie.</p>
+<p>Qingyi had already left that place with Rou’er, but Longwei remained there, frozen beside Bai Hu Lie.</p>
 
 <p>Slowly, he raised his eyes to the tiger’s face.</p>
 
 <p>Bai Hu Lie was enormous, standing two and a half meters tall and weighing nearly three hundred kilograms of pure muscle, which forced Longwei to crane his neck to look him in the eye.</p>
 
-<p>“You need to kill Qingyi… you need to kill him at any cost. Do you hear</p>
-
-<p>me?” Longwei spoke through clenched teeth.</p>
+<p>“You need to kill Qingyi… you need to kill him at any cost. Do you hear me?” Longwei spoke through clenched teeth.</p>
 
 <p>“After that, I promise I’ll do everything I can to awaken your bloodline.</p>
 
-<p>I might even ask my master to intervene, if necessary. Just kill Qingyi</p>
-
-<p>for me, at any cost!”</p>
+<p>I might even ask my master to intervene, if necessary. Just kill Qingyi for me, at any cost!”</p>
 
 <p>The tiger didn’t respond immediately. He merely flashed a confident smile full of sharp teeth.</p>
 

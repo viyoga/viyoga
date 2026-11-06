@@ -81,17 +81,13 @@ chapter = 406
 
 <p>Suddenly, he stopped, his hips sunk into Isabel’s tits.</p>
 
-<p>His cock throbbed one last time before finally releasing, gush after</p>
-
-<p>gush of fat cum taking over the deep valley of Isabel’s breasts.</p>
+<p>His cock throbbed one last time before finally releasing, gush after gush of fat cum taking over the deep valley of Isabel’s breasts.</p>
 
 <p>The liquid dripped over the top, down the sides, and underneath, covering the dark beauty with pearly, hot, viscous cum.</p>
 
 <p>“Ah~~ hubby had a lot stored up this time, huh?~” Isabel gasped and released her breasts, connected to each other by thick strands of cum, Qingyi’s cock still resting in the valley between them.</p>
 
-<p>With a sigh, she leaned her body forward. She pushed Qingyi so that</p>
-
-<p>he sat back on the edge of the bathtub and began to lick and suck, her tongue running the entire length, swallowing every drop of cum that still stained his cock.</p>
+<p>With a sigh, she leaned her body forward. She pushed Qingyi so that he sat back on the edge of the bathtub and began to lick and suck, her tongue running the entire length, swallowing every drop of cum that still stained his cock.</p>
 
 <p>After one last kiss on the reddened glans, she opened her mouth, sticking out her tongue and revealing her completely clean throat.</p>
 
@@ -113,30 +109,18 @@ chapter = 406
 
 <p>Charm: 1500 (can be upgraded in the lust store)</p>
 
-<p>Spiritual roots: Transcendent-level Primordial Creation Seed spirit</p>
-
-<p>root (Lightning, sword, fire, ice) (10T lust points to upgrade, new roots</p>
-
-<p>can be bought in the lust store).</p>
+<p>Spiritual roots: Transcendent-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can be bought in the lust store).</p>
 
 <p>Lineage: Blood of the Corruption Dragon God (Sky grade,</p>
 
 <p>750,000,000,000 lust points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Sky grade, 750,000,000,000</p>
-
-<p>lust points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Sky grade, 750,000,000,000 lust points to upgrade.)</p>
 
 <p>Lust points: 1.3T]</p>
 
-<p>He could already advance to the realm of true immortality, and now</p>
+<p>He could already advance to the realm of true immortality, and now he was just one step away from improving both his lineage and his constitution.</p>
 
-<p>he was just one step away from improving both his lineage and his</p>
-
-<p>constitution.</p>
-
-<p>That little over a month of travel had truly been profitable, especially since he had spent little, apart from some specific resources for his</p>
-
-<p>wives and his advancement to the peak of the false immortal realm.</p>
+<p>That little over a month of travel had truly been profitable, especially since he had spent little, apart from some specific resources for his wives and his advancement to the peak of the false immortal realm.</p>
 
 <p>“Ah… today is going to be a long day…” Qingyi sighed mentally, his hands running over Isabel’s body, squeezing and grabbing her curves.</p>

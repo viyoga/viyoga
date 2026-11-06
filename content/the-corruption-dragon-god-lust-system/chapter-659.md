@@ -5,9 +5,7 @@ weight = 659
 chapter = 659
 +++
 
-<p>The monk’s next three battles were far less impressive than the last</p>
-
-<p>one.</p>
+<p>The monk’s next three battles were far less impressive than the last one.</p>
 
 <p>The disciples weren’t weak, just mediocre, and at most managed to exchange six or seven blows before being defeated.</p>
 
@@ -25,13 +23,9 @@ chapter = 659
 
 <p>Honestly, he had considered hiding his power, but after a moment, he decided it wasn’t necessary.</p>
 
-<p>He wasn’t a young man without backing who would be hunted down for the treasures within his body if he demonstrated talent</p>
+<p>He wasn’t a young man without backing who would be hunted down for the treasures within his body if he demonstrated talent incompatible with his origins.</p>
 
-<p>incompatible with his origins.</p>
-
-<p>He was a black dragon who had received Ma Zhenwu’s verbal endorsement. Furthermore, he had a high chance of becoming the future Young Lord of the Cosmic Dawn Sect by marrying Rou’er, who</p>
-
-<p>had already publicly declared herself his fiancée.</p>
+<p>He was a black dragon who had received Ma Zhenwu’s verbal endorsement. Furthermore, he had a high chance of becoming the future Young Lord of the Cosmic Dawn Sect by marrying Rou’er, who had already publicly declared herself his fiancée.</p>
 
 <p>No one would pursue him for his secrets because everyone would simply attribute everything to the sect leader, who no longer had eyes for Tianhao and was now investing everything in his future son-in-law.</p>
 
@@ -67,21 +61,15 @@ chapter = 659
 
 <p>In fact, he attacked with full force.</p>
 
-<p>He hadn’t meant to break Fa Yun’s arms, but it was a purely physical</p>
-
-<p>injury, so any healer could fix it.</p>
+<p>He hadn’t meant to break Fa Yun’s arms, but it was a purely physical injury, so any healer could fix it.</p>
 
 <p>With a calm expression, he simply waited for his next opponent. Again, a single strike.</p>
 
 <p>And then another, and another, and another.</p>
 
-<p>In less than two minutes, Qingyi defeated ten opponents, none</p>
+<p>In less than two minutes, Qingyi defeated ten opponents, none lasting more than five seconds in the arena.</p>
 
-<p>lasting more than five seconds in the arena.</p>
-
-<p>The shock deepened even further, and even the sect leader leaned</p>
-
-<p>back in his chair, letting out a defeated sigh.</p>
+<p>The shock deepened even further, and even the sect leader leaned back in his chair, letting out a defeated sigh.</p>
 
 <p>He remembered an occasion, a thousand years ago, when a dragon participated in this competition.</p>
 
@@ -101,9 +89,7 @@ chapter = 659
 
 <p>It was hard to get angry at Rou’er, but thinking of her fiancé’s shameful title, ‘Longwei, the pants-shitter’, she could only shudder.</p>
 
-<p>She was so talented, a beauty who would be recognized even in the</p>
-
-<p>central region.</p>
+<p>She was so talented, a beauty who would be recognized even in the central region.</p>
 
 <p>What on earth did she do to deserve a man like that?</p>
 
@@ -111,23 +97,15 @@ chapter = 659
 
 <p>Twenty, thirty, forty…</p>
 
-<p>Soon, a hundred battles had taken place in just a few minutes, the</p>
-
-<p>number of competitors dwindling further and further as the</p>
-
-<p>infirmaries filled up.</p>
+<p>Soon, a hundred battles had taken place in just a few minutes, the number of competitors dwindling further and further as the infirmaries filled up.</p>
 
 <p>Many cursed in outrage, pointing fingers at Qingyi and accusing him of cheating, of using hidden Qi, and even asking the sect leader himself to investigate.</p>
 
-<p>Why did the world have to be so unfair? How the hell did that bastard defeat a hundred of them without even breaking a sweat, each with a</p>
-
-<p>single blow?</p>
+<p>Why did the world have to be so unfair? How the hell did that bastard defeat a hundred of them without even breaking a sweat, each with a single blow?</p>
 
 <p>The only one there who was excited was the tiger.</p>
 
-<p>His eyes sparkled as he fought the urge to throw himself into that</p>
-
-<p>arena and challenge Qingyi to a duel to the death right there. ‘Hm… I wonder if he’s interested in becoming my brother-in-law… The tiger scratched his chin, remembering his beautiful sisters.</p>
+<p>His eyes sparkled as he fought the urge to throw himself into that arena and challenge Qingyi to a duel to the death right there. ‘Hm… I wonder if he’s interested in becoming my brother-in-law… The tiger scratched his chin, remembering his beautiful sisters.</p>
 
 <p>He would certainly offer them all to Qingyi, if he proved himself worthy in their duel!</p>
 
@@ -135,9 +113,7 @@ chapter = 659
 
 <p>There were no more battles, just Qingyi landing a little over two hundred and fifty casual consecutive punches, each punch knocking down a disciple.</p>
 
-<p>Not even a single drop of sweat appeared on him. Wasn’t that a bit too</p>
-
-<p>unfair?</p>
+<p>Not even a single drop of sweat appeared on him. Wasn’t that a bit too unfair?</p>
 
 <p>Many recalled the forbidden regions of the secret realm, where beasts so powerful dwelled that no one dared to challenge them. Would the lucky one who chose Qingyi be able to defy such fortunes?</p>
 
@@ -147,6 +123,4 @@ chapter = 659
 
 <p>“I plan to choose Long Qingyi as my protector, alongside Rou’er.</p>
 
-<p>Please make an exception and allow one protector to take two</p>
-
-<p>people.”</p>
+<p>Please make an exception and allow one protector to take two people.”</p>

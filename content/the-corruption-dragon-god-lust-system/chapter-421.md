@@ -29,9 +29,7 @@ chapter = 421
 
 <p>Naturally, everyone ignored him.</p>
 
-<p>Although they were faithful followers of Auranys, the kingdom of Valemont was on the opposite side of the continent. It was a forgotten place, far from the influence of the divine kingdom of</p>
-
-<p>Auranys.</p>
+<p>Although they were faithful followers of Auranys, the kingdom of Valemont was on the opposite side of the continent. It was a forgotten place, far from the influence of the divine kingdom of Auranys.</p>
 
 <p>Qingyi, meanwhile, was being pampered by his wives, receiving treats in his mouth and eating leisurely.</p>
 
@@ -83,9 +81,7 @@ chapter = 421
 
 <p>Qingyi just smiled at those words.</p>
 
-<p>He also liked those clothes, and honestly, he should have abandoned</p>
-
-<p>the teachings of his former master long ago.</p>
+<p>He also liked those clothes, and honestly, he should have abandoned the teachings of his former master long ago.</p>
 
 <p>That old man brought him nothing but negative feelings.</p>
 
@@ -97,9 +93,7 @@ chapter = 421
 
 <p>‘I’ll bow down to her if she’s willing to become my hubby’s wife, hehehe, Isabel smiled to herself.</p>
 
-<p>She had already talked with Qingyi about Aurany. She knew well that the goddess did not like her husband very much and had even tried to</p>
-
-<p>curse him.</p>
+<p>She had already talked with Qingyi about Aurany. She knew well that the goddess did not like her husband very much and had even tried to curse him.</p>
 
 <p>She did not know how Qingyi knew these things, but she would not doubt his words.</p>
 
@@ -113,23 +107,17 @@ chapter = 421
 
 <p>“And by the power vested in me by His Holiness, the Bishop of Arca Cathedral, I bestow upon you the blessing of Auranys. May she protect you, may your life be long, and may your love be eternal,” the priest said, turning to Qingyi.</p>
 
-<p>“Long Qingyi, do you promise to love and protect Isabel Valemont for</p>
-
-<p>eternity?</p>
+<p>“Long Qingyi, do you promise to love and protect Isabel Valemont for eternity?</p>
 
 <p>“Yes.”</p>
 
 <p>The priest nodded, turning to Isabel.</p>
 
-<p>“Isabel Valemont, do you promise to serve and love Long Qingyi for</p>
-
-<p>eternity?</p>
+<p>“Isabel Valemont, do you promise to serve and love Long Qingyi for eternity?</p>
 
 <p>“I do,” Isabel replied, blushing as she turned to Qingyi.</p>
 
-<p>The handsome young man’s hands reached for her veil. Slowly, he</p>
-
-<p>lifted it, revealing Isabel’s beautiful face.</p>
+<p>The handsome young man’s hands reached for her veil. Slowly, he lifted it, revealing Isabel’s beautiful face.</p>
 
 <p>Without a moment’s hesitation, he kissed her.</p>
 

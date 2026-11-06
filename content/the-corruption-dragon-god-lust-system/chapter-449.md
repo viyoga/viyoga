@@ -73,17 +73,13 @@ chapter = 449
 
 <p>‘So this is the Tempest monarch’s supreme technique…! Qingyi rose into the skies, preparing his sword.</p>
 
-<p>It was only natural that the tempest monarch had complete control</p>
-
-<p>over them, right?</p>
+<p>It was only natural that the tempest monarch had complete control over them, right?</p>
 
 <p>He felt the lightning bolts falling toward the ground change, beginning to travel horizontally, flowing toward the center of the black clouds surrounding him.</p>
 
 <p>Dozens of lightning bolts appeared at the same time, creating a powerful pulse that spread throughout the storm, gathering before finally flowing toward Qingyi.</p>
 
-<p>The handsome young man smiled, prepared himself, and then allowed all that power to enter his body, moving it completely toward the</p>
-
-<p>sword.</p>
+<p>The handsome young man smiled, prepared himself, and then allowed all that power to enter his body, moving it completely toward the sword.</p>
 
 <p>He gritted his teeth as he struggled to swing his blade, executing the seventh form of the Tempest Monarch Sword Art.</p>
 
@@ -95,27 +91,15 @@ chapter = 449
 
 <p>It was decent.</p>
 
-<p>With nothing else to test, he just left his sea of consciousness and</p>
+<p>With nothing else to test, he just left his sea of consciousness and went to check on his wives.</p>
 
-<p>went to check on his wives.</p>
+<p>“Finally remembered that we exist, huh? Fufufu~~” Feiyan’s sweet and sensual laughter echoed.</p>
 
-<p>“Finally remembered that we exist, huh? Fufufu~~” Feiyan’s sweet and</p>
+<p>Most of the other girls were going to take care of preparing a good meal for their husband.</p>
 
-<p>sensual laughter echoed.</p>
+<p>Even Celestia was dragged into it, despite having almost no experience in the kitchen.</p>
 
-<p>Most of the other girls were going to take care of preparing a good</p>
-
-<p>meal for their husband.</p>
-
-<p>Even Celestia was dragged into it, despite having almost no</p>
-
-<p>experience in the kitchen.</p>
-
-<p>Fortunately, she had at least gotten along well with the other girls,</p>
-
-<p>barely paying attention to things like the fact that Ruyan was a</p>
-
-<p>half-demon.</p>
+<p>Fortunately, she had at least gotten along well with the other girls, barely paying attention to things like the fact that Ruyan was a half-demon.</p>
 
 <p>“I never forgot,” said Qingyi, pulling Feiyan against his body.</p>
 
@@ -125,21 +109,15 @@ chapter = 449
 
 <p>“Your husband is a very busy and ambitious man…” said Qingyi, squeezing Feiyan’s breasts lightly.</p>
 
-<p>“Nghnn~~ like what? Sticking his cock into the tight pussy of a holy</p>
-
-<p>priestess?”</p>
+<p>“Nghnn~~ like what? Sticking his cock into the tight pussy of a holy priestess?”</p>
 
 <p>Feiyan rolled over in Qingyi’s arms, turning towards him. She knelt on the bench and then sat down hard.</p>
 
 <p>A loud, wet slap echoed as those fat, soft ass cheeks hit Qingyi’s lap.</p>
 
-<p>The trembling of those plump, fleshy orbs did not stop for long</p>
+<p>The trembling of those plump, fleshy orbs did not stop for long seconds.</p>
 
-<p>seconds.</p>
-
-<p>“Well… that is one of the ambitions. But don’t forget the high elf, nor</p>
-
-<p>the imperial bastard mage.”</p>
+<p>“Well… that is one of the ambitions. But don’t forget the high elf, nor the imperial bastard mage.”</p>
 
 <p>“Forget these… all of them.” Feiyan leaned over Qingyi. “For one day…</p>
 

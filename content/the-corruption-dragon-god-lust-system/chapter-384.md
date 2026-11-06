@@ -85,50 +85,32 @@ chapter = 384
 
 <p>She put a hand to her chest, feeling her own heartbeat. Calmer than before, but still racing.</p>
 
-<p>She still remembered the first lesson her father had taught her, as soon as she had learned to read and write: about the pride of a</p>
+<p>She still remembered the first lesson her father had taught her, as soon as she had learned to read and write: about the pride of a dragon.</p>
 
-<p>dragon.</p>
-
-<p>Some dragons were known above all for their pride, but all, almost</p>
-
-<p>without exception, were proud. It was their nature.</p>
+<p>Some dragons were known above all for their pride, but all, almost without exception, were proud. It was their nature.</p>
 
 <p>She should be proud too, she should be arrogant too.</p>
 
-<p>Yet here she was, waiting patiently for a man she now called husband,</p>
-
-<p>having swallowed his seed as if she were some degenerate woman.</p>
+<p>Yet here she was, waiting patiently for a man she now called husband, having swallowed his seed as if she were some degenerate woman.</p>
 
 <p>Was that the pride of a dragon?</p>
 
 <p>“You’re thinking too much, dear.”</p>
 
-<p>A voice echoed next to Qianyao, who immediately turned around, her</p>
-
-<p>beautiful golden eyes focusing on Qingyi’s sword, still embedded in</p>
-
-<p>the panther’s head.</p>
+<p>A voice echoed next to Qianyao, who immediately turned around, her beautiful golden eyes focusing on Qingyi’s sword, still embedded in the panther’s head.</p>
 
 <p>“Ugh… he couldn’t have gotten me out of this thing before… well…” Ruxue blushed, appearing next to the Heaven-Defying Thunder Sword and grabbing the handle.</p>
 
 <p>With a quick swing, she wiped the blood off the blade.</p>
 
-<p>“A heavenly spirit!” Qianyao exclaimed in shock, covering her own</p>
+<p>“A heavenly spirit!” Qianyao exclaimed in shock, covering her own mouth.</p>
 
-<p>mouth.</p>
-
-<p>She knew that her father had seen something in that sword Qingyi was carrying, but she hadn’t really expected it to be something like</p>
-
-<p>this.</p>
+<p>She knew that her father had seen something in that sword Qingyi was carrying, but she hadn’t really expected it to be something like this.</p>
 
 <p>Heavenly spirits were beings no lower in origin than real dragons – no, even higher. Heavenly spirits were one of the closest beings to heaven that existed in the celestial sky.</p>
 
 <p>What on earth was one doing there? On Qingyi’s sword?</p>
 
-<p>Ruxue approached Qianyao, pulling her into a gentle embrace, their</p>
+<p>Ruxue approached Qianyao, pulling her into a gentle embrace, their huge tits squeezing together.</p>
 
-<p>huge tits squeezing together.</p>
-
-<p>“We’ve got a lot to talk about while that shameless womanizer cultivates, fufufu~~” Ruxue’s laugh echoed through the forest; sweet,</p>
-
-<p>mature and sensual.</p>
+<p>“We’ve got a lot to talk about while that shameless womanizer cultivates, fufufu~~” Ruxue’s laugh echoed through the forest; sweet, mature and sensual.</p>

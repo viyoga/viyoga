@@ -81,21 +81,15 @@ chapter = 389
 
 <p>Lingxue was taken aback; her eyes studied Qingyi longingly as her Qi probed his body.</p>
 
-<p>Not even the patriarch of the dragon people had been able to</p>
-
-<p>perceive it. How could Qingyi?</p>
+<p>Not even the patriarch of the dragon people had been able to perceive it. How could Qingyi?</p>
 
 <p>“Twenty thousand years ago, something happened…” Lingxue stood up, holding Xueyao a little tighter.</p>
 
 <p>“We were ambushed by bloody demonic cultivators.</p>
 
-<p>They targeted the men of our tribe, killed them all and then planted a demonic seed in the Tree of Life, the only remaining form of</p>
+<p>They targeted the men of our tribe, killed them all and then planted a demonic seed in the Tree of Life, the only remaining form of reproduction for our people…”</p>
 
-<p>reproduction for our people…”</p>
-
-<p>“A form that is only capable of giving birth to women..” Qingyi added,</p>
-
-<p>and Lingxue nodded.</p>
+<p>“A form that is only capable of giving birth to women..” Qingyi added, and Lingxue nodded.</p>
 
 <p>“Some, like Grand Elder Lanyin, were poisoned directly during the battle, while others were already born contaminated with that cursed</p>
 
@@ -103,47 +97,31 @@ chapter = 389
 
 <p>“This was the curse of our people. It’s what decimated our numbers, the reason that forced us to send Xueyao to mortal heaven.” Lingxue pressed her hand against one of the tree’s huge roots, spreading her Qi over it.</p>
 
-<p>In the next instant, a powerful demonic Qi attacked her energy, shattering it quickly and leaking out for a brief moment before</p>
+<p>In the next instant, a powerful demonic Qi attacked her energy, shattering it quickly and leaking out for a brief moment before ceasing.</p>
 
-<p>ceasing.</p>
-
-<p>The demon seed itself wasn’t particularly powerful, but there was one crucial problem: its Qi was like a poison, corrupting anyone who tried</p>
-
-<p>to destroy it.</p>
+<p>The demon seed itself wasn’t particularly powerful, but there was one crucial problem: its Qi was like a poison, corrupting anyone who tried to destroy it.</p>
 
 <p>Just breathing near it was dangerous.</p>
 
-<p>Lingxue only didn’t suffer terrible internal damage there because the demon seed was at the top of the tree, a long way from where they</p>
-
-<p>were</p>
+<p>Lingxue only didn’t suffer terrible internal damage there because the demon seed was at the top of the tree, a long way from where they were</p>
 
 <p>“The Tree of Life is poisoned, we are poisoned… The only way to defeat it is-” Lingxue suddenly fell silent.</p>
 
 <p>Why was she revealing so much to Qingyi?</p>
 
-<p>He was her dear little Xue’s man, the one who had brought her from</p>
-
-<p>the mortal heaven and allowed them to meet again.</p>
+<p>He was her dear little Xue’s man, the one who had brought her from the mortal heaven and allowed them to meet again.</p>
 
 <p>He was worthy, yet that wasn’t his problem.</p>
 
-<p>He and Xueyao couldn’t stay there while their people collapsed and</p>
-
-<p>risk being poisoned too.</p>
+<p>He and Xueyao couldn’t stay there while their people collapsed and risk being poisoned too.</p>
 
 <p>‘So that’s the problem… Qingyi smiled.</p>
 
-<p>He approached another tree root, touched it and circulated his Qi in</p>
+<p>He approached another tree root, touched it and circulated his Qi in that direction.</p>
 
-<p>that direction.</p>
+<p>“No, stop!” Lingxue shuddered with terror, releasing her aura with full force in an attempt to push the young man away.</p>
 
-<p>“No, stop!” Lingxue shuddered with terror, releasing her aura with full</p>
-
-<p>force in an attempt to push the young man away.</p>
-
-<p>How could she face her beloved Xue if, when she woke up, her</p>
-
-<p>husband was dead?</p>
+<p>How could she face her beloved Xue if, when she woke up, her husband was dead?</p>
 
 <p>Unfortunately, it was already too late.</p>
 
@@ -157,47 +135,25 @@ chapter = 389
 
 <p>The demonic poison didn’t even seem to affect him for an instant.</p>
 
-<p>Even Lingxue, an expert of the Astral Body Realm, had to be extremely</p>
+<p>Even Lingxue, an expert of the Astral Body Realm, had to be extremely careful in the face of that corruption, but Qingyi treated it with total casualness.</p>
 
-<p>careful in the face of that corruption, but Qingyi treated it with total</p>
+<p>Qingyi withdrew his hand, feeling his bloodline act, hunting down the evil energy and destroying it little by little.</p>
 
-<p>casualness.</p>
+<p>[This demonic Qi originates directly from the Celestial Heaven, it’s not the same as those little fish from the Mortal Heaven].</p>
 
-<p>Qingyi withdrew his hand, feeling his bloodline act, hunting down the</p>
+<p>A system message appeared for Qingyi, who just nodded coldly, taking a step towards Lingxue.</p>
 
-<p>evil energy and destroying it little by little.</p>
-
-<p>[This demonic Qi originates directly from the Celestial Heaven, it’s not</p>
-
-<p>the same as those little fish from the Mortal Heaven].</p>
-
-<p>A system message appeared for Qingyi, who just nodded coldly,</p>
-
-<p>taking a step towards Lingxue.</p>
-
-<p>It was obvious that she hadn’t told him everything, not even the</p>
-
-<p>primary reason why they had been attacked, nor the clear reason why</p>
-
-<p>they had sent Xueyao away.</p>
+<p>It was obvious that she hadn’t told him everything, not even the primary reason why they had been attacked, nor the clear reason why they had sent Xueyao away.</p>
 
 <p>But that didn’t matter.</p>
 
-<p>“I am Long Qingyi, the man chosen by Xueyao, heir to the power of a</p>
+<p>“I am Long Qingyi, the man chosen by Xueyao, heir to the power of a Dragon God of the Celestial Heaven.</p>
 
-<p>Dragon God of the Celestial Heaven.</p>
+<p>May the heavens curse my name, may they tremble at my existence, but I promised to make her the happiest woman in the world, and I won’t break that promise.”</p>
 
-<p>May the heavens curse my name, may they tremble at my existence,</p>
+<p>[Qingyi, don’t defy the heavens like that, you idiot!] Ruxue’s voice echoed in his mind.</p>
 
-<p>but I promised to make her the happiest woman in the world, and I won’t break that promise.”</p>
-
-<p>[Qingyi, don’t defy the heavens like that, you idiot!] Ruxue’s voice</p>
-
-<p>echoed in his mind.</p>
-
-<p>The whole space around them shook. The skies above the fox people’s</p>
-
-<p>capital immediately turned black.</p>
+<p>The whole space around them shook. The skies above the fox people’s capital immediately turned black.</p>
 
 <p>Fortunately, the tribulation didn’t fall; soon, the clouds calmed down, ignoring the man’s offense.</p>
 

@@ -53,9 +53,7 @@ chapter = 452
 
 <p>Yet he sat there casually, without any guards or restrictions, drinking casually alongside a man he had just met.</p>
 
-<p>“I believe you are here on diplomatic business, correct? For an</p>
-
-<p>Oriental to be so far from home.”</p>
+<p>“I believe you are here on diplomatic business, correct? For an Oriental to be so far from home.”</p>
 
 <p>“Not exactly,” Qingyi shook his head. “It’s not something I can tell you without having to cut out your tongue.”</p>
 
@@ -75,9 +73,7 @@ chapter = 452
 
 <p>He barely managed to dodge.</p>
 
-<p>The spear grazed his cheek, encountering nothing but the black</p>
-
-<p>dragon’s scales.</p>
+<p>The spear grazed his cheek, encountering nothing but the black dragon’s scales.</p>
 
 <p>An explosion of sparks engulfed the hall, followed by a shockwave that immediately destroyed everything around them.</p>
 
@@ -87,39 +83,25 @@ chapter = 452
 
 <p>Had Qingyi dodged it?</p>
 
-<p>No… what the hell were those black scales? His spear was barely able</p>
-
-<p>to scratch them!</p>
+<p>No… what the hell were those black scales? His spear was barely able to scratch them!</p>
 
 <p>He tried to retreat, but naturally, Qingyi didn’t allow it. His fist tore through the air at a terrifying speed, rising toward the demonic cultist’s chin.</p>
 
-<p>The cultist’s face caved in, his nose was crushed, and his body was</p>
-
-<p>thrown like a rag doll, so fast that he became nothing but a blur, breaking through the wooden walls and heading toward the skies. It took a whole second for the shockwave from that blow to spread,</p>
-
-<p>the entire inn immediately turned to dust.</p>
+<p>The cultist’s face caved in, his nose was crushed, and his body was thrown like a rag doll, so fast that he became nothing but a blur, breaking through the wooden walls and heading toward the skies. It took a whole second for the shockwave from that blow to spread, the entire inn immediately turned to dust.</p>
 
 <p>Fortunately, there was no one but Qingyi there.</p>
 
-<p>“Damn… this brat is too strong! I should have chosen an easier</p>
+<p>“Damn… this brat is too strong! I should have chosen an easier target… The cultist grunted, spinning in the air.</p>
 
-<p>target… The cultist grunted, spinning in the air.</p>
-
-<p>His face suddenly filled with terror as he called upon his demonic</p>
-
-<p>energy. Two types of demonic energy, to be more specific.</p>
+<p>His face suddenly filled with terror as he called upon his demonic energy. Two types of demonic energy, to be more specific.</p>
 
 <p>The two formed two protective barriers around him, which, unfortunately, did little to stop Qingyi.</p>
 
 <p>The handsome young man appeared in front of him, launching a downward kick.</p>
 
-<p>Fortunately, they were no longer above the village, so Qingyi didn’t</p>
+<p>Fortunately, they were no longer above the village, so Qingyi didn’t hold back.</p>
 
-<p>hold back.</p>
-
-<p>The outer barrier held Qingyi’s attack for a single moment before</p>
-
-<p>collapsing.</p>
+<p>The outer barrier held Qingyi’s attack for a single moment before collapsing.</p>
 
 <p>The power sent the demonic cultist flying downward at supersonic speed, hitting the ground where the inner barrier collapsed, taking everything within a five-kilometer radius with it.</p>
 
@@ -135,9 +117,7 @@ chapter = 452
 
 <p>His first attack against Qingyi used Mana!</p>
 
-<p>Qingyi immediately activated his draconic eyes, observing the man’s</p>
-
-<p>body.</p>
+<p>Qingyi immediately activated his draconic eyes, observing the man’s body.</p>
 
 <p>There was a Mana heart in his chest and, just below it, a Dantian.</p>
 

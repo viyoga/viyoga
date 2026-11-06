@@ -31,9 +31,7 @@ chapter = 417
 
 <p>“And that won’t-…” The captain’s words were suddenly cut off, the eyes of the young soldier beside him widening in terror.</p>
 
-<p>He could see, for a brief moment, an ethereal, thunderous flying</p>
-
-<p>blade, a mere blur tearing through the air at absurd speed and passing through the captain’s throat.</p>
+<p>He could see, for a brief moment, an ethereal, thunderous flying blade, a mere blur tearing through the air at absurd speed and passing through the captain’s throat.</p>
 
 <p>In a single moment, the old warrior’s head was sent flying into the air with a gush of blood from his decapitated neck, his eyes filled with shock, still unable to comprehend that he had died.</p>
 
@@ -57,9 +55,7 @@ chapter = 417
 
 <p>Silently, Qingyi approached the main building, moving his face briefly before entering it, observing the world beyond the walls of that fortress.</p>
 
-<p>That was the land from which this fortress protected the kingdom; putrid swamps filled with beasts and death, creatures born for</p>
-
-<p>violence.</p>
+<p>That was the land from which this fortress protected the kingdom; putrid swamps filled with beasts and death, creatures born for violence.</p>
 
 <p>He was curious about what lay within, but now was simply not the time.</p>
 
@@ -81,31 +77,21 @@ chapter = 417
 
 <p>Approaching, Qingyi clenched his hands, feeling the pain in his palms go away as the Seed of Life worked, healing him instantly.</p>
 
-<p>“Ah… Hahaha.” A bitter laugh escaped Belgrath’s lips. “It took a lot of work to activate this array without my mana heart. You really ruined</p>
-
-<p>me, young man.”</p>
+<p>“Ah… Hahaha.” A bitter laugh escaped Belgrath’s lips. “It took a lot of work to activate this array without my mana heart. You really ruined me, young man.”</p>
 
 <p>“You did this to yourself,” Qingyi shook his head. “First, when you tried to marry your son to my Isabel. Second, when you tried to steal the crown from my father-in-law, David Valemont.”</p>
 
 <p>“S-steal? Hahaha.” Belgrath raised his torso with difficulty, leaning on the throne, his voice coming out like the roar of a beast.</p>
 
-<p>“I cannot steal what is rightfully mine, I can only reclaim what is</p>
-
-<p>rightfully mine… The Valemont family are the thieves!”</p>
+<p>“I cannot steal what is rightfully mine, I can only reclaim what is rightfully mine… The Valemont family are the thieves!”</p>
 
 <p>Belgrath returned to his throne, coughing up blood.</p>
 
 <p>“It doesn’t matter,” Qingyi shook his head, drawing the Heaven-Defying Thunder Sword.</p>
 
-<p>“In the end, you raised your weapon against my wife’s family, and you</p>
+<p>“In the end, you raised your weapon against my wife’s family, and you are left with nothing but death.”</p>
 
-<p>are left with nothing but death.”</p>
-
-<p>With a smooth movement, he beheaded Belgrath and then threw the</p>
-
-<p>body into the Mind World, instructing Ruxue to deliver it to</p>
-
-<p>Khaedryss.</p>
+<p>With a smooth movement, he beheaded Belgrath and then threw the body into the Mind World, instructing Ruxue to deliver it to Khaedryss.</p>
 
 <p>She would probably make a great feast out of that corpse.</p>
 
@@ -113,17 +99,11 @@ chapter = 417
 
 <p>“Your Highness… Is it done? Where is Belgrath?” The general asked, kneeling in front of Qingyi.</p>
 
-<p>“Dead. I will only take his head to my father-in-law.” Qingyi shook his</p>
+<p>“Dead. I will only take his head to my father-in-law.” Qingyi shook his head.</p>
 
-<p>head.</p>
+<p>“Make sure the fortress has enough supplies and men to defend against the invaders from the north, and then march with the rest of the troops. I will go ahead.”</p>
 
-<p>“Make sure the fortress has enough supplies and men to defend against the invaders from the north, and then march with the rest of</p>
-
-<p>the troops. I will go ahead.”</p>
-
-<p>The general opened his lips to question, but in the end, he remained</p>
-
-<p>silent.</p>
+<p>The general opened his lips to question, but in the end, he remained silent.</p>
 
 <p>He was a warrior of the ninth ring, equivalent to a True Immortal. He should be able to handle those things on his own.</p>
 

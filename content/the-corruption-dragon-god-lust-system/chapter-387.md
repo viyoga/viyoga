@@ -31,9 +31,7 @@ chapter = 387
 
 <p>Qingyi spun his body in the air, calling for one flaming spear after another, hurling them towards the hundreds of beasts that surrounded them.</p>
 
-<p>The first spears were thrown at the weaker spirit beasts, while the</p>
-
-<p>last three, aimed at those above the Realm of the False Immortal, hit the huge bodies with powerful explosions, severing limbs and even decapitating an unlucky one.</p>
+<p>The first spears were thrown at the weaker spirit beasts, while the last three, aimed at those above the Realm of the False Immortal, hit the huge bodies with powerful explosions, severing limbs and even decapitating an unlucky one.</p>
 
 <p>In all honesty, Qingyi no longer felt any pressure from beasts like that.</p>
 
@@ -77,31 +75,21 @@ chapter = 387
 
 <p>With a smooth thrust, Qingyi launched himself forward, using the Heaven-Shattering Divine Slash.</p>
 
-<p>The spirit beast tried to defend itself, its roots as sharp as razors flying towards Qingyi one after the other, tearing up the ground as</p>
-
-<p>they moved like serpents.</p>
+<p>The spirit beast tried to defend itself, its roots as sharp as razors flying towards Qingyi one after the other, tearing up the ground as they moved like serpents.</p>
 
 <p>But it was no use.</p>
 
 <p>They turned to ash the moment they got close to Qingyi’s body, the temperature around them exploding more and more.</p>
 
-<p>The beast simply couldn’t react as Qingyi swung the Heaven-defying Thunder Sword right at the greenish stalk, so thick it looked like a log. The beast tried to move its Qi from the realm of the True Immortal’s, but even this was unable to resist Qingyi’s blade, which sank into its</p>
-
-<p>body.</p>
+<p>The beast simply couldn’t react as Qingyi swung the Heaven-defying Thunder Sword right at the greenish stalk, so thick it looked like a log. The beast tried to move its Qi from the realm of the True Immortal’s, but even this was unable to resist Qingyi’s blade, which sank into its body.</p>
 
 <p>A desperate hiss echoed throughout the forest.</p>
 
 <p>The very space in front of Qingyi seemed to tear before collapsing in a heat-filled shockwave that, like the flames of Khaedyrss, swept everything in hundreds of meters around him.</p>
 
-<p>The head of the plant fell to the ground with a thud, slightly</p>
+<p>The head of the plant fell to the ground with a thud, slightly scorched, its reddish flower rapidly losing strength.</p>
 
-<p>scorched, its reddish flower rapidly losing strength.</p>
-
-<p>With a soft sigh, Qingyi only turned towards Qianyao and Khaedryss,</p>
-
-<p>who already seemed to have cleared the battlefield, getting rid of the</p>
-
-<p>last of the beasts.</p>
+<p>With a soft sigh, Qingyi only turned towards Qianyao and Khaedryss, who already seemed to have cleared the battlefield, getting rid of the last of the beasts.</p>
 
 <p>Khaedryss already wanted to start eating right there, but Qingyi decided that it was better if they just hurried along.</p>
 
@@ -109,12 +97,8 @@ chapter = 387
 
 <p>Fortunately, there were no further problems and after about five hours of travel, Khaedryss landed at the base of the huge tree, anxiously returning to the world of the mind.</p>
 
-<p>She had hunted hundreds of prey, some more powerful than those</p>
+<p>She had hunted hundreds of prey, some more powerful than those present in the world of the mind, some even capable of wounding her.</p>
 
-<p>present in the world of the mind, some even capable of wounding her.</p>
-
-<p>Obviously, she was excited to eat, just as much as Qingyi was excited</p>
-
-<p>to meet the matriarch.</p>
+<p>Obviously, she was excited to eat, just as much as Qingyi was excited to meet the matriarch.</p>
 
 <p>Was an incomparable beauty with massive tits and perfect traits asking too much?</p>

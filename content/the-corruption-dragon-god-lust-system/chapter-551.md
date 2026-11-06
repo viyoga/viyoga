@@ -25,9 +25,7 @@ chapter = 551
 
 <p>He sat down opposite Jin Hao, his eyes clearly tired.</p>
 
-<p>“But that’s not why I’m here. I want to know about the imperial family’s movements. Why are they moving the emperor’s hand? I heard that the destination was the divine kingdom of Auranys, across</p>
-
-<p>the sea of eternal blue. Is that true?”</p>
+<p>“But that’s not why I’m here. I want to know about the imperial family’s movements. Why are they moving the emperor’s hand? I heard that the destination was the divine kingdom of Auranys, across the sea of eternal blue. Is that true?”</p>
 
 <p>Jin Hao did not answer immediately.</p>
 
@@ -49,15 +47,11 @@ chapter = 551
 
 <p>The marquis did not respond.</p>
 
-<p>The Crimson Eclipse Saber was, after all, too powerful. Even if his words were enough for immediate execution, it simply wasn’t worth</p>
-
-<p>it.</p>
+<p>The Crimson Eclipse Saber was, after all, too powerful. Even if his words were enough for immediate execution, it simply wasn’t worth it.</p>
 
 <p>“Ah… throw this tea away and let’s have some good liquor, now it’s time to-” Jianming suddenly fell silent.</p>
 
-<p>His eyes trembled and the cup in his hand fell to the ground,</p>
-
-<p>shattering.</p>
+<p>His eyes trembled and the cup in his hand fell to the ground, shattering.</p>
 
 <p>He stood up, his heart racing as his Qi expanded, protecting everyone there.</p>
 
@@ -65,37 +59,25 @@ chapter = 551
 
 <p>It was unusual to see him like this.</p>
 
-<p>“Death…” The moment Jianming’s voice fell, an explosion echoed, heard only for a brief moment before being completely swallowed up</p>
-
-<p>by others.</p>
+<p>“Death…” The moment Jianming’s voice fell, an explosion echoed, heard only for a brief moment before being completely swallowed up by others.</p>
 
 <p>Dozens, hundreds.</p>
 
 <p>The numbers grew relentlessly. Over a thousand explosions took over the capital, most coming from the imperial palace beside them. Following them came terrifying auras laden with murderous intent. The weakest was in the ancestral emperor’s realm, with many at the astral body level.</p>
 
-<p>It took only an instant before screams of pain and despair took over the capital, hundreds of battles exploding at once, powerful auras</p>
-
-<p>engulfing everything.</p>
+<p>It took only an instant before screams of pain and despair took over the capital, hundreds of battles exploding at once, powerful auras engulfing everything.</p>
 
 <p>The protective formations of the five-colored pavilion activated immediately, the nearly endless reserves of spirit crystals working to keep them active at full strength.</p>
 
-<p>Without hesitation, Jianming grabbed his saber and rushed toward the exit of the building, his eyes filling with shock as he ascended into</p>
+<p>Without hesitation, Jianming grabbed his saber and rushed toward the exit of the building, his eyes filling with shock as he ascended into the skies.</p>
 
-<p>the skies.</p>
+<p>His body left the protection of the formations and his eyes fixed on the horizon.</p>
 
-<p>His body left the protection of the formations and his eyes fixed on</p>
-
-<p>the horizon.</p>
-
-<p>He saw thousands of experts reacting at the same time, their powerful auras colliding with those of beings he had never seen in his</p>
-
-<p>life.</p>
+<p>He saw thousands of experts reacting at the same time, their powerful auras colliding with those of beings he had never seen in his life.</p>
 
 <p>They had blue skin and red eyes that exuded nothing but hatred and murderous intent, killing everything in front of them.</p>
 
-<p>His gaze fell and he watched as one of them threw himself into the midst of hundreds of civilians, shredding them in a single moment</p>
-
-<p>and absorbing their blood.</p>
+<p>His gaze fell and he watched as one of them threw himself into the midst of hundreds of civilians, shredding them in a single moment and absorbing their blood.</p>
 
 <p>Was he… getting stronger?</p>
 
@@ -109,20 +91,12 @@ chapter = 551
 
 <p>She could clearly sense all those auras, too powerful for someone of her level to even dream of fighting.</p>
 
-<p>“It’s okay, dear…” Jin Hao forced himself to remain calm and extended</p>
-
-<p>a single hand. “Protect my other wives, my shadows will take care of</p>
-
-<p>the esteemed customers.”</p>
+<p>“It’s okay, dear…” Jin Hao forced himself to remain calm and extended a single hand. “Protect my other wives, my shadows will take care of the esteemed customers.”</p>
 
 <p>A huge axe materialized in Jin Hao’s hands.</p>
 
-<p>His eyes were focused, as heavy as those of his father-in-law and the</p>
-
-<p>marquis.</p>
+<p>His eyes were focused, as heavy as those of his father-in-law and the marquis.</p>
 
 <p>It might be rusty, but it wouldn’t forget the taste of blood so easily.</p>
 
-<p>After all, the five-color pavilion wasn’t built for peace alone. Even though he had left his blade behind after settling down, he had</p>
-
-<p>spilled rivens of blood in the past.</p>
+<p>After all, the five-color pavilion wasn’t built for peace alone. Even though he had left his blade behind after settling down, he had spilled rivens of blood in the past.</p>

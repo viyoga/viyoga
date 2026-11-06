@@ -27,13 +27,9 @@ chapter = 391
 
 <p>Seventy billion lust points for a single touch and a single corruption point.</p>
 
-<p>That was at least hundreds of times more than Qianyao could give him. If he could fuck Lingxue, wouldn’t his rewards be in the trillions? Just thinking about it made Qingyi’s heart burn. He needed that</p>
+<p>That was at least hundreds of times more than Qianyao could give him. If he could fuck Lingxue, wouldn’t his rewards be in the trillions? Just thinking about it made Qingyi’s heart burn. He needed that woman.</p>
 
-<p>woman.</p>
-
-<p>Qingyi was lost in thought, already preparing to call Qianyao and</p>
-
-<p>finally leave. But suddenly, he turned his gaze, noticing Xueyao by his side.</p>
+<p>Qingyi was lost in thought, already preparing to call Qianyao and finally leave. But suddenly, he turned his gaze, noticing Xueyao by his side.</p>
 
 <p>She was trembling, her beautiful blue eyes shedding tears without stopping.</p>
 
@@ -79,9 +75,7 @@ chapter = 391
 
 <p>She didn’t look happy at all. Her arms were crossed over her breasts, squeezing them obscenely, her cheeks adorably inflated. “Shameless husband! You should at least have explained to me what you were going to do before sending me to that place!” Qianyao shouted angrily.</p>
 
-<p>She approached Qingyi and opened her mouth, placing a bite on his chest, eliciting a cry of pain from the handsome young man. “Ugh… Crazy girl… if you want to devour your husband so badly, at least start at the bottom!” He exclaimed, his voice clearly full of</p>
-
-<p>teasing.</p>
+<p>She approached Qingyi and opened her mouth, placing a bite on his chest, eliciting a cry of pain from the handsome young man. “Ugh… Crazy girl… if you want to devour your husband so badly, at least start at the bottom!” He exclaimed, his voice clearly full of teasing.</p>
 
 <p>“That was a love bite, the next one will be hate!” Qianyao declared, puffing out her chest.</p>
 
@@ -93,26 +87,16 @@ chapter = 391
 
 <p>“They’ve all been good to me and the temple is beautiful and rich in Qi. How did you manage to get your hands on such a treasure?” Qianyao asked, her beautiful golden eyes glowing with intensity as she studied her husband.</p>
 
-<p>“It’s a long story…” Qingyi smiled. “But how do you feel about living there? With your sisters and your shameless husband, for all</p>
+<p>“It’s a long story…” Qingyi smiled. “But how do you feel about living there? With your sisters and your shameless husband, for all eternity?”</p>
 
-<p>eternity?”</p>
-
-<p>“Sounds good…” Qianyao hesitated, “but I don’t know if father would</p>
-
-<p>allow it. He might agree to marry us both, but allowing me to leave with you… it’s complicated,” she said, stroking Qingyi’s long black hair.</p>
+<p>“Sounds good…” Qianyao hesitated, “but I don’t know if father would allow it. He might agree to marry us both, but allowing me to leave with you… it’s complicated,” she said, stroking Qingyi’s long black hair.</p>
 
 <p>Her heart was beating fast and her face was softly flushed.</p>
 
 <p>How could a man she had known for such a short time get into her chest like that?</p>
 
-<p>‘Shit… I forgot about that! Qingyi repeated to himself, his face taken</p>
+<p>‘Shit… I forgot about that! Qingyi repeated to himself, his face taken by a soft frown.</p>
 
-<p>by a soft frown.</p>
+<p>Fortunately, Qianyao soon squeezed her breasts against his face with a little more force, enough to stop Qingyi’s temper from souring even further.</p>
 
-<p>Fortunately, Qianyao soon squeezed her breasts against his face with a little more force, enough to stop Qingyi’s temper from souring even</p>
-
-<p>further.</p>
-
-<p>For now, all that mattered was that Qingyi needed to know what Tianjin saw in him and, above all, whether he would be a risk to his</p>
-
-<p>women.</p>
+<p>For now, all that mattered was that Qingyi needed to know what Tianjin saw in him and, above all, whether he would be a risk to his women.</p>

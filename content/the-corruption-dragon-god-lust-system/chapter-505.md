@@ -29,9 +29,7 @@ chapter = 505
 
 <p>Power was good, he couldn’t deny it.</p>
 
-<p>His skin was clearer than before, his features sharper, and his</p>
-
-<p>transcendental beauty even more intense.</p>
+<p>His skin was clearer than before, his features sharper, and his transcendental beauty even more intense.</p>
 
 <p>The training had been worth it.</p>
 
@@ -69,13 +67,9 @@ chapter = 505
 
 <p>For the rest of that day, he only gave love to his wives.</p>
 
-<p>Celestia, Aeryn, Seraphine, Elize, Safira, Margareth, Qingxue,</p>
+<p>Celestia, Aeryn, Seraphine, Elize, Safira, Margareth, Qingxue, Rongyan…</p>
 
-<p>Rongyan…</p>
-
-<p>None of them were left out of his embrace, loud and obscene moans</p>
-
-<p>filling the once silent palace.</p>
+<p>None of them were left out of his embrace, loud and obscene moans filling the once silent palace.</p>
 
 <p>When things finally calmed down, it was already dawn. Qingyi’s powerful naked body was lying in a sea of curves and breasts.</p>
 
@@ -87,9 +81,7 @@ chapter = 505
 
 <p>It was unusual for Qingxue to show such feelings.</p>
 
-<p>“Before I left, I sent a gift to the sect. It should be enough for the</p>
-
-<p>leader to reach the Transcendence Realm and… honestly, considering the state I left the Nine Peaks Basin in, I have no doubt that he will become the ruler of that entire land.”</p>
+<p>“Before I left, I sent a gift to the sect. It should be enough for the leader to reach the Transcendence Realm and… honestly, considering the state I left the Nine Peaks Basin in, I have no doubt that he will become the ruler of that entire land.”</p>
 
 <p>Jinhai, leader of the Ascending Dragon Sect.</p>
 
@@ -111,23 +103,15 @@ chapter = 505
 
 <p>“I need to give the master a gift too…” Feiyan said beside them, hugging Qingxue from behind and placing her hand on Qingyi’s chest.</p>
 
-<p>Hearing that, Qingyi nodded. He also respected Madame Xue greatly and, one day, would like to repay her for the kindness she had shown</p>
-
-<p>him.</p>
+<p>Hearing that, Qingyi nodded. He also respected Madame Xue greatly and, one day, would like to repay her for the kindness she had shown him.</p>
 
 <p>“And there’s my first master too…” Qingyi remembered that annoying, grumpy old man who had taken care of him for twelve years.</p>
 
-<p>Well, not to his grave, since Qingyi had abandoned the old man</p>
-
-<p>behind. With his butt up in the air, no less.</p>
+<p>Well, not to his grave, since Qingyi had abandoned the old man behind. With his butt up in the air, no less.</p>
 
 <p>Qingyi was very ashamed of this, but in his defense, it was legitimate revenge and proportional to the threats of being castrated.</p>
 
-<p>The villagers from the nearby village should have visited him and</p>
-
-<p>given him a proper burial, since they passed by there almost every</p>
-
-<p>week.</p>
+<p>The villagers from the nearby village should have visited him and given him a proper burial, since they passed by there almost every week.</p>
 
 <p>“What is husband’s home heaven like? Meilin asked from the opposite side, listening to the conversation with curiosity.</p>
 
@@ -137,18 +121,12 @@ chapter = 505
 
 <p>Video games, movies, the internet…</p>
 
-<p>He was addicted to all of that, but honestly, he didn’t miss any of it</p>
-
-<p>anymore.</p>
+<p>He was addicted to all of that, but honestly, he didn’t miss any of it anymore.</p>
 
 <p>He had already let go of it all.</p>
 
 <p>The Mortal Heaven was, like it or not, his home.</p>
 
-<p>“Ah… I hope to find enemies worthy of testing my power when I arrive</p>
-
-<p>at the Illuminated Heaven Empire,” Qingyi thought, pushing those</p>
-
-<p>thoughts out of his mind.</p>
+<p>“Ah… I hope to find enemies worthy of testing my power when I arrive at the Illuminated Heaven Empire,” Qingyi thought, pushing those thoughts out of his mind.</p>
 
 <p>Good enemies were hard to find when he was so powerful.</p>

@@ -59,9 +59,7 @@ chapter = 432
 
 <p>Lucien felt as if he had been hit by a demonic bull. No… perhaps something even stronger.</p>
 
-<p>His entire body was thrown backward like a cannonball. Dust rose for</p>
-
-<p>a brief moment before being erased by a spell from Sapphire.</p>
+<p>His entire body was thrown backward like a cannonball. Dust rose for a brief moment before being erased by a spell from Sapphire.</p>
 
 <p>The Bishop merely tapped the ground lightly, forming a golden barrier around the two of them.</p>
 
@@ -71,9 +69,7 @@ chapter = 432
 
 <p>How the hell could that bastard punch so hard? Was his fist made of steel?</p>
 
-<p>Lucien didn’t know that, at his current level, Qingyi’s skin was probably tougher than many types of magical steel. His bones, even</p>
-
-<p>more so.</p>
+<p>Lucien didn’t know that, at his current level, Qingyi’s skin was probably tougher than many types of magical steel. His bones, even more so.</p>
 
 <p>Before Lucien could even recover, Qingyi was already on top of him.</p>
 
@@ -85,95 +81,57 @@ chapter = 432
 
 <p>Each of Qingyi’s fists passed inches from his face, causing his golden hair to flutter.</p>
 
-<p>“Lustful son of a bitch, huh? You’re not entirely wrong,” Qingyi</p>
+<p>“Lustful son of a bitch, huh? You’re not entirely wrong,” Qingyi whispered, kicking toward Lucien’s legs.</p>
 
-<p>whispered, kicking toward Lucien’s legs.</p>
+<p>“But tell me,” Qingyi continued, watching Lucien try and fail to dodge his blow.</p>
 
-<p>“But tell me,” Qingyi continued, watching Lucien try and fail to dodge</p>
-
-<p>his blow.</p>
-
-<p>His heel struck the young hero’s knee, sending him crashing to the</p>
-
-<p>ground.</p>
+<p>His heel struck the young hero’s knee, sending him crashing to the ground.</p>
 
 <p>“Is that language befitting a man of the Goddess?” Qingyi asked.</p>
 
 <p>The moment Lucien’s back hit the floor, his face was immediately struck by one of Qingyi’s punches.</p>
 
-<p>The floor beneath him cracked, the white marble turned to dust by the force of the impact, causing Lucien’s head to sink ten centimeters</p>
-
-<p>into the ground.</p>
+<p>The floor beneath him cracked, the white marble turned to dust by the force of the impact, causing Lucien’s head to sink ten centimeters into the ground.</p>
 
 <p>“You had desire toward one of my women.”</p>
 
-<p>Qingyi punched again, his hand returning drenched in blood as</p>
+<p>Qingyi punched again, his hand returning drenched in blood as Lucien’s face sank another five centimeters.</p>
 
-<p>Lucien’s face sank another five centimeters.</p>
+<p>“You despised me, challenged me to a duel, and even called me a sinner.”</p>
 
-<p>“You despised me, challenged me to a duel, and even called me a</p>
+<p>At the third punch, Lucien raised his hands, trying to defend himself, but it was useless.</p>
 
-<p>sinner.”</p>
+<p>“Even now, you haven’t erased this bitterness from your heart… Are you sure I am the one sinning?</p>
 
-<p>At the third punch, Lucien raised his hands, trying to defend himself,</p>
-
-<p>but it was useless.</p>
-
-<p>“Even now, you haven’t erased this bitterness from your heart… Are</p>
-
-<p>you sure I am the one sinning?</p>
-
-<p>Qingyi raised his fist to deliver the fourth punch, but was stopped by</p>
-
-<p>the Bishop’s voice.</p>
+<p>Qingyi raised his fist to deliver the fourth punch, but was stopped by the Bishop’s voice.</p>
 
 <p>“Enough.”</p>
 
-<p>The Bishop raised a single hand, causing the golden barrier</p>
+<p>The Bishop raised a single hand, causing the golden barrier surrounding them to disappear.</p>
 
-<p>surrounding them to disappear.</p>
-
-<p>He walked over to Lucien, knelt down, and poured a healing potion</p>
-
-<p>into his mouth; the wounds healed immediately.</p>
+<p>He walked over to Lucien, knelt down, and poured a healing potion into his mouth; the wounds healed immediately.</p>
 
 <p>“Your H-Holiness,” Lucien spoke weakly.</p>
 
-<p>“Do not forget these teachings, Lucien. You will go into seclusion and</p>
-
-<p>only come out when your heart is pure,” the Bishop said, his voice</p>
-
-<p>firm and angry.</p>
+<p>“Do not forget these teachings, Lucien. You will go into seclusion and only come out when your heart is pure,” the Bishop said, his voice firm and angry.</p>
 
 <p>Honestly, this was probably the strangest group of heroes Auranys had ever brought together.</p>
 
-<p>A heretic elf who worshipped only nature spirits and a mage whose</p>
+<p>A heretic elf who worshipped only nature spirits and a mage whose beliefs, like those of all mages, were based solely on self-interest.</p>
 
-<p>beliefs, like those of all mages, were based solely on self-interest.</p>
-
-<p>Now, there was even a foreigner from a distant land who barely recognized their Goddess and had feuds with the church’s chosen</p>
-
-<p>main hero.</p>
+<p>Now, there was even a foreigner from a distant land who barely recognized their Goddess and had feuds with the church’s chosen main hero.</p>
 
 <p>Even the latter was now filled with sin in his heart.</p>
 
 <p>Apparently, only the sister who had been chosen as the group’s healer had her heart in the right place.</p>
 
-<p>“Long Qingyi, come with me, I will initiate you. If you wish to give up,</p>
-
-<p>now is your last chance.</p>
+<p>“Long Qingyi, come with me, I will initiate you. If you wish to give up, now is your last chance.</p>
 
 <p>Finding this pendant has made it your destiny to be a hero of light, but I will not force this destiny upon you.”</p>
 
-<p>“I don’t plan on giving up, Qingyi replied, glancing sideways at the</p>
+<p>“I don’t plan on giving up, Qingyi replied, glancing sideways at the two beauties.</p>
 
-<p>two beauties.</p>
-
-<p>He knew that this destiny stuff was pure nonsense. If it were real,</p>
-
-<p>such a pendant would never fall into the hands of someone like that</p>
-
-<p>Orc Warlord.</p>
+<p>He knew that this destiny stuff was pure nonsense. If it were real, such a pendant would never fall into the hands of someone like that Orc Warlord.</p>
 
 <p>But his eyes swept over Aeryn’s thick, shapely thighs and Sapphire’s huge, pale, soft tits.</p>
 

@@ -69,9 +69,7 @@ chapter = 415
 
 <p>Qingyi just watched coldly as the heat ceased and, little by little, the black smoke dispersed into the air, revealing Zharuk’s body.</p>
 
-<p>He was naturally not in a good state, but to Qingyi’s surprise, he was</p>
-
-<p>still alive.</p>
+<p>He was naturally not in a good state, but to Qingyi’s surprise, he was still alive.</p>
 
 <p>His bones were visible and even his lungs, struggling for air; every organ in his body collapsed, every inch of his skin charred.</p>
 
@@ -79,38 +77,24 @@ chapter = 415
 
 <p>Qingyi had heard of it; orcs had their own gods.</p>
 
-<p>Their names weren’t known to most, but Qingyi knew they were</p>
+<p>Their names weren’t known to most, but Qingyi knew they were powerful and one of the main reasons for the orcs’ fighting power.</p>
 
-<p>powerful and one of the main reasons for the orcs’ fighting power.</p>
-
-<p>If he had time, Zharuk could recover with even more power and once</p>
-
-<p>again try to defeat Qingyi.</p>
+<p>If he had time, Zharuk could recover with even more power and once again try to defeat Qingyi.</p>
 
 <p>Unfortunately for him, the handsome young man had already decided the end of that battle.</p>
 
 <p>Zharuk’s attack had caused him some internal damage, but this had already been healed by the Seed of Life.</p>
 
-<p>What really worried him was that his men were still having trouble</p>
+<p>What really worried him was that his men were still having trouble with the orcs.</p>
 
-<p>with the orcs.</p>
+<p>Despite the short time Qingyi had led them, they were his subordinates and respected him deeply.</p>
 
-<p>Despite the short time Qingyi had led them, they were his</p>
-
-<p>subordinates and respected him deeply.</p>
-
-<p>With a sigh, Qingyi just stepped on Zharuk’s head and smashed it, destroying his brain and imbuing his feet with lightning, ensuring that the entire inside of Zharuk’s body was completely destroyed,</p>
-
-<p>reducing him to nothing but bloody goo.</p>
+<p>With a sigh, Qingyi just stepped on Zharuk’s head and smashed it, destroying his brain and imbuing his feet with lightning, ensuring that the entire inside of Zharuk’s body was completely destroyed, reducing him to nothing but bloody goo.</p>
 
 <p>Qingyi just shook his head.</p>
 
-<p>Raising a single hand, the only thing intact on Zharuk’s body, the</p>
+<p>Raising a single hand, the only thing intact on Zharuk’s body, the talisman he had used to gain all this power, flew into his grasp. Qingyi was about to observe it more carefully when something broke through the air, flying towards his back and through his chest.</p>
 
-<p>talisman he had used to gain all this power, flew into his grasp. Qingyi was about to observe it more carefully when something broke through the air, flying towards his back and through his chest.</p>
-
-<p>It was a spear, powerful and strangely stealthy, carrying the power of</p>
-
-<p>a True Immortal.</p>
+<p>It was a spear, powerful and strangely stealthy, carrying the power of a True Immortal.</p>
 
 <p>“Uh… what an interesting little thing.” Qingyi smiled, turning around.</p>

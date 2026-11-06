@@ -81,73 +81,51 @@ chapter = 436
 
 <p>Meilin and an unparalleled talent.</p>
 
-<p>That alone placed him above many of the more mediocre sons of the</p>
-
-<p>Gold King.</p>
+<p>That alone placed him above many of the more mediocre sons of the Gold King.</p>
 
 <p>“Can we talk alone for a moment?” The Shadow asked.</p>
 
 <p>“Hm…”</p>
 
-<p>Qingyi thought for a brief moment before nodding. Soon, the two</p>
-
-<p>men found themselves walking side by side.</p>
+<p>Qingyi thought for a brief moment before nodding. Soon, the two men found themselves walking side by side.</p>
 
 <p>“When do you plan to visit Master Jin?” The Shadow asked as they arrived at a secluded balcony overlooking the entire capital.</p>
 
 <p>He immediately sat down, took a bottle of liquor from his robes, and poured himself and Qingyi a drink.</p>
 
-<p>“I don’t know,” Qingyi shook his head, taking a sip of the strong but sweet alcohol. “A few months. Not much more than a year or two.” “Hm…” Shadow scratched his chin, a soft grunt escaping from his</p>
-
-<p>covered lips.</p>
+<p>“I don’t know,” Qingyi shook his head, taking a sip of the strong but sweet alcohol. “A few months. Not much more than a year or two.” “Hm…” Shadow scratched his chin, a soft grunt escaping from his covered lips.</p>
 
 <p>Despite wearing a mask, he was still able to drink normally, as if the liquid passed directly through the steel.</p>
 
 <p>“And are you sure you understand the danger of joining the heroes of the Church of Auranys? Would you like me to escort you?”</p>
 
-<p>“Oh? You know about the five heroes? Do you know what we need to</p>
-
-<p>do, specifically?” Qingyi asked.</p>
+<p>“Oh? You know about the five heroes? Do you know what we need to do, specifically?” Qingyi asked.</p>
 
 <p>Even he hadn’t received the complete information and was extremely curious about what they would need to kill.</p>
 
-<p>As for the escort proposal, he would refuse it, regardless of the</p>
-
-<p>enemy’s power.</p>
+<p>As for the escort proposal, he would refuse it, regardless of the enemy’s power.</p>
 
 <p>He didn’t want any babysitters following him around.</p>
 
-<p>“I know it’s an unholy ritual and that it involved the demons of this</p>
+<p>“I know it’s an unholy ritual and that it involved the demons of this land and ours as well… they seem to be preparing something big, and whatever it is, it’s about to explode.”</p>
 
-<p>land and ours as well… they seem to be preparing something big, and whatever it is, it’s about to explode.”</p>
-
-<p>‘Something involving the demons of both lands? Demons who used demonic Qi and demons who used demonic mana?” Qingyi repeated</p>
-
-<p>in his mind.</p>
+<p>‘Something involving the demons of both lands? Demons who used demonic Qi and demons who used demonic mana?” Qingyi repeated in his mind.</p>
 
 <p>A tremor spread through his body.</p>
 
-<p>What on earth could bring the two such different demonic forces</p>
+<p>What on earth could bring the two such different demonic forces together?</p>
 
-<p>together?</p>
-
-<p>Qingyi was about to ask more questions when a sweet voice echoed</p>
-
-<p>behind him, catching his attention.</p>
+<p>Qingyi was about to ask more questions when a sweet voice echoed behind him, catching his attention.</p>
 
 <p>“Husband!”</p>
 
-<p>The two beauties appeared in the hallway, their beautiful faces</p>
-
-<p>glowing as they embraced Qingyi.</p>
+<p>The two beauties appeared in the hallway, their beautiful faces glowing as they embraced Qingyi.</p>
 
 <p>“Why did it take you so long to leave that cultivation room, huh? Someone from the Divine Church of Auranys came here looking for you,” Margareth said, snuggling into Qingyi’s arms.</p>
 
 <p>“What did they want?”</p>
 
-<p>“I don’t know… but it seemed important. They said you should come</p>
-
-<p>to the cathedral immediately. It seems to have something to do with the Sacred Priestess. She’s one of the five heroines too.”</p>
+<p>“I don’t know… but it seemed important. They said you should come to the cathedral immediately. It seems to have something to do with the Sacred Priestess. She’s one of the five heroines too.”</p>
 
 <p>“Hm…” Qingyi grunted.</p>
 

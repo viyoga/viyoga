@@ -33,9 +33,7 @@ chapter = 517
 
 <p>Jin Hao’s eyes filled with shock and surprise as the young man bowed to him.</p>
 
-<p>The arrogance to challenge the heavens and the humility to bow and</p>
-
-<p>apologize to his elders…</p>
+<p>The arrogance to challenge the heavens and the humility to bow and apologize to his elders…</p>
 
 <p>Jin Hao was unable to stop the excitement from taking over his face.</p>
 
@@ -51,9 +49,7 @@ chapter = 517
 
 <p>The Shadows had obviously sensed that frightening Qi and were ready to storm the place at any moment.</p>
 
-<p>But they soon relaxed, receiving a sound transmission from their</p>
-
-<p>master.</p>
+<p>But they soon relaxed, receiving a sound transmission from their master.</p>
 
 <p>“Miss Meilin, your father is waiting for you.”</p>
 
@@ -79,9 +75,7 @@ chapter = 517
 
 <p>But it was good that Qingyi had that sword with him.</p>
 
-<p>The Gold King had been thinking for a long time about what would be the most appropriate gift for his son-in-law. Now he knew exactly</p>
-
-<p>what it was.</p>
+<p>The Gold King had been thinking for a long time about what would be the most appropriate gift for his son-in-law. Now he knew exactly what it was.</p>
 
 <p>The moment the Gold King opened his spatial ring, Ruxue’s sweet and mature voice echoed in Qingyi’s mind.</p>
 
@@ -89,9 +83,7 @@ chapter = 517
 
 <p>Ruxue herself couldn’t believe her eyes as she watched the items that appeared in the Gold King’s hand.</p>
 
-<p>In one of them, a fragment of steel. In the other, her scabbard. The original, forged by its creator over a hundred and fifty thousand years</p>
-
-<p>ago.</p>
+<p>In one of them, a fragment of steel. In the other, her scabbard. The original, forged by its creator over a hundred and fifty thousand years ago.</p>
 
 <p>It was, of course, incomparable to the scabbard she had made with Qi when she first met Qingyi.</p>
 
@@ -99,45 +91,29 @@ chapter = 517
 
 <p>[Put me in my sheath, quick! It will help me absorb the fragment better.] Ruxue shouted in Qingyi’s mind, full of excitement.</p>
 
-<p>She could imagine the power she would gain after absorbing the last</p>
+<p>She could imagine the power she would gain after absorbing the last of her fragments in the Immortal Heaven.</p>
 
-<p>of her fragments in the Immortal Heaven.</p>
-
-<p>Just three more fragments, and she would finally be at the peak of her</p>
-
-<p>power again.</p>
+<p>Just three more fragments, and she would finally be at the peak of her power again.</p>
 
 <p>With a soft sigh, the handsome young man replaced the sheath on his waist, storing the Heaven-Defying Thunder Sword in it.</p>
 
 <p>Immediately, he felt a change in the blade; its power seemed to increase many times over just by being in that sheath.</p>
 
-<p>‘What does this sheath change? Its appearance is identical to the</p>
+<p>‘What does this sheath change? Its appearance is identical to the previous one!</p>
 
-<p>previous one!</p>
+<p>[I’ll tell you after I’m done, fufufu~~] Ruxue’s laughter echoed, sweet and symphonic.</p>
 
-<p>[I’ll tell you after I’m done, fufufu~~] Ruxue’s laughter echoed, sweet</p>
-
-<p>and symphonic.</p>
-
-<p>“All right, son-in-law, daughter, let’s eat and talk a little. We still have</p>
-
-<p>a lot to plan for your wedding.” The Gold King smiled, pulling another seat for Meilin beside the lake.</p>
+<p>“All right, son-in-law, daughter, let’s eat and talk a little. We still have a lot to plan for your wedding.” The Gold King smiled, pulling another seat for Meilin beside the lake.</p>
 
 <p>The handsome young man sat down next to his father-in-law and wife, his eyes flowing to his status screen.</p>
 
-<p>He had amassed a fortune of Lust Points during the trip. Now, it was</p>
-
-<p>time to become an Ancestral Emperor and finally unlock his own</p>
-
-<p>domain.</p>
+<p>He had amassed a fortune of Lust Points during the trip. Now, it was time to become an Ancestral Emperor and finally unlock his own domain.</p>
 
 <p>[Name: Long Qingyi</p>
 
 <p>Age: 22</p>
 
-<p>Cultivation: Third Stage Of The Immortal Emperor’s Realm (250T lust</p>
-
-<p>points to upgrade)</p>
+<p>Cultivation: Third Stage Of The Immortal Emperor’s Realm (250T lust points to upgrade)</p>
 
 <p>Mana Manipulation: Tenth Ring (150T lust points to upgrade)</p>
 
@@ -149,13 +125,9 @@ chapter = 517
 
 <p>(Lightning, sword, fire, ice, space, light, shadow) ((??? lust points to upgrade, new roots can be bought in the lust store). Spiritual roots2: None/Astral Level Primordial Creation Seed Mana Heart (??? lust points to upgrade).</p>
 
-<p>Lineage: Blood of the Corruption Dragon God (Ancestral grade, 500T</p>
+<p>Lineage: Blood of the Corruption Dragon God (Ancestral grade, 500T lust points to upgrade.)</p>
 
-<p>lust points to upgrade.)</p>
-
-<p>Constitution: Primordial Dragon Body (Ancestral grade, 500T lust</p>
-
-<p>points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Ancestral grade, 500T lust points to upgrade.)</p>
 
 <p>Lust points: 787,3T]</p>
 

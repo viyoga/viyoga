@@ -55,9 +55,7 @@ chapter = 580
 
 <p>There, a treasure that many men could only dream of touching.</p>
 
-<p>The pallor of her skin took on a slightly pinkish hue, the fat, puffy lips of her vulva closing into a tight, virgin slit, hiding the pink interior of</p>
-
-<p>her pussy.</p>
+<p>The pallor of her skin took on a slightly pinkish hue, the fat, puffy lips of her vulva closing into a tight, virgin slit, hiding the pink interior of her pussy.</p>
 
 <p>Immediately, Auranys tried to cover her curves, shrinking miserably.</p>
 
@@ -77,9 +75,7 @@ chapter = 580
 
 <p>So warm and soft, enveloping him on all sides.</p>
 
-<p>Celestia, who was in front of him, smiled as she felt Qingyi’s cock rise</p>
-
-<p>between her legs.</p>
+<p>Celestia, who was in front of him, smiled as she felt Qingyi’s cock rise between her legs.</p>
 
 <p>Her thighs closed immediately, enveloping him in a soft, creamy embrace.</p>
 
@@ -87,9 +83,7 @@ chapter = 580
 
 <p>Their tongues touched under Auranys’ shocked gaze and Isabel’s excited stare.</p>
 
-<p>So many sins. Auranys closed her eyes briefly, feeling Qingyi’s hand, which had been on her breast, slide down and reach between her</p>
-
-<p>legs.</p>
+<p>So many sins. Auranys closed her eyes briefly, feeling Qingyi’s hand, which had been on her breast, slide down and reach between her legs.</p>
 
 <p>He pressed a single finger against the protruding lips of her plump, soft vulva.</p>
 
@@ -107,19 +101,13 @@ chapter = 580
 
 <p>Even with both their hands, they couldn’t fully encapsulate that thick, throbbing dragon of more than twenty-three centimeters.</p>
 
-<p>Auranys hesitated, feeling Qingyi’s finger move in her pussy in a slow,</p>
+<p>Auranys hesitated, feeling Qingyi’s finger move in her pussy in a slow, circular motion, each second of contact eliciting a naughty and embarrassed moan from her lips.</p>
 
-<p>circular motion, each second of contact eliciting a naughty and embarrassed moan from her lips.</p>
-
-<p>She moved her small, delicate left hand, ready to cover her own</p>
-
-<p>mouth.</p>
+<p>She moved her small, delicate left hand, ready to cover her own mouth.</p>
 
 <p>But that’s not where it went.</p>
 
-<p>As if it had a will of its own, her hand flowed to the base of Qingyi’s</p>
-
-<p>cock, joining Isabel and Celestia’s.</p>
+<p>As if it had a will of its own, her hand flowed to the base of Qingyi’s cock, joining Isabel and Celestia’s.</p>
 
 <p>“It’s…” Auranys’ lips parted, feeling the scorching, thick, throbbing member against her fingers.</p>
 
@@ -131,22 +119,14 @@ chapter = 580
 
 <p>It was huge.</p>
 
-<p>Auranys’ free hand flowed down to her slim belly, caressing her own</p>
-
-<p>womb.</p>
+<p>Auranys’ free hand flowed down to her slim belly, caressing her own womb.</p>
 
 <p>Would she be able to take all of that inside her? And… would she be able to bear a child if he filled her?</p>
 
-<p>‘No… what the hell am I thinking?’ Auranys shook her head, still</p>
+<p>‘No… what the hell am I thinking?’ Auranys shook her head, still imagining the feeling of being filled until there was nothing left, feeling those strong, manly fingers in her pussy.</p>
 
-<p>imagining the feeling of being filled until there was nothing left, feeling those strong, manly fingers in her pussy.</p>
+<p>“You’re going to turn me into a filthy sinner… aren’t you?” Auranys asked, removing her hand from Qingyi’s cock and grabbing his arm, whose hand was still sinking between her legs.</p>
 
-<p>“You’re going to turn me into a filthy sinner… aren’t you?” Auranys asked, removing her hand from Qingyi’s cock and grabbing his arm,</p>
-
-<p>whose hand was still sinking between her legs.</p>
-
-<p>“No…” Qingyi smiled as Isabel and Celestia knelt down, their breasts at</p>
-
-<p>the height of his cock.</p>
+<p>“No…” Qingyi smiled as Isabel and Celestia knelt down, their breasts at the height of his cock.</p>
 
 <p>“I will do nothing but love and protect you… just as I love and protect Isabel, Celestia, and all the others.”</p>

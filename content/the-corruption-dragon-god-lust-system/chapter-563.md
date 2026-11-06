@@ -67,9 +67,7 @@ chapter = 563
 
 <p>If Qingyi were there, he would recognize him as the Heavenly Demon. As arrogant and disgusting as ever.</p>
 
-<p>“I’m here to kill one of your annoying minions, but…” The woman</p>
-
-<p>paused briefly. “You’ll do.”</p>
+<p>“I’m here to kill one of your annoying minions, but…” The woman paused briefly. “You’ll do.”</p>
 
 <p>The moment her voice fell, she slashed, so fast that the only thing the Heavenly Demon saw was a flash of light.</p>
 
@@ -87,62 +85,42 @@ chapter = 563
 
 <p>***</p>
 
-<p>“It took the Heavenly Demon more than a thousand years to heal from</p>
-
-<p>that cut, and he never truly accepted the shame of being denied, let alone the shame of being so severely wounded by someone from the younger generation.” Ruxue spoke against Qingyi’s chest.</p>
+<p>“It took the Heavenly Demon more than a thousand years to heal from that cut, and he never truly accepted the shame of being denied, let alone the shame of being so severely wounded by someone from the younger generation.” Ruxue spoke against Qingyi’s chest.</p>
 
 <p>Her lips trembled, and she gripped his hand tightly.</p>
 
 <p>“Unable to kill her personally, he used a poison called soul-stealing poison, turning her body into an empty shell and causing terrible damage to my blade…”</p>
 
-<p>“It was because of him that I fell, it was because of him that she was</p>
-
-<p>cursed to a miserable life without a body, it was because of him that all those innocent people died, and it was because of him that the old</p>
+<p>“It was because of him that I fell, it was because of him that she was cursed to a miserable life without a body, it was because of him that all those innocent people died, and it was because of him that the old</p>
 
 <p>Corruption Dragon God went mad.”</p>
 
 <p>Ruxue bit her lower lip, tears streaming down her cheeks.</p>
 
-<p>“He must die… before he can recreate her body and do terrible things</p>
-
-<p>to her…”</p>
+<p>“He must die… before he can recreate her body and do terrible things to her…”</p>
 
 <p>“I know, my dear…” Qingyi used his hand to wipe the tears from Ruxue’s face, feeling her pain.</p>
 
-<p>It was hard to see her suffer like this, and his own heart ached when</p>
+<p>It was hard to see her suffer like this, and his own heart ached when he thought about how much she cared for her first bearer.</p>
 
-<p>he thought about how much she cared for her first bearer.</p>
+<p>“Don’t worry, he won’t recreate her body, and even if he does, I’d just have to steal her right from under his nose, right? Don’t you know your husband? I’m great at these things! Hehehe…”</p>
 
-<p>“Don’t worry, he won’t recreate her body, and even if he does, I’d just</p>
-
-<p>have to steal her right from under his nose, right? Don’t you know your husband? I’m great at these things! Hehehe…”</p>
-
-<p>Ruxue froze at those words, then was unable to stop a soft giggle</p>
-
-<p>from escaping her lips.</p>
+<p>Ruxue froze at those words, then was unable to stop a soft giggle from escaping her lips.</p>
 
 <p>“You shameless womanizer… you never miss a chance to throw yourself into the arms of a pure maiden, do you?”</p>
 
 <p>“It’s my special talent, you know?”</p>
 
-<p>Ruxue could do little but laugh, rubbing her face against Qingyi’s</p>
+<p>Ruxue could do little but laugh, rubbing her face against Qingyi’s chest.</p>
 
-<p>chest.</p>
-
-<p>“I just want her soul to be free, for her to no longer be in the hands of</p>
-
-<p>that bastard… that’s all…”</p>
+<p>“I just want her soul to be free, for her to no longer be in the hands of that bastard… that’s all…”</p>
 
 <p>“I know…” Qingyi gave Ruxue’s butt a gentle pat, grabbing it firmly.</p>
 
 <p>Honestly, he only wanted to ascend to the celestial heavens as quickly as possible and grow wildly again.</p>
 
-<p>But in the end, on the path of cultivation, patience was one of the</p>
+<p>But in the end, on the path of cultivation, patience was one of the most important foundations.</p>
 
-<p>most important foundations.</p>
-
-<p>They had already caused enough destruction in the world, and now,</p>
-
-<p>it was time to rebuild.</p>
+<p>They had already caused enough destruction in the world, and now, it was time to rebuild.</p>
 
 <p>Standing up, with Ruxue returning to the world of the mind, Qingyi located his father-in-law, Jin Hao, the gold king.</p>

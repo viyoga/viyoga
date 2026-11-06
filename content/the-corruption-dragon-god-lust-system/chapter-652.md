@@ -77,41 +77,27 @@ chapter = 652
 
 <p>Everyone at that table had preassigned seats, and naturally, that spot was already taken.</p>
 
-<p>However, with Madame Lao herself insisting the two young people sit beside her, some important elders from other sects would have to</p>
+<p>However, with Madame Lao herself insisting the two young people sit beside her, some important elders from other sects would have to settle for worse seats.</p>
 
-<p>settle for worse seats.</p>
-
-<p>He himself had been placed in the corner, where he was supposed to</p>
-
-<p>sit with Qingyi and Rou’er.</p>
+<p>He himself had been placed in the corner, where he was supposed to sit with Qingyi and Rou’er.</p>
 
 <p>With yet another defeated sigh, he simply took his seat.</p>
 
-<p>Rou’er’s words, spoken without the slightest restraint, came as quite a surprise to everyone there, especially Longwei, whose heart sank in</p>
-
-<p>fury.</p>
+<p>Rou’er’s words, spoken without the slightest restraint, came as quite a surprise to everyone there, especially Longwei, whose heart sank in fury.</p>
 
 <p>Qingyi would pay for all of this!</p>
 
 <p>“Oh… I see you’ve finally found the man of your dreams, how lucky…” Madame Lao smiled, discreetly nudging her husband beside her, who simply remained silent, ignoring his wife’s taunts.</p>
 
-<p>She was a somewhat vindictive woman, but he knew she truly loved</p>
+<p>She was a somewhat vindictive woman, but he knew she truly loved him.</p>
 
-<p>him.</p>
-
-<p>With a radiant smile, Madame Lao turned her face toward the back of</p>
-
-<p>the hall.</p>
+<p>With a radiant smile, Madame Lao turned her face toward the back of the hall.</p>
 
 <p>“Oh… it seems our dear Black Rose has finally left her hiding place, fufufu~~”</p>
 
-<p>A sweet, mature laugh escaped her lips as, from a secluded corridor, a dazzling figure emerged, silent footsteps echoing softly on the jade</p>
+<p>A sweet, mature laugh escaped her lips as, from a secluded corridor, a dazzling figure emerged, silent footsteps echoing softly on the jade floor.</p>
 
-<p>floor.</p>
-
-<p>Even Qingyi, who had maintained a disinterested gaze until then, felt</p>
-
-<p>his heart skip a beat.</p>
+<p>Even Qingyi, who had maintained a disinterested gaze until then, felt his heart skip a beat.</p>
 
 <p>Lips as black as night, fiery red eyes, and long hair of the same hue, carefully tied behind her head.</p>
 
@@ -121,22 +107,14 @@ chapter = 652
 
 <p>Long stretches of fair, creamy skin peeked through artful cuts in the fabric, her porcelain flesh gleaming.</p>
 
-<p>That was the Black Rose, Xue Hua, daughter of the Grand Elder of the</p>
-
-<p>Cosmic Void Sect.</p>
+<p>That was the Black Rose, Xue Hua, daughter of the Grand Elder of the Cosmic Void Sect.</p>
 
 <p>Her red eyes swept coldly across the hall, an unreadable expression settling over her beautiful, delicate face.</p>
 
-<p>“My bride, come here, sit by my side!” Longwei raised his hand toward</p>
+<p>“My bride, come here, sit by my side!” Longwei raised his hand toward her, but she barely spared him a glance.</p>
 
-<p>her, but she barely spared him a glance.</p>
+<p>Her face twisted in disgust and shame at the mere mention of her fiancé’s title.</p>
 
-<p>Her face twisted in disgust and shame at the mere mention of her</p>
-
-<p>fiancé’s title.</p>
-
-<p>She shot a heavy look at her father, who merely shook his head in</p>
-
-<p>resignation.</p>
+<p>She shot a heavy look at her father, who merely shook his head in resignation.</p>
 
 <p>“Big Sis Xue Hua, come sit here with us! Maybe Longwei didn’t wash properly and still stinks. Big Bro Qingyi smells nice!” Rou’er called out cheerfully, waving at Xue Hua.</p>

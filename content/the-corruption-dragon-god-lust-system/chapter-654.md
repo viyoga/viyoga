@@ -27,9 +27,7 @@ chapter = 654
 
 <p>She pressed a single finger against her pussy, and her entire body shuddered violently, an obscene moan spilling past her black-painted lips.</p>
 
-<p>This wasn’t right… she needed to find out what was wrong with that</p>
-
-<p>man.</p>
+<p>This wasn’t right… she needed to find out what was wrong with that man.</p>
 
 <p>Her fiancé would be furious, yes, but her mind was already made up. She would choose Qingyi as her protector, should he pass tomorrow’s competition.</p>
 
@@ -59,9 +57,7 @@ chapter = 654
 
 <p>At the end of a long speech from the sect leader, the banquet finally began in earnest.</p>
 
-<p>Tomorrow would be a momentous day for all those young disciples,</p>
-
-<p>so the sect had spared no expense on spirit beast meat, purchasing the most expensive varieties to best restore their spiritual senses and physical strength.</p>
+<p>Tomorrow would be a momentous day for all those young disciples, so the sect had spared no expense on spirit beast meat, purchasing the most expensive varieties to best restore their spiritual senses and physical strength.</p>
 
 <p>Qingyi, for his part, ate sparingly, wanting to save room for the dinner Elize was preparing in the mind world.</p>
 
@@ -79,27 +75,19 @@ chapter = 654
 
 <p>She just wanted to relax and enjoy life alongside her big brother Qingyi and her other sisters.</p>
 
-<p>Qingyi walked right behind her as she entered the temple, soon catching sight of the many Lightning Spirit priestesses wrapping up</p>
+<p>Qingyi walked right behind her as she entered the temple, soon catching sight of the many Lightning Spirit priestesses wrapping up their training.</p>
 
-<p>their training.</p>
-
-<p>After a brief round of hugs, her adorable cheeks flushed with</p>
-
-<p>affection, Rou’er made her way toward the temple kitchen.</p>
+<p>After a brief round of hugs, her adorable cheeks flushed with affection, Rou’er made her way toward the temple kitchen.</p>
 
 <p>Elize, who had finished her sword training early, stood before an elegant Qi-powered stove, her mature face softening into a tender smile as she hummed gently to herself.</p>
 
-<p>She leaned over the fire, her arms cradling her enormous breasts on</p>
-
-<p>either side as she stirred, her ass arched slightly backward in a deliciously careless pose.</p>
+<p>She leaned over the fire, her arms cradling her enormous breasts on either side as she stirred, her ass arched slightly backward in a deliciously careless pose.</p>
 
 <p>She was so focused on the food that she didn’t even notice when a man approached from behind, his hand landing on that plump, juicy ass with a resounding smack.</p>
 
 <p>The soft flesh caved beneath his palm before rebounding in a thick, lazy wobble, ripples of impact rolling across the generous cheeks and traveling all the way up to her hips, the print of his fingers briefly blushing pink against her skin through the silk.</p>
 
-<p>“Nghnn~~ h-husband! I’m cooking…” Elize melted instantly, her knees wobbling as she felt Qingyi’s firm grip sink into the pliant curve</p>
-
-<p>of her ass.</p>
+<p>“Nghnn~~ h-husband! I’m cooking…” Elize melted instantly, her knees wobbling as she felt Qingyi’s firm grip sink into the pliant curve of her ass.</p>
 
 <p>“I know, love… I can smell the delicious scent of your food even from miles away,” Qingyi murmured with a smile, turning Elize toward him and sealing her lips with a passionate kiss.</p>
 
@@ -113,28 +101,16 @@ chapter = 654
 
 <p>“Is that so? Fufufu~~” Elize laughed, not the least bit concerned by the lovely Rou’er’s words.</p>
 
-<p>Her delicate fingers reached for an elegant silver spoon, and she</p>
+<p>Her delicate fingers reached for an elegant silver spoon, and she scooped up a portion of the steaming contents from the pot.</p>
 
-<p>scooped up a portion of the steaming contents from the pot.</p>
+<p>A creamy golden liquid, with pieces of meat carefully diced into cubes, bobbed gently on the surface.</p>
 
-<p>A creamy golden liquid, with pieces of meat carefully diced into</p>
-
-<p>cubes, bobbed gently on the surface.</p>
-
-<p>“Try it. Rou’er herself taught me this recipe the last time she came to</p>
-
-<p>the Mind World, though I added a special ingredient,” she said, bringing the spoon to Qingyi’s lips.</p>
+<p>“Try it. Rou’er herself taught me this recipe the last time she came to the Mind World, though I added a special ingredient,” she said, bringing the spoon to Qingyi’s lips.</p>
 
 <p>He swallowed slowly and then exhaled a long, appreciative breath.</p>
 
-<p>It was… delicious. Creamy, salty, yet with a subtle sweetness lingering</p>
+<p>It was… delicious. Creamy, salty, yet with a subtle sweetness lingering on top, not unlike Elize’s milk.</p>
 
-<p>on top, not unlike Elize’s milk.</p>
-
-<p>Qingyi’s gaze drifted from her face down to the pinkish stains her</p>
-
-<p>nipples were forming against the damp fabric of her dress, clearly still</p>
-
-<p>leaking.</p>
+<p>Qingyi’s gaze drifted from her face down to the pinkish stains her nipples were forming against the damp fabric of her dress, clearly still leaking.</p>
 
 <p>“Celestia and Auranys helped out a little with this too. Did you like it, husband?” Elize flashed a sensual smile.</p>

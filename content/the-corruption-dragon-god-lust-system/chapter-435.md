@@ -31,9 +31,7 @@ chapter = 435
 
 <p>How long had it been since he had faced an enemy that made him truly bleed? Someone who made him fight for his life?</p>
 
-<p>He had lost count of how many ants he had crushed, but he could</p>
-
-<p>barely remember the last time he felt close to death.</p>
+<p>He had lost count of how many ants he had crushed, but he could barely remember the last time he felt close to death.</p>
 
 <p>Ease leads to complacency, and complacency leads to unfounded arrogance.</p>
 
@@ -67,9 +65,7 @@ chapter = 435
 
 <p>[Name: Ten Thousand Shadows Devouring Art.</p>
 
-<p>Description: Created by the First Dark Emperor, its basis is the devouring of all light and energy, redirecting them into a single</p>
-
-<p>powerful attack.</p>
+<p>Description: Created by the First Dark Emperor, its basis is the devouring of all light and energy, redirecting them into a single powerful attack.</p>
 
 <p>Grade: Immortal</p>
 
@@ -89,13 +85,9 @@ chapter = 435
 
 <p>The Deep Void Art, on the other hand, was exactly what Qingyi needed.</p>
 
-<p>The ability to freely and quickly change the position of items, break through spatial barriers, and teleport at a speed far superior to</p>
+<p>The ability to freely and quickly change the position of items, break through spatial barriers, and teleport at a speed far superior to before.</p>
 
-<p>before.</p>
-
-<p>After a moment of hesitation, Qingyi clicked to purchase both</p>
-
-<p>techniques.</p>
+<p>After a moment of hesitation, Qingyi clicked to purchase both techniques.</p>
 
 <p>His Lust point reserves immediately dropped to just five billion.</p>
 
@@ -105,29 +97,21 @@ chapter = 435
 
 <p>This time, he only felt a slight tingling sensation.</p>
 
-<p>‘Is this because of the Draconic Mind?’ Qingyi wondered, unable to</p>
+<p>‘Is this because of the Draconic Mind?’ Qingyi wondered, unable to help but feel a little impressed.</p>
 
-<p>help but feel a little impressed.</p>
-
-<p>He barely felt any pressure, even though he was forced to absorb so</p>
-
-<p>much knowledge.</p>
+<p>He barely felt any pressure, even though he was forced to absorb so much knowledge.</p>
 
 <p>Sighing, he simply closed his eyes.</p>
 
 <p>He absorbed everything carefully, ensuring that not even a drop of knowledge escaped his mind.</p>
 
-<p>After a brief moment, he opened his eyes and stood up, entering his</p>
-
-<p>Sea of Mind.</p>
+<p>After a brief moment, he opened his eyes and stood up, entering his Sea of Mind.</p>
 
 <p>Opening the system store, he drew the Heaven-Defying Thunder</p>
 
 <p>Sword.</p>
 
-<p>He circulated his dark Qi, and his body was immediately swallowed by</p>
-
-<p>a deep sea of shadows that spread for dozens of meters.</p>
+<p>He circulated his dark Qi, and his body was immediately swallowed by a deep sea of shadows that spread for dozens of meters.</p>
 
 <p>He became one with the shadows.</p>
 
@@ -137,13 +121,9 @@ chapter = 435
 
 <p>The moment Qingyi’s voice fell, his entire Sea of Mind changed.</p>
 
-<p>Like a black hole, every photon of light was immediately sucked</p>
+<p>Like a black hole, every photon of light was immediately sucked toward him.</p>
 
-<p>toward him.</p>
-
-<p>The water around him was deprived of its usual warmth as Qingyi’s Qi</p>
-
-<p>expanded violently.</p>
+<p>The water around him was deprived of its usual warmth as Qingyi’s Qi expanded violently.</p>
 
 <p>Fifty meters.</p>
 
@@ -151,37 +131,25 @@ chapter = 435
 
 <p>Five hundred meters.</p>
 
-<p>One kilometer. The sea of shadows finally stopped growing, pulsing once before</p>
+<p>One kilometer. The sea of shadows finally stopped growing, pulsing once before suddenly receding.</p>
 
-<p>suddenly receding.</p>
-
-<p>Qingyi gritted his teeth, feeling the density of Qi around him increase</p>
-
-<p>violently.</p>
+<p>Qingyi gritted his teeth, feeling the density of Qi around him increase violently.</p>
 
 <p>His feet left the ground as he finally pointed the Heaven-Defying Thunder Sword forward.</p>
 
 <p>From its sharp tip, a projectile emerged.</p>
 
-<p>Small, almost nonexistent, but frighteningly powerful, formed from</p>
-
-<p>nothing but deep darkness.</p>
+<p>Small, almost nonexistent, but frighteningly powerful, formed from nothing but deep darkness.</p>
 
 <p>The moment this projectile was fired, a shockwave spread out.</p>
 
-<p>Qingyi’s body was forced back a few meters by the rebound. Surrounding the projectile of darkness was a thin layer of pure white</p>
+<p>Qingyi’s body was forced back a few meters by the rebound. Surrounding the projectile of darkness was a thin layer of pure white light swirling around it.</p>
 
-<p>light swirling around it.</p>
-
-<p>It propelled it with even more force, opening a tear in the air that</p>
-
-<p>spread for kilometers and slowly disintegrated into fragments of light.</p>
+<p>It propelled it with even more force, opening a tear in the air that spread for kilometers and slowly disintegrated into fragments of light.</p>
 
 <p>Finally, the projectile hit the ground.</p>
 
-<p>Qingyi’s eyes flashed when he saw the entire horizon taken over by a</p>
-
-<p>black explosion.</p>
+<p>Qingyi’s eyes flashed when he saw the entire horizon taken over by a black explosion.</p>
 
 <p>An orb of shadows swallowed dozens of kilometers around it.</p>
 

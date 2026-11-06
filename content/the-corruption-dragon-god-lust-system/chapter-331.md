@@ -31,8 +31,6 @@ chapter = 331
 
 <p>His eyes closed for a brief moment as he finally left that fissure in space, appearing above a verdant forest.</p>
 
-<p>09:20</p>
-
 <p>Qingyi then plummeted towards the green abyss.</p>
 
 <p>He hit the treetops, breaking a few branches and falling backwards onto the soft ground, surrounded by low, soft grass.</p>
@@ -88,8 +86,6 @@ chapter = 331
 <p>The moment he found himself alone, Qingyi activated his draconic eyes, studying his surroundings.</p>
 
 <p>He honestly had no idea where he was, apart from the fact that they were still on the Golden Plains Continent, in a place whose Qi density was much higher than the Qi density in the Blue Sea Realm.</p>
-
-<p>09:21</p>
 
 <p>As such, he could only assume that they were in one of the most central locations on the continent, perhaps close to the Empire of the Illuminated Sky.</p>
 

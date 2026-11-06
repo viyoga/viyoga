@@ -47,9 +47,7 @@ chapter = 465
 
 <p>His attacker’s eyes, previously cold and full of amusement, suddenly changed, his entire momentum ending in a single moment.</p>
 
-<p>He tried to retreat, but the gray flames had already reached his right</p>
-
-<p>arm.</p>
+<p>He tried to retreat, but the gray flames had already reached his right arm.</p>
 
 <p>He formed a blade of Qi with his left arm, his face filling with pain as he cut off his own limb, at the same time as Qingyi’s kick met his stomach.</p>
 
@@ -59,9 +57,7 @@ chapter = 465
 
 <p>Qingyi opened his lips to respond, shocked that this demonic man had been able to regenerate so quickly.</p>
 
-<p>But before he could even say anything, Celestia roared beside him. “Hubby has nothing profane about him, and he would never join</p>
-
-<p>forces with a demon like you! Because he is the prophesied hero of Auranys, Goddess of Light and-“</p>
+<p>But before he could even say anything, Celestia roared beside him. “Hubby has nothing profane about him, and he would never join forces with a demon like you! Because he is the prophesied hero of Auranys, Goddess of Light and-“</p>
 
 <p>Celestia didn’t finish her sentence, a high-pitched scream escaping her lips as she was pulled into the Mind World.</p>
 
@@ -79,41 +75,25 @@ chapter = 465
 
 <p>“Fucking the pussies of the three heroines chosen by the church of Auranys and even storing them in the Mind World…</p>
 
-<p>You know, I originally planned to use all of your souls to feed the creation of a vessel for my Lord. I may have to pull them out of this Mind World in order to use them, but I believe only your soul will be</p>
+<p>You know, I originally planned to use all of your souls to feed the creation of a vessel for my Lord. I may have to pull them out of this Mind World in order to use them, but I believe only your soul will be necessary, hahaha.”</p>
 
-<p>necessary, hahaha.”</p>
+<p>Qingyi ignored most of that man’s words, focusing only on what mattered to him.</p>
 
-<p>Qingyi ignored most of that man’s words, focusing only on what</p>
-
-<p>mattered to him.</p>
-
-<p>“And you’re going to tell me who this Lord is?” He asked, watching the</p>
-
-<p>demonic man coldly.</p>
+<p>“And you’re going to tell me who this Lord is?” He asked, watching the demonic man coldly.</p>
 
 <p>As he expected, there was something else.</p>
 
-<p>Not only did they know that the five heroes were coming there, but</p>
+<p>Not only did they know that the five heroes were coming there, but they were even making themselves vulnerable to facilitate that encounter.</p>
 
-<p>they were even making themselves vulnerable to facilitate that</p>
-
-<p>encounter.</p>
-
-<p>There was someone inside the church, someone with great influence</p>
-
-<p>who served whoever this “Lord” was.</p>
+<p>There was someone inside the church, someone with great influence who served whoever this “Lord” was.</p>
 
 <p>If Qingyi weren’t here, he was sure: everyone would die.</p>
 
 <p>Who could it be? Perhaps the bishop who sent them there?</p>
 
-<p>His haste was indeed suspicious. However, Qingyi was unable to be</p>
+<p>His haste was indeed suspicious. However, Qingyi was unable to be sure now.</p>
 
-<p>sure now.</p>
-
-<p>“Oh… you will know his name. You will know it as soon as your soul is</p>
-
-<p>swallowed by him, as soon as you have the honor of one day being part of something greater than your pathetic little existence, the chance to serve something greater!”</p>
+<p>“Oh… you will know his name. You will know it as soon as your soul is swallowed by him, as soon as you have the honor of one day being part of something greater than your pathetic little existence, the chance to serve something greater!”</p>
 
 <p>The man opened his arms, his voice full of fanaticism.</p>
 
@@ -121,26 +101,18 @@ chapter = 465
 
 <p>“But not now. Now, you just die.”</p>
 
-<p>Without them realizing it, someone was listening to their</p>
+<p>Without them realizing it, someone was listening to their conversation.</p>
 
-<p>conversation.</p>
-
-<p>Qingyi couldn’t give a damn about what happened to Lucien and, at</p>
-
-<p>that very moment, was focusing only on the enemy in front of him.</p>
+<p>Qingyi couldn’t give a damn about what happened to Lucien and, at that very moment, was focusing only on the enemy in front of him.</p>
 
 <p>But Lucien could hear him very well and also heard very well what Celestia said before being sent to the World of the Mind. ‘Qingyi was the prophesied hero for Auranys… Lucien repeated in his mind, over and over again.</p>
 
 <p>WHAT THE HELL DID THAT WOMAN MEAN BY THAT?</p>
 
-<p>He was the prophesied hero, not Qingyi. From the day he arrived in</p>
-
-<p>this world, he knew that.</p>
+<p>He was the prophesied hero, not Qingyi. From the day he arrived in this world, he knew that.</p>
 
 <p>It was on his Status Screen, how could the System lie to him?</p>
 
 <p>It was impossible, he knew it was!</p>
 
-<p>Lucien gritted his teeth, his heart filling with nothing but pure rage</p>
-
-<p>and jealousy.</p>
+<p>Lucien gritted his teeth, his heart filling with nothing but pure rage and jealousy.</p>

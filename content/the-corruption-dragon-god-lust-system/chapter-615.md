@@ -5,9 +5,7 @@ weight = 615
 chapter = 615
 +++
 
-<p>Qingyi took the letter from the warrior’s hands at the main palace, hesitating for a brief moment before opening it and reading its</p>
-
-<p>contents.</p>
+<p>Qingyi took the letter from the warrior’s hands at the main palace, hesitating for a brief moment before opening it and reading its contents.</p>
 
 <p>His face flashed through a myriad of emotions until it finally settled into a bitter smile.</p>
 
@@ -33,13 +31,9 @@ chapter = 615
 
 <p>He currently had fourteen G Lust Points and needed another sixteen to improve his lineage and constitution.</p>
 
-<p>Once he did, he wanted to go on another mission and then focus all</p>
+<p>Once he did, he wanted to go on another mission and then focus all his Lust Points on a single thing: raising his cultivation as quickly as possible.</p>
 
-<p>his Lust Points on a single thing: raising his cultivation as quickly as possible.</p>
-
-<p>The sect leader’s daughter having chosen him was a headache, but also an opportunity to finally meet her and clear up all his doubts</p>
-
-<p>about her.</p>
+<p>The sect leader’s daughter having chosen him was a headache, but also an opportunity to finally meet her and clear up all his doubts about her.</p>
 
 <p>Returning to the world of the mind, Qingyi rushed straight to the breasts of his goddess, Auranays, sinking his cock between those huge, pale tits, feeling the soft flesh yield around his shaft, and hearing a lovely, surprised squeal escape her lips.</p>
 
@@ -61,19 +55,13 @@ chapter = 615
 
 <p>Like many inner disciples, he was seeking missions to accumulate sect contribution points.</p>
 
-<p>Since his family was absurdly wealthy, the celestial spirit crystals he earned mattered little. Only the contribution points were valuable, as they could be used to enter the sect’s secret realms and even secure</p>
+<p>Since his family was absurdly wealthy, the celestial spirit crystals he earned mattered little. Only the contribution points were valuable, as they could be used to enter the sect’s secret realms and even secure private lessons with elders.</p>
 
-<p>private lessons with elders.</p>
-
-<p>At that very moment, Tianhao was hunting down a disciple who had betrayed the sect, stealing an important scroll containing lost</p>
-
-<p>techniques.</p>
+<p>At that very moment, Tianhao was hunting down a disciple who had betrayed the sect, stealing an important scroll containing lost techniques.</p>
 
 <p>His eyes were closed, and he floated in front of his personal transport ship, small but capable of traversing the cosmos in the blink of an eye. After a brief moment of spreading his spiritual senses, he opened his eyes.</p>
 
-<p>His body vanished, and when it reappeared, he was inside a hidden</p>
-
-<p>cave.</p>
+<p>His body vanished, and when it reappeared, he was inside a hidden cave.</p>
 
 <p>Tianhao had experienced an enlightenment during his last cultivation session and was now at the peak of the Celestial Ascension realm.</p>
 
@@ -85,9 +73,7 @@ chapter = 615
 
 <p>Suddenly, he stopped.</p>
 
-<p>His face turned, and a sword grazed his cheek, a thin trickle of blood</p>
-
-<p>appearing on his skin.</p>
+<p>His face turned, and a sword grazed his cheek, a thin trickle of blood appearing on his skin.</p>
 
 <p>“You…” Tianhao frowned, and behind him, a sword appeared, large enough to completely fill that cave.</p>
 
@@ -99,21 +85,15 @@ chapter = 615
 
 <p>A shadow slid down the walls of the cave, now missing an arm.</p>
 
-<p>The shadow tried to attack again, but Tianhao didn’t even blink. A single movement of the sword in his fists, and death came. Swallowing a pill and healing the cut on his cheek, Tianhao turned over the body of the traitorous disciple, retrieving a single scroll from</p>
-
-<p>his spatial ring.</p>
+<p>The shadow tried to attack again, but Tianhao didn’t even blink. A single movement of the sword in his fists, and death came. Swallowing a pill and healing the cut on his cheek, Tianhao turned over the body of the traitorous disciple, retrieving a single scroll from his spatial ring.</p>
 
 <p>He also wanted to take his head as proof, but before doing so, he sensed a familiar Qi outside the cave, near his ship.</p>
 
-<p>“Who could it be?” Tianhao lunged forward, his body bursting with</p>
-
-<p>speed as he left the cave.</p>
+<p>“Who could it be?” Tianhao lunged forward, his body bursting with speed as he left the cave.</p>
 
 <p>As soon as he saw the man outside, he smiled.</p>
 
-<p>“Junior Brother Li, is everything okay? Did something happen?” he</p>
-
-<p>asked.</p>
+<p>“Junior Brother Li, is everything okay? Did something happen?” he asked.</p>
 
 <p>He was a junior from the base established on that planet.</p>
 
@@ -125,8 +105,6 @@ chapter = 615
 
 <p>How could he not be?</p>
 
-<p>He was the strongest in his own realm, and moreover, the most likely</p>
-
-<p>to become the next husband of the sect leader’s daughter.</p>
+<p>He was the strongest in his own realm, and moreover, the most likely to become the next husband of the sect leader’s daughter.</p>
 
 <p>It was only natural that he would represent her in the tournament that would grant her permission to enter the secret realm, where whatever was hidden within her body could finally be revealed. “Well, senior…” The junior bowed his head slightly. “I just found out that the young lady insisted that Long Qingyi be her representative and… well… the sect leader agreed.”</p>

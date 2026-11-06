@@ -31,9 +31,7 @@ chapter = 496
 
 <p>“Are you okay, girl?” he asked, stroking the hard scales on the dragon’s neck.</p>
 
-<p>The energy of the Seed of Life, which he had received from the</p>
-
-<p>matriarch of the fox people, had already begun to work its way through his body, healing him of all his wounds.</p>
+<p>The energy of the Seed of Life, which he had received from the matriarch of the fox people, had already begun to work its way through his body, healing him of all his wounds.</p>
 
 <p>Khaedryss just looked back at the heart, her jaw opening and her sharp teeth sinking into Karlan’s organ.</p>
 
@@ -49,9 +47,7 @@ chapter = 496
 
 <p>“Ugh… what’s going on?” Elize asked, turning her eyes to her sister, who had frozen, unable to speak.</p>
 
-<p>Qingyi just gritted his teeth. T</p>
-
-<p>he stones beneath his feet were being torn away, everything around Khaedryss being sent flying in a powerful explosion of mana.</p>
+<p>Qingyi just gritted his teeth. The stones beneath his feet were being torn away, everything around Khaedryss being sent flying in a powerful explosion of mana.</p>
 
 <p>Her enormous body floated in the air, an orb of black flames over five hundred meters in circumference surrounding her.</p>
 
@@ -65,17 +61,11 @@ chapter = 496
 
 <p>Qingyi just nodded silently.</p>
 
-<p>He was exhausted, and even if he wasn’t, he would still have no</p>
+<p>He was exhausted, and even if he wasn’t, he would still have no chance against an expert like Lucios.</p>
 
-<p>chance against an expert like Lucios.</p>
+<p>Slowly, he felt the energy leaking from Khaedryss calm down, the sea of flames surrounding her ceasing.</p>
 
-<p>Slowly, he felt the energy leaking from Khaedryss calm down, the sea</p>
-
-<p>of flames surrounding her ceasing.</p>
-
-<p>When everything finally stopped, Khaedryss was nowhere to be</p>
-
-<p>found.</p>
+<p>When everything finally stopped, Khaedryss was nowhere to be found.</p>
 
 <p>Where she should have been, there was only a huge, pulsating golden energy cocoon, surrounded by powerful black veins.</p>
 
@@ -91,23 +81,17 @@ chapter = 496
 
 <p>The Patriarch’s guards looked ready to start throwing their swords at anything that appeared in front of them, while the many great Lords argued about what to do next.</p>
 
-<p>Enemies or friends of the Patriarch, no one was happy or calm about</p>
-
-<p>it.</p>
+<p>Enemies or friends of the Patriarch, no one was happy or calm about it.</p>
 
 <p>No one except Lucios, of course.</p>
 
 <p>The old man was relaxed, drinking as usual.</p>
 
-<p>His huge bronze dragon had landed beside him, also watching the</p>
-
-<p>portal.</p>
+<p>His huge bronze dragon had landed beside him, also watching the portal.</p>
 
 <p>He was the father of RedDeath and a direct descendant of the first line of dragons, the same lineage as Khaedryss.</p>
 
-<p>Dragons were not usually very attached to their offspring, but in the end, they were beings of intelligence often superior to that of</p>
-
-<p>humans.</p>
+<p>Dragons were not usually very attached to their offspring, but in the end, they were beings of intelligence often superior to that of humans.</p>
 
 <p>Suddenly, the tranquility on Lucios’ face disappeared and he raised his eyes.</p>
 
@@ -115,33 +99,19 @@ chapter = 496
 
 <p>He stood up and, with a smooth movement, took a step forward.</p>
 
-<p>In the blink of an eye, he was in front of the guards, waiting for the</p>
+<p>In the blink of an eye, he was in front of the guards, waiting for the gate to open.</p>
 
-<p>gate to open.</p>
+<p>When the intense light finally hit his face and he stepped forward, he felt a slight distortion in the space around him.</p>
 
-<p>When the intense light finally hit his face and he stepped forward, he</p>
+<p>A familiar presence appeared for a single moment before disappearing, reappearing kilometers away, and then fading away completely.</p>
 
-<p>felt a slight distortion in the space around him.</p>
+<p>Lucios turned his face sharply, staring at the horizon for a brief second before sighing, walking toward the portal and entering it.</p>
 
-<p>A familiar presence appeared for a single moment before disappearing, reappearing kilometers away, and then fading away</p>
+<p>It took him only a moment to realize how devastating the battle there had been.</p>
 
-<p>completely.</p>
+<p>The bodies of the priests were torn in half, and the temperature of the entire place was so high that any mortal would be cooked alive in a matter of seconds.</p>
 
-<p>Lucios turned his face sharply, staring at the horizon for a brief</p>
-
-<p>second before sighing, walking toward the portal and entering it.</p>
-
-<p>It took him only a moment to realize how devastating the battle there</p>
-
-<p>had been.</p>
-
-<p>The bodies of the priests were torn in half, and the temperature of</p>
-
-<p>the entire place was so high that any mortal would be cooked alive in a matter of seconds.</p>
-
-<p>He continued walking, feeling the temperature rise even higher, rivers</p>
-
-<p>of magma surrounding the partially devoured corpse of Red Death.</p>
+<p>He continued walking, feeling the temperature rise even higher, rivers of magma surrounding the partially devoured corpse of Red Death.</p>
 
 <p>His eyes scanned everything, noticing the absence of Karlan’s heart before finally falling on the decapitated corpse of his son.</p>
 
@@ -149,9 +119,7 @@ chapter = 496
 
 <p>“I failed you, just as you failed our-” Lucios stopped himself from continuing, correcting himself immediately. “My Seraphine…</p>
 
-<p>“I don’t blame her for wanting revenge, nor her man for taking it. You deserved it.” Lucios opened a small bottle of alcohol, pouring it over</p>
-
-<p>his son’s feet.</p>
+<p>“I don’t blame her for wanting revenge, nor her man for taking it. You deserved it.” Lucios opened a small bottle of alcohol, pouring it over his son’s feet.</p>
 
 <p>He turned to the Patriarch’s guards.</p>
 

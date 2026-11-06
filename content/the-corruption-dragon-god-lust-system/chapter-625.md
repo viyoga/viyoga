@@ -53,9 +53,7 @@ chapter = 625
 
 <p>[Hm… I didn’t expect you to meet the young miss so soon.]</p>
 
-<p>A single response came from the system, only deepening his</p>
-
-<p>confusion.</p>
+<p>A single response came from the system, only deepening his confusion.</p>
 
 <p>No woman should be able to obscure the system’s information screen, not anywhere across the celestial heavens.</p>
 
@@ -71,17 +69,13 @@ chapter = 625
 
 <p>“Hm…” The petite woman approached slowly, stopping just a few inches from him before rising onto her tiptoes, her beautiful heterochromatic eyes gazing at him with curiosity and bewitchment.</p>
 
-<p>Her scent reached him, sweet as honey laced with roses, filling his</p>
-
-<p>nostrils and making his heart race.</p>
+<p>Her scent reached him, sweet as honey laced with roses, filling his nostrils and making his heart race.</p>
 
 <p>How long had it been since a woman had made him feel this way?</p>
 
 <p>“Rou’er,” she declared, puffing out her chest with pride. “You can call me Rou’er, big brother Qingyi! Hehehe~~”</p>
 
-<p>A cheerful giggle escaped her lips, and then, to his complete surprise, she leaped into the air and let herself fall backward without the</p>
-
-<p>slightest hesitation.</p>
+<p>A cheerful giggle escaped her lips, and then, to his complete surprise, she leaped into the air and let herself fall backward without the slightest hesitation.</p>
 
 <p>Qingyi moved immediately, catching her in his lap.</p>
 
@@ -93,21 +87,15 @@ chapter = 625
 
 <p>Her cultivation was low for someone of her talent, likely because she cared little for cultivation, but the rewards were absurd, far surpassing a full day spent with all his wives combined.</p>
 
-<p>His left hand, still resting against her back, shifted slightly until it</p>
+<p>His left hand, still resting against her back, shifted slightly until it reached her chest, letting her back settle against his forearm.</p>
 
-<p>reached her chest, letting her back settle against his forearm.</p>
-
-<p>He sank his fingers into her small yet soft breasts, and a flush bloomed across her pale skin at once, a gentle warmth spreading over</p>
-
-<p>her cheeks.</p>
+<p>He sank his fingers into her small yet soft breasts, and a flush bloomed across her pale skin at once, a gentle warmth spreading over her cheeks.</p>
 
 <p>[You touched the daughter of the Corruption Dragon God in an indecent manner, +5 G Lust points.]</p>
 
 <p>That was a veritable gold mine.</p>
 
-<p>“Ah~~” A soft sigh parted Rou’er’s pink lips, her bright eyes fixed on</p>
-
-<p>his. “I knew you were going to catch me! Hehehe~~ You really are Daddy’s heir, aren’t you? ♡”</p>
+<p>“Ah~~” A soft sigh parted Rou’er’s pink lips, her bright eyes fixed on his. “I knew you were going to catch me! Hehehe~~ You really are Daddy’s heir, aren’t you? ♡”</p>
 
 <p>Qingyi went still, studying her beautiful face for a long moment.</p>
 
@@ -117,33 +105,23 @@ chapter = 625
 
 <p>“Yes… I am the heir of the Corruption Dragon God, young miss.”</p>
 
-<p>Qingyi finally spoke, an honest smile warming his face. “Yay!” Rou’er let out an excited little squeal and threw her arms</p>
-
-<p>around his neck, burying her face against his chest.</p>
+<p>Qingyi finally spoke, an honest smile warming his face. “Yay!” Rou’er let out an excited little squeal and threw her arms around his neck, burying her face against his chest.</p>
 
 <p>The excited giggle faded quickly, giving way to a muffled sniffle, then another, and another.</p>
 
 <p>“I did it, Mom… aunts… I found Daddy’s heir… no one will be able to hurt me anymore… he’ll protect me from the whole world…</p>
 
-<p>Qingyi made no move to pull away as her tears soaked into his robe,</p>
+<p>Qingyi made no move to pull away as her tears soaked into his robe, though his expression grew heavier with every word that reached him.</p>
 
-<p>though his expression grew heavier with every word that reached him.</p>
-
-<p>To have watched her own mother be rapied by the Heavenly Demon, then to see her father lose his mind and become an enemy of the</p>
-
-<p>entire Celestial Heavens.</p>
+<p>To have watched her own mother be rapied by the Heavenly Demon, then to see her father lose his mind and become an enemy of the entire Celestial Heavens.</p>
 
 <p>All of that while she was still a little girl, for she had been in the sect for at least ten years since she was first publicly introduced. How much pain and loneliness had she carried alone?</p>
 
-<p>“How did you know it was me?” Qingyi asked, his hand moving</p>
-
-<p>through Rou’er’s silky pink hair with a tenderness he had not expected to feel toward someone he had barely met.</p>
+<p>“How did you know it was me?” Qingyi asked, his hand moving through Rou’er’s silky pink hair with a tenderness he had not expected to feel toward someone he had barely met.</p>
 
 <p>“I didn’t know… I just had a feeling.” She wiped her tears against his robe without ceremony.</p>
 
-<p>“You had a feeling, and based solely on that feeling, you chose me to</p>
-
-<p>be your representative in the cosmic void sect?” He couldn’t help but laugh at the sheer absurdity of it.</p>
+<p>“You had a feeling, and based solely on that feeling, you chose me to be your representative in the cosmic void sect?” He couldn’t help but laugh at the sheer absurdity of it.</p>
 
 <p>“Yes… and I was right, wasn’t I? Hehehe~~” Rou’er forced a thread of cheerfulness into her pained voice.</p>
 

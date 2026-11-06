@@ -29,9 +29,7 @@ chapter = 658
 
 <p>Honestly, he didn’t want to fight those weaklings. The dragon in front of him was a far more worthy opponent, an honorable prey, one he would wait for.</p>
 
-<p>If they fought now, it wouldn’t be a fight to the death, since the</p>
-
-<p>elders would stop them.</p>
+<p>If they fought now, it wouldn’t be a fight to the death, since the elders would stop them.</p>
 
 <p>The moment of their battle would be in the first stage of the Secret Realm, where they would be far from the elders’ eyes and could have an honorable duel.</p>
 
@@ -69,9 +67,7 @@ chapter = 658
 
 <p>Shocked stares spread through the audience.</p>
 
-<p>Fa Yun was a famous disciple, one of the most talented of his generation in the sect, but that swordsman was no ordinary man</p>
-
-<p>either.</p>
+<p>Fa Yun was a famous disciple, one of the most talented of his generation in the sect, but that swordsman was no ordinary man either.</p>
 
 <p>He should have been able to withstand more than a single blow!</p>
 
@@ -89,9 +85,7 @@ chapter = 658
 
 <p>In a single second, their bodies became blurs driven by nothing but sheer physical strength.</p>
 
-<p>Fists met in the center of the arena with a sharp crack. The air rippled in a shockwave from the point of impact, sending the spectators’ hair</p>
-
-<p>in the stands flying.</p>
+<p>Fists met in the center of the arena with a sharp crack. The air rippled in a shockwave from the point of impact, sending the spectators’ hair in the stands flying.</p>
 
 <p>To create such a phenomenon even with their cultivation sealed… wasn’t the physical strength of these fist cultivators a bit too high?</p>
 
@@ -103,21 +97,15 @@ chapter = 658
 
 <p>Long Qingyi.</p>
 
-<p>Madame Lao noticed the glance and giggled, covering her red lips</p>
-
-<p>with her hand.</p>
+<p>Madame Lao noticed the glance and giggled, covering her red lips with her hand.</p>
 
 <p>“Ah… it’s so nice to be young.” She shook her head, watching Xue Hua blush and clench her teeth.</p>
 
-<p>The young woman forcefully averted her gaze from Qingyi, focusing</p>
-
-<p>solely on the battle.</p>
+<p>The young woman forcefully averted her gaze from Qingyi, focusing solely on the battle.</p>
 
 <p>She, too, had access to the match schedule and was certain that Qingyi would be no match for Fa Yun. With that, she relaxed.</p>
 
-<p>Soon, he would be removed from her field of vision and taken to the</p>
-
-<p>infirmary.</p>
+<p>Soon, he would be removed from her field of vision and taken to the infirmary.</p>
 
 <p>The battle between Fa Yun and the other fist user seemed evenly matched at first, but it didn’t take long for the tide to turn. After taking a solid blow to the chest, the monk’s opponent staggered, the air escaping from his lungs. From there, he quickly fell behind.</p>
 

@@ -25,9 +25,7 @@ chapter = 596
 
 <p>Every time he fucked her, it was as if she’d become a virgin all over again, that cock forcing its way into incomparably tight territory every single time.</p>
 
-<p>Inch by inch, she felt a long, thick, pulsing bulge emerge in her</p>
-
-<p>slender belly, pressing against the walls of her womb, filling her until nothing else could fit.</p>
+<p>Inch by inch, she felt a long, thick, pulsing bulge emerge in her slender belly, pressing against the walls of her womb, filling her until nothing else could fit.</p>
 
 <p>In the end, she could only gasp against the glass, her breasts rippling heavily against the cold material, her hands sliding over the droplets of water splashing there.</p>
 
@@ -51,9 +49,7 @@ chapter = 596
 
 <p>She was getting close, and so was he.</p>
 
-<p>“Ah…. come on, you naughty, shameless husband nghnn~~ cum inside me~~ fill this little pussy with your hot cum!” Ruxue screamed</p>
-
-<p>obscene words she was sure she would regret, shame washing over her face the next moment.</p>
+<p>“Ah…. come on, you naughty, shameless husband nghnn~~ cum inside me~~ fill this little pussy with your hot cum!” Ruxue screamed obscene words she was sure she would regret, shame washing over her face the next moment.</p>
 
 <p>Qingyi, naturally, could do little but obey.</p>
 
@@ -63,59 +59,41 @@ chapter = 596
 
 <p>“Aghn~~ so full…” Ruxue’s legs lost their strength and she collapsed onto him, panting.</p>
 
-<p>Shortly after this brief interlude, the two finished their baths,</p>
-
-<p>wrapped themselves in woolen robes, and then left the bathroom.</p>
+<p>Shortly after this brief interlude, the two finished their baths, wrapped themselves in woolen robes, and then left the bathroom.</p>
 
 <p>Ruxue’s robe was open in the front, revealing the protruding curves of her huge, pale breasts.</p>
 
-<p>A woolen sash wrapped around her hips hid her belly, but still revealed the inner part of her thighs and her plump, perfect pussy,</p>
+<p>A woolen sash wrapped around her hips hid her belly, but still revealed the inner part of her thighs and her plump, perfect pussy, the robe gaping open once more.</p>
 
-<p>the robe gaping open once more.</p>
-
-<p>Qingyi sat on the sofa next to the room’s only window, taking Ruxue</p>
-
-<p>into his lap.</p>
+<p>Qingyi sat on the sofa next to the room’s only window, taking Ruxue into his lap.</p>
 
 <p>Immediately, his right hand grabbed one of her breasts, savoring the softness as he slowly massaged it.</p>
 
 <p>“What is that thing?” Qingyi asked, looking toward the window.</p>
 
-<p>They seemed to be on some kind of strange route, the stars around</p>
+<p>They seemed to be on some kind of strange route, the stars around them turned into blurs.</p>
 
-<p>them turned into blurs.</p>
-
-<p>It was clear the ship was traveling at an absurd speed, but still, there</p>
-
-<p>was something following them.</p>
+<p>It was clear the ship was traveling at an absurd speed, but still, there was something following them.</p>
 
 <p>It was like a whale, but no smaller than a moon.</p>
 
-<p>Its colossal body, even hundreds of kilometers away, seemed to be</p>
-
-<p>just a few meters away simply due to the creature’s absurd sheer size.</p>
+<p>Its colossal body, even hundreds of kilometers away, seemed to be just a few meters away simply due to the creature’s absurd sheer size.</p>
 
 <p>“Hm… it’s a spirit whale… it’s rare to find them alone. They are peaceful beings that often use the fast-travel routes established by cultivators to travel through the cosmos.”</p>
 
 <p>“I see.” Qingyi nodded.</p>
 
-<p>Standing beside his beloved, feeling the weight of those enormous</p>
-
-<p>milk jugs in his hands, he admired it.</p>
+<p>Standing beside his beloved, feeling the weight of those enormous milk jugs in his hands, he admired it.</p>
 
 <p>It was, without a shadow of a doubt, a beautiful creature.</p>
 
-<p>Its fins seemed to be made of spiritual energy, each movement leaving behind a bluish trail, as if thousands of tiny stars were forming in its</p>
-
-<p>wake.</p>
+<p>Its fins seemed to be made of spiritual energy, each movement leaving behind a bluish trail, as if thousands of tiny stars were forming in its wake.</p>
 
 <p>Its eyes seemed to be focused on the ship, gentle and carefree.</p>
 
 <p>“Sometimes, when ships get stranded in space without fuel, they gently take them into their mouths and release them near human planets… They are truly pure creatures…</p>
 
-<p>“It’s a shame those damned demons nearly hunted them to</p>
-
-<p>extinction.”</p>
+<p>“It’s a shame those damned demons nearly hunted them to extinction.”</p>
 
 <p>Ruxue clenched her teeth, seeing the deep scars on the whale’s body.</p>
 
@@ -125,14 +103,10 @@ chapter = 596
 
 <p>Qingyi didn’t reply, observing the creature in silence.</p>
 
-<p>It didn’t take much to understand that the celestial heavens were</p>
-
-<p>profoundly different from the immortal heavens.</p>
+<p>It didn’t take much to understand that the celestial heavens were profoundly different from the immortal heavens.</p>
 
 <p>His journey wasn’t coming to an end, no…</p>
 
-<p>The immortal and mortal heavens were merely the first of many steps</p>
-
-<p>on his journey.</p>
+<p>The immortal and mortal heavens were merely the first of many steps on his journey.</p>
 
 <p>Now, it was truly beginning.</p>

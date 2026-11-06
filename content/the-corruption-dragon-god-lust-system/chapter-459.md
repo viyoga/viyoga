@@ -57,13 +57,9 @@ chapter = 459
 
 <p>Her pussy squirted around Qingyi’s cock nonstop as he himself released, spilling his cum inside her.</p>
 
-<p>The two remained there, together for another moment, their panting</p>
+<p>The two remained there, together for another moment, their panting breaths united.</p>
 
-<p>breaths united.</p>
-
-<p>“Nghnn~~ Husband is really amazing… To make even this elf-shaped ice stone have such a lustful expression, fufufu~~ I wonder what her proud family would think…” Sapphire recovered, her legs still</p>
-
-<p>trembling slightly as she stood up.</p>
+<p>“Nghnn~~ Husband is really amazing… To make even this elf-shaped ice stone have such a lustful expression, fufufu~~ I wonder what her proud family would think…” Sapphire recovered, her legs still trembling slightly as she stood up.</p>
 
 <p>Aeryn looked away, blushing deeply.</p>
 
@@ -91,13 +87,9 @@ chapter = 459
 
 <p>Qingyi was sitting on a bench next to the courtyard. Between his legs were two naked, voluptuous figures.</p>
 
-<p>Their lips worked incessantly around his cock, their tongues running</p>
+<p>Their lips worked incessantly around his cock, their tongues running its entire length without stopping.</p>
 
-<p>its entire length without stopping.</p>
-
-<p>The moment they noticed Celestia’s presence, the two shuddered,</p>
-
-<p>their faces filling with terror.</p>
+<p>The moment they noticed Celestia’s presence, the two shuddered, their faces filling with terror.</p>
 
 <p>How on earth could they have forgotten about Celestia there?</p>
 
@@ -107,10 +99,6 @@ chapter = 459
 
 <p>The two couldn’t help but be shocked as Celestia knelt between them, her lips immediately sealing around the tip of his cock.</p>
 
-<p>They had expected a hundred different reactions from Celestia, but</p>
+<p>They had expected a hundred different reactions from Celestia, but not that one.</p>
 
-<p>not that one.</p>
-
-<p>Had Qingyi really taken the purity of the holy priestess of the Church</p>
-
-<p>of Auranys? Didn’t he know the punishment for that kind of thing? What kind of crazy man had they just ended up with?</p>
+<p>Had Qingyi really taken the purity of the holy priestess of the Church of Auranys? Didn’t he know the punishment for that kind of thing? What kind of crazy man had they just ended up with?</p>

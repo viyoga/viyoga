@@ -73,9 +73,7 @@ chapter = 567
 
 <p>It was like trying to hit the wind.</p>
 
-<p>“I’m not that fast.” Qingyi laughed, parrying the boy’s sword with the</p>
-
-<p>back of his hand.</p>
+<p>“I’m not that fast.” Qingyi laughed, parrying the boy’s sword with the back of his hand.</p>
 
 <p>The sharp blade struck skin and flesh, but it seemed to have hit solid steel, ricocheting and being knocked out of Eric’s hands.</p>
 
@@ -91,43 +89,27 @@ chapter = 567
 
 <p>“Don’t stop dreaming, kid. Hahahaha.”</p>
 
-<p>Qingyi turned around, walked past Eric’s dragon, a beautiful beast</p>
+<p>Qingyi turned around, walked past Eric’s dragon, a beautiful beast with blue scales and deep eyes, and walked through a large grove until he reached a table where Lucios, Seraphine, and Elize were sitting and talking.</p>
 
-<p>with blue scales and deep eyes, and walked through a large grove until he reached a table where Lucios, Seraphine, and Elize were</p>
-
-<p>sitting and talking.</p>
-
-<p>“Grandpa!” Eric rushed past Qingyi and threw himself into the old man’s arms. “I almost beat brother-in-law in the duel! Dad will be</p>
-
-<p>proud, right?”</p>
+<p>“Grandpa!” Eric rushed past Qingyi and threw himself into the old man’s arms. “I almost beat brother-in-law in the duel! Dad will be proud, right?”</p>
 
 <p>“Almost?” The old man raised an eyebrow, incredulous.</p>
 
-<p>“Well, I hit him with my sword and he didn’t hit me with his. That</p>
+<p>“Well, I hit him with my sword and he didn’t hit me with his. That means I won, right?” Eric flashed a proud smile.</p>
 
-<p>means I won, right?” Eric flashed a proud smile.</p>
+<p>“It’s the truth. I almost died.” Qingyi smiled carefree, sitting between his two wives.</p>
 
-<p>“It’s the truth. I almost died.” Qingyi smiled carefree, sitting between</p>
-
-<p>his two wives.</p>
-
-<p>His hands went straight to their delicate waists, pulling them into his</p>
-
-<p>arms.</p>
+<p>His hands went straight to their delicate waists, pulling them into his arms.</p>
 
 <p>Lucios could do nothing but sigh in defeat.</p>
 
 <p>“Go to your father. I have things to discuss with Qingyi.”</p>
 
-<p>Eric waved excitedly and ran back to the arena, returning to his</p>
-
-<p>dragon. Soon, the boy and the beast disappeared over the horizon.</p>
+<p>Eric waved excitedly and ran back to the arena, returning to his dragon. Soon, the boy and the beast disappeared over the horizon.</p>
 
 <p>“He’s a good boy…” Qingyi said, taking a bottle of liquor from his spatial ring and placing it on the round table.</p>
 
-<p>“Yes… he is. With his talent, I have no doubt he will reach the twelfth</p>
-
-<p>ring.” Lucios poured himself a glass. “I will train him well, and perhaps one day he will become one of the pillars of the Vaeldrinn’s power.” That type of drink was not common there and was usually only found when imported from the eastern continent.</p>
+<p>“Yes… he is. With his talent, I have no doubt he will reach the twelfth ring.” Lucios poured himself a glass. “I will train him well, and perhaps one day he will become one of the pillars of the Vaeldrinn’s power.” That type of drink was not common there and was usually only found when imported from the eastern continent.</p>
 
 <p>So, whenever he had the chance, the old man drank heartily.</p>
 

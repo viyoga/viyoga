@@ -75,21 +75,15 @@ chapter = 392
 
 <p>They kissed briefly before Qianyao sat on his laps. Her shapely ass pressed into his hips, her pale cheeks squeezing against the bulge in the young man’s pants.</p>
 
-<p>“Do you really want to talk to Dad? nghnn~~” Qianyao asked, her voice interrupted by a moan as Qingyi reached for her breasts with</p>
-
-<p>both hands.</p>
+<p>“Do you really want to talk to Dad? nghnn~~” Qianyao asked, her voice interrupted by a moan as Qingyi reached for her breasts with both hands.</p>
 
 <p>He grasped them firmly. His fingers sank into the huge mountains of pale, soft flesh, incomparably full and round.</p>
 
-<p>He squeezed and massaged, playing with the tips of the pink puffy nipples, squeezing and pulling, delighting in every soft moan that</p>
-
-<p>escaped her lips.</p>
+<p>He squeezed and massaged, playing with the tips of the pink puffy nipples, squeezing and pulling, delighting in every soft moan that escaped her lips.</p>
 
 <p>“Yes,” he finally replied.</p>
 
-<p>He brought his hands to her hips, which were now rolling gently in his lap, rubbing her plump vulva against the bulge in his pants,</p>
-
-<p>drenching him with her love fluids.</p>
+<p>He brought his hands to her hips, which were now rolling gently in his lap, rubbing her plump vulva against the bulge in his pants, drenching him with her love fluids.</p>
 
 <p>With one fluid movement, Qingyi changed position. He pushed</p>
 
@@ -101,31 +95,17 @@ chapter = 392
 
 <p>“oghnn~~” Qianyao moaned, feeling Qingyi’s huge cock make its way into her wet, tight interior, reaching the depths of her womb.</p>
 
-<p>Her whole body bounced with the thrust; her breasts rippled like jelly</p>
+<p>Her whole body bounced with the thrust; her breasts rippled like jelly under the pressure of their clinging bodies.</p>
 
-<p>under the pressure of their clinging bodies.</p>
+<p>Qingyi silenced her with a kiss, pulling his hips back slightly before thrusting in full force again.</p>
 
-<p>Qingyi silenced her with a kiss, pulling his hips back slightly before</p>
+<p>“nghnn~~ aghnn~~ what if Dad doesn’t accept you?” She asked breathlessly, parting her lips, connected only by a thin thread of saliva and her extended tongue.</p>
 
-<p>thrusting in full force again.</p>
-
-<p>“nghnn~~ aghnn~~ what if Dad doesn’t accept you?” She asked</p>
-
-<p>breathlessly, parting her lips, connected only by a thin thread of saliva</p>
-
-<p>and her extended tongue.</p>
-
-<p>“Don’t worry, your husband has his means.” Qingyi smiled, increasing</p>
-
-<p>the speed of his thrusts, enjoying every inch of Qianyao’s creamy skin</p>
-
-<p>against his.</p>
+<p>“Don’t worry, your husband has his means.” Qingyi smiled, increasing the speed of his thrusts, enjoying every inch of Qianyao’s creamy skin against his.</p>
 
 <p>His hands went to her spread thighs, squeezing hard, feeling her pussy struggle to milk his cock, sucking and squeezing him with increasing vitality.</p>
 
-<p>It wasn’t long before Qianyao was overcome by nothing but lewd</p>
-
-<p>moans that grew more intense, her body rapidly reaching its limit.</p>
+<p>It wasn’t long before Qianyao was overcome by nothing but lewd moans that grew more intense, her body rapidly reaching its limit.</p>
 
 <p>Her lips parted in a naughty expression, letting out a loud, shrill</p>
 

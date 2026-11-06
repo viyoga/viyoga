@@ -27,9 +27,7 @@ chapter = 671
 
 <p>“There are twenty of you here. Only five of you never met the Dragon God of Corruption in person, so how can you call him profane?”</p>
 
-<p>“It doesn’t matter if he was righteous; his power caused too much</p>
-
-<p>destruction! We cannot allow that young man to live; we must find him and kill him as soon as possible!” Another elder raised his voice, but fell silent the next moment.</p>
+<p>“It doesn’t matter if he was righteous; his power caused too much destruction! We cannot allow that young man to live; we must find him and kill him as soon as possible!” Another elder raised his voice, but fell silent the next moment.</p>
 
 <p>A powerful pressure fell upon the twenty like an avalanche, and they all gasped.</p>
 
@@ -43,9 +41,7 @@ chapter = 671
 
 <p>“Yes, the young man of whom the Heavenly Demon speaks is the heir to that terrifying power, and not only that, he is my son-in-law.</p>
 
-<p>I personally permitted his marriage to my daughter, and let me make this clear: anyone who speaks against my son-in-law speaks against</p>
-
-<p>me.</p>
+<p>I personally permitted his marriage to my daughter, and let me make this clear: anyone who speaks against my son-in-law speaks against me.</p>
 
 <p>I attest to his pure mind and unwavering heart!”</p>
 
@@ -73,25 +69,19 @@ chapter = 671
 
 <p>The primordial essence of that phoenix was intact, and now it was flowing directly into her!</p>
 
-<p>Rou’er was a smart girl, and having great admiration for the beauty of phoenixes, she immediately understood what was happening the</p>
-
-<p>moment Xue Hua began to blush.</p>
+<p>Rou’er was a smart girl, and having great admiration for the beauty of phoenixes, she immediately understood what was happening the moment Xue Hua began to blush.</p>
 
 <p>Xue Hua was absorbing the primordial energy of that phoenix!</p>
 
 <p>The problem with that? Simple. The primordial essence of a phoenix, if still pure, served as a powerful aphrodisiac!</p>
 
-<p>Even celestial emperors would be affected by the aphrodisiac produced from a phoenix’s primordial essence, and when absorbed so</p>
-
-<p>directly, it would drive any woman mad.</p>
+<p>Even celestial emperors would be affected by the aphrodisiac produced from a phoenix’s primordial essence, and when absorbed so directly, it would drive any woman mad.</p>
 
 <p>Rou’er gave a soft giggle, casting a teasing glance at Qingyi, who was meditating with his eyes closed.</p>
 
 <p>After about ten minutes, Xue Hua finally finished absorbing everything the phoenix had to offer.</p>
 
-<p>Her soul’s power had more than quadrupled, and even her cultivation</p>
-
-<p>was slowly shifting, showing signs of wanting to unblock itself. The gothic beauty stood up unsteadily, looking at Qingyi and Rou’er standing side by side.</p>
+<p>Her soul’s power had more than quadrupled, and even her cultivation was slowly shifting, showing signs of wanting to unblock itself. The gothic beauty stood up unsteadily, looking at Qingyi and Rou’er standing side by side.</p>
 
 <p>“Are you done, big sis? Why don’t we go take a bath? I saw a stream very close to here as we were walking away. Big bro Qingyi is filthy, and you got covered in the phoenix’s blood too, didn’t you?” Rou’er leaned forward, looking at Xue Hua with sparkling eyes.</p>
 
@@ -99,9 +89,7 @@ chapter = 671
 
 <p>What if someone saw them?</p>
 
-<p>“I think we really do need a bath. Don’t worry, I have a way to block off the space, even without Qi.” Qingyi smiled, opening the system</p>
-
-<p>shop and purchasing a spatial blocking talisman.</p>
+<p>“I think we really do need a bath. Don’t worry, I have a way to block off the space, even without Qi.” Qingyi smiled, opening the system shop and purchasing a spatial blocking talisman.</p>
 
 <p>Soon after, he followed Rou’er toward the forest. Xue Hua stood still for a brief moment, fighting against the aphrodisiac burning throughout her body, her panties already soaked.</p>
 
@@ -115,9 +103,7 @@ chapter = 671
 
 <p>Between his legs, a massive member hung heavily, immediately capturing Xue Hua’s gaze.</p>
 
-<p>Her heart raced even faster when she saw Rou’er also taking off her</p>
-
-<p>clothes, the aphrodisiac’s effect on her body exploding like an uncontrolled flame.</p>
+<p>Her heart raced even faster when she saw Rou’er also taking off her clothes, the aphrodisiac’s effect on her body exploding like an uncontrolled flame.</p>
 
 <p>That girl didn’t want the three of them to bathe together, did she?</p>
 

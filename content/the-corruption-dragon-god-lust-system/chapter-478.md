@@ -77,39 +77,27 @@ chapter = 478
 
 <p>Qingyi paused to observe the beautiful view, the Heaven-Defying Thunder Sword shining, and a figure appearing beside him. “How are you, my love?” Qingyi asked immediately, turning his face.</p>
 
-<p>The woman in front of him was slightly trembling. Her hands were</p>
-
-<p>clasped over her enormous breasts, squeezing the pair of twin mountains together.</p>
+<p>The woman in front of him was slightly trembling. Her hands were clasped over her enormous breasts, squeezing the pair of twin mountains together.</p>
 
 <p>“I’m fine, hubby…”</p>
 
-<p>She spoke, taking a step towards Qingyi and hugging him, feeling his</p>
-
-<p>hands run through her purple hair.</p>
+<p>She spoke, taking a step towards Qingyi and hugging him, feeling his hands run through her purple hair.</p>
 
 <p>Her beautiful, gentle eyes focused on the flying island. She stretched out her arm and opened her small, delicate hand.</p>
 
-<p>Her sister was there, so close that she seemed almost able to touch</p>
-
-<p>her.</p>
+<p>Her sister was there, so close that she seemed almost able to touch her.</p>
 
 <p>“How long will it take for hubby to take me to big sister?” Elize asked, clinging tightly to him.</p>
 
-<p>“I want to show her some new dishes I’ve learned…” Elize giggled, though there was more anxiety and nervousness than excitement in</p>
-
-<p>her voice.</p>
+<p>“I want to show her some new dishes I’ve learned…” Elize giggled, though there was more anxiety and nervousness than excitement in her voice.</p>
 
 <p>She was excited, of course. She was just too anxious to show that excitement in her voice.</p>
 
-<p>“Soon. I’ve already figured out how to get there without having to go through that hellish sea of detection arrays that separates the island from the rest of the world. Once I get there, everything will be much</p>
-
-<p>easier.”</p>
+<p>“Soon. I’ve already figured out how to get there without having to go through that hellish sea of detection arrays that separates the island from the rest of the world. Once I get there, everything will be much easier.”</p>
 
 <p>Qingyi spoke as his hands moved down, reaching Elize’s ass and grabbing it tightly.</p>
 
-<p>“Nghnn~~” She moaned, her voice sweet and melodious as she</p>
-
-<p>hugged Qingyi a little tighter.</p>
+<p>“Nghnn~~” She moaned, her voice sweet and melodious as she hugged Qingyi a little tighter.</p>
 
 <p>“Husband-aghnn~~ would never break a promise like that, right?”</p>
 

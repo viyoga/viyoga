@@ -67,13 +67,9 @@ chapter = 493
 
 <p>“Don’t interfere!” He ordered RedDeath, who only shook his snout in annoyance.</p>
 
-<p>In the next moment, the patriarch charged forward, his body turning into a blur as he broke the speed of sound, a long, elegant saber</p>
+<p>In the next moment, the patriarch charged forward, his body turning into a blur as he broke the speed of sound, a long, elegant saber appearing in his hands.</p>
 
-<p>appearing in his hands.</p>
-
-<p>The moment the saber and the thunder sword that defied the</p>
-
-<p>heavens met, the world around them seemed to collapse, the patriarch’s crimson mana coming into contact with Qingyi’s thunder Qi and Mana.</p>
+<p>The moment the saber and the thunder sword that defied the heavens met, the world around them seemed to collapse, the patriarch’s crimson mana coming into contact with Qingyi’s thunder Qi and Mana.</p>
 
 <p>A reddish aura engulfed the entire enormous chamber, its stone walls shaking violently as millions of defensive arrays activated at once, preventing it from collapsing.</p>
 
@@ -81,29 +77,21 @@ chapter = 493
 
 <p>‘Is that… a domain?’ Qingyi’s eyes widened as he realized this change.</p>
 
-<p>From the floor and walls, millions of tiny scarlet flowers began to</p>
-
-<p>sprout, dominating everything around them.</p>
+<p>From the floor and walls, millions of tiny scarlet flowers began to sprout, dominating everything around them.</p>
 
 <p>Controlling his Qi became difficult, and all the mana surrounding him seemed to be violently sucked away.</p>
 
-<p>He retreated, allowing the patriarch to win that clash, throwing him towards one of the chamber walls with a powerful crash, the</p>
-
-<p>defensive arrays nearly collapsing.</p>
+<p>He retreated, allowing the patriarch to win that clash, throwing him towards one of the chamber walls with a powerful crash, the defensive arrays nearly collapsing.</p>
 
 <p>“Ugh… damn..” Qingyi gritted his teeth.</p>
 
-<p>Even breathing was difficult, and his body felt much heavier than</p>
-
-<p>before.</p>
+<p>Even breathing was difficult, and his body felt much heavier than before.</p>
 
 <p>His eyes fell on the world surrounding the patriarch, unlike anything he had ever seen before.</p>
 
 <p>The small flowers had turned into giant roses, one by one blooming, hundreds of small thorns sprouting from each one.</p>
 
-<p>“What’s the matter… surprised?” The patriarch revealed a sickly smile, powerful roots sprouting from among the flowers, surrounding him</p>
-
-<p>completely.</p>
+<p>“What’s the matter… surprised?” The patriarch revealed a sickly smile, powerful roots sprouting from among the flowers, surrounding him completely.</p>
 
 <p>“That’s what you get for messing with the wrong person, brat!”</p>
 
@@ -111,28 +99,20 @@ chapter = 493
 
 <p>Immediately, Qingyi felt a chill run down his spine, a sense of danger he had never felt before overwhelming his being.</p>
 
-<p>He shuddered, gritting his teeth, his body quickly covered in powerful</p>
+<p>He shuddered, gritting his teeth, his body quickly covered in powerful black scales.</p>
 
-<p>black scales.</p>
-
-<p>It made no sense to fight in the domain of the dragon elf patriarch; it</p>
-
-<p>was a losing battle.</p>
+<p>It made no sense to fight in the domain of the dragon elf patriarch; it was a losing battle.</p>
 
 <p>Qingyi had to find a way to break through it, or at least weaken it.</p>
 
 <p>Gritting his teeth, he simply moved his draconic Qi, the enormous figure of a black dragon appearing behind him, its roar engulfing the world around him.</p>
 
-<p>Red Death, who seemed uninterested in the fight, suddenly raised his head, roaring back at the dragon on Qingyi’s back, his crimson eyes</p>
-
-<p>filling with murderous intent.</p>
+<p>Red Death, who seemed uninterested in the fight, suddenly raised his head, roaring back at the dragon on Qingyi’s back, his crimson eyes filling with murderous intent.</p>
 
 <p>Under Qingyi’s bloodline suppression, the patriarch’s momentum dropped significantly, but not enough.</p>
 
 <p>The speed of the attack was still absurd, and its power had barely been reduced by ten or twenty percent.</p>
 
-<p>A domain was, without a doubt, much more powerful than he had</p>
-
-<p>expected.</p>
+<p>A domain was, without a doubt, much more powerful than he had expected.</p>
 
 <p>“This is going to hurt…” The handsome young man gritted his teeth, preparing for the impact.</p>

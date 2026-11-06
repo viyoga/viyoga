@@ -63,9 +63,7 @@ chapter = 476
 
 <p>That was the place he needed to reach to find Elize’s sister.</p>
 
-<p>[Husband… I know this place. It’s a little faded in my memory, but I’m</p>
-
-<p>sure I’ve been here before.]</p>
+<p>[Husband… I know this place. It’s a little faded in my memory, but I’m sure I’ve been here before.]</p>
 
 <p>Elize’s voice echoed as she watched everything through Ruxue’s eyes.</p>
 
@@ -73,92 +71,62 @@ chapter = 476
 
 <p>“Just wait a little longer, love. Qingyi whispered to her, continuing to walk.</p>
 
-<p>At the central gates, a group of guards watched the crowd with attentive eyes, collecting travelers’ documents and collective</p>
-
-<p>transportation permits.</p>
+<p>At the central gates, a group of guards watched the crowd with attentive eyes, collecting travelers’ documents and collective transportation permits.</p>
 
 <p>Despite the high guard, they barely noticed when Qingyi’s body was swallowed by a dark blur, disappearing before appearing on the other side of the gate.</p>
 
 <p>Many guards turned their faces in confusion, spreading their senses of mana.</p>
 
-<p>They felt as if something had just passed them by, but they had no idea what it was, nor whether their senses were simply deceiving</p>
-
-<p>them.</p>
+<p>They felt as if something had just passed them by, but they had no idea what it was, nor whether their senses were simply deceiving them.</p>
 
 <p>In the end, they just exchanged glances and continued their service. “It’s… pleasant.” Qingyi murmured after walking for a moment.</p>
 
 <p>Not just the air, nor the silence, nor the nature.</p>
 
-<p>Everything there was pleasant, from the architecture to the children</p>
+<p>Everything there was pleasant, from the architecture to the children playing in the street.</p>
 
-<p>playing in the street.</p>
+<p>Qingyi’s eyes soon followed those of the children, focusing on the skies, where two dragon riders were having a friendly duel, exchanging bursts of flames.</p>
 
-<p>Qingyi’s eyes soon followed those of the children, focusing on the skies, where two dragon riders were having a friendly duel,</p>
-
-<p>exchanging bursts of flames.</p>
-
-<p>The children shouted with excitement at the beautiful sight, while</p>
-
-<p>the adults looked on with reverence.</p>
+<p>The children shouted with excitement at the beautiful sight, while the adults looked on with reverence.</p>
 
 <p>He could already imagine that many of these children dreamed of one day becoming dragon riders themselves.</p>
 
 <p>Unfortunately, such a dream was almost impossible.</p>
 
-<p>At the end of the day, they were just mortal humans and would hardly</p>
-
-<p>be anything more than that.</p>
+<p>At the end of the day, they were just mortal humans and would hardly be anything more than that.</p>
 
 <p>Qingyi shook his head and continued on his way.</p>
 
 <p>They weren’t the first and wouldn’t be the last.</p>
 
-<p>He was about to start looking for a tavern to listen to rumors when he</p>
+<p>He was about to start looking for a tavern to listen to rumors when he felt a pair of small hands tugging at his robes.</p>
 
-<p>felt a pair of small hands tugging at his robes.</p>
-
-<p>“Oh… handsome uncle! Do you want to get to the huge black castle</p>
-
-<p>too?”</p>
+<p>“Oh… handsome uncle! Do you want to get to the huge black castle too?”</p>
 
 <p>Turning around, Qingyi saw a little girl with short brown hair and large amber eyes, watching him with interest and sparkle.</p>
 
-<p>Judging by her clothes, she was probably a child from a middle-class</p>
-
-<p>family.</p>
+<p>Judging by her clothes, she was probably a child from a middle-class family.</p>
 
 <p>“Yes,” Qingyi nodded, flashing a gentle smile. “Didn’t your parents teach you not to talk to strangers on the street?”</p>
 
-<p>“Oh… are you a bad man?” The little girl took a step back, her eyes</p>
-
-<p>fluttering.</p>
+<p>“Oh… are you a bad man?” The little girl took a step back, her eyes fluttering.</p>
 
 <p>[The worst!] Ruxue’s voice echoed in Qingyi’s mind, whose smile expanded even further, ignoring his wife’s words.</p>
 
 <p>“To my enemies, yes, I am a bad man.”</p>
 
-<p>“Oh… cool!” The little girl’s eyes sparkled. “Daddy always said that if</p>
-
-<p>we wanted to go to the big black castle, we had to be next to a</p>
-
-<p>pureblood, a real one!”</p>
+<p>“Oh… cool!” The little girl’s eyes sparkled. “Daddy always said that if we wanted to go to the big black castle, we had to be next to a pureblood, a real one!”</p>
 
 <p>‘Pureblood?’ Qingyi wondered.</p>
 
 <p>Was she talking about dragon riders?</p>
 
-<p>He already knew that, despite limitations, humans could also become</p>
-
-<p>riders.</p>
+<p>He already knew that, despite limitations, humans could also become riders.</p>
 
 <p>But was there a separation between human riders and elven riders?</p>
 
 <p>[When a human becomes a dragon rider, their constitution tends to change to adapt to this new power.</p>
 
-<p>That must be what she’s talking about, any common elven rider or a</p>
-
-<p>human rider whose constitution has already fully adapted to their</p>
-
-<p>mount.]</p>
+<p>That must be what she’s talking about, any common elven rider or a human rider whose constitution has already fully adapted to their mount.]</p>
 
 <p>It was Aeryn who answered that question, also using his connection with Ruxue.</p>

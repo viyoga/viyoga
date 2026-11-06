@@ -27,9 +27,7 @@ chapter = 553
 
 <p>Above everyone, through the hole in the black clouds, a red moon, or to be more specific, the projection of a red moon, hovered, blocking out the sun.</p>
 
-<p>Its light, though frightening, struck the experts fighting like a</p>
-
-<p>protective embrace, causing them to turn their faces toward the horizon.</p>
+<p>Its light, though frightening, struck the experts fighting like a protective embrace, causing them to turn their faces toward the horizon.</p>
 
 <p>The general of the Crimson Eclipse Saber seemed to finally be fighting seriously!</p>
 
@@ -61,9 +59,7 @@ chapter = 553
 
 <p>“Be glad you can see this before you die, filthy creatures!</p>
 
-<p>Jianming’s saber flashed with his words, the metal whistling as it cut</p>
-
-<p>through the air around him at a perfect angle, so aligned and sharp that it seemed capable of cutting through atoms and the very fabric of the universe.</p>
+<p>Jianming’s saber flashed with his words, the metal whistling as it cut through the air around him at a perfect angle, so aligned and sharp that it seemed capable of cutting through atoms and the very fabric of the universe.</p>
 
 <p>And that, Jianming’s saber did.</p>
 
@@ -73,9 +69,7 @@ chapter = 553
 
 <p>“Broken Reality Slash…” Jianming’s voice echoed, and then the world around him changed, as if split in two, a gap appearing in everyone’s vision.</p>
 
-<p>The upper half of the world seemed to slide over the lower half, the gap lasting for a brief moment before the primordial laws corrected</p>
-
-<p>everything.</p>
+<p>The upper half of the world seemed to slide over the lower half, the gap lasting for a brief moment before the primordial laws corrected everything.</p>
 
 <p>Everything except the demons surrounding Jianming.</p>
 
@@ -93,19 +87,13 @@ chapter = 553
 
 <p>He tried to dodge, of course, but nothing was enough, a powerful Qi from the astral body realm falling upon him.</p>
 
-<p>That was the only one of the demons who was at the peak of that level and who had now consumed the power of dozens of experts</p>
+<p>That was the only one of the demons who was at the peak of that level and who had now consumed the power of dozens of experts from the ancient emperor realm.</p>
 
-<p>from the ancient emperor realm.</p>
-
-<p>Jianming turned, feeling the blade pierce through his chest, destroying his heart and flying towards the defensive arrays of the</p>
-
-<p>five-color pavilion, shattering against the protective barrier.</p>
+<p>Jianming turned, feeling the blade pierce through his chest, destroying his heart and flying towards the defensive arrays of the five-color pavilion, shattering against the protective barrier.</p>
 
 <p>“Don’t think I’ll die without a fight!” Jianming roared, slashing toward the demon, but he didn’t even come close to hitting it.</p>
 
-<p>A new blade of blood cut through the air, and then a pained cry</p>
-
-<p>echoed.</p>
+<p>A new blade of blood cut through the air, and then a pained cry echoed.</p>
 
 <p>Jianming’s left hand fell to the ground, dropping along with his saber.</p>
 
@@ -115,23 +103,17 @@ chapter = 553
 
 <p>“NO!” His daughter’s cry of pain and despair was the last thing he heard before darkness.</p>
 
-<p>There was silence among the experts surrounding the five-colored</p>
-
-<p>pavilion, all watching in shock as the demon fed on Jianming’s body, absorbing his power.</p>
+<p>There was silence among the experts surrounding the five-colored pavilion, all watching in shock as the demon fed on Jianming’s body, absorbing his power.</p>
 
 <p>The general of the Crimson Eclipse Saber, one of the most beloved and respected experts in the enlightened sky empire, one of the pillars that kept the empire standing.</p>
 
 <p>He had just died. That was a lie, right? Their eyes were deceiving them.</p>
 
-<p>It was all a bad joke. Soon, they would wake up from a terrible</p>
-
-<p>nightmare! right?</p>
+<p>It was all a bad joke. Soon, they would wake up from a terrible nightmare! right?</p>
 
 <p>“What are you waiting for? DO SOMETHING!” The white heron clung to her husband’s robes, who was just as shocked as she was.</p>
 
-<p>Jin Hao did not react, the bloody grip on the handle of his axe quickly</p>
-
-<p>losing strength.</p>
+<p>Jin Hao did not react, the bloody grip on the handle of his axe quickly losing strength.</p>
 
 <p>He remembered Qingyi’s words once again and, for the first time in a long time, felt something he thought he would never feel again.</p>
 
@@ -139,8 +121,6 @@ chapter = 553
 
 <p>Jin Hao felt the terror of his wives and children inside the palace, and with a sigh, he strengthened his resolve.</p>
 
-<p>The demon had finished off Jianming and now had its eyes focused on</p>
-
-<p>him.</p>
+<p>The demon had finished off Jianming and now had its eyes focused on him.</p>
 
 <p>The beast studied the protective barrier for a brief moment before smiling, preparing a spear of blood with frightening power.</p>

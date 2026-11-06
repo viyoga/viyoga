@@ -57,27 +57,19 @@ chapter = 525
 
 <p>A loud bang echoed as they opened, revealing a burly, panting figure.</p>
 
-<p>“Oh… So there you are, you brat! It’s been hours since I got here, why haven’t you come to greet your father-in-law?” Jianming roared</p>
+<p>“Oh… So there you are, you brat! It’s been hours since I got here, why haven’t you come to greet your father-in-law?” Jianming roared angrily.</p>
 
-<p>angrily.</p>
-
-<p>“Grumpy as ever. I thought your vacation would be enough to calm</p>
-
-<p>your fire down,” Jin Hao shook his head, sighing in defeat.</p>
+<p>“Grumpy as ever. I thought your vacation would be enough to calm your fire down,” Jin Hao shook his head, sighing in defeat.</p>
 
 <p>Three years, and that damn old man hadn’t changed a bit.</p>
 
 <p>Grumpy, quarrelsome, and annoying.</p>
 
-<p>It didn’t even seem like he was over ninety thousand years old. “I’ll calm my fire when I die, son-in-law. Now where is my little girl? And my granddaughter? Who gave you permission to marry her off?” Jianming continued to grumble as Jin Hao guided him out of the</p>
-
-<p>arena.</p>
+<p>It didn’t even seem like he was over ninety thousand years old. “I’ll calm my fire when I die, son-in-law. Now where is my little girl? And my granddaughter? Who gave you permission to marry her off?” Jianming continued to grumble as Jin Hao guided him out of the arena.</p>
 
 <p>“I didn’t marry her off, she chose Qingyi,” the Gold King replied, frustrated.</p>
 
-<p>“Of course she did. Meilin has always had much better vision than you. You’re lucky to have a daughter like her to inherit your legacy.” As he listened to the discussion, Qingyi couldn’t help but smile</p>
-
-<p>slightly.</p>
+<p>“Of course she did. Meilin has always had much better vision than you. You’re lucky to have a daughter like her to inherit your legacy.” As he listened to the discussion, Qingyi couldn’t help but smile slightly.</p>
 
 <p>It reminded him of his first mother-in-law on Earth.</p>
 
@@ -85,9 +77,7 @@ chapter = 525
 
 <p>That woman didn’t even deserve to be compared to such a creature.</p>
 
-<p>For an entire year, she made his life a living hell that almost drove him</p>
-
-<p>to suicide.</p>
+<p>For an entire year, she made his life a living hell that almost drove him to suicide.</p>
 
 <p>‘At least her daughter was hot…! Qingyi shook his head, remembering that beautiful face.</p>
 
@@ -111,13 +101,9 @@ chapter = 525
 
 <p>Jin Hao’s face froze and his eyes widened.</p>
 
-<p>“Knowing that crazy woman, she must have already gone after Meilin,”</p>
+<p>“Knowing that crazy woman, she must have already gone after Meilin,” Jianming said beside Jin Hao.</p>
 
-<p>Jianming said beside Jin Hao.</p>
-
-<p>The man nodded, leaving his mansion before immediately bursting</p>
-
-<p>into speed, tearing through the skies.</p>
+<p>The man nodded, leaving his mansion before immediately bursting into speed, tearing through the skies.</p>
 
 <p>Qingyi and Jianming followed close behind.</p>
 
@@ -125,24 +111,14 @@ chapter = 525
 
 <p>“She can take care of herself,” Qingyi smiled.</p>
 
-<p>Even if it were an expert of the Astral Body Realm, with Khaedryss</p>
+<p>Even if it were an expert of the Astral Body Realm, with Khaedryss and Ruxue now complete, almost nothing on this continent would actually be able to hurt any of his wives.</p>
 
-<p>and Ruxue now complete, almost nothing on this continent would actually be able to hurt any of his wives.</p>
+<p>Not to mention someone like the Third Young Master’s mother, who had only reached the level of an Ancestral Empress using her husband’s resources.</p>
 
-<p>Not to mention someone like the Third Young Master’s mother, who</p>
-
-<p>had only reached the level of an Ancestral Empress using her</p>
-
-<p>husband’s resources.</p>
-
-<p>After a few moments of flying, they arrived at Meilin’s mansion, a sigh</p>
-
-<p>of relief escaping Jin Hao’s lips.</p>
+<p>After a few moments of flying, they arrived at Meilin’s mansion, a sigh of relief escaping Jin Hao’s lips.</p>
 
 <p>His third wife was not there, and not even a single sign of combat or irregularity in the Qi of that place was visible.</p>
 
-<p>The only person present was Meilin, who was in the garden enjoying</p>
-
-<p>the birdsong.</p>
+<p>The only person present was Meilin, who was in the garden enjoying the birdsong.</p>
 
 <p>“Something wrong, Father?” she asked, her eyes widening as they fell on the old man accompanying her father and husband. “Grandfather? You’re back? Did Mother come too?”</p>

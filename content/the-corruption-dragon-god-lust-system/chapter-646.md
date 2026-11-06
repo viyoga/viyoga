@@ -23,9 +23,7 @@ chapter = 646
 
 <p>“I’m sorry, young miss. I was busy calming my foundation after my last breakthrough. I couldn’t embarrass you in front of all those people by being too weak, could I?” He gave a faint smile, admiring her beautiful, adorable face.</p>
 
-<p>“Hm… call me Rou’er, not ‘young miss! We’re getting married soon, aren’t we? I know it won’t be long before you get rid of that annoying bastard!” She gave a cheerful giggle, clinging to his shoulders a little tighter before pressing her lips to his in a short, inexperienced kiss. “Ah~~ now… you should satisfy your wife, shouldn’t you? That hard thing is poking me too much…” A deep blush colored her cheeks as</p>
-
-<p>the bulge in Qingyi’s pants pressed against her panties, sinking between the plump, virgin lips of her vulva.</p>
+<p>“Hm… call me Rou’er, not ‘young miss! We’re getting married soon, aren’t we? I know it won’t be long before you get rid of that annoying bastard!” She gave a cheerful giggle, clinging to his shoulders a little tighter before pressing her lips to his in a short, inexperienced kiss. “Ah~~ now… you should satisfy your wife, shouldn’t you? That hard thing is poking me too much…” A deep blush colored her cheeks as the bulge in Qingyi’s pants pressed against her panties, sinking between the plump, virgin lips of her vulva.</p>
 
 <p>Qingyi, of course, didn’t refuse.</p>
 
@@ -61,9 +59,7 @@ chapter = 646
 
 <p>She just hadn’t found her man yet.</p>
 
-<p>Rou’er arched her back in an intense tremor, her fingers in his black horns turning white from the force of her grip as she rose onto her</p>
-
-<p>tiptoes.</p>
+<p>Rou’er arched her back in an intense tremor, her fingers in his black horns turning white from the force of her grip as she rose onto her tiptoes.</p>
 
 <p>Enjoying her high-pitched, sweet squeals, Qingyi continued to pleasure that plump, tight slit.</p>
 
@@ -77,9 +73,7 @@ chapter = 646
 
 <p>Slowly, he massaged the area before sliding up to her breasts. Small and soft, they filled his palms perfectly. He kneaded them gently, the tender mounds molding to the shape of his fingers, her stiff nipples pressing into the center of each palm.</p>
 
-<p>“Ah~ Qingyi… something’s coming… I can ahh~~ feel it.” She leaned</p>
-
-<p>into his strong arms pressed against her chest, her pussy overcome by a sensation she’d never felt in her entire life.</p>
+<p>“Ah~ Qingyi… something’s coming… I can ahh~~ feel it.” She leaned into his strong arms pressed against her chest, her pussy overcome by a sensation she’d never felt in her entire life.</p>
 
 <p>She shuddered. Her eyes widened.</p>
 
@@ -91,33 +85,19 @@ chapter = 646
 
 <p>She couldn’t help but stare. It was right in front of her face now. Long, thick, and throbbing.</p>
 
-<p>Would she have to put that in her mouth, or could she just use her</p>
+<p>Would she have to put that in her mouth, or could she just use her hands?</p>
 
-<p>hands?</p>
+<p>Rou’er paused, her petite body kneeling before him. Then her soft lips parted and closed around the tip of his cock, stretching to accommodate the girth.</p>
 
-<p>Rou’er paused, her petite body kneeling before him. Then her soft lips parted and closed around the tip of his cock, stretching to</p>
-
-<p>accommodate the girth.</p>
-
-<p>It was clearly too big for her small mouth. Her jaw opened as wide as</p>
-
-<p>it could, and it was barely enough. Her lips, glossy with spit, formed a</p>
-
-<p>tight ring around his shaft.</p>
+<p>It was clearly too big for her small mouth. Her jaw opened as wide as it could, and it was barely enough. Her lips, glossy with spit, formed a tight ring around his shaft.</p>
 
 <p>But she didn’t let herself get discouraged.</p>
 
-<p>Her eyes sparkled and her small hands closed around the thick base,</p>
+<p>Her eyes sparkled and her small hands closed around the thick base, barely managing to wrap around it. Her throat relaxed, and she pushed forward, taking his cock deeper.</p>
 
-<p>barely managing to wrap around it. Her throat relaxed, and she pushed forward, taking his cock deeper.</p>
+<p>Qingyi was impressed. Inch by inch, his cock entered that incomparably tight throat.</p>
 
-<p>Qingyi was impressed. Inch by inch, his cock entered that</p>
-
-<p>incomparably tight throat.</p>
-
-<p>He still remembered Feixue, the first woman he had met in the mortal</p>
-
-<p>realm who possessed the trait of an elastic throat…</p>
+<p>He still remembered Feixue, the first woman he had met in the mortal realm who possessed the trait of an elastic throat…</p>
 
 <p>She, too, was a petite, flat-chested woman, just like Rou’er.</p>
 

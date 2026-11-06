@@ -29,9 +29,7 @@ chapter = 469
 
 <p>“Aghnn~~ you… hubby… b-be gentler, nghnnn~~ I can’t take it aghnn~~ anymore- ah!”</p>
 
-<p>Without responding to Ruxue’s moans, Qingyi grabbed her hips,</p>
-
-<p>spinning her around on his lap.</p>
+<p>Without responding to Ruxue’s moans, Qingyi grabbed her hips, spinning her around on his lap.</p>
 
 <p>When Ruxue realized it, her face was pressed against the grass. Her ass was proudly raised as Qingyi’s cock sank into her fat, tight pussy again.</p>
 
@@ -45,9 +43,7 @@ chapter = 469
 
 <p>The perfect, pale cheeks of her ass were already reddened by the impacts, the vast flesh undulating violently.</p>
 
-<p>Her moans became more breathless and her words more incomprehensible. Her pussy tried to milk Qingyi’s cock with</p>
-
-<p>maximum force as she herself reached her limit.</p>
+<p>Her moans became more breathless and her words more incomprehensible. Her pussy tried to milk Qingyi’s cock with maximum force as she herself reached her limit.</p>
 
 <p>Suddenly, she shuddered. Her eyes widened, and then she came. Her pussy squirted nonstop around Qingyi’s cock.</p>
 
@@ -75,83 +71,57 @@ chapter = 469
 
 <p>“Everyone? What about Lucien?” Sapphire asked, looking away.</p>
 
-<p>She still hadn’t gotten used to dealing with how… freely Qingyi</p>
-
-<p>handled these things. He really had no shame.</p>
+<p>She still hadn’t gotten used to dealing with how… freely Qingyi handled these things. He really had no shame.</p>
 
 <p>“Dead too,” Qingyi shook his head. “I killed him with my own hands when the demon took over him.”</p>
 
 <p>Sapphire fell silent as soon as she heard those words.</p>
 
-<p>She would be lying if she said she cared about Lucien’s life or death,</p>
+<p>She would be lying if she said she cared about Lucien’s life or death, but still, it was something she couldn’t ignore.</p>
 
-<p>but still, it was something she couldn’t ignore.</p>
-
-<p>“We have to go back to the capital now,” Aeryn said. “We need to</p>
-
-<p>report everything that happened here.”</p>
+<p>“We have to go back to the capital now,” Aeryn said. “We need to report everything that happened here.”</p>
 
 <p>“No,” Qingyi sighed, standing up. “I don’t think we can, not yet… someone was reporting all our actions to the demonic cultists. Someone powerful within the church.”</p>
 
 <p>He continued, serious.</p>
 
-<p>“We can’t afford to go back there only to be sent on a mission where,</p>
+<p>“We can’t afford to go back there only to be sent on a mission where, now, they are ready to kill us.”</p>
 
-<p>now, they are ready to kill us.”</p>
+<p>Honestly, Qingyi had already achieved everything he wanted to achieve there.</p>
 
-<p>Honestly, Qingyi had already achieved everything he wanted to</p>
-
-<p>achieve there.</p>
-
-<p>A good battle, kind wives, and above all, an idea of what the celestial</p>
-
-<p>demon was planning.</p>
+<p>A good battle, kind wives, and above all, an idea of what the celestial demon was planning.</p>
 
 <p>“So… what can we do?” Celestia asked, her lips trembling.</p>
 
 <p>In response, Qingyi just smiled.</p>
 
-<p>He had many ideas, but for now, he had something bigger in his</p>
-
-<p>vision.</p>
+<p>He had many ideas, but for now, he had something bigger in his vision.</p>
 
 <p>Something he knew he couldn’t delay much longer.</p>
 
 <p>***</p>
 
-<p>Countless kilometers away, the skies were black and stormy, with</p>
-
-<p>incessant lightning striking the ground.</p>
+<p>Countless kilometers away, the skies were black and stormy, with incessant lightning striking the ground.</p>
 
 <p>At the top of a tower in a powerful flying fortress, there was a woman.</p>
 
-<p>Her body was slender and curvaceous, her curves very similar to</p>
-
-<p>Aeryn’s.</p>
+<p>Her body was slender and curvaceous, her curves very similar to Aeryn’s.</p>
 
 <p>Perfect and balanced. Her large, heavy breasts, visible under the neckline of her dress, rose and fell with each breath.</p>
 
-<p>Among her long purple hair, black horns emerged, with long pointed</p>
-
-<p>ears decorating her beautiful face.</p>
+<p>Among her long purple hair, black horns emerged, with long pointed ears decorating her beautiful face.</p>
 
 <p>She sat by a half-open window, feeling the damp breeze hit her face.</p>
 
 <p>Her pink lips parted and she sighed.</p>
 
-<p>“Oh, my little Elise… where are you?” She called, unable to stop her</p>
-
-<p>eyes from trembling.</p>
+<p>“Oh, my little Elise… where are you?” She called, unable to stop her eyes from trembling.</p>
 
 <p>It had been so long. So much pain, so much anxiety.</p>
 
-<p>She was getting tired of waiting. She wanted to leave everything</p>
+<p>She was getting tired of waiting. She wanted to leave everything behind and just embark on a journey to find her sister.</p>
 
-<p>behind and just embark on a journey to find her sister.</p>
-
-<p>“I just hope her husband takes good care of her…” She said,</p>
-
-<p>remembering the proposal she received from her own sister when they last met.</p>
+<p>“I just hope her husband takes good care of her…” She said, remembering the proposal she received from her own sister when they last met.</p>
 
 <p>“Hm… silly little sister.”</p>
 

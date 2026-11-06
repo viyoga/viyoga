@@ -53,9 +53,7 @@ chapter = 524
 
 <p>“Ah!”</p>
 
-<p>A grunt escaped the leader’s throat before his own body collapsed into cubes of bloody, perfectly cut flesh, not even his soul escaping. At the back of the mansion, the other two hundred specialists fared little better. They barely took a single step before they froze,</p>
-
-<p>thousands of tiny needles breaking through the air and striking their bodies.</p>
+<p>A grunt escaped the leader’s throat before his own body collapsed into cubes of bloody, perfectly cut flesh, not even his soul escaping. At the back of the mansion, the other two hundred specialists fared little better. They barely took a single step before they froze, thousands of tiny needles breaking through the air and striking their bodies.</p>
 
 <p>They couldn’t even retreat before the poison carried by the needles began to take effect, their eyes rolling back and their bodies reduced to nothing but putrid slime.</p>
 
@@ -69,17 +67,11 @@ chapter = 524
 
 <p>She watched Qingxue and Biyue return to the mansion courtyard, both looking bored.</p>
 
-<p>“You didn’t miss much, Sister Rongyan, they were quite the weaklings, “Qingxue said, brushing a strand of white hair away from her piercing</p>
+<p>“You didn’t miss much, Sister Rongyan, they were quite the weaklings, “Qingxue said, brushing a strand of white hair away from her piercing blue eyes.</p>
 
-<p>blue eyes.</p>
+<p>“Ugh… you just killed them too quickly! You need to break some bones and make them scream first!” Rongyan crossed her arms, still annoyed.</p>
 
-<p>“Ugh… you just killed them too quickly! You need to break some bones and make them scream first!” Rongyan crossed her arms, still</p>
-
-<p>annoyed.</p>
-
-<p>Quickly, all of Qingyi’s other wives left the mansion, confused and</p>
-
-<p>curious.</p>
+<p>Quickly, all of Qingyi’s other wives left the mansion, confused and curious.</p>
 
 <p>“What happened?” Meilin was the most puzzled among them, her eyes rising to Khaedryss, landing in the courtyard.</p>
 
@@ -91,31 +83,19 @@ chapter = 524
 
 <p>“Rotten…” The woman repeated, raising her hate-filled eyes to Khaedryss. “Do you know who I am? Filthy beast! I am—”</p>
 
-<p>Before the woman could even finish her words, Khaedryss’s beautiful, delicate feet were already over her mouth, silencing her and crushing</p>
-
-<p>a few teeth in her jaw.</p>
+<p>Before the woman could even finish her words, Khaedryss’s beautiful, delicate feet were already over her mouth, silencing her and crushing a few teeth in her jaw.</p>
 
 <p>“Rotten and noisy.” Khaedryss raised her fist, ready to finish her off.</p>
 
 <p>“Wait! That’s the third young master’s mother…” Meilin whispered beside Khaedryss.</p>
 
-<p>“Hm…” Khaedryss thought for a moment. “Should I kill her more</p>
+<p>“Hm…” Khaedryss thought for a moment. “Should I kill her more slowly, then?”</p>
 
-<p>slowly, then?”</p>
+<p>“No, you… uh…” Meilin’s eyes went to the floor. In the end, she just nodded.</p>
 
-<p>“No, you… uh…” Meilin’s eyes went to the floor. In the end, she just</p>
+<p>“Just be quick, we have to clean up this mess before husband returns,” Ruxue said, handing the Heaven-Defying Thunder Sword to Khaedryss.</p>
 
-<p>nodded.</p>
-
-<p>“Just be quick, we have to clean up this mess before husband returns,”</p>
-
-<p>Ruxue said, handing the Heaven-Defying Thunder Sword to</p>
-
-<p>Khaedryss.</p>
-
-<p>The draconic beauty looked at the sword in her hands with</p>
-
-<p>strangeness before grunting.</p>
+<p>The draconic beauty looked at the sword in her hands with strangeness before grunting.</p>
 
 <p>“Humans and their useless tools.”</p>
 
@@ -123,17 +103,13 @@ chapter = 524
 
 <p>“W-wait, n-no!”</p>
 
-<p>The third young master’s mother’s words were interrupted by a crash</p>
-
-<p>and a shrill scream.</p>
+<p>The third young master’s mother’s words were interrupted by a crash and a shrill scream.</p>
 
 <p>“Wait, Khaedryss, let me have some fun too!” Rongyan exclaimed as Khaedryss beat that woman to death, using the legendary sword as a club and ignoring Ruxue’s panic.</p>
 
 <p>“Hey, take the sword out of its sheath! You’ll stain it!”</p>
 
-<p>“Can I get rid of the body? Nyan? Linyue is very good at hiding</p>
-
-<p>things!”</p>
+<p>“Can I get rid of the body? Nyan? Linyue is very good at hiding things!”</p>
 
 <p>“I think it’s better for Khaedryss to devour her,” Qianyao said, restraining Linyue’s excitement and closing her golden eyes. Even though she herself was a dragon, she preferred not to see the brutality that her race often displayed.</p>
 

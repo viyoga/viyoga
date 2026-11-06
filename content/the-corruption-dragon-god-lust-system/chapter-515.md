@@ -29,9 +29,7 @@ chapter = 515
 
 <p>Qingyi’s mouth opened to respond, but he was interrupted by a loud knock, followed by a familiar voice.</p>
 
-<p>“Young Miss Meilin, Young Master Qingyi, your father is waiting,” someone said from the other side of the bedroom door, knocking on</p>
-
-<p>the high-quality wood.</p>
+<p>“Young Miss Meilin, Young Master Qingyi, your father is waiting,” someone said from the other side of the bedroom door, knocking on the high-quality wood.</p>
 
 <p>A dissatisfied grunt escaped Meilin’s lips, but in the end, she just got up, straightened her clothes, and opened the door, revealing the First Shadow.</p>
 
@@ -63,9 +61,7 @@ chapter = 515
 
 <p>A loud crack echoed as the door suddenly swung open, a broken steel pin falling to the floor with a metallic thud.</p>
 
-<p>Qingyi stepped inside, and immediately, the double doors closed</p>
-
-<p>behind him with a powerful slam.</p>
+<p>Qingyi stepped inside, and immediately, the double doors closed behind him with a powerful slam.</p>
 
 <p>He barely paid attention to the looks of shock that took over the faces of the three shadows and even Meilin.</p>
 
@@ -73,15 +69,11 @@ chapter = 515
 
 <p>That was a very special type of steel called Frost Peak Steel, found only in one of the Three Imperial Peaks, a mountain range in the far north of the empire.</p>
 
-<p>It was one of the most expensive and coveted items, even by ancestral</p>
-
-<p>emperors.</p>
+<p>It was one of the most expensive and coveted items, even by ancestral emperors.</p>
 
 <p>That was not a type of lock that could be overcome by brute force, no. Only a quick and perceptive mind should be able to open it with delicacy and care, but even so, with pure force…</p>
 
-<p>“Do you believe you would be able to break this seal so easily with brute force alone?” The Second Shadow approached, looking at the</p>
-
-<p>broken item in his companion’s hands.</p>
+<p>“Do you believe you would be able to break this seal so easily with brute force alone?” The Second Shadow approached, looking at the broken item in his companion’s hands.</p>
 
 <p>The First Shadow thought for a moment before lowering his head.</p>
 
@@ -91,21 +83,15 @@ chapter = 515
 
 <p>But Qingyi, an Immortal Emperor, was most certainly the strongest he had ever seen.</p>
 
-<p>Sighing, he turned to Miss Meilin, who had her chest puffed out and a</p>
-
-<p>proud look on her face.</p>
+<p>Sighing, he turned to Miss Meilin, who had her chest puffed out and a proud look on her face.</p>
 
 <p>“My husband is amazing, isn’t he?” She flashed a big smile at First</p>
 
 <p>Shadow, who shook his head in defeat.</p>
 
-<p>That girl barely considered what the cost of replacing that lock would</p>
+<p>That girl barely considered what the cost of replacing that lock would be, which was considerable even for her father.</p>
 
-<p>be, which was considerable even for her father.</p>
-
-<p>Not that the Gold King was exactly a stingy man who skimped on his</p>
-
-<p>children.</p>
+<p>Not that the Gold King was exactly a stingy man who skimped on his children.</p>
 
 <p>Quite the contrary.</p>
 
@@ -117,26 +103,16 @@ chapter = 515
 
 <p>Its size, perhaps a little over ten thousand square meters, even housed trees and a private lake.</p>
 
-<p>Next to this lake was the only other person besides Qingyi in that</p>
-
-<p>room.</p>
+<p>Next to this lake was the only other person besides Qingyi in that room.</p>
 
 <p>He was a tall man, taller than Qingyi himself and, without a doubt, much more corpulent.</p>
 
 <p>He was sitting in a simple chair, dressed in modest clothes. His middle-aged face, with slight signs of aging, wore a calm expression. That man was the Gold King, and in his hands he held a bamboo rod with a line attached to it that went into the water. Qingyi took a step forward, immediately smelling the sweet and pleasant aroma of roasted fish coming from a barbecue grill next to the Gold King.</p>
 
-<p>Another chair was right next to the grill, with another bamboo stick</p>
+<p>Another chair was right next to the grill, with another bamboo stick next to it.</p>
 
-<p>next to it.</p>
-
-<p>Slowly, the Gold King’s eyes changed, falling on Qingyi and on the</p>
-
-<p>other part of the bar that was supposed to lock that door, lying on the</p>
-
-<p>ground.</p>
+<p>Slowly, the Gold King’s eyes changed, falling on Qingyi and on the other part of the bar that was supposed to lock that door, lying on the ground.</p>
 
 <p>“Ah… My shadows didn’t tell me you were a dragon…” The Gold King grunted in frustration.</p>
 
-<p>“I wasn’t, at least not always,” Qingyi replied, putting his hands behind</p>
-
-<p>his back. “Although your daughter, with such talent, is capable of turning even an insignificant ant into a dragon.”</p>
+<p>“I wasn’t, at least not always,” Qingyi replied, putting his hands behind his back. “Although your daughter, with such talent, is capable of turning even an insignificant ant into a dragon.”</p>

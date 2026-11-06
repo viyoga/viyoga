@@ -85,43 +85,27 @@ chapter = 589
 
 <p>It was… strange.</p>
 
-<p>The Qi moved chaotically, but not completely chaotically. There was order there, the Qi didn’t flow like a river, but rather like small</p>
+<p>The Qi moved chaotically, but not completely chaotically. There was order there, the Qi didn’t flow like a river, but rather like small spheres.</p>
 
-<p>spheres.</p>
-
-<p>These spheres traveled along predefined paths, but there were so many that the trajectory seemed random, constantly shuffling. “Ten thousand spheres of Qi…” Qingyi counted, channeling all his draconic Qi into his mind and memorizing the positions and routes of</p>
-
-<p>each one.</p>
+<p>These spheres traveled along predefined paths, but there were so many that the trajectory seemed random, constantly shuffling. “Ten thousand spheres of Qi…” Qingyi counted, channeling all his draconic Qi into his mind and memorizing the positions and routes of each one.</p>
 
 <p>That was the hard part. What remained was something any cultivator of the Astral Body Realm should be able to do.</p>
 
 <p>Aligning Qi flows.</p>
 
-<p>When he felt ready, he moved his Qi toward the door, without any</p>
+<p>When he felt ready, he moved his Qi toward the door, without any resistance.</p>
 
-<p>resistance.</p>
+<p>Dividing it into ten thousand threads, he began to work, aligning each individual thread with one of the Qi spheres.</p>
 
-<p>Dividing it into ten thousand threads, he began to work, aligning each</p>
+<p>Soon, patterns began to emerge on the steel door, following the spheres’ route and forming drawings.</p>
 
-<p>individual thread with one of the Qi spheres.</p>
-
-<p>Soon, patterns began to emerge on the steel door, following the</p>
-
-<p>spheres’ route and forming drawings.</p>
-
-<p>A woman holding the moon, each Qi sphere moving like the stroke of</p>
-
-<p>a brush.</p>
+<p>A woman holding the moon, each Qi sphere moving like the stroke of a brush.</p>
 
 <p>At that moment, Qingyi understood.</p>
 
 <p>The locking mechanism of that door was, in reality, a painting.</p>
 
-<p>The correct way to solve it was not to memorize it, as he had done,</p>
-
-<p>but rather to understand the painting and use Qi to draw it on the</p>
-
-<p>door.</p>
+<p>The correct way to solve it was not to memorize it, as he had done, but rather to understand the painting and use Qi to draw it on the door.</p>
 
 <p>Fortunately, his method worked as well and, with a click, the locking mechanism opened.</p>
 
@@ -129,9 +113,7 @@ chapter = 589
 
 <p>An overwhelming pressure fell upon his body, as if a thousand elephants were pressing him down.</p>
 
-<p>Before him lay a corridor stretching about a hundred meters, with a</p>
-
-<p>door at the end.</p>
+<p>Before him lay a corridor stretching about a hundred meters, with a door at the end.</p>
 
 <p>When he took a step forward, the pressure immediately doubled.</p>
 
@@ -141,6 +123,4 @@ chapter = 589
 
 <p>‘This is a test where I don’t even need to break a sweat! Qingyi shook his head, summoning his lineage projection.</p>
 
-<p>The moment the head of a massive black dragon appeared behind him, the pressure ceased, the formations collapsing with the dragon’s</p>
-
-<p>roar.</p>
+<p>The moment the head of a massive black dragon appeared behind him, the pressure ceased, the formations collapsing with the dragon’s roar.</p>

@@ -11,9 +11,7 @@ chapter = 479
 
 <p>Sometimes Qingyi forgot their true vastness, their softness, and their weight against his skin. Fortunately, his beloved wife was always there to remind him.</p>
 
-<p>Elize lifted her breasts around her husband’s cock one last time</p>
-
-<p>before letting them fall, hitting Qingyi’s thighs with a loud, wet smack.</p>
+<p>Elize lifted her breasts around her husband’s cock one last time before letting them fall, hitting Qingyi’s thighs with a loud, wet smack.</p>
 
 <p>Then she hugged them, squeezing them tightly around Qingyi’s member at the same time as she wrapped her lips around the reddish glans, sucking voraciously.</p>
 
@@ -31,9 +29,7 @@ chapter = 479
 
 <p>That only made Aeryn even more embarrassed, her body trembling as she blushed even more.</p>
 
-<p>That kind of encouragement was definitely not what she needed right</p>
-
-<p>now.</p>
+<p>That kind of encouragement was definitely not what she needed right now.</p>
 
 <p>Elize went back to work on Qingyi’s cock, moving her breasts up and down.</p>
 
@@ -75,9 +71,7 @@ chapter = 479
 
 <p>DragonPeak, the capital of the dragon people, was divided into three parts.</p>
 
-<p>The first was the outer region. There was no division between the poor and the middle class here, as poverty had been virtually</p>
-
-<p>eradicated throughout the capital.</p>
+<p>The first was the outer region. There was no division between the poor and the middle class here, as poverty had been virtually eradicated throughout the capital.</p>
 
 <p>The second was the noble region, inhabited by human nobles, wealthy merchants, and large corporations.</p>
 
@@ -91,9 +85,7 @@ chapter = 479
 
 <p>Qingyi was among this crowd, watching the dozens of banners waving over the arena’s bleachers.</p>
 
-<p>For each banner, there was a throne, each throne serving as a seat for</p>
-
-<p>a powerful expert.</p>
+<p>For each banner, there was a throne, each throne serving as a seat for a powerful expert.</p>
 
 <p>The only empty throne was that of a black banner bearing purple flames, the only one of its kind.</p>
 
@@ -107,14 +99,10 @@ chapter = 479
 
 <p>How could he not be happy about that? If he could just advance directly towards Seraphine, everything would be so much easier… Unfortunately, she was not personally there, so Qingyi depended on the luck of her representative choosing him.</p>
 
-<p>Before Qingyi could even think of anything, he had to raise his face</p>
-
-<p>suddenly.</p>
+<p>Before Qingyi could even think of anything, he had to raise his face suddenly.</p>
 
 <p>An intense pressure fell on his body, and immediately, half of those around him fell to the ground, crushed like cockroaches.</p>
 
 <p>In the skies, a huge bronze dragon flew, only ten or twenty meters smaller than the current Khaedryss, its roar dominating everyone there.</p>
 
-<p>That was a twelfth ring expert, equivalent to an astral body realm cultivator and maybe even the leader of one of the twelve great</p>
-
-<p>families!</p>
+<p>That was a twelfth ring expert, equivalent to an astral body realm cultivator and maybe even the leader of one of the twelve great families!</p>

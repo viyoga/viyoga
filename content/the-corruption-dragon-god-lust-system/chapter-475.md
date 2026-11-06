@@ -73,9 +73,7 @@ chapter = 475
 
 <p>By the time he finally had the capacity to realize what was happening, it was already too late.</p>
 
-<p>His dragon turned, taking to the skies with desperate flaps of its</p>
-
-<p>wings.</p>
+<p>His dragon turned, taking to the skies with desperate flaps of its wings.</p>
 
 <p>Where its flames fell, a thick veil of white smoke and steam from the muddy ground began to rise, hiding Qingyi within.</p>
 
@@ -95,17 +93,11 @@ chapter = 475
 
 <p>The creature’s roar caused extreme terror in the young elf’s eyes.</p>
 
-<p>Khaedryss barely paid attention to Lucas, voraciously devouring his</p>
+<p>Khaedryss barely paid attention to Lucas, voraciously devouring his dragon.</p>
 
-<p>dragon.</p>
+<p>When she was finished, she lowered her head, her jaw opening to let out a long, angry growl.</p>
 
-<p>When she was finished, she lowered her head, her jaw opening to let</p>
-
-<p>out a long, angry growl.</p>
-
-<p>“You know, brat…” Qingyi jumped on top of Khaedryss’s head,</p>
-
-<p>watching Lucas.</p>
+<p>“You know, brat…” Qingyi jumped on top of Khaedryss’s head, watching Lucas.</p>
 
 <p>There was no more arrogance on his face, and his legs had been replaced by nothing but a bloody mess, devoured by the black dragon.</p>
 
@@ -113,47 +105,29 @@ chapter = 475
 
 <p>Khaedryss’s lips parted, revealing sharp teeth, and a strange black light emerged from the depths of her throat.</p>
 
-<p>Lucas despaired, his pants dampening with urine as he screamed and</p>
+<p>Lucas despaired, his pants dampening with urine as he screamed and begged.</p>
 
-<p>begged.</p>
-
-<p>For the first time in his entire life, he was in mortal danger. Real</p>
-
-<p>mortal danger.</p>
+<p>For the first time in his entire life, he was in mortal danger. Real mortal danger.</p>
 
 <p>Unfortunately for him, Khaedryss did not listen to pleas.</p>
 
-<p>Her flames engulfed everything: clothes, weapons, even the</p>
+<p>Her flames engulfed everything: clothes, weapons, even the decapitated head of his mount.</p>
 
-<p>decapitated head of his mount.</p>
+<p>Everything was vaporized into nothing but ashes by the flames of the butcher of empires and slayer of immortals.</p>
 
-<p>Everything was vaporized into nothing but ashes by the flames of the</p>
+<p>When she was done, Khaedryss raised her face and then opened her jaws.</p>
 
-<p>butcher of empires and slayer of immortals.</p>
+<p>Her thunderous roar echoed for countless kilometers, the surrounding forest shaking.</p>
 
-<p>When she was done, Khaedryss raised her face and then opened her</p>
-
-<p>jaws.</p>
-
-<p>Her thunderous roar echoed for countless kilometers, the</p>
-
-<p>surrounding forest shaking.</p>
-
-<p>She could taste that air, taste that blood, one she hadn’t tasted in</p>
-
-<p>many, many years.</p>
+<p>She could taste that air, taste that blood, one she hadn’t tasted in many, many years.</p>
 
 <p>She was back home.</p>
 
 <p>“Good girl…” Qingyi smiled, patting Khaedryss on the neck.</p>
 
-<p>She had more than doubled in size compared to when he first found</p>
+<p>She had more than doubled in size compared to when he first found her, reaching ninety meters in length and weighing close to a hundred tons.</p>
 
-<p>her, reaching ninety meters in length and weighing close to a hundred tons.</p>
-
-<p>It was even a little comical for Qingyi, so small in comparison to her,</p>
-
-<p>to stroke her scales.</p>
+<p>It was even a little comical for Qingyi, so small in comparison to her, to stroke her scales.</p>
 
 <p>Still, she enjoyed it, feeling the warm, affectionate touch of her rider.</p>
 

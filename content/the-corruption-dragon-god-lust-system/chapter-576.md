@@ -69,9 +69,7 @@ chapter = 576
 
 <p>“Can I just die like this?” The god of war fought against fate, accessed and ascended the flames of his divine soul.</p>
 
-<p>Even if he died, he had to kill that damned bastard. He had to do</p>
-
-<p>something.</p>
+<p>Even if he died, he had to kill that damned bastard. He had to do something.</p>
 
 <p>The god of war’s body filled with ecstasy as he felt his power explode.</p>
 
@@ -81,35 +79,25 @@ chapter = 576
 
 <p>At the final moment, before he could gather enough strength to defend himself, a blade tore through the air and landed on his neck.</p>
 
-<p>The god of war opened his eyes just in time to see Qingyi’s face full of</p>
-
-<p>contempt.</p>
+<p>The god of war opened his eyes just in time to see Qingyi’s face full of contempt.</p>
 
 <p>His head flew off, and then, darkness.</p>
 
-<p>His divine body, with his soul in flames, shattered into tiny golden</p>
-
-<p>threads.</p>
+<p>His divine body, with his soul in flames, shattered into tiny golden threads.</p>
 
 <p>Qingyi ignored the corpse crumbling in front of him, sheathing the thunder sword that defied the heavens.</p>
 
-<p>Honestly, he could just wait until the god of war finished his recovery</p>
-
-<p>and wage an even more epic battle.</p>
+<p>Honestly, he could just wait until the god of war finished his recovery and wage an even more epic battle.</p>
 
 <p>But Qingyi was tired.</p>
 
 <p>He didn’t have time for a phase two of any stupid fight.</p>
 
-<p>He still had cards up his sleeve, enough to make sure he could deal</p>
-
-<p>with any enemy.</p>
+<p>He still had cards up his sleeve, enough to make sure he could deal with any enemy.</p>
 
 <p>But… why take a chance?</p>
 
-<p>With a soft grunt, Qingyi sat up, cracking his sore back and</p>
-
-<p>circulating his Qi.</p>
+<p>With a soft grunt, Qingyi sat up, cracking his sore back and circulating his Qi.</p>
 
 <p>The god of war was not an easy opponent by any means.</p>
 
@@ -117,13 +105,9 @@ chapter = 576
 
 <p>“Ah… he must have been a terrifying bastard in his prime.” Qingyi shook his head.</p>
 
-<p>For the current god of war to be stronger than the nearly perfect</p>
+<p>For the current god of war to be stronger than the nearly perfect avatar of the celestial demon, the power of his prime must have been beyond that of the celestial demon, perhaps even beyond that of the deceased Corruption Dragon God himself.</p>
 
-<p>avatar of the celestial demon, the power of his prime must have been beyond that of the celestial demon, perhaps even beyond that of the deceased Corruption Dragon God himself.</p>
-
-<p>“Unfortunately, his personality is trash.” Qingyi whispered, picking up the god of war’s axe and studying it for a brief moment before</p>
-
-<p>discarding it.</p>
+<p>“Unfortunately, his personality is trash.” Qingyi whispered, picking up the god of war’s axe and studying it for a brief moment before discarding it.</p>
 
 <p>His eyes lowered and he felt the ground beneath him shake.</p>
 
@@ -133,12 +117,8 @@ chapter = 576
 
 <p>“Shit!” He activated his draconic eyes, his body exploding into speed.</p>
 
-<p>In the blink of an eye, he was already above the palace, watching the rubble collapse into the abyss alongside the flying island. Spreading his Qi senses, he finally sensed a faint aura among the</p>
-
-<p>rubble.</p>
+<p>In the blink of an eye, he was already above the palace, watching the rubble collapse into the abyss alongside the flying island. Spreading his Qi senses, he finally sensed a faint aura among the rubble.</p>
 
 <p>Qingyi didn’t hesitate, immediately throwing himself toward the figure and taking her in his arms.</p>
 
-<p>He didn’t even have time to observe her form as he closed his eyes</p>
-
-<p>and focused on protecting her from the collapsing island.</p>
+<p>He didn’t even have time to observe her form as he closed his eyes and focused on protecting her from the collapsing island.</p>

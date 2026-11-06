@@ -77,71 +77,49 @@ chapter = 571
 
 <p>Seraphine followed suit, also hugging him tightly.</p>
 
-<p>“Hm… did you miss your husband?” He asked, grabbing their delicate</p>
-
-<p>waists.</p>
+<p>“Hm… did you miss your husband?” He asked, grabbing their delicate waists.</p>
 
 <p>“Yes… where were hubby and grandpa?” Seraphine asked curiously.</p>
 
 <p>“Killing green skins.” Qingyi smiled.</p>
 
-<p>He wanted to stay with them for a moment longer, but first he needed</p>
-
-<p>a bath.</p>
+<p>He wanted to stay with them for a moment longer, but first he needed a bath.</p>
 
 <p>“Ah… lucky brat.” Lucios shook his head bitterly.</p>
 
 <p>He wasn’t too old to find a wife himself, was he?</p>
 
-<p>He was already at the peak of his power anyway, he should at least</p>
-
-<p>stop being an old bachelor.</p>
+<p>He was already at the peak of his power anyway, he should at least stop being an old bachelor.</p>
 
 <p>“Good luck, Grandpa!” Elize exclaimed beside Qingyi, watching</p>
 
 <p>Lucios’ expression.</p>
 
-<p>“Good luck, my foot, brat. Your grandfather is a natural heartthrob, he</p>
-
-<p>doesn’t need luck!” Turning his face arrogantly, Lucios ascended into</p>
-
-<p>the skies.</p>
+<p>“Good luck, my foot, brat. Your grandfather is a natural heartthrob, he doesn’t need luck!” Turning his face arrogantly, Lucios ascended into the skies.</p>
 
 <p>Alone, the three could only laugh heartily.</p>
 
 <p>With Elize and Seraphine returning to the world of the mind, Qingyi accompanied them and took a nice shower.</p>
 
-<p>Unfortunately, he didn’t even have time to relax. As soon as he left the</p>
-
-<p>bathroom, Ruxue appeared.</p>
+<p>Unfortunately, he didn’t even have time to relax. As soon as he left the bathroom, Ruxue appeared.</p>
 
 <p>Her expression was worried and her shoulders tense.</p>
 
 <p>“What happened?” Qingyi asked, drying his wet body.</p>
 
-<p>“Celestia… she received another message from her goddess, and,</p>
-
-<p>well… it’s not good,” Ruxue said, clearly exhausted.</p>
+<p>“Celestia… she received another message from her goddess, and, well… it’s not good,” Ruxue said, clearly exhausted.</p>
 
 <p>Hearing this, Qingyi’s eyes widened.</p>
 
-<p>He knew how important Auranys was to Celestia, and he didn’t want</p>
-
-<p>her to suffer any harm because of it.</p>
+<p>He knew how important Auranys was to Celestia, and he didn’t want her to suffer any harm because of it.</p>
 
 <p>Fearing the worst, he quickly got dressed and ran to her room.</p>
 
-<p>Celestia was lying on her bed, next to the high elf Aeryn, who was</p>
-
-<p>carefully stroking her hair.</p>
+<p>Celestia was lying on her bed, next to the high elf Aeryn, who was carefully stroking her hair.</p>
 
 <p>“What happened?” Qingyi asked, approaching quickly. Noticing her husband’s presence, Celestia jumped out of bed and threw herself into his arms.</p>
 
-<p>“Husband… The goddess sent me a message… a farewell. She said that</p>
-
-<p>a terrible evil was coming for her and that…. and that… I-” Celestia</p>
-
-<p>broke down in tears, rubbing her face against his chest.</p>
+<p>“Husband… The goddess sent me a message… a farewell. She said that a terrible evil was coming for her and that…. and that… I-” Celestia broke down in tears, rubbing her face against his chest.</p>
 
 <p>Her connection to Auranys was strong, stronger than that of any other human in history.</p>
 
@@ -157,9 +135,7 @@ chapter = 571
 
 <p>He grabbed Celestia’s chin, making her look into his eyes.</p>
 
-<p>“Husband will take care of everything, okay? Just relax… soon, I</p>
-
-<p>promise you’ll be by her side.” Qingyi smiled kindly, pressing his lips against hers.</p>
+<p>“Husband will take care of everything, okay? Just relax… soon, I promise you’ll be by her side.” Qingyi smiled kindly, pressing his lips against hers.</p>
 
 <p>First of all, he needed to locate Auranys’ divine realm, the spatial pocket where she was hiding.</p>
 

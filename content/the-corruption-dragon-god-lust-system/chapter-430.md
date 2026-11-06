@@ -15,9 +15,7 @@ chapter = 430
 
 <p>The salaries were good, and the meals served in the restaurant on the lower floor were unique but pleasant.</p>
 
-<p>The second was the capital’s cathedral, a huge building of marble and gold, with towers that pierced the skies and powerful mana</p>
-
-<p>formations surrounding it.</p>
+<p>The second was the capital’s cathedral, a huge building of marble and gold, with towers that pierced the skies and powerful mana formations surrounding it.</p>
 
 <p>It was the second greatest source of power for the Church of Auranys on the entire continent.</p>
 
@@ -51,9 +49,7 @@ chapter = 430
 
 <p>From the large golden doors, a figure emerged, his blond hair bathed in the light that streamed through the many lancet windows that decorated that place.</p>
 
-<p>That was Lucien. Although not yet the strongest of heroes, his presence was powerful and very important to the people of the</p>
-
-<p>capital.</p>
+<p>That was Lucien. Although not yet the strongest of heroes, his presence was powerful and very important to the people of the capital.</p>
 
 <p>“Your Holiness, I heard that Aeryn was coming back, is that true?”</p>
 
@@ -85,17 +81,11 @@ chapter = 430
 
 <p>In the end, the bishop could only sigh in defeat.</p>
 
-<p>Lucien was a man of the Goddess; he would soon understand that he</p>
-
-<p>should be above carnal desires and should preserve his chastity</p>
-
-<p>without having to wear a chastity belt to do so.</p>
+<p>Lucien was a man of the Goddess; he would soon understand that he should be above carnal desires and should preserve his chastity without having to wear a chastity belt to do so.</p>
 
 <p>‘Not that any of those women are interested in him… The bishop thought, remembering when Lucien once tried to hug Aeryn.</p>
 
-<p>It wasn’t a pretty sight, and the cathedral’s healers needed a long time</p>
-
-<p>to fix all of Lucien’s teeth.</p>
+<p>It wasn’t a pretty sight, and the cathedral’s healers needed a long time to fix all of Lucien’s teeth.</p>
 
 <p>“Come on, Aeryn should be here by now,” the bishop said.</p>
 
@@ -103,13 +93,9 @@ chapter = 430
 
 <p>Looking ahead, he saw a commotion begin. The gates opened, and then a figure appeared.</p>
 
-<p>She was beautiful, more beautiful than anything the men there had</p>
+<p>She was beautiful, more beautiful than anything the men there had ever seen.</p>
 
-<p>ever seen.</p>
-
-<p>Her elegant blonde hair danced in the gentle breeze, a faint drop of sweat trickling down her delicate chin and landing on her steel</p>
-
-<p>breastplate.</p>
+<p>Her elegant blonde hair danced in the gentle breeze, a faint drop of sweat trickling down her delicate chin and landing on her steel breastplate.</p>
 
 <p>Lucien’s eyes sparkled and he took a step forward.</p>
 
@@ -119,24 +105,14 @@ chapter = 430
 
 <p>Behind her was a second figure, a man Lucien knew well.</p>
 
-<p>The young man from another continent, with a face of incomparable</p>
+<p>The young man from another continent, with a face of incomparable beauty, always wearing a gentle smile and wrapped in pure white robes.</p>
 
-<p>beauty, always wearing a gentle smile and wrapped in pure white</p>
-
-<p>robes.</p>
-
-<p>Although he looked different, with purple eyes and black robes,</p>
-
-<p>Lucien needed only a single moment to know.</p>
+<p>Although he looked different, with purple eyes and black robes, Lucien needed only a single moment to know.</p>
 
 <p>That was Long Qingyi.</p>
 
-<p>Lucien’s eyes focused on the bishop, and he drew his sword, noticing</p>
+<p>Lucien’s eyes focused on the bishop, and he drew his sword, noticing the pendant on Qingyi’s chest.</p>
 
-<p>the pendant on Qingyi’s chest.</p>
-
-<p>“Your Holiness! This cannot be real! He cannot be a chosen hero! He is</p>
-
-<p>a sinner! I heard the voice of Auranys, the Goddess asked me to exterminate him personally!”</p>
+<p>“Your Holiness! This cannot be real! He cannot be a chosen hero! He is a sinner! I heard the voice of Auranys, the Goddess asked me to exterminate him personally!”</p>
 
 <p>Lucien roared, his face full of rage.</p>

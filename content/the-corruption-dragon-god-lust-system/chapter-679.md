@@ -17,9 +17,7 @@ chapter = 679
 
 <p>The first two consumed five hundred lust points. The other two, two thousand.</p>
 
-<p>[The host must indeed be a masochist, to accept the pain of</p>
-
-<p>upgrading his lineage and constitution by two levels at the same time]</p>
+<p>[The host must indeed be a masochist, to accept the pain of upgrading his lineage and constitution by two levels at the same time]</p>
 
 <p>“Argh…” Qingyi gasped, a puff of scorching air and steam escaping his lips as the enhancement hit. “It’s not masochism… just efficiency, hahaha.”</p>
 
@@ -67,9 +65,7 @@ chapter = 679
 
 <p>His eyes flashed at that very moment. Power exploded through his body and sucked in the surrounding Qi in an endless torrent.</p>
 
-<p>For the first time since he reached the celestial heavens, he managed</p>
-
-<p>to absorb Qi with such voracity that a void formed around him.</p>
+<p>For the first time since he reached the celestial heavens, he managed to absorb Qi with such voracity that a void formed around him.</p>
 
 <p>The intensity rose. He absorbed more and more.</p>
 
@@ -109,9 +105,7 @@ chapter = 679
 
 <p>Spiritual Roots: Eternal-level Primordial Creation Seed Spirit Root</p>
 
-<p>(Lightning, Sword, Fire, Ice, Wind, Metal, Water, Earth, Space, Light,</p>
-
-<p>Shadow) (1000 G Lust Points to upgrade).</p>
+<p>(Lightning, Sword, Fire, Ice, Wind, Metal, Water, Earth, Space, Light, Shadow) (1000 G Lust Points to upgrade).</p>
 
 <p>Spiritual Roots2: None/ Eternal-level Primordial Creation Seed Mana Heart (1000 G Lust Points to upgrade).</p>
 
@@ -137,9 +131,7 @@ chapter = 679
 
 <p>With Rou’er’s help, that shouldn’t be difficult, right?</p>
 
-<p>He knew the relationship between the two was very good, and knowing Rou’er, she would use the entire competition just to make it</p>
-
-<p>clear what a good choice Qingyi was.</p>
+<p>He knew the relationship between the two was very good, and knowing Rou’er, she would use the entire competition just to make it clear what a good choice Qingyi was.</p>
 
 <p>With a stellar sovereign milf mommy as his adoptive mother, he had nothing to fear in that region.</p>
 

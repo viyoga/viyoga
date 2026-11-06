@@ -31,9 +31,7 @@ chapter = 675
 
 <p>Her legs spread apart, doing little more than giving Qingyi an even more perfect view of her body. The smooth plane of her stomach, the gentle curve of her waist, the way her breasts sat perky and full on her chest, trembling with every ragged breath she took.</p>
 
-<p>“Nghn~~ what shall we do now?” she asked between gasping moans,</p>
-
-<p>feeling Qingyi’s warm, calloused hands climb up her creamy skin until they reached her firm breasts, squeezing.</p>
+<p>“Nghn~~ what shall we do now?” she asked between gasping moans, feeling Qingyi’s warm, calloused hands climb up her creamy skin until they reached her firm breasts, squeezing.</p>
 
 <p>His fingers sank into the supple flesh, the soft skin bulging between his digits as he kneaded them.</p>
 
@@ -59,9 +57,7 @@ chapter = 675
 
 <p>The speed more than tripled.</p>
 
-<p>Xue Hua completely lost control of her moans, dissolving into nothing</p>
-
-<p>but sharp, gasping breaths. Her breasts lurched violently with each upward thrust, bouncing hard against her chest before being flung upward again, the soft flesh smacking together audibly.</p>
+<p>Xue Hua completely lost control of her moans, dissolving into nothing but sharp, gasping breaths. Her breasts lurched violently with each upward thrust, bouncing hard against her chest before being flung upward again, the soft flesh smacking together audibly.</p>
 
 <p>At that speed, with his hips slamming into her nonstop, pounding her pussy mercilessly, she felt herself getting closer and closer to something she only knew from books.</p>
 
@@ -75,41 +71,25 @@ chapter = 675
 
 <p>The next moment, he came.</p>
 
-<p>A flood of hot, viscous fluid invaded her womb in powerful waves, filling her until there was no room left and then leaking out through</p>
+<p>A flood of hot, viscous fluid invaded her womb in powerful waves, filling her until there was no room left and then leaking out through the connection between their bodies.</p>
 
-<p>the connection between their bodies.</p>
-
-<p>Her eyes rolled back in the pleasure of orgasm, her inner walls clamping down around him, milking every last drop. She collapsed,</p>
-
-<p>exhausted, onto Qingyi’s chest.</p>
+<p>Her eyes rolled back in the pleasure of orgasm, her inner walls clamping down around him, milking every last drop. She collapsed, exhausted, onto Qingyi’s chest.</p>
 
 <p>Her breasts pressed against him, soft and warm, rising and falling with every labored breath.</p>
 
 <p>“Hm- look what you’ve done to me… Mom won’t forgive you- ♡” Xue Hua panted against his chest, her eyes closing slightly.</p>
 
-<p>“Ah… it’s better than ending up in the hands of that Longwei, don’t</p>
+<p>“Ah… it’s better than ending up in the hands of that Longwei, don’t you think? You should thank me and Rou’er for giving you this chance.” Qingyi declared, his chest puffed out.</p>
 
-<p>you think? You should thank me and Rou’er for giving you this</p>
+<p>Rou’er, who had already recovered, approached, puffing out her chest with pride.</p>
 
-<p>chance.” Qingyi declared, his chest puffed out.</p>
-
-<p>Rou’er, who had already recovered, approached, puffing out her chest</p>
-
-<p>with pride.</p>
-
-<p>“It’s the truth! And soon, I’m going to help big brother Qingyi take big</p>
-
-<p>sister Bai too! Big sister Xue Hua is so lucky to have caught big</p>
-
-<p>brother’s eye! Hehehe~”</p>
+<p>“It’s the truth! And soon, I’m going to help big brother Qingyi take big sister Bai too! Big sister Xue Hua is so lucky to have caught big brother’s eye! Hehehe~”</p>
 
 <p>Hearing that, Xue Hua burst out laughing at the absurdity.</p>
 
 <p>But in the end, what else could she do?</p>
 
-<p>Soon, she snuggled into Qingyi’s lap alongside Rou’er, his hands</p>
-
-<p>roaming over the bodies of the two beauties.</p>
+<p>Soon, she snuggled into Qingyi’s lap alongside Rou’er, his hands roaming over the bodies of the two beauties.</p>
 
 <p>Qingyi’s eyes naturally fell on the status screen, and he smiled.</p>
 
@@ -119,9 +99,7 @@ chapter = 675
 
 <p>Just imagining that would make many men foam with envy.</p>
 
-<p>In the end, when he reached three thousand Lust Points, he finally</p>
-
-<p>stopped.</p>
+<p>In the end, when he reached three thousand Lust Points, he finally stopped.</p>
 
 <p>He took a quick bath with the two beauties and soon began seeking more fortunes for Xue Hua.</p>
 
@@ -133,9 +111,7 @@ chapter = 675
 
 <p>Soon, a legend spread among the disciples in the secret realm.</p>
 
-<p>An unparalleled monster was ravaging all the secret zones, defeating</p>
-
-<p>beast after beast, essentially draining the realm’s resources dry.</p>
+<p>An unparalleled monster was ravaging all the secret zones, defeating beast after beast, essentially draining the realm’s resources dry.</p>
 
 <p>When the secret realm finally came to an end, the story that had dominated the entire sect regarding Guo Longwei’s miserable death was completely forgotten.</p>
 
@@ -143,10 +119,6 @@ chapter = 675
 
 <p>According to the rumors spread by the discipleswho left early, she must have gained a great deal, something incomparable, right?</p>
 
-<p>Even her father, who had lost his son-in-law, had a gleam in his eye as</p>
+<p>Even her father, who had lost his son-in-law, had a gleam in his eye as he waited.</p>
 
-<p>he waited.</p>
-
-<p>It was sad that he had lost his deal with the Guo family, but that</p>
-
-<p>hardly mattered now.</p>
+<p>It was sad that he had lost his deal with the Guo family, but that hardly mattered now.</p>

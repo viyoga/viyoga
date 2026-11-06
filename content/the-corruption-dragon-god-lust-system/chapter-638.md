@@ -5,9 +5,7 @@ weight = 638
 chapter = 638
 +++
 
-<p>“Does your adoptive father know you came to visit me?” Qingyi asked as Rou’er snuggled into his lap with a gentle wiggle, her soft hips</p>
-
-<p>pressing against him.</p>
+<p>“Does your adoptive father know you came to visit me?” Qingyi asked as Rou’er snuggled into his lap with a gentle wiggle, her soft hips pressing against him.</p>
 
 <p>“Yes!” Rou’er nodded, blushing slightly. “He was the one who asked me to come pick you up as soon as you left closed-door cultivation. He seems curious to see you.”</p>
 
@@ -31,9 +29,7 @@ chapter = 638
 
 <p>In the end, Qingyi simply relaxed, feeling her weight nestled against his lap and running his hand through her short, pink hair, soft as silk between his fingers.</p>
 
-<p>His free hand slid down to one of her thighs, lifting her skirt</p>
-
-<p>dangerously high as her warm, smooth skin surrendered to his touch.</p>
+<p>His free hand slid down to one of her thighs, lifting her skirt dangerously high as her warm, smooth skin surrendered to his touch.</p>
 
 <p>Her scent was pleasant, and her body, sweet and soft.</p>
 
@@ -45,9 +41,7 @@ chapter = 638
 
 <p>She was as naughty as she was pure.</p>
 
-<p>“Is your dick really that big?” Rou’er asked, her delicate hand</p>
-
-<p>venturing where it shouldn’t, her slender fingers closing around something they shouldn’t, long, thick, hot, and throbbing beneath the fabric.</p>
+<p>“Is your dick really that big?” Rou’er asked, her delicate hand venturing where it shouldn’t, her slender fingers closing around something they shouldn’t, long, thick, hot, and throbbing beneath the fabric.</p>
 
 <p>“Oh… it really is that big! Will it even fit?”</p>
 
@@ -71,9 +65,7 @@ chapter = 638
 
 <p>***</p>
 
-<p>While Qingyi, Ruxue, and Rou’er enjoyed a peaceful journey, in the sect’s main palace, two men with aged appearances were drinking</p>
-
-<p>calmly.</p>
+<p>While Qingyi, Ruxue, and Rou’er enjoyed a peaceful journey, in the sect’s main palace, two men with aged appearances were drinking calmly.</p>
 
 <p>The sect leader was not on his throne, sitting at the same level as his guest, the old Ma Zhenwu.</p>
 
@@ -83,23 +75,15 @@ chapter = 638
 
 <p>It was a lie, for the most part.</p>
 
-<p>Aside from Qingyi’s talent for breaking through secret realms, he</p>
+<p>Aside from Qingyi’s talent for breaking through secret realms, he hadn’t seen much in that young man.</p>
 
-<p>hadn’t seen much in that young man.</p>
+<p>The real problem was that silly promise to the heavens he’d made that day, a joke from an old man too close to death to care.</p>
 
-<p>The real problem was that silly promise to the heavens he’d made that</p>
-
-<p>day, a joke from an old man too close to death to care.</p>
-
-<p>If Qingyi broke through the secret realm, he would personally marry</p>
-
-<p>his granddaughter to him.</p>
+<p>If Qingyi broke through the secret realm, he would personally marry his granddaughter to him.</p>
 
 <p>What a huge mistake.</p>
 
-<p>When he advanced to the realm of the stellar sovereign, he realized he would have to fulfill the promise if he didn’t want to become the</p>
-
-<p>target of a heavenly tribulation.</p>
+<p>When he advanced to the realm of the stellar sovereign, he realized he would have to fulfill the promise if he didn’t want to become the target of a heavenly tribulation.</p>
 
 <p>Before, he wouldn’t have cared about that.</p>
 
@@ -107,31 +91,21 @@ chapter = 638
 
 <p>But now, with eternity ahead of him, he didn’t want to take any risks.</p>
 
-<p>The only way out he found was to invalidate the promise to the</p>
+<p>The only way out he found was to invalidate the promise to the heavens.</p>
 
-<p>heavens.</p>
-
-<p>If Qingyi married the sect leader’s daughter, of infinitely higher lineage than his own, the leader would never allow him to take other</p>
-
-<p>wives.</p>
+<p>If Qingyi married the sect leader’s daughter, of infinitely higher lineage than his own, the leader would never allow him to take other wives.</p>
 
 <p>Thus, the promise would be nullified.</p>
 
 <p>Zhenwu chuckled inwardly as he admired his own genius.</p>
 
-<p>Little did he know that, if Qingyi knew his thoughts, he too would</p>
-
-<p>burst out laughing.</p>
+<p>Little did he know that, if Qingyi knew his thoughts, he too would burst out laughing.</p>
 
 <p>“Ah… I have to see this for myself. He was only at the second stage of the Astral Blood Realm last month, wasn’t he?</p>
 
-<p>There are two weeks left before the trip to the Cosmic Void Sect, and</p>
+<p>There are two weeks left before the trip to the Cosmic Void Sect, and I highly doubt he’ll reach the Celestial Ascension Realm in time.” The sect leader stood up and, together with Ma Zhenwu, walked out to the palace courtyard.</p>
 
-<p>I highly doubt he’ll reach the Celestial Ascension Realm in time.” The sect leader stood up and, together with Ma Zhenwu, walked out to the palace courtyard.</p>
-
-<p>In the sky, Rou’er’s personal ship appeared, slicing through the air</p>
-
-<p>toward them.</p>
+<p>In the sky, Rou’er’s personal ship appeared, slicing through the air toward them.</p>
 
 <p>The ship landed with a gust of hot air that ruffled the clothes and beards of both men.</p>
 

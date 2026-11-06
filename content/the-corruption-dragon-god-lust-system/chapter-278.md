@@ -5,9 +5,7 @@ weight = 278
 chapter = 278
 +++
 
-<p>“Ah…” Inside a luxurious castle, a tired sigh echoed. T</p>
-
-<p>he owner of this voice was a man of imposing and dignified appearance, his short black hair framing a manly face, contrasting with his dark skin and piercing green eyes.</p>
+<p>“Ah…” Inside a luxurious castle, a tired sigh echoed. The owner of this voice was a man of imposing and dignified appearance, his short black hair framing a manly face, contrasting with his dark skin and piercing green eyes.</p>
 
 <p>That man was David Valemont, monarch of the kingdom of Valemont, a small nation in the outlying regions of the continent of eternal light.</p>
 

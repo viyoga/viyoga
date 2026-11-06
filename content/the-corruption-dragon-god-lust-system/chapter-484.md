@@ -31,9 +31,7 @@ chapter = 484
 
 <p>Elize listened to the apologies, struggling to put strength into her trembling voice.</p>
 
-<p>“I-it’s okay, we’re here now, right? And hubby has already promised</p>
-
-<p>that we’ll never be separated again!”</p>
+<p>“I-it’s okay, we’re here now, right? And hubby has already promised that we’ll never be separated again!”</p>
 
 <p>Upon hearing those words, Seraphine was unable to stop a painful laugh from escaping her lips.</p>
 
@@ -99,9 +97,7 @@ chapter = 484
 
 <p>Qingyi wouldn’t demand that she become his wife just to stay by her sister’s side forever, right?</p>
 
-<p>“I wouldn’t do that,” Qingyi replied, eliciting a squeal of surprise from</p>
-
-<p>Seraphine.</p>
+<p>“I wouldn’t do that,” Qingyi replied, eliciting a squeal of surprise from Seraphine.</p>
 
 <p>It was as if he had just read her mind. Not that, in her current state, she was able to hide her expressions very well.</p>
 
@@ -109,28 +105,20 @@ chapter = 484
 
 <p>“I wouldn’t force you to be my wife in order to stay by Elize’s side forever.” Qingyi replied firmly.</p>
 
-<p>“If you want to give me your heart, I will gladly accept it. Your</p>
-
-<p>enemies will be my enemies, and I promise to protect and love you… If you don’t want to give me your heart, I still promise to protect and love you, for I know it would make Elize happy.”</p>
+<p>“If you want to give me your heart, I will gladly accept it. Your enemies will be my enemies, and I promise to protect and love you… If you don’t want to give me your heart, I still promise to protect and love you, for I know it would make Elize happy.”</p>
 
 <p>Seraphine’s eyes lowered, unable to meet Qingyi’s piercing gaze.</p>
 
 <p>The tears on her beautiful face had already dried. She placed her hand on her chest, feeling her heart beating wildly.</p>
 
-<p>She looked at her sister, whose tears had also dried, her face filled</p>
-
-<p>with excitement and expectation.</p>
+<p>She looked at her sister, whose tears had also dried, her face filled with excitement and expectation.</p>
 
 <p>This was probably the happiest day of her life.</p>
 
-<p>“Do you really promise?” Seraphine asked for confirmation. Receiving a nod from Qingyi, she moved her hands to the neckline of</p>
-
-<p>her dress.</p>
+<p>“Do you really promise?” Seraphine asked for confirmation. Receiving a nod from Qingyi, she moved her hands to the neckline of her dress.</p>
 
 <p>She hesitated for a few long seconds, her face flushing as a strange warmth rose from her groin.</p>
 
-<p>In the end, she forced herself to be determined, grabbed it tightly,</p>
-
-<p>and pulled.</p>
+<p>In the end, she forced herself to be determined, grabbed it tightly, and pulled.</p>
 
 <p>The unmistakable sound of fabric tearing reached Qingyi’s ears, and soon, Seraphine’s dress fell to the floor.</p>

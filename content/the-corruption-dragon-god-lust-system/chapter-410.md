@@ -73,21 +73,15 @@ chapter = 410
 
 <p>Soon, there was nothing but obscene and sensual moans filling the entire temple as Qingyi fucked all his wives.</p>
 
-<p>His cock sank into Rongyan’s pussy while his face was soon surrounded by Isabel and Ruxue’s massive tits, his hands taking care</p>
-
-<p>of Elize and Qianyue.</p>
+<p>His cock sank into Rongyan’s pussy while his face was soon surrounded by Isabel and Ruxue’s massive tits, his hands taking care of Elize and Qianyue.</p>
 
 <p>As always, sex with so many women at the same time was a big challenge.</p>
 
 <p>But Qingyi made it work, making sure none of them felt neglected.</p>
 
-<p>His cock worked tirelessly as he paid attention to those fat, tight</p>
+<p>His cock worked tirelessly as he paid attention to those fat, tight pussies.</p>
 
-<p>pussies.</p>
-
-<p>He didn’t stop until he could finally look at his status screen and see that his Lust Points were enough to finally take the next big step in</p>
-
-<p>his cultivation.</p>
+<p>He didn’t stop until he could finally look at his status screen and see that his Lust Points were enough to finally take the next big step in his cultivation.</p>
 
 <p>[Name: Long Qingyi</p>
 
@@ -101,25 +95,17 @@ chapter = 410
 
 <p>Charm: 1500 (can be upgraded in the lust store)</p>
 
-<p>Spiritual roots: Transcendent-level Primordial Creation Seed spirit</p>
-
-<p>root (Lightning, sword, fire, ice) (10T lust points to upgrade, new roots</p>
-
-<p>can be bought in the lust store).</p>
+<p>Spiritual roots: Transcendent-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can be bought in the lust store).</p>
 
 <p>Lineage: Blood of the Corruption Dragon God (Sky grade,</p>
 
 <p>750,000,000,000 lust points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Sky grade, 750,000,000,000</p>
-
-<p>lust points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Sky grade, 750,000,000,000 lust points to upgrade.)</p>
 
 <p>Lust points: 1.5T]</p>
 
-<p>“One trillion five hundred billion Lust Points…” Qingyi read that</p>
-
-<p>number, somewhat shocked.</p>
+<p>“One trillion five hundred billion Lust Points…” Qingyi read that number, somewhat shocked.</p>
 
 <p>After so much time and preparation, he would finally advance his lineage and constitution to the transcendent level.</p>
 
@@ -127,9 +113,7 @@ chapter = 410
 
 <p>Empire.</p>
 
-<p>Unfortunately, there were no cultivation rooms in that world. But there were still meditation rooms that were quite similar, so Qingyi</p>
-
-<p>just took one of those for himself.</p>
+<p>Unfortunately, there were no cultivation rooms in that world. But there were still meditation rooms that were quite similar, so Qingyi just took one of those for himself.</p>
 
 <p>After a moment of hesitation, Qingyi finally clicked to improve his bloodline and constitution.</p>
 
@@ -141,19 +125,13 @@ chapter = 410
 
 <p>His entire body was burning with flames.</p>
 
-<p>That pain was far greater than that of his previous breakthrough, but</p>
-
-<p>Qingyi was not even slightly displeased by it.</p>
+<p>That pain was far greater than that of his previous breakthrough, but Qingyi was not even slightly displeased by it.</p>
 
 <p>Quite the contrary.</p>
 
-<p>Gritting his teeth, he flashed a bloody smile as his skin tore and his</p>
+<p>Gritting his teeth, he flashed a bloody smile as his skin tore and his bones were slowly destroyed.</p>
 
-<p>bones were slowly destroyed.</p>
-
-<p>Every drop of his being was being rebuilt, from his Dantian to his skin</p>
-
-<p>and muscles. Not even his eyes escaped that reconstruction.</p>
+<p>Every drop of his being was being rebuilt, from his Dantian to his skin and muscles. Not even his eyes escaped that reconstruction.</p>
 
 <p>[Your Primordial Dragon Body constitution has been upgraded! Sky</p>
 
@@ -161,12 +139,8 @@ chapter = 410
 
 <p>[Your Blood of the Corruption Dragon God bloodline has been upgraded! Sky Grade -&gt; Transcendent Grade]</p>
 
-<p>Two system notifications arrived for Qingyi, but they barely caught</p>
+<p>Two system notifications arrived for Qingyi, but they barely caught his attention.</p>
 
-<p>his attention.</p>
-
-<p>What really caught his attention was the third and final system</p>
-
-<p>notification.</p>
+<p>What really caught his attention was the third and final system notification.</p>
 
 <p>His bloodline abilities had changed.</p>

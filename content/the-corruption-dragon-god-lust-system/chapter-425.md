@@ -29,9 +29,7 @@ chapter = 425
 
 <p>Improving his affinities had cost much more than expected, and when he looked at the price of the pills needed to bring them up to level two thousand, Qingyi couldn’t help but sigh in defeat.</p>
 
-<p>In the end, he simply left the meditation room, chose a random direction, and flew nonstop, looking for a suitable place to start</p>
-
-<p>training his new skills.</p>
+<p>In the end, he simply left the meditation room, chose a random direction, and flew nonstop, looking for a suitable place to start training his new skills.</p>
 
 <p>Of course, much of this training would be done in his sea of mind, where time passed much more slowly than in the outside world. However, Qingyi still wanted a free place to test this power in reality. After a few hours of searching, Qingyi finally interrupted his flight, landing in a deep valley surrounded by hills and mountains.</p>
 
@@ -51,17 +49,13 @@ chapter = 425
 
 <p>Suddenly, he opened his eyes, calling upon his spatial Qi and pointing it toward the water.</p>
 
-<p>His vision distorted, and all the water in the place he pointed at was swallowed up. However, before it could even be sent elsewhere, Qingyi’s Qi collapsed again, causing the water to explode in violent</p>
-
-<p>waves.</p>
+<p>His vision distorted, and all the water in the place he pointed at was swallowed up. However, before it could even be sent elsewhere, Qingyi’s Qi collapsed again, causing the water to explode in violent waves.</p>
 
 <p>“Shit….” He grunted, trying again.</p>
 
 <p>This time, he was a little more successful; a single drop of water, small and tenuous, was able to pass through the spatial distortion before collapsing.</p>
 
-<p>Qingyi sighed in disappointment, but he did not lose heart,</p>
-
-<p>continuing to train.</p>
+<p>Qingyi sighed in disappointment, but he did not lose heart, continuing to train.</p>
 
 <p>After all, he still had many days of training there before anyone would even notice his absence.</p>
 
@@ -69,15 +63,11 @@ chapter = 425
 
 <p>Honestly, it was a hellish process.</p>
 
-<p>He was only able to use that ability efficiently by keeping his draconic</p>
-
-<p>mind active, correcting any minor spatial flaws.</p>
+<p>He was only able to use that ability efficiently by keeping his draconic mind active, correcting any minor spatial flaws.</p>
 
 <p>Still, Qingyi couldn’t help but get more and more excited with each new breakthrough. Soon, he was able to keep those portals open for long seconds.</p>
 
-<p>Then, he stopped moving only water. He also started testing with spears and swords, throwing them and using his spatial Qi to change their places and trajectories, creating unique and unpredictable</p>
-
-<p>patterns.</p>
+<p>Then, he stopped moving only water. He also started testing with spears and swords, throwing them and using his spatial Qi to change their places and trajectories, creating unique and unpredictable patterns.</p>
 
 <p>Only after a week of training was Qingyi finally able to send his entire body through one of these spatial folds.</p>
 
@@ -85,13 +75,9 @@ chapter = 425
 
 <p>His body was swallowed by a deep darkness, taken to an unknown plane, and then reappeared at the chosen location.</p>
 
-<p>Unable to suppress his excitement, Qingyi devoted the last twelve days to training his overall combat strength and efficiently combining</p>
+<p>Unable to suppress his excitement, Qingyi devoted the last twelve days to training his overall combat strength and efficiently combining all those elements.</p>
 
-<p>all those elements.</p>
-
-<p>And so, after nineteen days of training, Qingyi finally left the sea of</p>
-
-<p>the mind.</p>
+<p>And so, after nineteen days of training, Qingyi finally left the sea of the mind.</p>
 
 <p>He was immediately greeted by the gentle midday breeze and the weight of birds perched on his body.</p>
 
@@ -111,18 +97,10 @@ chapter = 425
 
 <p>A slash of sword Qi, flames, and lightning enveloped the sharp blade. The air around him boiled as the strike opened like a crescent moon, swallowing the world around it.</p>
 
-<p>At that moment, seconds before the attack hit the ground, he used</p>
+<p>At that moment, seconds before the attack hit the ground, he used his spatial Qi again.</p>
 
-<p>his spatial Qi again.</p>
+<p>His body vanished with a shockwave. Space distorted at the exact point where the ten thunderous ethereal swords and his final attack converged.</p>
 
-<p>His body vanished with a shockwave. Space distorted at the exact point where the ten thunderous ethereal swords and his final attack</p>
+<p>The Heaven-Defying Thunder Sword became nothing more than a luminous blur as Qingyi parried all eleven attacks in a single fraction of a second.</p>
 
-<p>converged.</p>
-
-<p>The Heaven-Defying Thunder Sword became nothing more than a luminous blur as Qingyi parried all eleven attacks in a single fraction</p>
-
-<p>of a second.</p>
-
-<p>The shockwaves from the eleven impacts spread out around him,</p>
-
-<p>uprooting trees and turning the ground beneath his feet to dust, sweeping away everything for over a kilometer. “Incredible…” Qingyi murmured, flashing a broad, satisfied smile. Such speed… such malleability… it was as if he were water.</p>
+<p>The shockwaves from the eleven impacts spread out around him, uprooting trees and turning the ground beneath his feet to dust, sweeping away everything for over a kilometer. “Incredible…” Qingyi murmured, flashing a broad, satisfied smile. Such speed… such malleability… it was as if he were water.</p>

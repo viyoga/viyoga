@@ -61,9 +61,7 @@ chapter = 672
 
 <p>Her free hand slid up to her large, firm breasts, groping one heavy mound through her clothes. The generous flesh bulged between her fingers, spilling over her grip as she squeezed.</p>
 
-<p>She kneaded it desperately, the weighty breast rolling under her</p>
-
-<p>palm, her stiff nipple pressing hard against the fabric.</p>
+<p>She kneaded it desperately, the weighty breast rolling under her palm, her stiff nipple pressing hard against the fabric.</p>
 
 <p>Her moans were stifled behind clenched teeth, but her hips betrayed her, rocking slightly against her own touch.</p>
 
@@ -81,29 +79,17 @@ chapter = 672
 
 <p>The tight ring of muscle twitched against the warm, slick head of his cock.</p>
 
-<p>“Nghn~~ so it’s my ass that big brother Qingyi wants to fuck with his</p>
-
-<p>huge cock? Hehehe~~ ” Rou’er giggled, looking back, not the least bit embarrassed by the position she was in, held as if she were a sex</p>
-
-<p>toy.</p>
+<p>“Nghn~~ so it’s my ass that big brother Qingyi wants to fuck with his huge cock? Hehehe~~ ” Rou’er giggled, looking back, not the least bit embarrassed by the position she was in, held as if she were a sex toy.</p>
 
 <p>Quite the opposite. Her eyes sparkled, full of excitement.</p>
 
 <p>She relaxed her muscles and just let Qingyi do his thing.</p>
 
-<p>Feeling her relax, the handsome young dragon smiled and pushed</p>
+<p>Feeling her relax, the handsome young dragon smiled and pushed forward.</p>
 
-<p>forward.</p>
+<p>There was resistance at first, even with the viscous love juices serving as lubricant. But that resistance was soon broken, and his member sank in mercilessly.</p>
 
-<p>There was resistance at first, even with the viscous love juices serving</p>
-
-<p>as lubricant. But that resistance was soon broken, and his member</p>
-
-<p>sank in mercilessly.</p>
-
-<p>“Nghnn~~ BIG BROTHER QINGYI! Opghnnn~~♡” A sweet, obscene,</p>
-
-<p>high-pitched moan echoed as Qingyi sank into that tight ass.</p>
+<p>“Nghnn~~ BIG BROTHER QINGYI! Opghnnn~~♡” A sweet, obscene, high-pitched moan echoed as Qingyi sank into that tight ass.</p>
 
 <p>The twenty-three-centimeter cock penetrated her relentlessly, stretching her impossibly tight hole wider with every inch, until his hips struck her buttocks with a wet slap.</p>
 
@@ -115,9 +101,7 @@ chapter = 672
 
 <p>Her hand massaged her own belly while her anal walls clenched around Qingyi’s cock, squeezing and pulsing as if trying to crush it in an unmatched grip.</p>
 
-<p>Every involuntary spasm of her insides milked his shaft, the tight heat</p>
-
-<p>almost unbearable.</p>
+<p>Every involuntary spasm of her insides milked his shaft, the tight heat almost unbearable.</p>
 
 <p>“You’re a perfect onahole, you know?” Qingyi smiled, savoring the crushing tightness around his cock.</p>
 

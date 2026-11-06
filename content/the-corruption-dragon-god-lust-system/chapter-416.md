@@ -71,27 +71,19 @@ chapter = 416
 
 <p>So that was where Zharuk’s power came from and, above all, that was the item that made Lucien a chosen hero.</p>
 
-<p>The handsome young man was unable to hide his smile as he descended from the skies towards the waiting soldiers, shouting their</p>
-
-<p>names.</p>
+<p>The handsome young man was unable to hide his smile as he descended from the skies towards the waiting soldiers, shouting their names.</p>
 
 <p>“Lightning Prince! Prince of Storms! Lightning Prince, Prince of Storms!”</p>
 
 <p>They shouted in unison, their eyes filled with an admiration that almost outweighed the pain of losing their comrades.</p>
 
-<p>After all, many of them were veteran soldiers and death was part of their daily lives. They couldn’t spend too much time mourning the</p>
-
-<p>dead.</p>
+<p>After all, many of them were veteran soldiers and death was part of their daily lives. They couldn’t spend too much time mourning the dead.</p>
 
 <p>“Your Highness.” The general of the ninth ring immediately stood in front of Qingyi, kneeling down. “Should we continue the pursuit? Belgrath’s troops can’t be far behind.”</p>
 
-<p>“No.” Qingyi shook his head. “Their morale is shattered, their leader crippled and their forces in tatters; just one breath and they’ll</p>
+<p>“No.” Qingyi shook his head. “Their morale is shattered, their leader crippled and their forces in tatters; just one breath and they’ll collapse. We have time to rest.”</p>
 
-<p>collapse. We have time to rest.”</p>
-
-<p>With a big smile, Qingyi ordered his troops to clear the battlefield and</p>
-
-<p>finish organizing the camp for the night.</p>
+<p>With a big smile, Qingyi ordered his troops to clear the battlefield and finish organizing the camp for the night.</p>
 
 <p>When everything was settled, he glanced at his status screen.</p>
 
@@ -107,9 +99,7 @@ chapter = 416
 
 <p>Spiritual roots: Immortal-level Primordial Creation Seed spirit root</p>
 
-<p>(Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can</p>
-
-<p>be bought in the lust store).</p>
+<p>(Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can be bought in the lust store).</p>
 
 <p>Lineage: Blood of the Corruption Dragon God (Transcendental grade, 10T lust points to upgrade.)</p>
 
@@ -117,26 +107,16 @@ chapter = 416
 
 <p>Lust points: 123,341,236,930]</p>
 
-<p>His lust points were naturally quite low, since he didn’t have much</p>
-
-<p>time to have sex with his wives, but fortunately he would soon have plenty of time for that.</p>
+<p>His lust points were naturally quite low, since he didn’t have much time to have sex with his wives, but fortunately he would soon have plenty of time for that.</p>
 
 <p>First he needed to get to the True Immortal Realm and decide what to do with that pendant, but those were thoughts for another time.</p>
 
 <p>Now, Qingyi had soldiers to reward.</p>
 
-<p>With a wave of his hands, he ordered an area to be opened in the</p>
+<p>With a wave of his hands, he ordered an area to be opened in the center of the army and then opened the system store, buying an almost endless list of high-quality food.</p>
 
-<p>center of the army and then opened the system store, buying an almost endless list of high-quality food.</p>
-
-<p>Cakes, delicacies, snacks, rare beast meats, luxury wines, beers,</p>
-
-<p>liqueurs and rum.</p>
+<p>Cakes, delicacies, snacks, rare beast meats, luxury wines, beers, liqueurs and rum.</p>
 
 <p>Qingyi spared no expense, ensuring that his soldiers ate the best, buying enough food to feed an army of sixty thousand men.</p>
 
-<p>For the rest of the night, they just ate and feasted, preparing for the</p>
-
-<p>next day, when they would finally march out to let their fury fall on</p>
-
-<p>Belgrath.</p>
+<p>For the rest of the night, they just ate and feasted, preparing for the next day, when they would finally march out to let their fury fall on Belgrath.</p>

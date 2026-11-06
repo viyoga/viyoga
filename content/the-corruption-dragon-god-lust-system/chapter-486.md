@@ -13,13 +13,9 @@ chapter = 486
 
 <p>Her ass hit Long Qingyi’s hips one last time, the stone bench beneath them shaking with the impact, small cracks appearing all over the structure.</p>
 
-<p>Her fat pussy, tightly squeezed around his cock, squirted</p>
+<p>Her fat pussy, tightly squeezed around his cock, squirted uncontrollably and a thick jet of cum invaded her womb, followed by another, and then another.</p>
 
-<p>uncontrollably and a thick jet of cum invaded her womb, followed by another, and then another.</p>
-
-<p>Her hands moved to her slender belly, feeling the last spurt of semen invade her insides, the walls of her womb struggling to contain the</p>
-
-<p>excess.</p>
+<p>Her hands moved to her slender belly, feeling the last spurt of semen invade her insides, the walls of her womb struggling to contain the excess.</p>
 
 <p>She collapsed onto Qingyi’s chest, clinging tightly to him.</p>
 
@@ -69,9 +65,7 @@ chapter = 486
 
 <p>Lineage: Blood of the Corruption Dragon God (Immortal grade, 50T lust points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Immortal grade, 50T lust</p>
-
-<p>points to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Immortal grade, 50T lust points to upgrade.)</p>
 
 <p>Lust points: 147.3T]</p>
 
@@ -87,9 +81,7 @@ chapter = 486
 
 <p>But other than that, there was only one thing he could see that would justify those demonic cultists’ attempts to unite Qi and mana: the strange energy generated when trying to fuse the two.</p>
 
-<p>Qingyi remained thoughtful about that for a few moments. But he</p>
-
-<p>soon pushed it all out of his mind, focusing on his wives.</p>
+<p>Qingyi remained thoughtful about that for a few moments. But he soon pushed it all out of his mind, focusing on his wives.</p>
 
 <p>He had more important things to deal with right now.</p>
 
@@ -105,17 +97,13 @@ chapter = 486
 
 <p>Why were they taking so long?</p>
 
-<p>After long, torturous minutes, she finally found the strength to move,</p>
-
-<p>turning toward the mansion.</p>
+<p>After long, torturous minutes, she finally found the strength to move, turning toward the mansion.</p>
 
 <p>“The young lady will not be pleased with you meddling in her affairs…”</p>
 
 <p>A servant spoke beside Viola.</p>
 
-<p>Viola heard her but ignored the servant. She stepped firmly and moved forward, feeling the noises grow louder and louder before</p>
-
-<p>suddenly stopping.</p>
+<p>Viola heard her but ignored the servant. She stepped firmly and moved forward, feeling the noises grow louder and louder before suddenly stopping.</p>
 
 <p>Viola hurried, breaking into a quick run.</p>
 
@@ -123,21 +111,13 @@ chapter = 486
 
 <p>Everything in front of her was… normal.</p>
 
-<p>Qingyi and Seraphine were sitting side by side. They were talking</p>
+<p>Qingyi and Seraphine were sitting side by side. They were talking more casually than would be expected of a noble speaking to a subordinate- no.</p>
 
-<p>more casually than would be expected of a noble speaking to a subordinate- no.</p>
-
-<p>It seemed that Seraphine didn’t even feel like she was talking to a</p>
-
-<p>subordinate.</p>
+<p>It seemed that Seraphine didn’t even feel like she was talking to a subordinate.</p>
 
 <p>“Young lady, I…” Viola immediately knelt down, receiving an indifferent and slightly shy look from Seraphine.</p>
 
-<p>“It’s okay.” The beauty stood up elegantly, adjusting her dress. “Qingyi</p>
-
-<p>is an old friend of mine. Just leave us alone for a moment. No one is</p>
-
-<p>allowed to enter my residence until further notice.”</p>
+<p>“It’s okay.” The beauty stood up elegantly, adjusting her dress. “Qingyi is an old friend of mine. Just leave us alone for a moment. No one is allowed to enter my residence until further notice.”</p>
 
 <p>Viola trembled, biting her lower lip.</p>
 
@@ -147,30 +127,18 @@ chapter = 486
 
 <p>“Yes, young lady!”</p>
 
-<p>The moment Viola’s voice fell, her body turned into a blur,</p>
+<p>The moment Viola’s voice fell, her body turned into a blur, disappearing.</p>
 
-<p>disappearing.</p>
+<p>“Ah…” Seraphine sighed. “I feel sorry for her, Qing-” She swallowed her words, correcting herself the next moment, struggling to suppress the timid smile on her lips. “Husband…”</p>
 
-<p>“Ah…” Seraphine sighed. “I feel sorry for her, Qing-” She swallowed her</p>
-
-<p>words, correcting herself the next moment, struggling to suppress</p>
-
-<p>the timid smile on her lips. “Husband…”</p>
-
-<p>“She’s a little overprotective, but she’s a good person,” she concluded,</p>
-
-<p>looking away.</p>
+<p>“She’s a little overprotective, but she’s a good person,” she concluded, looking away.</p>
 
 <p>“I know.” Qingyi smiled, placing a soft kiss on Seraphine’s lips.</p>
 
 <p>“Now… how about we pay Khaedryss a little visit?”</p>
 
-<p>The moment she heard that suggestion, Seraphine’s eyes lit up, and</p>
+<p>The moment she heard that suggestion, Seraphine’s eyes lit up, and she nodded.</p>
 
-<p>she nodded.</p>
-
-<p>It had been so many years since she last saw Khaedryss with her own</p>
-
-<p>eyes.</p>
+<p>It had been so many years since she last saw Khaedryss with her own eyes.</p>
 
 <p>After all, along with Elize and now Qingyi, Khaedryss was one of the most important things in Seraphine’s life.</p>

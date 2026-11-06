@@ -13,9 +13,7 @@ chapter = 431
 
 <p>He could see the strands of mana running through Lucien’s entire body, from his skin to his bones, but there was something strange. Something was missing.</p>
 
-<p>‘Why is there only one?’ Qingyi wondered, and soon the realization</p>
-
-<p>came.</p>
+<p>‘Why is there only one?’ Qingyi wondered, and soon the realization came.</p>
 
 <p>Lucien now had only one ball.</p>
 
@@ -69,17 +67,13 @@ chapter = 431
 
 <p>Lucien gritted his teeth at those words, gripping the hilt of his sword even tighter. He took a step forward and then, finally, released his golden holy power.</p>
 
-<p>During this time, he had trained like a madman, using the blessing he had received from Auranys to form one ring after another. Now, he</p>
-
-<p>was on the ninth ring.</p>
+<p>During this time, he had trained like a madman, using the blessing he had received from Auranys to form one ring after another. Now, he was on the ninth ring.</p>
 
 <p>His power had increased so much because of that blessing; how could</p>
 
 <p>Qingyi compare?</p>
 
-<p>“No tricks, no magic, just brute force,” Lucien said, throwing his</p>
-
-<p>sword to the ground.</p>
+<p>“No tricks, no magic, just brute force,” Lucien said, throwing his sword to the ground.</p>
 
 <p>He wanted to beat Qingyi with his bare hands, wanted to crush him like an insect.</p>
 
@@ -87,13 +81,9 @@ chapter = 431
 
 <p>If he could shape steel with his bare hands, why couldn’t he break Qingyi’s spine?</p>
 
-<p>The handsome young man just stared at Lucien for a moment, his eyes turning to Aeryn, or more specifically, to the figure that</p>
+<p>The handsome young man just stared at Lucien for a moment, his eyes turning to Aeryn, or more specifically, to the figure that appeared beside her.</p>
 
-<p>appeared beside her.</p>
-
-<p>The elven beauty trembled softly, a pair of delicate hands falling on her shoulders, two huge, soft twin mounds pressing against the high</p>
-
-<p>elf’s delicate back.</p>
+<p>The elven beauty trembled softly, a pair of delicate hands falling on her shoulders, two huge, soft twin mounds pressing against the high elf’s delicate back.</p>
 
 <p>A beautiful, delicate face appeared above Aeryn’s shoulders, blue hair cascading down, joining the elf’s golden hair.</p>
 
@@ -101,38 +91,24 @@ chapter = 431
 
 <p>Her fair, creamy skin was revealed by vertical slits in her dress, white stockings rising to the middle of her thighs, squeezing the soft flesh and forcing it to spill out into a plump, pillowy mound.</p>
 
-<p>“So, elf sister… which one do you think will win?” she asked, adjusting</p>
+<p>“So, elf sister… which one do you think will win?” she asked, adjusting her hat on her head, her red lips parting in a wide smile.</p>
 
-<p>her hat on her head, her red lips parting in a wide smile.</p>
+<p>“I’m not your sister, Sapphire,” Aeryn replied, blushing softly and eliciting a laugh from the blue-haired beauty.</p>
 
-<p>“I’m not your sister, Sapphire,” Aeryn replied, blushing softly and</p>
-
-<p>eliciting a laugh from the blue-haired beauty.</p>
-
-<p>“Oh… so cold and cruel…” Sapphire murmured in response to Aeryn,</p>
-
-<p>her red lips curving into a soft smile.</p>
+<p>“Oh… so cold and cruel…” Sapphire murmured in response to Aeryn, her red lips curving into a soft smile.</p>
 
 <p>She sat down next to the elf, watching the exchange with interest.</p>
 
 <p>Qingyi watched the two for a brief moment.</p>
 
-<p>Margareth had told him about the three heroines. Aeryn was one of them, a light and quick swordswoman, while Lucien was a powerful</p>
-
-<p>tank.</p>
+<p>Margareth had told him about the three heroines. Aeryn was one of them, a light and quick swordswoman, while Lucien was a powerful tank.</p>
 
 <p>That woman, Sapphire, had just used a space spell and, naturally, could only be the mage of that group.</p>
 
-<p>One of the most prestigious magicians of the young generation on the continent and the heir to the Blue Tower, one of the three great</p>
+<p>One of the most prestigious magicians of the young generation on the continent and the heir to the Blue Tower, one of the three great towers of magicians.</p>
 
-<p>towers of magicians.</p>
+<p>Qingyi’s purple, beautiful, and piercing eyes met Sapphire, her eyes no different from a beautiful, polished jewel.</p>
 
-<p>Qingyi’s purple, beautiful, and piercing eyes met Sapphire, her eyes</p>
-
-<p>no different from a beautiful, polished jewel.</p>
-
-<p>NT: Sapphire’s art on the character tab! vote for your favorite girl</p>
-
-<p>there. The art available here is an extremely censored version! You can access the uncensored version on my discord:</p>
+<p>NT: Sapphire’s art on the character tab! vote for your favorite girl there. The art available here is an extremely censored version! You can access the uncensored version on my discord:</p>
 
 <p>.gg/ZMhMj7Dawz</p>

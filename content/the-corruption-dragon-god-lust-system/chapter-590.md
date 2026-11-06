@@ -55,9 +55,7 @@ chapter = 590
 
 <p>That could mean two things.</p>
 
-<p>Either the owner of this aura was truly that weak, or it meant that his</p>
-
-<p>control over Qi was so superior that the observer was simply unable to read it accurately.</p>
+<p>Either the owner of this aura was truly that weak, or it meant that his control over Qi was so superior that the observer was simply unable to read it accurately.</p>
 
 <p>In Tianhao’s view, the second alternative was impossible. Only the first remained.</p>
 
@@ -71,55 +69,33 @@ chapter = 590
 
 <p>Their arrogance was too great, and they knew how to deal with frustration only through anger, never with calm or patience.</p>
 
-<p>Many broke down the moment they realized they had been surpassed</p>
+<p>Many broke down the moment they realized they had been surpassed by someone they deemed inferior.</p>
 
-<p>by someone they deemed inferior.</p>
+<p>The door that had caught the elder’s eye cracked open and then began to swing wide.</p>
 
-<p>The door that had caught the elder’s eye cracked open and then</p>
-
-<p>began to swing wide.</p>
-
-<p>“Impossible… the tests started less than five minutes ago!” one of the</p>
-
-<p>inner disciples shouted, eyes wide.</p>
+<p>“Impossible… the tests started less than five minutes ago!” one of the inner disciples shouted, eyes wide.</p>
 
 <p>Tianhao was also in shock. The only one who remained calm was</p>
 
 <p>Elder Shen.</p>
 
-<p>One hour had been the shortest time in the entire history of the sect, hundreds of thousands of years, with Guo Tianhao being the only one</p>
+<p>One hour had been the shortest time in the entire history of the sect, hundreds of thousands of years, with Guo Tianhao being the only one to reach that mark.</p>
 
-<p>to reach that mark.</p>
+<p>But the door had opened in less than five minutes. Twelve times faster than the time Tianhao had taken.</p>
 
-<p>But the door had opened in less than five minutes. Twelve times</p>
-
-<p>faster than the time Tianhao had taken.</p>
-
-<p>The young master’s eyes narrowed, and from the depths of his chest,</p>
-
-<p>an intense bitterness began to rise.</p>
+<p>The young master’s eyes narrowed, and from the depths of his chest, an intense bitterness began to rise.</p>
 
 <p>From the open door, a figure emerged.</p>
 
-<p>A face of such beauty that it made even Tianhao, known as a</p>
+<p>A face of such beauty that it made even Tianhao, known as a handsome man, shudder. A powerful body, long black hair, and horns like obsidian.</p>
 
-<p>handsome man, shudder. A powerful body, long black hair, and horns</p>
+<p>His steps were firm, carrying the dignity of an emperor and the caution of a tiger.</p>
 
-<p>like obsidian.</p>
-
-<p>His steps were firm, carrying the dignity of an emperor and the</p>
-
-<p>caution of a tiger.</p>
-
-<p>Qingyi stepped out of the doorway, walked up to Elder Shen, and</p>
-
-<p>bowed, clasping his fists.</p>
+<p>Qingyi stepped out of the doorway, walked up to Elder Shen, and bowed, clasping his fists.</p>
 
 <p>“Long Qingyi greets the Elder!”</p>
 
-<p>The elder’s lips curved into a brilliant smile, and he stood up, placing</p>
-
-<p>his hands on Qingyi’s shoulders.</p>
+<p>The elder’s lips curved into a brilliant smile, and he stood up, placing his hands on Qingyi’s shoulders.</p>
 
 <p>“Very well, young dragon! I am truly impressed, hahaha! A talent like yours is rare.” The elder roared with laughter.</p>
 
@@ -131,9 +107,7 @@ chapter = 590
 
 <p>“Luck does not yield such a perfect result, young man. Only talent, strength, and insight do.” The elder turned, his eyes passing over Tianhao, who seemed to be stewing inside.</p>
 
-<p>‘Don’t give in to anger, envy, or jealousy. Use this opportunity to</p>
-
-<p>temper your mind and learn to deal with the frustration of being surpassed! The elder repeated in his own mind, hoping Tianhao would understand his intention.</p>
+<p>‘Don’t give in to anger, envy, or jealousy. Use this opportunity to temper your mind and learn to deal with the frustration of being surpassed! The elder repeated in his own mind, hoping Tianhao would understand his intention.</p>
 
 <p>The young master met the elder’s gaze and held his head high.</p>
 

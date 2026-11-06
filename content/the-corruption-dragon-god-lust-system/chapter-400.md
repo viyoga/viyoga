@@ -47,9 +47,7 @@ chapter = 400
 
 <p>His palm hit the right cheek of her ass with a thud. The beauty’s entire body trembled as a shockwave spread through her voluptuous flesh.</p>
 
-<p>It didn’t take long for Meilin’s voice to turn into nothing but obscene</p>
-
-<p>moans.</p>
+<p>It didn’t take long for Meilin’s voice to turn into nothing but obscene moans.</p>
 
 <p>Her husband fucked her hard, his cock pounding the walls of her womb with every thrust, forming a long, elongated bulge on her delicate, slim belly.</p>
 
@@ -81,9 +79,7 @@ chapter = 400
 
 <p>Meilin shuddered, adjusting her clothes and cleaning herself up.</p>
 
-<p>Then she followed Qingyi, arriving at the main living room of the</p>
-
-<p>luxurious ship.</p>
+<p>Then she followed Qingyi, arriving at the main living room of the luxurious ship.</p>
 
 <p>“Oh… have the lovebirds finally arrived from their ‘important business”? Fufufu..” Feiyan’s mature and sensual laughter echoed, making Meilin blush even more.</p>
 
@@ -97,33 +93,21 @@ chapter = 400
 
 <p>“What do you think, it was worth becoming the wife of this womanizing scoundrel, wasn’t it?” Qingyi chuckled softly, watching Rongyan’s beautiful face as she huffed.</p>
 
-<p>But she couldn’t keep up this facade for long, soon melting under his</p>
+<p>But she couldn’t keep up this facade for long, soon melting under his caresses.</p>
 
-<p>caresses.</p>
-
-<p>“It’s good… at least it’s better than growing old and dying in that godforsaken little place… although I would like a few more asses to</p>
-
-<p>kick, hahaha.”</p>
+<p>“It’s good… at least it’s better than growing old and dying in that godforsaken little place… although I would like a few more asses to kick, hahaha.”</p>
 
 <p>Qingyi couldn’t help but laugh along with Rongyan.</p>
 
-<p>His hand moved up from her butt to her short red hair, gently</p>
+<p>His hand moved up from her butt to her short red hair, gently caressing it.</p>
 
-<p>caressing it.</p>
+<p>Yes, Rongyan was a born fighter, and trying to break Qingyi’s hips with the bounces of her large, shapely ass had always been one of her favorite things.</p>
 
-<p>Yes, Rongyan was a born fighter, and trying to break Qingyi’s hips with the bounces of her large, shapely ass had always been one of her</p>
-
-<p>favorite things.</p>
-
-<p>Fortunately, now she could at least have real fights against spirit beasts, but Qingyi would probably have to take time out to duel with</p>
-
-<p>her.</p>
+<p>Fortunately, now she could at least have real fights against spirit beasts, but Qingyi would probably have to take time out to duel with her.</p>
 
 <p>In the end, he was the only one she could attack with all her strength without fear of hurting him.</p>
 
-<p>She could also try her luck against Qianyao, of course, but Qingyi</p>
-
-<p>didn’t think that was a good idea.</p>
+<p>She could also try her luck against Qianyao, of course, but Qingyi didn’t think that was a good idea.</p>
 
 <p>With a sigh, he just glanced at his status screen.</p>
 
@@ -139,11 +123,7 @@ chapter = 400
 
 <p>Charm: 1500 (can be upgraded in the lust store)</p>
 
-<p>Spiritual roots: Transcendent-level Primordial Creation Seed spirit</p>
-
-<p>root (Lightning, sword, fire, ice) (10T lust points to upgrade, new roots</p>
-
-<p>can be bought in the lust store).</p>
+<p>Spiritual roots: Transcendent-level Primordial Creation Seed spirit root (Lightning, sword, fire, ice) (10T lust points to upgrade, new roots can be bought in the lust store).</p>
 
 <p>Lineage: Blood of the Corruption Dragon God (Sky grade, 750,000,000,000 lust points to upgrade.)</p>
 
@@ -151,6 +131,4 @@ chapter = 400
 
 <p>Lust points: 638,684,929,241]</p>
 
-<p>He was so close to improving his lineage and constitution, yet so far</p>
-
-<p>away.</p>
+<p>He was so close to improving his lineage and constitution, yet so far away.</p>

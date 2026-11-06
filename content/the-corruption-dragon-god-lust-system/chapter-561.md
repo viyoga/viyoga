@@ -59,15 +59,11 @@ chapter = 561
 
 <p>His eyes scanned everything around him until they fell on the collapsing body of the blood serpent, a figure emerging from within it with its sword already aimed at Qingyi’s chest.</p>
 
-<p>The handsome young man dodged, turned his body, and</p>
-
-<p>counterattacked.</p>
+<p>The handsome young man dodged, turned his body, and counterattacked.</p>
 
 <p>The entire sea shook, the blood being pushed away in waves as the shockwave spread.</p>
 
-<p>The two stood there for a moment, staring face to face, their powerful</p>
-
-<p>bodies vying for the upper hand in that clash of brute force.</p>
+<p>The two stood there for a moment, staring face to face, their powerful bodies vying for the upper hand in that clash of brute force.</p>
 
 <p>“Have I told you how ugly you are up close?” Qingyi taunted with a bloodied smile, feeling some internal injuries surface.</p>
 
@@ -81,9 +77,7 @@ chapter = 561
 
 <p>If he didn’t want to die there and waste tens of thousands of years of planning, he needed to end this now.</p>
 
-<p>He needed to recover and absorb the base of his Dantian as quickly as</p>
-
-<p>possible.</p>
+<p>He needed to recover and absorb the base of his Dantian as quickly as possible.</p>
 
 <p>With an angry growl, the celestial demon opened as much space as possible between himself and Qingyi.</p>
 
@@ -91,35 +85,23 @@ chapter = 561
 
 <p>Qingyi, who was also holding back, was unable to disagree with that request.</p>
 
-<p>After all, his internal injuries were accumulating, and his enormous reserves of mana and Qi were being rapidly drained with each</p>
-
-<p>exchange of blows.</p>
+<p>After all, his internal injuries were accumulating, and his enormous reserves of mana and Qi were being rapidly drained with each exchange of blows.</p>
 
 <p>The two stared at each other for a brief moment before beginning.</p>
 
-<p>The Heavenly Demon withdrew his hand and threw away the sword</p>
-
-<p>he was holding.</p>
+<p>The Heavenly Demon withdrew his hand and threw away the sword he was holding.</p>
 
 <p>He took a deep breath, exhaled heavily, and then summoned another sword, with a blade slightly larger than the previous one.</p>
 
-<p>His eyes grew cold. He chanted something in his mind, and a barrier</p>
-
-<p>of blood appeared around him, sucking in the entire sea that</p>
-
-<p>surrounded him.</p>
+<p>His eyes grew cold. He chanted something in his mind, and a barrier of blood appeared around him, sucking in the entire sea that surrounded him.</p>
 
 <p>Strangely, no matter how much blood it absorbed, the barrier did not grow, it just became more and more powerful.</p>
 
 <p>At the same time, Qingyi summoned a spear of fire, using the Art of the Nine Spears of Heavenly Fire.</p>
 
-<p>Without hesitation, he threw the first spear, which collided with the</p>
+<p>Without hesitation, he threw the first spear, which collided with the barrier with a bang.</p>
 
-<p>barrier with a bang.</p>
-
-<p>It wasn’t enough to cause even a tremor, but Qingyi didn’t care,</p>
-
-<p>calling forth a second spear.</p>
+<p>It wasn’t enough to cause even a tremor, but Qingyi didn’t care, calling forth a second spear.</p>
 
 <p>Watching the sea level drop noticeably, he threw the second, then the third, fourth, fifth, sixth, seventh, and eighth.</p>
 
@@ -127,13 +109,9 @@ chapter = 561
 
 <p>They were unstable and trembling, but frighteningly powerful.</p>
 
-<p>Qingyi finally threw the last spear before grabbing the thunder sword that defies the heavens, preparing for the final confrontation. He gathered all his Qi into the blade and watched as the Heavenly Demon easily broke the ninth spear, advancing relentlessly. The blood sword left a crimson trail behind it, like a snake following</p>
+<p>Qingyi finally threw the last spear before grabbing the thunder sword that defies the heavens, preparing for the final confrontation. He gathered all his Qi into the blade and watched as the Heavenly Demon easily broke the ninth spear, advancing relentlessly. The blood sword left a crimson trail behind it, like a snake following its swing.</p>
 
-<p>its swing.</p>
-
-<p>The moment before it reached Qingyi, the handsome young man used the Heaven-shattering Divine Slash again, but this time, it was</p>
-
-<p>different.</p>
+<p>The moment before it reached Qingyi, the handsome young man used the Heaven-shattering Divine Slash again, but this time, it was different.</p>
 
 <p>He did not imbue ordinary flames into his blade. He imbued the very flames of primordial chaos.</p>
 
@@ -141,8 +119,6 @@ chapter = 561
 
 <p>It lasted only a brief moment, almost imperceptible, followed by an incomparable explosion that engulfed the bodies of both.</p>
 
-<p>Bones were broken, limbs torn off, flesh ripped apart, and meridians</p>
-
-<p>lacerated.</p>
+<p>Bones were broken, limbs torn off, flesh ripped apart, and meridians lacerated.</p>
 
 <p>But neither of them stopped, the flames of primordial chaos continuing to devour everything they touched.</p>

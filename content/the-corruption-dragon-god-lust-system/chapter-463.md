@@ -47,9 +47,7 @@ chapter = 463
 
 <p>Behind her, other figures appeared. Dozens, hundreds, thousands, quickly surrounding the group.</p>
 
-<p>“These are…” Aeryn’s eyes widened as she tried to recognize those</p>
-
-<p>creatures.</p>
+<p>“These are…” Aeryn’s eyes widened as she tried to recognize those creatures.</p>
 
 <p>“Jiangshi, a type of undead used by unorthodox cultivators in my land,” Qingyi replied, watching the creatures with interest.</p>
 
@@ -69,41 +67,29 @@ chapter = 463
 
 <p>“We have a very interesting one here, tell me your—”</p>
 
-<p>The woman couldn’t even finish her sentence as Qingyi’s fist tore</p>
+<p>The woman couldn’t even finish her sentence as Qingyi’s fist tore through the air.</p>
 
-<p>through the air.</p>
-
-<p>Intense pain overwhelmed her jaw, burning blood exploding as she was sent flying backward like a cannonball. Dust rose as a shockwave</p>
-
-<p>spread out.</p>
+<p>Intense pain overwhelmed her jaw, burning blood exploding as she was sent flying backward like a cannonball. Dust rose as a shockwave spread out.</p>
 
 <p>She only stabilized after nearly five hundred meters, her jaw hanging below her face, every bone reduced to dust.</p>
 
 <p>What the hell had just happened? How could that bastard have such strength?</p>
 
-<p>She only didn’t grit her teeth because she was physically incapable of</p>
-
-<p>doing so.</p>
+<p>She only didn’t grit her teeth because she was physically incapable of doing so.</p>
 
 <p>Using a sound transmission to order her subordinates to attack, her eyes burned with rage as her demonic Qi and mana burned.</p>
 
-<p>In the skies, the thousands of flying blades changed, taking a single</p>
-
-<p>moment before exploding into speed. Tearing through the air at supersonic speed, they carried with them enough power to kill a False</p>
+<p>In the skies, the thousands of flying blades changed, taking a single moment before exploding into speed. Tearing through the air at supersonic speed, they carried with them enough power to kill a False</p>
 
 <p>Immortal.</p>
 
-<p>Individually, they weren’t much, but together? They were extremely</p>
-
-<p>dangerous.</p>
+<p>Individually, they weren’t much, but together? They were extremely dangerous.</p>
 
 <p>Sapphire summoned a barrier that encapsulated both Celestia and Aeryn, but this protection wasn’t even necessary.</p>
 
 <p>Qingyi placed himself in front of them, the Heaven-Defying Thunder Sword cutting through the air, easily parrying the first blade.</p>
 
-<p>The impact caused his feet to sink into the ground, his back hitting</p>
-
-<p>the barrier behind him.</p>
+<p>The impact caused his feet to sink into the ground, his back hitting the barrier behind him.</p>
 
 <p>But he didn’t care, continuing to swing his sword as thousands of blades converged on his figure.</p>
 
@@ -121,18 +107,12 @@ chapter = 463
 
 <p>The impact of that woman’s claws caused nothing but a sea of sparks and broken nails, barely leaving a scratch on Qingyi.</p>
 
-<p>His eyes descended, full of contempt, watching the shock on the</p>
+<p>His eyes descended, full of contempt, watching the shock on the woman’s face.</p>
 
-<p>woman’s face.</p>
-
-<p>“You’re pretty persistent for a disgusting and annoying little worm,</p>
-
-<p>huh?”</p>
+<p>“You’re pretty persistent for a disgusting and annoying little worm, huh?”</p>
 
 <p>Without hesitation, Qingyi kicked.</p>
 
 <p>This time, not sending her flying away; quite the opposite.</p>
 
-<p>His feet made contact with her face, and then he smashed her into</p>
-
-<p>the ground with all his strength, immediately turning everything beneath him to dust.</p>
+<p>His feet made contact with her face, and then he smashed her into the ground with all his strength, immediately turning everything beneath him to dust.</p>

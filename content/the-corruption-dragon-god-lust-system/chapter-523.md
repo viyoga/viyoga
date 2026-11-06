@@ -87,17 +87,11 @@ chapter = 523
 
 <p>Yet there he was, wearing diapers, his eyes tightly closed.</p>
 
-<p>Even for an expert of his level, a blow like the one delivered by Meilin,</p>
+<p>Even for an expert of his level, a blow like the one delivered by Meilin, in a totally unprotected area, would be nothing less than deadly.</p>
 
-<p>in a totally unprotected area, would be nothing less than deadly.</p>
+<p>He was lucky that the damage hadn’t reached his Dantian. Unfortunately for him, his father’s doctors couldn’t fully restore his groin.</p>
 
-<p>He was lucky that the damage hadn’t reached his Dantian. Unfortunately for him, his father’s doctors couldn’t fully restore his</p>
-
-<p>groin.</p>
-
-<p>Unless he reached the Astral Body Realm and underwent body reconstruction, he would have to go to the bathroom like a woman for</p>
-
-<p>the rest of his life.</p>
+<p>Unless he reached the Astral Body Realm and underwent body reconstruction, he would have to go to the bathroom like a woman for the rest of his life.</p>
 
 <p>Not that experts of his level truly needed to use the bathroom.</p>
 
@@ -105,43 +99,29 @@ chapter = 523
 
 <p>The man beside the Third Young Master was, of course, the Gold King, who rose from his chair when a shadow appeared beside him.</p>
 
-<p>“What is it? Is my wife here?” Jin Hao asked, cracking his back. “Yes, my lord, but not only that. Master Jianming is also here, and at this very moment, he seems to be training with Qingyi in his personal</p>
-
-<p>arena.”</p>
+<p>“What is it? Is my wife here?” Jin Hao asked, cracking his back. “Yes, my lord, but not only that. Master Jianming is also here, and at this very moment, he seems to be training with Qingyi in his personal arena.”</p>
 
 <p>Hearing the shadow’s words, Jin Hao’s calm face changed.</p>
 
-<p>“Ugh… if my wife arrives, explain everything to her! I’ll go take a look</p>
-
-<p>at them.” The Gold King declared, his body turning into a blur and</p>
-
-<p>leaving the shadow behind.</p>
+<p>“Ugh… if my wife arrives, explain everything to her! I’ll go take a look at them.” The Gold King declared, his body turning into a blur and leaving the shadow behind.</p>
 
 <p>A few minutes after he left, another figure entered the room.</p>
 
-<p>It was a slender, elegant woman with long golden hair and a face of</p>
-
-<p>transcendental beauty.</p>
+<p>It was a slender, elegant woman with long golden hair and a face of transcendental beauty.</p>
 
 <p>“My baby!”</p>
 
-<p>She immediately rushed to the bedside of the Third Young Master,</p>
-
-<p>who was still unconscious.</p>
+<p>She immediately rushed to the bedside of the Third Young Master, who was still unconscious.</p>
 
 <p>She cupped her son’s face, pressing her lips against his forehead.</p>
 
-<p>“Who did this? Tell me!” She demanded, turning toward the shadow</p>
-
-<p>waiting in a corner of the room.</p>
+<p>“Who did this? Tell me!” She demanded, turning toward the shadow waiting in a corner of the room.</p>
 
 <p>“My lady, I believe the Gold King would like you to…”</p>
 
 <p>“Now!”</p>
 
-<p>The shadow’s words were cut off by a loud scream, shrill enough to</p>
-
-<p>burst the eardrums of mortals.</p>
+<p>The shadow’s words were cut off by a loud scream, shrill enough to burst the eardrums of mortals.</p>
 
 <p>The shadow turned its head as one of the doctors entered the room.</p>
 
@@ -149,16 +129,12 @@ chapter = 523
 
 <p>“Who did this to my baby? Answer me, now!”</p>
 
-<p>The woman turned to the doctor, knowing it was useless to try to get</p>
-
-<p>an answer from the shadow.</p>
+<p>The woman turned to the doctor, knowing it was useless to try to get an answer from the shadow.</p>
 
 <p>“It was Miss Meilin!” The doctor replied hesitantly.</p>
 
 <p>“Meilin…”</p>
 
-<p>The woman repeated the name, her voice sounding like the growl of a</p>
-
-<p>beast from the depths of hell.</p>
+<p>The woman repeated the name, her voice sounding like the growl of a beast from the depths of hell.</p>
 
 <p>“Where is that little bitch?”</p>

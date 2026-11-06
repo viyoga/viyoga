@@ -11,9 +11,7 @@ chapter = 511
 
 <p>The journey would be long, and Meilin was naturally dying of anxiety to see her father again.</p>
 
-<p>She had even gone to the newly founded branch of the Five Colors Pavilion in the capital of Valemont to use one of the many</p>
-
-<p>long-distance connection artifacts to contact her father, letting him know they were coming to visit him.</p>
+<p>She had even gone to the newly founded branch of the Five Colors Pavilion in the capital of Valemont to use one of the many long-distance connection artifacts to contact her father, letting him know they were coming to visit him.</p>
 
 <p>About three days passed, giving Isabel time to catch up with her father and Meilin time to organize her chamber of commerce.</p>
 
@@ -79,9 +77,7 @@ chapter = 511
 
 <p>“Ghnn~~ Husband… so big…” Meilin purred.</p>
 
-<p>She placed her hand on her delicate belly, so thin that she could feel the perfect outline of her husband’s cock inside her, filling her to the</p>
-
-<p>brim.</p>
+<p>She placed her hand on her delicate belly, so thin that she could feel the perfect outline of her husband’s cock inside her, filling her to the brim.</p>
 
 <p>Leaning on Qingyi, she began to ride him, trying to stifle her moans as her hips rose.</p>
 
@@ -89,27 +85,17 @@ chapter = 511
 
 <p>Biting her lower lip, Meilin let her ass fall back down.</p>
 
-<p>Her fat, perfectly round cheeks hit Qingyi’s thighs with a thud,</p>
+<p>Her fat, perfectly round cheeks hit Qingyi’s thighs with a thud, powerful shockwaves spreading across the perfect, pale orbs.</p>
 
-<p>powerful shockwaves spreading across the perfect, pale orbs.</p>
-
-<p>“Aghnn~~” She moaned through her nose, her entire body trembling</p>
-
-<p>as she picked up the rhythm of the movement.</p>
+<p>“Aghnn~~” She moaned through her nose, her entire body trembling as she picked up the rhythm of the movement.</p>
 
 <p>Soon, the speed at which her hips moved increased, her buttocks hitting his thighs with powerful thuds, the flesh taken over by violent and obscene ripples.</p>
 
-<p>Her attempts to keep her moans low soon began to fail, and her cherry lips became drenched in saliva as her pink tongue escaped,</p>
-
-<p>extending with each moan.</p>
+<p>Her attempts to keep her moans low soon began to fail, and her cherry lips became drenched in saliva as her pink tongue escaped, extending with each moan.</p>
 
 <p>“Nghnn~~ So~~ good~~ Oh fuck… Oh heavens!~~” Meilin’s voice exploded as her eyes rolled back in pleasure.</p>
 
-<p>She only fell silent when Qingyi moved, one of his hands falling onto</p>
-
-<p>the milky, soft skin of her hips, while the other rose, a single finger</p>
-
-<p>entering her lips.</p>
+<p>She only fell silent when Qingyi moved, one of his hands falling onto the milky, soft skin of her hips, while the other rose, a single finger entering her lips.</p>
 
 <p>Immediately, she closed her mouth, sucking the finger on her lips as her eyes fell, full of desire and sensuality, focused on Qingyi’s.</p>
 
@@ -119,23 +105,15 @@ chapter = 511
 
 <p>Suddenly, Meilin froze.</p>
 
-<p>Qingyi’s finger slipped from her delicate lips as they opened in a long,</p>
+<p>Qingyi’s finger slipped from her delicate lips as they opened in a long, obscene moan, every part of her trembling.</p>
 
-<p>obscene moan, every part of her trembling.</p>
+<p>Her pussy squirted wildly around his cock, the orgasm hitting her with full force.</p>
 
-<p>Her pussy squirted wildly around his cock, the orgasm hitting her</p>
-
-<p>with full force.</p>
-
-<p>She shuddered for a moment before losing her strength, falling</p>
-
-<p>against Qingyi’s chest.</p>
+<p>She shuddered for a moment before losing her strength, falling against Qingyi’s chest.</p>
 
 <p>Inside her, she felt his cock finally release.</p>
 
-<p>A first spurt of cum invaded her womb, followed by another and then</p>
-
-<p>another, filling her until she couldn’t take any more.</p>
+<p>A first spurt of cum invaded her womb, followed by another and then another, filling her until she couldn’t take any more.</p>
 
 <p>“Hm~~” She moaned, rubbing her face against her husband’s chest.</p>
 

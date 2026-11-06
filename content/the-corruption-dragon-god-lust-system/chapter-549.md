@@ -5,9 +5,7 @@ weight = 549
 chapter = 549
 +++
 
-<p>Long Qingyi woke up feeling more refreshed than ever, his face filling</p>
-
-<p>with energy as he looked at his status screen.</p>
+<p>Long Qingyi woke up feeling more refreshed than ever, his face filling with energy as he looked at his status screen.</p>
 
 <p>After that night of sex, he had returned to almost one and a half quadrillion lust points again.</p>
 
@@ -39,9 +37,7 @@ chapter = 549
 
 <p>“Hm? What do you mean by that?” Qingyi turned his face in confusion.</p>
 
-<p>[It is more than just a reconstruction of your body, it is the ability to truly exist beyond the heavens, in the void and in absolute</p>
-
-<p>nothingness.] Ruxue spoke, and after that, did not respond further. He would have to discover the rest on his own.</p>
+<p>[It is more than just a reconstruction of your body, it is the ability to truly exist beyond the heavens, in the void and in absolute nothingness.] Ruxue spoke, and after that, did not respond further. He would have to discover the rest on his own.</p>
 
 <p>The handsome young man sighed, clicking to improve his cultivation and mana manipulation at the same time.</p>
 
@@ -93,42 +89,24 @@ chapter = 549
 
 <p>“Ruxue… you said something about surviving even in a vacuum… are you talking about space?” He asked.</p>
 
-<p>[Hm? What do you mean by that-] Before Ruxue could even finish her sentence, Qingyi had already exploded in speed, flying towards the</p>
-
-<p>skies.</p>
+<p>[Hm? What do you mean by that-] Before Ruxue could even finish her sentence, Qingyi had already exploded in speed, flying towards the skies.</p>
 
 <p>[Wait, what are you doing? Ugh… damn…] Ruxue whined, realizing there was nothing she could do to stop him.</p>
 
-<p>And he didn’t stop, his body gaining more and more speed as the air around him became thinner and thinner, the temperature dropping</p>
+<p>And he didn’t stop, his body gaining more and more speed as the air around him became thinner and thinner, the temperature dropping steadily.</p>
 
-<p>steadily.</p>
-
-<p>Qingyi looked down, observing the perfect curvature of the immortal</p>
-
-<p>skies.</p>
+<p>Qingyi looked down, observing the perfect curvature of the immortal skies.</p>
 
 <p>“Why did it stop moving away?” He questioned, gritting his teeth and increasing his speed more and more.</p>
 
 <p>Five times the speed of sound, ten times, twenty times, thirty times.</p>
 
-<p>He raised his speed to the absolute maximum, but nothing was</p>
+<p>He raised his speed to the absolute maximum, but nothing was enough.</p>
 
-<p>enough.</p>
+<p>The world below had stopped moving away, and the cosmos was there. So close, yet so far.</p>
 
-<p>The world below had stopped moving away, and the cosmos was</p>
+<p>“Did that satisfy your curiosity?” Ruxue appeared beside him. “At least recover a little, you idiot, do you know how worried I was?” Qingyi paused for a moment before wrapping his hands around her waist.</p>
 
-<p>there. So close, yet so far.</p>
+<p>“Ugh… you’re filthy…” Ruxue said, soaking herself in the blood that covered Qingyi.</p>
 
-<p>“Did that satisfy your curiosity?” Ruxue appeared beside him. “At least recover a little, you idiot, do you know how worried I was?” Qingyi paused for a moment before wrapping his hands around her</p>
-
-<p>waist.</p>
-
-<p>“Ugh… you’re filthy…” Ruxue said, soaking herself in the blood that</p>
-
-<p>covered Qingyi.</p>
-
-<p>“Now, we’re filthy.” He smiled, kissing her, their bodies entwining</p>
-
-<p>above everything and everyone, one step away from reaching the</p>
-
-<p>stars.</p>
+<p>“Now, we’re filthy.” He smiled, kissing her, their bodies entwining above everything and everyone, one step away from reaching the stars.</p>

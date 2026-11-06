@@ -63,9 +63,7 @@ chapter = 611
 
 <p>On a mission that didn’t even last a full day, they received the equivalent of nearly seven months of an outer disciple’s base salary. And that’s not counting the sect’s contribution points and the salary increase based on points earned that month.</p>
 
-<p>After all, a celestial spirit crystal was merely the bare minimum a mortal needed to survive in the sect. To fund cultivation, much more</p>
-
-<p>was required.</p>
+<p>After all, a celestial spirit crystal was merely the bare minimum a mortal needed to survive in the sect. To fund cultivation, much more was required.</p>
 
 <p>It wasn’t a huge amount of wealth for a cultivator, but it was still quite reasonable.</p>
 
@@ -75,15 +73,9 @@ chapter = 611
 
 <p>As Zhentian calculated how much each would receive, he came to the most important part: the kill bonuses.</p>
 
-<p>These were individual and would be calculated based on everyone’s</p>
+<p>These were individual and would be calculated based on everyone’s reports.</p>
 
-<p>reports.</p>
-
-<p>Obviously, it wasn’t possible to establish an exact number, but each</p>
-
-<p>person kept track of their own kills and had an idea of how many the</p>
-
-<p>cultivators beside them had eliminated.</p>
+<p>Obviously, it wasn’t possible to establish an exact number, but each person kept track of their own kills and had an idea of how many the cultivators beside them had eliminated.</p>
 
 <p>With that, it was possible to deduce an average.</p>
 
@@ -91,17 +83,13 @@ chapter = 611
 
 <p>He didn’t even glance at that amount.</p>
 
-<p>His family literally had vaults upon vaults filled with tens of millions of</p>
-
-<p>celestial spirit crystals, earning so much every second that even a thousand crystals there would be just a drop in the bucket compared to what his family made in a single day.</p>
+<p>His family literally had vaults upon vaults filled with tens of millions of celestial spirit crystals, earning so much every second that even a thousand crystals there would be just a drop in the bucket compared to what his family made in a single day.</p>
 
 <p>What really mattered to him were the sect’s contribution points.</p>
 
 <p>Those celestial spirit crystals only held value for poor, unsupported cultivators, like Qingyi himself.</p>
 
-<p>‘Now that I think about it…’ Zhentian couldn’t help but sigh,</p>
-
-<p>impressed.</p>
+<p>‘Now that I think about it…’ Zhentian couldn’t help but sigh, impressed.</p>
 
 <p>Over three thousand killed by a single man.</p>
 
@@ -111,24 +99,16 @@ chapter = 611
 
 <p>In the end, after calculating everything, Qingyi’s reward was set at 322 celestial spirit crystals.</p>
 
-<p>Enough for a mortal to live a whole life in humility, or ten years in</p>
-
-<p>luxury.</p>
+<p>Enough for a mortal to live a whole life in humility, or ten years in luxury.</p>
 
 <p>Even though it was little by cultivator standards, it was still something that drew many envious glances from everyone around Qingyi.</p>
 
 <p>“Let’s head back. I’ll turn in the mission and distribute the rewards.” Zhentian smiled, patting Qingyi on the shoulder.</p>
 
-<p>It was his responsibility to report everything that had happened,</p>
-
-<p>including whether they had succeeded or failed in obtaining the</p>
-
-<p>bonuses.</p>
+<p>It was his responsibility to report everything that had happened, including whether they had succeeded or failed in obtaining the bonuses.</p>
 
 <p>He could lie for fatter rewards, of course, but that was risky.</p>
 
-<p>It wasn’t uncommon to see disciples lying, getting caught, and ending</p>
-
-<p>up dead or crippled.</p>
+<p>It wasn’t uncommon to see disciples lying, getting caught, and ending up dead or crippled.</p>
 
 <p>Zhentian, as an honorable man whose wealth likely surpassed that of the mission pavilion itself, didn’t even consider it, simply collecting the reward and distributing it among the disciples.</p>

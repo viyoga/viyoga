@@ -63,9 +63,7 @@ chapter = 781
 
 <p>[You have taken the purity of Long Rou’er, daughter of the Dragon God of Corruption and a woman of unparalleled origin in the Celestial Heaven, + 100,000 G Lust points]</p>
 
-<p>"Aghnn~~ s-so big... filling Rou’er’s tight pussy so full, hehehe~~ big brother Qingyi~" Rou’er moaned,</p>
-
-<p>Qingyi smiled slightly, giving Rou’er’s buttock a light pat. The soft flesh trembled at the gentle impact, rippling like pudding in a slow, heavy wave before settling back into place.</p>
+<p>"Aghnn~~ s-so big... filling Rou’er’s tight pussy so full, hehehe~~ big brother Qingyi~" Rou’er moaned, Qingyi smiled slightly, giving Rou’er’s buttock a light pat. The soft flesh trembled at the gentle impact, rippling like pudding in a slow, heavy wave before settling back into place.</p>
 
 <p>He wasn’t surprised by that amount.</p>
 

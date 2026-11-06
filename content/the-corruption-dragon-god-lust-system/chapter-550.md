@@ -47,9 +47,7 @@ chapter = 550
 
 <p>Qingyi remained standing there, floating dozens of kilometers above the ground, holding Ruxue tightly in his arms.</p>
 
-<p>“What is this connection?” he asked, his eyes fixed directly on the</p>
-
-<p>sun.</p>
+<p>“What is this connection?” he asked, his eyes fixed directly on the sun.</p>
 
 <p>For mortals, that shouldn’t be a good idea. But at Qingyi’s current level, even millennia of staring at the sun would be insufficient to hurt his eyes.</p>
 
@@ -59,9 +57,7 @@ chapter = 550
 
 <p>It wasn’t that big of a deal, it should be fine.</p>
 
-<p>“It’s the symbol of the astral body realm. The symbol that you’ve taken your first step into the celestial heavens…” She broke free from his</p>
-
-<p>embrace, the blood on her skin and clothes immediately being swept away.</p>
+<p>“It’s the symbol of the astral body realm. The symbol that you’ve taken your first step into the celestial heavens…” She broke free from his embrace, the blood on her skin and clothes immediately being swept away.</p>
 
 <p>In the blink of an eye, she was completely clean.</p>
 
@@ -75,19 +71,13 @@ chapter = 550
 
 <p>Qingyi froze at that explanation.</p>
 
-<p>The most common theory about the formation of the heavens, among experts of the mortal and immortal heavens, was that they were like</p>
+<p>The most common theory about the formation of the heavens, among experts of the mortal and immortal heavens, was that they were like stacked slices.</p>
 
-<p>stacked slices.</p>
-
-<p>The celestial heaven above the immortal, and the immortal above the</p>
-
-<p>mortal.</p>
+<p>The celestial heaven above the immortal, and the immortal above the mortal.</p>
 
 <p>It was that simple.</p>
 
-<p>“So the celestial heaven is the cosmos itself…” Qingyi scratched his</p>
-
-<p>chin.</p>
+<p>“So the celestial heaven is the cosmos itself…” Qingyi scratched his chin.</p>
 
 <p>“Yes… you feel that connection because, upon reaching a certain level in the immortal heaven, you will need to form a bond with your own star. But…” Ruxue scratched her delicate chin before focusing her gaze and hardening her voice.</p>
 
@@ -105,30 +95,18 @@ chapter = 550
 
 <p>In truth, the bath wasn’t necessary.</p>
 
-<p>A single thought would be enough to erase all that blood and the</p>
+<p>A single thought would be enough to erase all that blood and the terrible smell, and that was exactly what Qingyi did before entering the water, to avoid dirtying it.</p>
 
-<p>terrible smell, and that was exactly what Qingyi did before entering the water, to avoid dirtying it.</p>
-
-<p>But in the end, there were few things better than a nice hot bath after</p>
-
-<p>warming up his muscles.</p>
+<p>But in the end, there were few things better than a nice hot bath after warming up his muscles.</p>
 
 <p>Ruxue didn’t enter the water right away, taking a long moment before finally grabbing the neckline of her dress.</p>
 
-<p>A single tug, and the thin fabric fell to the floor, revealing her naked, perfect body, her massive breasts full and firm, despite their</p>
+<p>A single tug, and the thin fabric fell to the floor, revealing her naked, perfect body, her massive breasts full and firm, despite their incomparable size.</p>
 
-<p>incomparable size.</p>
-
-<p>“Don’t you think it’s time to return to the imperial capital?” She said,</p>
-
-<p>stepping into the water.</p>
+<p>“Don’t you think it’s time to return to the imperial capital?” She said, stepping into the water.</p>
 
 <p>Qingyi’s hands immediately fell on her breasts, his fingers sinking into her pale, milky skin.</p>
 
-<p>“Nghnn~~” she moaned. “Meilin is anxious about her father’s</p>
+<p>“Nghnn~~” she moaned. “Meilin is anxious about her father’s situation…”</p>
 
-<p>situation…”</p>
-
-<p>“I know… I need to get back there as soon as possible.” Qingyi nodded,</p>
-
-<p>his lips opening and then closing around one of Ruxue’s pink nipples.</p>
+<p>“I know… I need to get back there as soon as possible.” Qingyi nodded, his lips opening and then closing around one of Ruxue’s pink nipples.</p>

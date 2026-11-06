@@ -63,13 +63,9 @@ chapter = 453
 
 <p>The cultist writhed. His lips opened in a guttural scream that spread throughout the forest, stirring it for a brief moment.</p>
 
-<p>The pain was horrible. The smell of burning flesh was accompanied by whitish smoke as Qingyi’s lightning Qi destroyed everything it</p>
+<p>The pain was horrible. The smell of burning flesh was accompanied by whitish smoke as Qingyi’s lightning Qi destroyed everything it touched.</p>
 
-<p>touched.</p>
-
-<p>Blood spurted onto the handsome young man’s face, but he didn’t</p>
-
-<p>care.</p>
+<p>Blood spurted onto the handsome young man’s face, but he didn’t care.</p>
 
 <p>“Do I need to repeat the question?”</p>
 
@@ -89,33 +85,21 @@ chapter = 453
 
 <p>A being whose power rivaled that of a True Immortal, bearer of a mana heart and a Dantian, being reduced to tears so easily.</p>
 
-<p>Qingyi still remembered many years ago, when he tortured the King of the Heavenly Thunder Kingdom, who had tried to take Ruxue from</p>
+<p>Qingyi still remembered many years ago, when he tortured the King of the Heavenly Thunder Kingdom, who had tried to take Ruxue from him.</p>
 
-<p>him.</p>
-
-<p>Even that Golden Core Realm cultivator endured the same torture</p>
-
-<p>with much more dignity than this cultist. And that king was barely a fraction of what this man was.</p>
+<p>Even that Golden Core Realm cultivator endured the same torture with much more dignity than this cultist. And that king was barely a fraction of what this man was.</p>
 
 <p>Qingyi moved his hand toward the cultist’s knee, who trembled.</p>
 
-<p>“W-wait! I-I really can’t talk! If I talk, the heartworm in my chest will</p>
+<p>“W-wait! I-I really can’t talk! If I talk, the heartworm in my chest will kill me immediately!”</p>
 
-<p>kill me immediately!”</p>
-
-<p>He hoped that the excuse would work, that Qingyi would at least give</p>
-
-<p>him a quick death.</p>
+<p>He hoped that the excuse would work, that Qingyi would at least give him a quick death.</p>
 
 <p>Unfortunately, he didn’t know Qingyi.</p>
 
-<p>The handsome young man placed his hand on the cultist’s chest and</p>
+<p>The handsome young man placed his hand on the cultist’s chest and used his spatial Qi.</p>
 
-<p>used his spatial Qi.</p>
-
-<p>In the next moment, the space between his fingers distorted. The</p>
-
-<p>cultist’s eyes filled with shock as he felt a weight lift from his heart, while at the same time a small red worm appeared in Qingyi’s hands.</p>
+<p>In the next moment, the space between his fingers distorted. The cultist’s eyes filled with shock as he felt a weight lift from his heart, while at the same time a small red worm appeared in Qingyi’s hands.</p>
 
 <p>“Go ahead. Start talking.” Qingyi crushed the worm.</p>
 
@@ -123,9 +107,7 @@ chapter = 453
 
 <p>Only after a moment of hesitation did he finally begin:</p>
 
-<p>“In the far west, there is a Dark Master, a powerful Qi user… He was</p>
-
-<p>the one who initiated me. He helped me become a noble and gave me a Dantian! I don’t know how the procedure works, I swear! I-I just fell asleep, and when I woke up, my body had completely changed.”</p>
+<p>“In the far west, there is a Dark Master, a powerful Qi user… He was the one who initiated me. He helped me become a noble and gave me a Dantian! I don’t know how the procedure works, I swear! I-I just fell asleep, and when I woke up, my body had completely changed.”</p>
 
 <p>“Hm…” Qingyi scratched his chin.</p>
 
@@ -133,24 +115,16 @@ chapter = 453
 
 <p>“Why did you attack me?” he asked.</p>
 
-<p>He needed to know if the attack had occurred because he had already</p>
-
-<p>been recognized as one of the Five Heroes.</p>
+<p>He needed to know if the attack had occurred because he had already been recognized as one of the Five Heroes.</p>
 
 <p>If that was the case, things could get a little dangerous.</p>
 
-<p>“D-debt… t-to pay off a debt! The master ordered us to capture as</p>
-
-<p>many people as possible for a great sacrifice!”</p>
+<p>“D-debt… t-to pay off a debt! The master ordered us to capture as many people as possible for a great sacrifice!”</p>
 
 <p>“Hm…” Qingyi exhaled thoughtfully.</p>
 
-<p>“P-please… no more, that’s all I know… I-I’m telling the truth,” the</p>
-
-<p>cultist whimpered.</p>
+<p>“P-please… no more, that’s all I know… I-I’m telling the truth,” the cultist whimpered.</p>
 
 <p>“I know you are.”</p>
 
-<p>Qingyi smiled. With a gentle movement of his hand, the cultist’s head</p>
-
-<p>flew through the air.</p>
+<p>Qingyi smiled. With a gentle movement of his hand, the cultist’s head flew through the air.</p>

@@ -47,17 +47,13 @@ chapter = 480
 
 <p>“Hm… I wonder if I should reduce the number to sixty-four…” Old Lucios stroked his gray beard, and immediately the murmurs ceased. With a smile, he simply waved his hands, and the double doors of the arena opened, allowing the participants to enter.</p>
 
-<p>There was no special place for them to sit, not even an audience, except for the experts seated on the many thrones surrounding the</p>
-
-<p>venue.</p>
+<p>There was no special place for them to sit, not even an audience, except for the experts seated on the many thrones surrounding the venue.</p>
 
 <p>It was just a simple, small concrete platform, no more than a thousand square meters.</p>
 
 <p>At least on the outside.</p>
 
-<p>As he walked across the concrete platform, Qingyi felt the power of</p>
-
-<p>the spatial barriers that held it together and would contain the battle.</p>
+<p>As he walked across the concrete platform, Qingyi felt the power of the spatial barriers that held it together and would contain the battle.</p>
 
 <p>It took him only a moment to be sure: even for him, it would be difficult to destroy it easily.</p>
 
@@ -65,17 +61,11 @@ chapter = 480
 
 <p>“Very well, the first pair may come up.” Lucios spoke, waving his hand as two flashes of light fell on two of the young people.</p>
 
-<p>With a moment’s hesitation, they stepped forward, standing face to</p>
+<p>With a moment’s hesitation, they stepped forward, standing face to face and waiting for the expert’s confirmation.</p>
 
-<p>face and waiting for the expert’s confirmation.</p>
+<p>The moment Lucios’ hand touched the arm of his seat, the two stepped forward without holding back.</p>
 
-<p>The moment Lucios’ hand touched the arm of his seat, the two</p>
-
-<p>stepped forward without holding back.</p>
-
-<p>Unlike what elves usually preferred, this was not a test full of rules,</p>
-
-<p>rituals, and parameters to be achieved. Quite the contrary.</p>
+<p>Unlike what elves usually preferred, this was not a test full of rules, rituals, and parameters to be achieved. Quite the contrary.</p>
 
 <p>This was simply a demonstration of strength and power.</p>
 
@@ -89,13 +79,9 @@ chapter = 480
 
 <p>Their powers, equivalent to those of a True Immortal, caused destruction all around them.</p>
 
-<p>They separated for a moment before advancing again, their bodies covered in crimson auras, a strange kind of flaming mana surrounding</p>
+<p>They separated for a moment before advancing again, their bodies covered in crimson auras, a strange kind of flaming mana surrounding them.</p>
 
-<p>them.</p>
-
-<p>Many had to take a step back immediately, protecting themselves</p>
-
-<p>with thin mana barriers as the scorching heat hit their faces.</p>
+<p>Many had to take a step back immediately, protecting themselves with thin mana barriers as the scorching heat hit their faces.</p>
 
 <p>Only Qingyi and a few others remained completely unmoved.</p>
 
@@ -105,13 +91,9 @@ chapter = 480
 
 <p>The combat didn’t have many other peak moments after the initial clash. Dozens of exchanges of blows took over the arena until, finally, the younger man gave in.</p>
 
-<p>His opponent’s blade slid down his own to the hilt before, with an</p>
+<p>His opponent’s blade slid down his own to the hilt before, with an explosion of mana, disarming him, taking a few fingers with it.</p>
 
-<p>explosion of mana, disarming him, taking a few fingers with it.</p>
-
-<p>When the younger man fell on his butt on the floor, grunting and holding his bloody hand, the older man raised his sword with a roar of</p>
-
-<p>victory.</p>
+<p>When the younger man fell on his butt on the floor, grunting and holding his bloody hand, the older man raised his sword with a roar of victory.</p>
 
 <p>He had won and, unlike his opponent, had not suffered a single injury.</p>
 
@@ -125,8 +107,6 @@ chapter = 480
 
 <p>A pureblood by birth who did not belong to any great family.</p>
 
-<p>The other was a young man who made him even more curious. He was clearly human, despite having a scent that did not belong to a</p>
-
-<p>human and an absurd amount of hidden power, something that shocked even him.</p>
+<p>The other was a young man who made him even more curious. He was clearly human, despite having a scent that did not belong to a human and an absurd amount of hidden power, something that shocked even him.</p>
 
 <p>How did a human body not explode with all that stored energy?</p>

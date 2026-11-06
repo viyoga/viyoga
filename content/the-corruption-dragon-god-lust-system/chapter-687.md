@@ -93,9 +93,7 @@ chapter = 687
 
 <p>By the time the madman realized what was happening, dodging was no longer an option.</p>
 
-<p>Countless blades crashed into his body, the electric Qi tearing through his flesh and meridians, ripping him apart from the inside</p>
-
-<p>out.</p>
+<p>Countless blades crashed into his body, the electric Qi tearing through his flesh and meridians, ripping him apart from the inside out.</p>
 
 <p>A gasp thick with agony cut through the air, and the corpse of the mad captain, collapsed to the ground.</p>
 
@@ -107,10 +105,6 @@ chapter = 687
 
 <p>He gave a slight bow in a gesture of respect, then turned his gaze toward the destroyed ship.</p>
 
-<p>He took a step forward. At that moment, Ruxue’s voice brushed</p>
+<p>He took a step forward. At that moment, Ruxue’s voice brushed against his mind, and his eyes lit up.</p>
 
-<p>against his mind, and his eyes lit up.</p>
-
-<p>“Qingyi, I can sense the aura of one of my fragments coming from that</p>
-
-<p>ship.”</p>
+<p>“Qingyi, I can sense the aura of one of my fragments coming from that ship.”</p>

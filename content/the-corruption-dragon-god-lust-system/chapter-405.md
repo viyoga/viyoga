@@ -33,9 +33,7 @@ chapter = 405
 
 <p>Still, nothing changed.</p>
 
-<p>The handsome young man remained completely unmoved. He didn’t</p>
-
-<p>even hold his sword with both hands; he just kept his right arm extended, casually holding the hilt.</p>
+<p>The handsome young man remained completely unmoved. He didn’t even hold his sword with both hands; he just kept his right arm extended, casually holding the hilt.</p>
 
 <p>“You’re disappointing me, old man. Put everything you’ve got into it or die.” Qingyi spoke indifferently.</p>
 
@@ -51,17 +49,13 @@ chapter = 405
 
 <p>Of course, Qingyi did not look down on Nirm too much.</p>
 
-<p>Although the people of the west had no lineages or constitutions,</p>
-
-<p>they still had a way to increase their power tremendously: the quality and element of their Mana Heart.</p>
+<p>Although the people of the west had no lineages or constitutions, they still had a way to increase their power tremendously: the quality and element of their Mana Heart.</p>
 
 <p>Nirm had not yet resorted to either.</p>
 
 <p>Qingyi’s momentum sent Nirm flying, his body only coming to a stop after fifty meters. His face regained some calm, and his eyes analyzed Qingyi coldly.</p>
 
-<p>He could no longer take this battle lightly. He had already understood that Qingyi was an enemy capable of killing him with a single wrong</p>
-
-<p>move.</p>
+<p>He could no longer take this battle lightly. He had already understood that Qingyi was an enemy capable of killing him with a single wrong move.</p>
 
 <p>Nirm closed his eyes and reached into the depths of his being.</p>
 
@@ -81,47 +75,33 @@ chapter = 405
 
 <p>He pointed his weapon at the approaching enemy and lunged. His blade tore through the air with terrifying speed, enveloped in a thick, thunderous veil.</p>
 
-<p>Below, Sofia covered her body and her daughter’s with a powerful green barrier, closing her eyes as the two techniques collided in the</p>
-
-<p>skies.</p>
+<p>Below, Sofia covered her body and her daughter’s with a powerful green barrier, closing her eyes as the two techniques collided in the skies.</p>
 
 <p>For a brief moment, there was silence.</p>
 
 <p>Then, the explosion came.</p>
 
-<p>Hundreds of meters were consumed by a sea of crimson flames and lightning. Dozens of kilometers were swept away by shock waves, and</p>
-
-<p>terrible tremors shook the entire capital.</p>
+<p>Hundreds of meters were consumed by a sea of crimson flames and lightning. Dozens of kilometers were swept away by shock waves, and terrible tremors shook the entire capital.</p>
 
 <p>“I-impossible…”</p>
 
 <p>Nirm’s voice echoed, weak and trembling.</p>
 
-<p>The flames and lightning surrounding them slowly disappeared, leaving nothing but a hot black mist, which was soon dispersed by the</p>
+<p>The flames and lightning surrounding them slowly disappeared, leaving nothing but a hot black mist, which was soon dispersed by the wind.</p>
 
-<p>wind.</p>
-
-<p>The melted tip of Nirm’s sword fell to the ground. He looked down, seeing Qingyi’s blade piercing his chest and destroying his mana</p>
-
-<p>heart.</p>
+<p>The melted tip of Nirm’s sword fell to the ground. He looked down, seeing Qingyi’s blade piercing his chest and destroying his mana heart.</p>
 
 <p>“Guhlk!”</p>
 
-<p>Blood rose in Nirm’s throat as Qingyi pulled out the Heaven-Defying Thunder Sword, wiping the blood from the metal with a quick,</p>
-
-<p>smooth slashing motion.</p>
+<p>Blood rose in Nirm’s throat as Qingyi pulled out the Heaven-Defying Thunder Sword, wiping the blood from the metal with a quick, smooth slashing motion.</p>
 
 <p>“L-Lord Belgarath will not forgive you, he-“</p>
 
-<p>Nirm’s words were suddenly cut off. Qingyi’s sword ripped through</p>
-
-<p>his throat, sending his head flying into the sky.</p>
+<p>Nirm’s words were suddenly cut off. Qingyi’s sword ripped through his throat, sending his head flying into the sky.</p>
 
 <p>Qingyi ignored the falling body, turning his gaze to the soldiers below.</p>
 
-<p>There were still about eight thousand rebels. Some were already</p>
-
-<p>beginning to retreat as they realized their leader was dead.</p>
+<p>There were still about eight thousand rebels. Some were already beginning to retreat as they realized their leader was dead.</p>
 
 <p>The handsome young man raised a single finger. Exactly one hundred ethereal, thunderous swords appeared around his body.</p>
 
@@ -131,32 +111,20 @@ chapter = 405
 
 <p>He had trained that technique extensively in the Mind World. Now, he barely needed to pay attention to use it, just spreading thin threads of Qi and cutting through everything he sensed in front of him.</p>
 
-<p>With a sigh, Qingyi descended from the skies, landing beside Sofia</p>
-
-<p>and Isabel.</p>
+<p>With a sigh, Qingyi descended from the skies, landing beside Sofia and Isabel.</p>
 
 <p>The queen was trembling, while Isabel’s eyes shone brightly.</p>
 
-<p>“Oh… did you see that, mom? Isn’t my hubby amazing? That damn Belcuckold won’t stand a chance against him! Hehehe~~”</p>
+<p>“Oh… did you see that, mom? Isn’t my hubby amazing? That damn Belcuckold won’t stand a chance against him! Hehehe~~” Isabel giggled, her huge breasts bouncing as she ran towards Qingyi, hugging him tightly.</p>
 
-<p>Isabel giggled, her huge breasts bouncing as she ran towards Qingyi, hugging him tightly.</p>
+<p>Qingyi just smiled and shook his head. He looked at Sofia, bowing gently.</p>
 
-<p>Qingyi just smiled and shook his head. He looked at Sofia, bowing</p>
-
-<p>gently.</p>
-
-<p>“Long Qingyi greets his mother-in-law. I apologize for having to meet</p>
-
-<p>in such a sudden and inappropriate manner…”</p>
+<p>“Long Qingyi greets his mother-in-law. I apologize for having to meet in such a sudden and inappropriate manner…”</p>
 
 <p>“D-don’t worry,” Sofia said, her voice trembling. She looked at her men, strengthening her own heart.</p>
 
-<p>“Open the castle gates and clean up the trash left in the city! Our</p>
-
-<p>savior should not feel unwelcome!”</p>
+<p>“Open the castle gates and clean up the trash left in the city! Our savior should not feel unwelcome!”</p>
 
 <p>Her family was not finished. Not yet…</p>
 
-<p>Whether Qingyi was good for her daughter or not, she would soon</p>
-
-<p>find out.</p>
+<p>Whether Qingyi was good for her daughter or not, she would soon find out.</p>

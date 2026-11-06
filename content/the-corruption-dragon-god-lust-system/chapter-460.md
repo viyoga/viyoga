@@ -5,13 +5,9 @@ weight = 460
 chapter = 460
 +++
 
-<p>To Qingyi’s right was Sapphire. Her long blue hair spread across her shoulders and his thighs, while her tongue ran along the sides of</p>
+<p>To Qingyi’s right was Sapphire. Her long blue hair spread across her shoulders and his thighs, while her tongue ran along the sides of Qingyi’s huge, throbbing cock.</p>
 
-<p>Qingyi’s huge, throbbing cock.</p>
-
-<p>To his left was Aeryn. Her golden hair, always neatly combed, was now messy, and from her cheeks to her ears, her pale, milky skin was flushed red, while her full, soft, wet lips followed Sapphire’s</p>
-
-<p>movements.</p>
+<p>To his left was Aeryn. Her golden hair, always neatly combed, was now messy, and from her cheeks to her ears, her pale, milky skin was flushed red, while her full, soft, wet lips followed Sapphire’s movements.</p>
 
 <p>And in the center, of course, was Celestia. Her mouth remained busy with the parts not covered by the other two beauties, her cheeks sinking slightly from the force of suction.</p>
 
@@ -29,9 +25,7 @@ chapter = 460
 
 <p>“Oh… Aeryn wants to!” Sapphire replied, raising her hand. She was excited to see that elf choking on Qingyi’s cock.</p>
 
-<p>“You…” Aeryn’s eyes rose to Sapphire’s, with more irritation than</p>
-
-<p>anger. “Annoying little thing-“</p>
+<p>“You…” Aeryn’s eyes rose to Sapphire’s, with more irritation than anger. “Annoying little thing-“</p>
 
 <p>Before she could even finish her sentence, Aeryn had already been pulled by Celestia and placed in front of Qingyi’s cock.</p>
 
@@ -57,11 +51,7 @@ chapter = 460
 
 <p>The second gulp followed soon after, when she finally pulled back.</p>
 
-<p>With the three lined up in front of him, Qingyi continued to cum. One spurt of cum hit Aeryn’s face, a second hit the valley between</p>
-
-<p>Celestia’s breasts, and the last one fell on Sapphire’s open mouth,</p>
-
-<p>which she swallowed voraciously.</p>
+<p>With the three lined up in front of him, Qingyi continued to cum. One spurt of cum hit Aeryn’s face, a second hit the valley between Celestia’s breasts, and the last one fell on Sapphire’s open mouth, which she swallowed voraciously.</p>
 
 <p>The three stood there for a brief moment, breathing heavily, Qingyi’s hot, sticky cum dripping down their voluptuous bodies.</p>
 
@@ -73,9 +63,7 @@ chapter = 460
 
 <p>“Of course he will!” Celestia exclaimed, puffing out her chest, the huge snowy peaks hitting Aeryn’s firm, round breasts. “Hubby is Auranys’ chosen hero, he would never run away from any responsibility! You’ll see when he takes you to meet the other sisters!</p>
 
-<p>The other two didn’t even pay attention to the part where Celestia</p>
-
-<p>called Qingyi the chosen hero, focusing more on the last part.</p>
+<p>The other two didn’t even pay attention to the part where Celestia called Qingyi the chosen hero, focusing more on the last part.</p>
 
 <p>“Other sisters?… How many, exactly?”</p>
 
@@ -83,9 +71,7 @@ chapter = 460
 
 <p>This wasn’t the first time he had been asked this question. And well, considering he already had almost forty wives, he would probably still have to answer it many times.</p>
 
-<p>“Let’s take a shower first, okay? Then we can talk about these things,”</p>
-
-<p>Qingyi said, getting up.</p>
+<p>“Let’s take a shower first, okay? Then we can talk about these things,” Qingyi said, getting up.</p>
 
 <p>The girls, covered in his cum, didn’t take long to accept this offer.</p>
 
@@ -99,9 +85,7 @@ chapter = 460
 
 <p>“What is this place? How can this exist inside your sword?” Sapphire asked, looking around at the huge temple and the endless forests and grasslands stretching out before them.</p>
 
-<p>“So much vitality…” Aeryn crouched down beside her, touching the</p>
-
-<p>grass.</p>
+<p>“So much vitality…” Aeryn crouched down beside her, touching the grass.</p>
 
 <p>Even compared to the elven forests, this place was absurd.</p>
 
@@ -119,8 +103,6 @@ chapter = 460
 
 <p>Aeryn just looked at the architecture with interest, while Sapphire stopped right after the first step.</p>
 
-<p>On the horizon, lying on the mighty roof of the temple’s main palace,</p>
-
-<p>was a huge beast.</p>
+<p>On the horizon, lying on the mighty roof of the temple’s main palace, was a huge beast.</p>
 
 <p>Sapphire’s blood ran cold and her throat went dry, her eyes unable to believe what she was seeing.</p>

@@ -29,9 +29,7 @@ chapter = 512
 
 <p>“Uh? What do you hate so much here? It seems like a nice place!” Qingyi smiled, pulling Ruxue into a hug and giving her butt a gentle pat.</p>
 
-<p>Ruxue’s lips parted for a moment before closing, giving Qingyi no</p>
-
-<p>answer.</p>
+<p>Ruxue’s lips parted for a moment before closing, giving Qingyi no answer.</p>
 
 <p>“It’s just… a rotten place,” she replied, blushing deeply.</p>
 
@@ -53,9 +51,7 @@ chapter = 512
 
 <p>“What? It’s true… Meilin blushed, rolling her eyes.</p>
 
-<p>“Nothing, it’s just rare to hear you use such language. She really</p>
-
-<p>mustn’t be worth the air she wastes.”</p>
+<p>“Nothing, it’s just rare to hear you use such language. She really mustn’t be worth the air she wastes.”</p>
 
 <p>“Hm… she’s not.” Meilin shook her head, feeling the ground beneath her feet shake.</p>
 
@@ -79,9 +75,7 @@ chapter = 512
 
 <p>That man was, without a doubt, an unparalleled expert!</p>
 
-<p>Even though it wasn’t that rare to see them from afar, when they</p>
-
-<p>sprang into action, it was always breathtaking.</p>
+<p>Even though it wasn’t that rare to see them from afar, when they sprang into action, it was always breathtaking.</p>
 
 <p>Qingyi didn’t think much about what those port officials thought, just walking peacefully through the wide streets of the capital’s main port. “Uh… why is everything here so megalomaniacal?” He wondered, gritting his teeth.</p>
 
@@ -89,15 +83,11 @@ chapter = 512
 
 <p>The same was true for every building, every house.</p>
 
-<p>They seemed to be made to shelter giants, not ordinary people. Obviously, this changed in the poorer regions, but even so, it was hell</p>
-
-<p>to find.</p>
+<p>They seemed to be made to shelter giants, not ordinary people. Obviously, this changed in the poorer regions, but even so, it was hell to find.</p>
 
 <p>Keeping a brisk pace, Qingyi walked through the crowds.</p>
 
-<p>His long black horns and transcendental beauty naturally attracted the attention of the population, which consisted mainly of ordinary</p>
-
-<p>humans.</p>
+<p>His long black horns and transcendental beauty naturally attracted the attention of the population, which consisted mainly of ordinary humans.</p>
 
 <p>[Just keep heading towards the center, the founding branch and father’s residence is near the Imperial Palace.] Meilin’s voice echoed in Qingyi’s mind, who nodded silently, quickening his pace.</p>
 
@@ -107,9 +97,7 @@ chapter = 512
 
 <p>Even Qingyi couldn’t help but be a little impressed by such beauty, despite, of course, how far away it was.</p>
 
-<p>It took him almost two hours of walking to get there from the docks, passing by powerful experts and ordinary mortals, all walking side by</p>
-
-<p>side.</p>
+<p>It took him almost two hours of walking to get there from the docks, passing by powerful experts and ordinary mortals, all walking side by side.</p>
 
 <p>Fortunately, he was soon able to see the second largest building in the Enlightened Imperial Capital, only slightly smaller than the Imperial</p>
 
@@ -119,6 +107,4 @@ chapter = 512
 
 <p>“Oh… Is there a line?” Qingyi whispered, approaching the founding branch of the Five-Colored Pavilion.</p>
 
-<p>Without a hint of concern or embarrassment, he simply walked to the</p>
-
-<p>front of the line.</p>
+<p>Without a hint of concern or embarrassment, he simply walked to the front of the line.</p>

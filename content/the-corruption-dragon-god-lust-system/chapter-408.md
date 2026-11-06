@@ -109,25 +109,17 @@ chapter = 408
 
 <p>Honestly, Qingyi himself was surprised by this.</p>
 
-<p>He didn’t care much for the idea of commanding an army and was already planning to get rid of all those who threatened his</p>
-
-<p>father-in-law and mother-in-law, so he didn’t care much about any of</p>
-
-<p>it.</p>
+<p>He didn’t care much for the idea of commanding an army and was already planning to get rid of all those who threatened his father-in-law and mother-in-law, so he didn’t care much about any of it.</p>
 
 <p>It was just that, as many of those nobles said, Qingyi had no knowledge of the geography of that place, possessing only a small amount of knowledge of military strategy.</p>
 
-<p>But deep down, Qingyi understood what David Valemont wanted to</p>
-
-<p>do.</p>
+<p>But deep down, Qingyi understood what David Valemont wanted to do.</p>
 
 <p>The King himself should be the one to take control of his army, either him or his heir, who was now studying in the Rose Empire.</p>
 
 <p>Unfortunately, David was still too weak and would need at least a few months to recover, while his son would never arrive in time.</p>
 
-<p>Among all those corrupt nobles, none had the strength to guarantee</p>
-
-<p>victory.</p>
+<p>Among all those corrupt nobles, none had the strength to guarantee victory.</p>
 
 <p>Qingyi, on the other hand, was a talented young man.</p>
 

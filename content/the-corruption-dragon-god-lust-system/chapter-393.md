@@ -75,35 +75,23 @@ chapter = 393
 
 <p>“Gulp… gulp…</p>
 
-<p>Qingxue swallowed two fat gushes of cum before pulling back, giving Qianyao room to take Qingyi’s cock in her lips, her delicate throat</p>
-
-<p>working incessantly.</p>
+<p>Qingxue swallowed two fat gushes of cum before pulling back, giving Qianyao room to take Qingyi’s cock in her lips, her delicate throat working incessantly.</p>
 
 <p>They didn’t waste a single drop.</p>
 
-<p>Unfortunately, nothing lasted forever and right after lunch, Qingyi</p>
-
-<p>had to leave the world of the mind.</p>
+<p>Unfortunately, nothing lasted forever and right after lunch, Qingyi had to leave the world of the mind.</p>
 
 <p>The flying ship was about to land.</p>
 
 <p>In the bedroom, Qianyao quickly grabbed her clothes to get dressed, but one piece accidentally fell to the floor.</p>
 
-<p>She bent down to pick it up, curved her spine and, without realizing it, raised her butt, her pale cheeks forming the perfect outline of a</p>
+<p>She bent down to pick it up, curved her spine and, without realizing it, raised her butt, her pale cheeks forming the perfect outline of a heart.</p>
 
-<p>heart.</p>
-
-<p>Qingyi, naturally, couldn’t miss the opportunity to slap that full, voluptuous and shapely ass, His hand meeting the pale skin with a</p>
-
-<p>loud, wet slap.</p>
+<p>Qingyi, naturally, couldn’t miss the opportunity to slap that full, voluptuous and shapely ass, His hand meeting the pale skin with a loud, wet slap.</p>
 
 <p>“Nghnn~~ you… shameless little husband…” Qianyao moaned as she stood up, her ass cheeks jiggling like jelly, the shockwave from Qingyi’s slap traveling through her voluptuous flesh.</p>
 
-<p>“Come on, your father must be waiting for us…” Qingyi smiled, giving</p>
-
-<p>her huge tits a final squeeze before walking away, watching her finish</p>
-
-<p>changing.</p>
+<p>“Come on, your father must be waiting for us…” Qingyi smiled, giving her huge tits a final squeeze before walking away, watching her finish changing.</p>
 
 <p>He’d be lying if he said he wasn’t anxious, but what could he do?</p>
 
@@ -111,23 +99,17 @@ chapter = 393
 
 <p>Of course, Qingyi wasn’t going in blind.</p>
 
-<p>He already had two items marked down in the system store: one for breaking spatial blockages and the other, an instant teleportation</p>
-
-<p>talisman.</p>
+<p>He already had two items marked down in the system store: one for breaking spatial blockages and the other, an instant teleportation talisman.</p>
 
 <p>They were expensive, but it was the bare minimum needed to escape from an astral body realm cultivator.</p>
 
-<p>As soon as Qianyao had dressed, they left the room, being respectfully greeted by the golden-eyed beauty’s two guards. The elder had left the flying ship as soon as they touched the ground,</p>
-
-<p>flying straight to the palace of the patriarch of the dragon people.</p>
+<p>As soon as Qianyao had dressed, they left the room, being respectfully greeted by the golden-eyed beauty’s two guards. The elder had left the flying ship as soon as they touched the ground, flying straight to the palace of the patriarch of the dragon people.</p>
 
 <p>Qingyi knew full well what he was planning, but he didn’t care.</p>
 
 <p>When he left the ship, he was soon met by an entourage from the cat people, sent to take him and Linyue back, but Qingyi had to ask them to delay the trip a little.</p>
 
-<p>With firm steps, he walked towards the palace, sensing Qianyao’s</p>
-
-<p>nervousness.</p>
+<p>With firm steps, he walked towards the palace, sensing Qianyao’s nervousness.</p>
 
 <p>It was obvious that she was still anxious, even though she believed with all her might that her father would not harm Qingyi.</p>
 
@@ -135,8 +117,6 @@ chapter = 393
 
 <p>Soon, Qingyi found himself climbing the huge staircase and entering the large central double doors of the golden palace.</p>
 
-<p>The moment he reached the throne room, he heard that old, irritating</p>
-
-<p>voice.</p>
+<p>The moment he reached the throne room, he heard that old, irritating voice.</p>
 
 <p>“There he is, patriarch! This damned brat is a danger to our noble young lady Qianyao! He’s stolen her purity and he won’t stop there!” The elder roared, pointing a finger in Qingyi’s direction.</p>

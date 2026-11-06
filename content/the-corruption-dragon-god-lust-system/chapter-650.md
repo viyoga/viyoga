@@ -75,9 +75,7 @@ chapter = 650
 
 <p>It took just a drop, and Longwei’s mental defenses collapsed, his face filling with terror.</p>
 
-<p>He had been unable to break through Qingyi’s mental defenses, and</p>
-
-<p>his technique had ricocheted off them.</p>
+<p>He had been unable to break through Qingyi’s mental defenses, and his technique had ricocheted off them.</p>
 
 <p>So confident was he that Qingyi would break easily that Longwei neither defended himself nor resisted, landing on his butt on the ground with a thud.</p>
 
@@ -91,33 +89,21 @@ chapter = 650
 
 <p>His eyes widened, and he moved his Qi, pushing the stench away from himself and Rou’er, whose face twisted in revulsion. “Ugh… it seems the mighty noble Guo Longwei is, in fact, Shit-Pants Longwei!” she exclaimed, avoiding looking at the disgusting stain on the young man’s pants.</p>
 
-<p>Even the young monk, who had rushed to Longwei’s aid, stopped short and quickly retreated to his master’s side, staring at the</p>
-
-<p>challenger with disgust on his face.</p>
+<p>Even the young monk, who had rushed to Longwei’s aid, stopped short and quickly retreated to his master’s side, staring at the challenger with disgust on his face.</p>
 
 <p>Cultivators didn’t need to defecate or urinate.</p>
 
-<p>From the Foundation Establishment realm onward, they had complete</p>
+<p>From the Foundation Establishment realm onward, they had complete control over such matters, absorbing one hundred percent of everything they ate and converting it into Qi.</p>
 
-<p>control over such matters, absorbing one hundred percent of</p>
-
-<p>everything they ate and converting it into Qi.</p>
-
-<p>It was a basic rule, the reason why cultivators’ bathrooms only had</p>
-
-<p>places for bathing, and not for other needs.</p>
+<p>It was a basic rule, the reason why cultivators’ bathrooms only had places for bathing, and not for other needs.</p>
 
 <p>It was unnecessary.</p>
 
-<p>Yet, Longwei had shit his pants upon failing to break through Qingyi’s</p>
-
-<p>defenses.</p>
+<p>Yet, Longwei had shit his pants upon failing to break through Qingyi’s defenses.</p>
 
 <p>How pathetic was that? Even if he failed, Longwei should have been able to defend himself against the ricochet of his own ability.</p>
 
-<p>Even the least talented disciples could manage such a feat. Longwei remained on the ground for a brief moment, his eyes filled</p>
-
-<p>with fury and his face red as embers.</p>
+<p>Even the least talented disciples could manage such a feat. Longwei remained on the ground for a brief moment, his eyes filled with fury and his face red as embers.</p>
 
 <p>“Y-you bastard! You’ll pay for this!” Longwei finally roared, shooting up into the sky at breakneck speed.</p>
 
@@ -125,10 +111,6 @@ chapter = 650
 
 <p>The elder of the Cosmic Void Sect burned with shame, while the others tried to avoid bringing up the subject.</p>
 
-<p>Of course, many people had witnessed the scene, and Rou’er couldn’t</p>
+<p>Of course, many people had witnessed the scene, and Rou’er couldn’t help but shout out the name “Longwei the pants-shitter.</p>
 
-<p>help but shout out the name “Longwei the pants-shitter.</p>
-
-<p>It wouldn’t be long before his honorable title spread throughout all</p>
-
-<p>the major sects in that region. Truly, a title worthy of him.</p>
+<p>It wouldn’t be long before his honorable title spread throughout all the major sects in that region. Truly, a title worthy of him.</p>

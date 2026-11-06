@@ -89,41 +89,27 @@ chapter = 390
 
 <p>It was warm, thick and rich in Qi. Tasteless, but with a strangely pleasant texture, contrasting softly with the sweet taste of the matriarch’s plump, rosy lips.</p>
 
-<p>It obviously wasn’t a kiss of desire, but Qingyi didn’t care and didn’t</p>
-
-<p>waste the chance.</p>
+<p>It obviously wasn’t a kiss of desire, but Qingyi didn’t care and didn’t waste the chance.</p>
 
 <p>His hands instinctively moved upwards, reaching for those huge mountains of pale, soft flesh, grasping their exposed tops.</p>
 
-<p>His hands sank into a sea of endless softness, his fingers running</p>
+<p>His hands sank into a sea of endless softness, his fingers running down the pale, smooth, creamy skin, without a single flaw, feeling the squishy flesh spill between his fingers.</p>
 
-<p>down the pale, smooth, creamy skin, without a single flaw, feeling the squishy flesh spill between his fingers.</p>
+<p>At that moment, Lingxue finally pulled back, hearing Xueyao’s excited, high-pitched voice.</p>
 
-<p>At that moment, Lingxue finally pulled back, hearing Xueyao’s excited,</p>
-
-<p>high-pitched voice.</p>
-
-<p>“Oh… the matriarch is going to be hubby’s wife too? That’s even better! Then we won’t have to worry about being separated ever</p>
-
-<p>again!”</p>
+<p>“Oh… the matriarch is going to be hubby’s wife too? That’s even better! Then we won’t have to worry about being separated ever again!”</p>
 
 <p>Lingxue couldn’t help blushing when she heard that, realizing what she had just done.</p>
 
-<p>She had only wanted to give Qingyi a present, one of the most precious possessions she had, in the quickest way she knew how to</p>
-
-<p>pass it on.</p>
+<p>She had only wanted to give Qingyi a present, one of the most precious possessions she had, in the quickest way she knew how to pass it on.</p>
 
 <p>But now, after two hundred and twenty thousand years of guarding herself, she had ‘accidentally’ given him her first kiss.</p>
 
-<p>Her thoughts were so clouded that she barely processed Qingyi’s grip</p>
-
-<p>on her breasts.</p>
+<p>Her thoughts were so clouded that she barely processed Qingyi’s grip on her breasts.</p>
 
 <p>‘Nghnn~~… my mind isn’t right… Lingxue repeated to herself, feeling a strange heat coursing through her private parts.</p>
 
-<p>How on earth had she let herself become so vulnerable in front of a</p>
-
-<p>junior?</p>
+<p>How on earth had she let herself become so vulnerable in front of a junior?</p>
 
 <p>Lingxue had no face to answer Xueyao. She simply waved goodbye to the young couple before sighing in defeat.</p>
 
@@ -131,16 +117,10 @@ chapter = 390
 
 <p>Her enormous breasts rippled like a stormy ocean as she threw herself onto the wooden seat.</p>
 
-<p>“Please… just protect my little Xue, don’t come back for me, nor for</p>
-
-<p>the fox people, only she matters, nothing else. If they find out she’s here again…”</p>
+<p>“Please… just protect my little Xue, don’t come back for me, nor for the fox people, only she matters, nothing else. If they find out she’s here again…”</p>
 
 <p>Lingxue gritted her teeth, remembering that dark night when they were attacked.</p>
 
 <p>How dare they want to sacrifice her dear little Xue?</p>
 
-<p>If the lives of all the fox people weren’t on her back, Lingxue would</p>
-
-<p>have already gone and killed every last one of them. Unfortunately, for the time being at least, she was totally trapped</p>
-
-<p>there</p>
+<p>If the lives of all the fox people weren’t on her back, Lingxue would have already gone and killed every last one of them. Unfortunately, for the time being at least, she was totally trapped there</p>

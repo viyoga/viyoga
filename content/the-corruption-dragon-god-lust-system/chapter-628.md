@@ -27,9 +27,7 @@ chapter = 628
 
 <p>Her purple lips curved into a subtle smile as her eyes drifted toward the items scattered across the floor.</p>
 
-<p>“Shouldn’t you ask Meilin that? She’s the one good with business,” Ruxue said, turning her beautiful face toward him and settling onto his lap. “I’ve never been very interested in this human business of</p>
-
-<p>monetary exchanges.”</p>
+<p>“Shouldn’t you ask Meilin that? She’s the one good with business,” Ruxue said, turning her beautiful face toward him and settling onto his lap. “I’ve never been very interested in this human business of monetary exchanges.”</p>
 
 <p>“Meilin is good with business, but she knows nothing of the Celestial Heaven,” Qingyi sighed, pulling Ruxue closer and resting his hands on her buttocks.</p>
 
@@ -57,15 +55,11 @@ chapter = 628
 
 <p>&amp;&amp;&amp;</p>
 
-<p>While Qingyi threw himself into the arms of his wives, the main palace, the sect leader’s residence of unparalleled size and luxury,</p>
-
-<p>was calm.</p>
+<p>While Qingyi threw himself into the arms of his wives, the main palace, the sect leader’s residence of unparalleled size and luxury, was calm.</p>
 
 <p>Though it would not remain that way for long.</p>
 
-<p>With over twenty thousand guards, all above the Celestial Core Realm and many at the First Step of the Path of Extinction Realm, it was a</p>
-
-<p>true fortress.</p>
+<p>With over twenty thousand guards, all above the Celestial Core Realm and many at the First Step of the Path of Extinction Realm, it was a true fortress.</p>
 
 <p>This was especially true because of the sect leader himself, who stood at the pinnacle of the Star Sovereign Realm.</p>
 
@@ -81,9 +75,7 @@ chapter = 628
 
 <p>Her sweet humming drifted through the corridor as she walked, her steps quick and lively.</p>
 
-<p>When she finally came to a massive pair of black steel doors, she</p>
-
-<p>stopped.</p>
+<p>When she finally came to a massive pair of black steel doors, she stopped.</p>
 
 <p>Over twenty meters tall and one meter thick, each door weighed more than a hundred tons. Powerful spiritual arrays ran along their entire length, capable of stopping even Stellar Sovereigns.</p>
 
@@ -97,68 +89,36 @@ chapter = 628
 
 <p>Qi in her surroundings.</p>
 
-<p>Many said she even had the ability to control the Qi within a cultivator’s body. Some rumors even claimed that once, in tears, she</p>
+<p>Many said she even had the ability to control the Qi within a cultivator’s body. Some rumors even claimed that once, in tears, she had caused an assassin at the Sixth Stage of the First Step of the Path of Extinction Realm to explode with nothing more than a scream. Obviously, those were considered nothing but ridiculous rumors. Taking control of the Qi within another cultivator’s body… that wasn’t possible. It simply couldn’t be, not at such a low cultivation level. Even a billion of her wouldn’t be enough to defeat someone at the First Step of the Path of Extinction realm.</p>
 
-<p>had caused an assassin at the Sixth Stage of the First Step of the Path of Extinction Realm to explode with nothing more than a scream. Obviously, those were considered nothing but ridiculous rumors. Taking control of the Qi within another cultivator’s body… that wasn’t possible. It simply couldn’t be, not at such a low cultivation level. Even a billion of her wouldn’t be enough to defeat someone at the First Step of the Path of Extinction realm.</p>
+<p>As soon as Rou’er stepped into the palace’s main hall, where the sect leader’s throne stood and the most powerful figures in the world were gathered, every eye turned to her.</p>
 
-<p>As soon as Rou’er stepped into the palace’s main hall, where the sect</p>
+<p>The nine pavilion leaders were present, totaling ten Stellar Sovereigns if her adoptive father were counted, clearly in the midst of an important meeting.</p>
 
-<p>leader’s throne stood and the most powerful figures in the world</p>
+<p>Normally, such an interruption would be severely punished, but not a single one of those Stellar Sovereigns looked at Rou’er with even a hint of irritation.</p>
 
-<p>were gathered, every eye turned to her.</p>
+<p>How could they show irritation toward their sweet, adorable princess?</p>
 
-<p>The nine pavilion leaders were present, totaling ten Stellar Sovereigns</p>
+<p>Among them, standing at the center, was Guo Tianhao. His expression had been sour and impatient, but it softened the instant his eyes landed on Rou’er.</p>
 
-<p>if her adoptive father were counted, clearly in the midst of an</p>
-
-<p>important meeting.</p>
-
-<p>Normally, such an interruption would be severely punished, but not a</p>
-
-<p>single one of those Stellar Sovereigns looked at Rou’er with even a</p>
-
-<p>hint of irritation.</p>
-
-<p>How could they show irritation toward their sweet, adorable</p>
-
-<p>princess?</p>
-
-<p>Among them, standing at the center, was Guo Tianhao. His expression</p>
-
-<p>had been sour and impatient, but it softened the instant his eyes</p>
-
-<p>landed on Rou’er.</p>
-
-<p>They shone with such intensity that they almost seemed capable of</p>
-
-<p>piercing the mist concealing her appearance.</p>
+<p>They shone with such intensity that they almost seemed capable of piercing the mist concealing her appearance.</p>
 
 <p>Almos</p>
 
-<p>Rou’er simply ignored him, moving past and stopping beside Rouxi</p>
+<p>Rou’er simply ignored him, moving past and stopping beside Rouxi with a triumphant little smile.</p>
 
-<p>with a triumphant little smile.</p>
+<p>“What’s wrong, dear?” Rouxi asked, her own smile warm and subtle as she drew Rou’er into her arms.</p>
 
-<p>“What’s wrong, dear?” Rouxi asked, her own smile warm and subtle as</p>
-
-<p>she drew Rou’er into her arms.</p>
-
-<p>As the only woman among the sect’s Stellar Sovereigns, she had</p>
-
-<p>always shared the closest relationship with Rou’er, who almost never approached men.</p>
+<p>As the only woman among the sect’s Stellar Sovereigns, she had always shared the closest relationship with Rou’er, who almost never approached men.</p>
 
 <p>The pink-haired beauty returned the embrace with a gentle smile.</p>
 
-<p>She already knew that Qingyi had plans to try to become Rouxi’s</p>
-
-<p>adopted son. As his Young Miss, she should put in a good word for him, shouldn’t she?</p>
+<p>She already knew that Qingyi had plans to try to become Rouxi’s adopted son. As his Young Miss, she should put in a good word for him, shouldn’t she?</p>
 
 <p>Unfortunately, before she could even open her mouth, Tianhao was already speaking.</p>
 
 <p>“It’s good that you’re here, Young Lady! I’m here to object to your choice regarding Long Qingyi. You don’t even know him and-” “Can you please shut up? Your voice isn’t as pleasant as Big Brother Qingyi’s, so I don’t want to hear it.”</p>
 
-<p>Rou’er’s words rang through the hall, drawing startled glances from</p>
-
-<p>everyone present and wiping the confident expression clean off Tianhao’s face.</p>
+<p>Rou’er’s words rang through the hall, drawing startled glances from everyone present and wiping the confident expression clean off Tianhao’s face.</p>
 
 <p>None of them had ever heard Rou’er speak with such coldness.</p>

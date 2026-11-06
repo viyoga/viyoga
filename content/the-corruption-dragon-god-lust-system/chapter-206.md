@@ -79,9 +79,7 @@ chapter = 206
 
 <p>“Fuck them, bring me that woman, do what’s necessary. Kidnap her, drug her, whatever, I want to see her here, sucking my cock!” The patriarch stood up, grabbed a bottle of liquor and drank it in a single gulp.</p>
 
-<p>He was about to go to his chambers when his whole body froze,</p>
-
-<p>He turned around quickly, a sword appearing in his hands.</p>
+<p>He was about to go to his chambers when his whole body froze, He turned around quickly, a sword appearing in his hands.</p>
 
 <p>In the next moment, the entire palace shattered as a thunderous slash tore through the wood and destroyed the protective formations.</p>
 

@@ -31,9 +31,7 @@ chapter = 450
 
 <p>“Shouldn’t you be sharing me with your other sisters?”</p>
 
-<p>“Yeah, nghnn~~ but not now…” Feiyan leaned over Qingyi and pulled a</p>
-
-<p>lever on the side of the armchair; the backrest quickly lowered.</p>
+<p>“Yeah, nghnn~~ but not now…” Feiyan leaned over Qingyi and pulled a lever on the side of the armchair; the backrest quickly lowered.</p>
 
 <p>“I need to punish a very… very… naughty hubby…” Feiyan lifted her hips, pulling down Qingyi’s pants.</p>
 
@@ -53,9 +51,7 @@ chapter = 450
 
 <p>“Nghnn~~f-fuck!</p>
 
-<p>Aghnn~~ heavens…” Feiyan’s eyes widened as Qingyi’s cock pushed its way through her pussy, stopping only when it hit the walls of her</p>
-
-<p>womb.</p>
+<p>Aghnn~~ heavens…” Feiyan’s eyes widened as Qingyi’s cock pushed its way through her pussy, stopping only when it hit the walls of her womb.</p>
 
 <p>She shuddered, her body briefly losing strength, her right hand flowing to her slim belly.</p>
 
@@ -65,19 +61,13 @@ chapter = 450
 
 <p>“Oghnn~~ hubby’s delay in coming to see us made me so tight… fufufu~~” She purred sensually, her hands flowing to her own breasts and squeezing them hard.</p>
 
-<p>“Ah… if that’s the case, I might end up taking even longer next time.” Qingyi grabbed Feiyan’s hips and turned her around, changing</p>
-
-<p>positions.</p>
+<p>“Ah… if that’s the case, I might end up taking even longer next time.” Qingyi grabbed Feiyan’s hips and turned her around, changing positions.</p>
 
 <p>Her delicate back hit the soft padding of the armchair. Her legs, raised, rested on Qingyi’s shoulders.</p>
 
-<p>He leaned over her, his cock still sunk to the hilt in that wet and tight</p>
+<p>He leaned over her, his cock still sunk to the hilt in that wet and tight pussy.</p>
 
-<p>pussy.</p>
-
-<p>He tested the flexibility of her body; with her legs pressed against his torso, his cock seemed to penetrate her even deeper, gaining another</p>
-
-<p>centimeter.</p>
+<p>He tested the flexibility of her body; with her legs pressed against his torso, his cock seemed to penetrate her even deeper, gaining another centimeter.</p>
 
 <p>Her knees reached her breasts and she smiled, the position causing her no discomfort.</p>
 
@@ -93,25 +83,15 @@ chapter = 450
 
 <p>Qingyi paused for a brief moment. He felt the tight, wet vaginal walls writhe around his cock, trying to extract every drop of his seed.</p>
 
-<p>He gave Feiyan a single second before pulling back and thrusting</p>
+<p>He gave Feiyan a single second before pulling back and thrusting again.</p>
 
-<p>again.</p>
-
-<p>His hips came into full contact with her ass. A loud, wet smack</p>
-
-<p>echoed, sending a powerful shockwave through her full, perfect ass</p>
-
-<p>cheeks.</p>
+<p>His hips came into full contact with her ass. A loud, wet smack echoed, sending a powerful shockwave through her full, perfect ass cheeks.</p>
 
 <p>This time, he didn’t even wait for a breath, his hips ricocheting off Feiyan’s buttocks and thrusting back in again.</p>
 
-<p>The bounce of those perfect tanned orbs of flesh became even more</p>
+<p>The bounce of those perfect tanned orbs of flesh became even more violent as Qingyi fucked her hard.</p>
 
-<p>violent as Qingyi fucked her hard.</p>
-
-<p>“Aghnn~~ heavens…. fuck… oh heavens…” Feiyan moaned. “F-faster, hubby… fuck this pussy faster! Punish it for being a fat, tight, naughty</p>
-
-<p>pussy!”</p>
+<p>“Aghnn~~ heavens…. fuck… oh heavens…” Feiyan moaned. “F-faster, hubby… fuck this pussy faster! Punish it for being a fat, tight, naughty pussy!”</p>
 
 <p>Qingyi, naturally, obeyed.</p>
 
@@ -119,15 +99,11 @@ chapter = 450
 
 <p>She was a single moment away from orgasm.</p>
 
-<p>Qingyi pulled his hips back quickly, inhaling heavily before pushing</p>
-
-<p>them forward.</p>
+<p>Qingyi pulled his hips back quickly, inhaling heavily before pushing them forward.</p>
 
 <p>The armchair shook and Feiyan’s lips parted in a moan that spread throughout the temple. Her pussy squirted nonstop around Qingyi’s cock, which soon reached its limit as well.</p>
 
-<p>Spurt after spurt, he released his cum into Feiyan’s womb, filling her</p>
-
-<p>until the thick, powerful cumshots had nowhere else to go, leaking out from the connection between their bodies.</p>
+<p>Spurt after spurt, he released his cum into Feiyan’s womb, filling her until the thick, powerful cumshots had nowhere else to go, leaking out from the connection between their bodies.</p>
 
 <p>“Ah… let’s go see your sisters now, they must be almost done with dinner…” Qingyi smiled, depositing a soft kiss on Feiyan’s lips. His cock slipped out of her pussy with a wet pop, making way for his cum to leak out nonstop.</p>
 

@@ -51,9 +51,7 @@ chapter = 443
 
 <p>“If I told you that I’m a sinful black dragon, sent to punish sinful pussies… would you believe me?”</p>
 
-<p>He spoke, his voice interrupted by a loud smack and an obscene moan</p>
-
-<p>as Celestia’s fat, shapely ass cheeks hit his thighs once more.</p>
+<p>He spoke, his voice interrupted by a loud smack and an obscene moan as Celestia’s fat, shapely ass cheeks hit his thighs once more.</p>
 
 <p>“No… because hubby is the chosen hero… the chosen hero would never be a sinner…” Celestia shook her head, clinging to Qingyi’s shoulders a little more tightly.</p>
 
@@ -61,27 +59,17 @@ chapter = 443
 
 <p>“Hubby isn’t Lucien…”</p>
 
-<p>The last sentence drew a laugh from Qingyi, his face full of</p>
+<p>The last sentence drew a laugh from Qingyi, his face full of amusement.</p>
 
-<p>amusement.</p>
+<p>“Good girl… Yes, I am not a sinful black dragon, I am a man whose main goal in life is to make his wives the happiest women in the world and, one day, ascend to the absolute top.”</p>
 
-<p>“Good girl… Yes, I am not a sinful black dragon, I am a man whose main goal in life is to make his wives the happiest women in the world</p>
+<p>Without even giving Celestia time to respond, he held her a little more firmly, planting his feet on the ground before suddenly increasing his speed.</p>
 
-<p>and, one day, ascend to the absolute top.”</p>
-
-<p>Without even giving Celestia time to respond, he held her a little more firmly, planting his feet on the ground before suddenly</p>
-
-<p>increasing his speed.</p>
-
-<p>Celestia’s words were cut off mid-sentence, her entire body bouncing</p>
-
-<p>as Qingyi thrust into her with force and intensity.</p>
+<p>Celestia’s words were cut off mid-sentence, her entire body bouncing as Qingyi thrust into her with force and intensity.</p>
 
 <p>His thighs sank into the fat, perfect cheeks of her ass.</p>
 
-<p>Her breasts were thrown upward by the impact, bouncing back</p>
-
-<p>against her delicate torso.</p>
+<p>Her breasts were thrown upward by the impact, bouncing back against her delicate torso.</p>
 
 <p>The two pale twin mountains met with a loud, wet smack, a spurt of milk escaping from her baby pink nipples.</p>
 
@@ -89,64 +77,40 @@ chapter = 443
 
 <p>“H-hubby… please…” Celestia begged as Qingyi increased the speed with which he fucked her.</p>
 
-<p>Qingyi expected her to ask him to be gentler, but to his surprise, such</p>
+<p>Qingyi expected her to ask him to be gentler, but to his surprise, such a thought didn’t even cross the priestess’s mind.</p>
 
-<p>a thought didn’t even cross the priestess’s mind.</p>
+<p>“Fuck Celestia’s little pussy harder… nghnnn~~ faster..” Celestia begged.</p>
 
-<p>“Fuck Celestia’s little pussy harder… nghnnn~~ faster..” Celestia</p>
-
-<p>begged.</p>
-
-<p>Her breasts swayed uncontrollably and her buttocks hit his thighs</p>
-
-<p>with loud, resounding smacks.</p>
+<p>Her breasts swayed uncontrollably and her buttocks hit his thighs with loud, resounding smacks.</p>
 
 <p>Her soft flesh was taken by violent shockwaves, her round and vast cheeks suffering intense undulations, each moment of calm immediately erased by the next impact.</p>
 
-<p>Every part of her screamed with pleasure, her mind clouded by</p>
-
-<p>nothing but desire as she joined her hands and closed her eyes in</p>
-
-<p>prayer.</p>
+<p>Every part of her screamed with pleasure, her mind clouded by nothing but desire as she joined her hands and closed her eyes in prayer.</p>
 
 <p>“Auranys… mother… nghnn~~ Goddess of light and justice… I have found the chosen hero… aghnn~~ please… allow me to serve him eternally, even when aghnn~~ he becomes your eternal consort… allow him to fuck our pussies side by side!”</p>
 
 <p>Celestia ended her prayer with an exclamation, her body overcome by nothing but pleasure, her closed eyes slightly trembling.</p>
 
-<p>She could feel, from within her being, Qingyi’s cock pounding her womb with every thrust, her buttocks reddened from the impact</p>
-
-<p>against Qingyi’s lap.</p>
+<p>She could feel, from within her being, Qingyi’s cock pounding her womb with every thrust, her buttocks reddened from the impact against Qingyi’s lap.</p>
 
 <p>Something was coming, something strong.</p>
 
-<p>“H-hubby… oghnn~~ something is happening… why do I feel so</p>
+<p>“H-hubby… oghnn~~ something is happening… why do I feel so oghnn~~ strange? Nghnn~~”</p>
 
-<p>oghnn~~ strange? Nghnn~~”</p>
+<p>Celestia’s words were suddenly interrupted, her whole body trembling as she finally came.</p>
 
-<p>Celestia’s words were suddenly interrupted, her whole body</p>
-
-<p>trembling as she finally came.</p>
-
-<p>The first orgasm of a pure priestess who had kept herself pure her</p>
-
-<p>entire life, her pussy squirting around Qingyi’s cock nonstop.</p>
+<p>The first orgasm of a pure priestess who had kept herself pure her entire life, her pussy squirting around Qingyi’s cock nonstop.</p>
 
 <p>At the same time, he came, his cock releasing spurt after spurt of hot, viscous cum inside Celestia, filling her to the brim.</p>
 
 <p>“Nghnn~~” Celestia collapsed forward, hugging Qingyi tightly.</p>
 
-<p>Her huge breasts pressed against his chest like big, soft, warm pillows,</p>
+<p>Her huge breasts pressed against his chest like big, soft, warm pillows, her face finding calm in his caresses.</p>
 
-<p>her face finding calm in his caresses.</p>
-
-<p>She could feel his cock still throbbing inside her, a final spurt of cum</p>
-
-<p>hitting the walls of her womb.</p>
+<p>She could feel his cock still throbbing inside her, a final spurt of cum hitting the walls of her womb.</p>
 
 <p>That was… not bad.</p>
 
 <p>No… that was very good, even better than how she felt when she first heard Auranys’ voice.</p>
 
-<p>Qingyi just smiled at that sight, glancing to see how many lust points</p>
-
-<p>he had received.</p>
+<p>Qingyi just smiled at that sight, glancing to see how many lust points he had received.</p>

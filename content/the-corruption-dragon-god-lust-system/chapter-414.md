@@ -65,13 +65,9 @@ chapter = 414
 
 <p>With a smooth movement, before Belgrath could even defend himself, Qingyi pierced his mana heart. At the same time, he created a small ball of Qi in his free hand, aiming it toward Belgrath’s balls.</p>
 
-<p>A heart-wrenching scream echoed as Belgrath was thrown towards</p>
+<p>A heart-wrenching scream echoed as Belgrath was thrown towards his troops.</p>
 
-<p>his troops.</p>
-
-<p>His balls were obliterated as his face filled with tears, a trail of blood</p>
-
-<p>following his body.</p>
+<p>His balls were obliterated as his face filled with tears, a trail of blood following his body.</p>
 
 <p>Had he been defeated? So weakly and pathetically?</p>
 
@@ -83,13 +79,9 @@ chapter = 414
 
 <p>He was, after all, an orc. His intelligence was limited, and violence was the basis of his life.</p>
 
-<p>Qingyi simply returned Zharuk’s smile, not even bothering to taunt</p>
+<p>Qingyi simply returned Zharuk’s smile, not even bothering to taunt him.</p>
 
-<p>him.</p>
-
-<p>He doubted Zharuk was intelligent enough to understand any kind of</p>
-
-<p>taunt he might be inclined to offer.</p>
+<p>He doubted Zharuk was intelligent enough to understand any kind of taunt he might be inclined to offer.</p>
 
 <p>Any kind, except one, of course.</p>
 
@@ -97,30 +89,20 @@ chapter = 414
 
 <p>“Weakling? Me? YOU ARE WEAKLING!” Zharuk roared, swinging his huge axe. The positive impression he had had of Qingyi vanished immediately.</p>
 
-<p>‘Strong… Qingyi said mentally as he parried Zharuk’s axe blade. The orc didn’t hold back, surrounding his weapon with powerful flaming</p>
+<p>‘Strong… Qingyi said mentally as he parried Zharuk’s axe blade. The orc didn’t hold back, surrounding his weapon with powerful flaming mana.</p>
 
-<p>mana.</p>
-
-<p>The moment the blade and the Sky-Defying Thunder Sword collided,</p>
-
-<p>a ball of fire engulfed them both. The air around them boiled and even some poor birds flying on the horizon were instantly charred as the fire rose into the sky.</p>
+<p>The moment the blade and the Sky-Defying Thunder Sword collided, a ball of fire engulfed them both. The air around them boiled and even some poor birds flying on the horizon were instantly charred as the fire rose into the sky.</p>
 
 <p>To the Orc Lord’s surprise, Qingyi didn’t even flinch, only shuddering slightly, displaying a confident smile.</p>
 
 <p>“Well… if it weren’t for my bloodline projection, you would have hurt me badly, weakling.” Qingyi smiled, landing a kick on Zharuk’s chest and spinning in the air.</p>
 
-<p>If Qingyi hadn’t advanced his lineage earlier, Zharuk would have given</p>
-
-<p>him quite a headache.</p>
+<p>If Qingyi hadn’t advanced his lineage earlier, Zharuk would have given him quite a headache.</p>
 
 <p>Fortunately, he had improved greatly and now barely felt any pressure from that Orc Lord.</p>
 
-<p>“Ugh…” Zharuk was thrown back many meters. His face filled with rage</p>
-
-<p>as he brought his hand to his chest, removing a small item.</p>
+<p>“Ugh…” Zharuk was thrown back many meters. His face filled with rage as he brought his hand to his chest, removing a small item.</p>
 
 <p>A golden talisman, the kind Qingyi knew well.</p>
 
-<p>That young hero of the Church of Auranys, whom he had met a few</p>
-
-<p>months ago in Eagle Peak Valley, had one identical to this. Why on earth did Zharuk have something like this with him?</p>
+<p>That young hero of the Church of Auranys, whom he had met a few months ago in Eagle Peak Valley, had one identical to this. Why on earth did Zharuk have something like this with him?</p>

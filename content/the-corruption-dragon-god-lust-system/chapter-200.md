@@ -41,9 +41,7 @@ chapter = 200
 
 <p>Those words made Rongyan’s trembling grow even stronger.</p>
 
-<p>In the end, she just turned around, put away her pride and walked out of the hut,</p>
-
-<p>Outside, she was immediately greeted by the menacing sight of Khaedryss lying down, looking disinterested in her rider’s affairs.</p>
+<p>In the end, she just turned around, put away her pride and walked out of the hut, Outside, she was immediately greeted by the menacing sight of Khaedryss lying down, looking disinterested in her rider’s affairs.</p>
 
 <p>“That… what the hell is that beast?” she asked, only to be answered with a hard slap on her ass and a possessive grab.</p>
 

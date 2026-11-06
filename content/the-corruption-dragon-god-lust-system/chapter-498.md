@@ -35,9 +35,7 @@ chapter = 498
 
 <p>It took Qingyi only a second to realize who this woman was. His hand rose before falling on that fat, obsidian ass with a slap.</p>
 
-<p>“Aghnn~~” The woman shuddered, her entire body stiffening as a</p>
-
-<p>slightly annoyed expression appeared on her beautiful, mature face. She seemed to think for a brief moment before smiling. Her full lips parted, sinking her teeth into Qingyi’s chest and eliciting a sharp groan from him.</p>
+<p>“Aghnn~~” The woman shuddered, her entire body stiffening as a slightly annoyed expression appeared on her beautiful, mature face. She seemed to think for a brief moment before smiling. Her full lips parted, sinking her teeth into Qingyi’s chest and eliciting a sharp groan from him.</p>
 
 <p>“Argh… crazy woman! You get a human form and already want to devour me?” Qingyi whined, though he was clearly feeling more amusement than pain.</p>
 
@@ -47,9 +45,7 @@ chapter = 498
 
 <p>As a powerful dragon, she had always been a lonely and withdrawn creature.</p>
 
-<p>Even possessing human intelligence, she never truly understood why those women rubbed themselves against her rider like that. Not until</p>
-
-<p>now.</p>
+<p>Even possessing human intelligence, she never truly understood why those women rubbed themselves against her rider like that. Not until now.</p>
 
 <p>It just felt too good.</p>
 
@@ -69,13 +65,9 @@ chapter = 498
 
 <p>The handsome young man didn’t think much of it, just letting her explore his body freely.</p>
 
-<p>Now that Khaedryss had a human form, he would have little trouble</p>
+<p>Now that Khaedryss had a human form, he would have little trouble turning her into one of his women.</p>
 
-<p>turning her into one of his women.</p>
-
-<p>‘Speaking of that, what happened to her, system?’ Qingyi asked,</p>
-
-<p>opening Khaedryss’sstatus screen.</p>
+<p>‘Speaking of that, what happened to her, system?’ Qingyi asked, opening Khaedryss’sstatus screen.</p>
 
 <p>[Name: Khaedryss</p>
 
@@ -101,84 +93,54 @@ chapter = 498
 
 <p>It was exactly as Qingyi had expected.</p>
 
-<p>Her power hadn’t increased much, but her upper limit had probably</p>
-
-<p>exploded.</p>
+<p>Her power hadn’t increased much, but her upper limit had probably exploded.</p>
 
 <p>[She has become a Divine Beast.]</p>
 
-<p>When the system’s response to Qingyi’s question came, he was</p>
-
-<p>absolutely certain.</p>
+<p>When the system’s response to Qingyi’s question came, he was absolutely certain.</p>
 
 <p>Divine Beasts were beings so rare that even in the Immortal Heaven, they did not exist.</p>
 
-<p>They were the pinnacle of power even in the Celestial Heaven, so rare</p>
+<p>They were the pinnacle of power even in the Celestial Heaven, so rare and powerful that entire empires could be sold for one of them.</p>
 
-<p>and powerful that entire empires could be sold for one of them.</p>
-
-<p>He looked again at Khaedryss, who was curiously playing with his</p>
-
-<p>cock.</p>
+<p>He looked again at Khaedryss, who was curiously playing with his cock.</p>
 
 <p>She pulled him forward to her body, a soft moan escaping her lips as his member rubbed against her pussy.</p>
 
-<p>Leaving his cock where she wanted it, Khaedryss simply sat down on</p>
+<p>Leaving his cock where she wanted it, Khaedryss simply sat down on Qingyi’s thighs.</p>
 
-<p>Qingyi’s thighs.</p>
-
-<p>The base of his cock was aligned with her virgin, tight pussy and his member was pressed against her slim belly, while the tip even passed</p>
-
-<p>her belly button.</p>
+<p>The base of his cock was aligned with her virgin, tight pussy and his member was pressed against her slim belly, while the tip even passed her belly button.</p>
 
 <p>“That’s nghnn~~ isn’t it too big?” Khaedryss asked, a muffled moan escaping her lips.</p>
 
 <p>This was the first time she had seen male genitalia. Whether it was from her own race or from a human.</p>
 
-<p>Actually, she had seen Qingyi naked once before. But since she was</p>
-
-<p>much bigger than him at the time, it had been difficult to get a good sense of how massive his cock truly was.</p>
+<p>Actually, she had seen Qingyi naked once before. But since she was much bigger than him at the time, it had been difficult to get a good sense of how massive his cock truly was.</p>
 
 <p>She stroked it lightly, pushing it down before moving her hands back up again, her palm slightly damp with precum.</p>
 
-<p>“Why, are you afraid of it?” Qingyi asked. “I didn’t think a good girl like</p>
+<p>“Why, are you afraid of it?” Qingyi asked. “I didn’t think a good girl like you would be afraid of anything.”</p>
 
-<p>you would be afraid of anything.”</p>
-
-<p>Khaedryss shuddered, the blush on her cheeks growing even more</p>
-
-<p>intense.</p>
+<p>Khaedryss shuddered, the blush on her cheeks growing even more intense.</p>
 
 <p>“D-don’t call me that… I’m not a… a… dog,” she said.</p>
 
-<p>Whenever she showed irritation at being called that by Qingyi, he</p>
-
-<p>ignored her.</p>
+<p>Whenever she showed irritation at being called that by Qingyi, he ignored her.</p>
 
 <p>But now that she could speak, she thought it would be different.</p>
 
 <p>Unfortunately, she didn’t understand Qingyi very well.</p>
 
-<p>“What, good girl?” He teased, moving his hands to her hips, his fingers</p>
+<p>“What, good girl?” He teased, moving his hands to her hips, his fingers sinking into her soft, creamy obsidian skin.</p>
 
-<p>sinking into her soft, creamy obsidian skin.</p>
-
-<p>“That!” Khaedryss complained, giving Qingyi’s chest a weak little</p>
-
-<p>punch.</p>
+<p>“That!” Khaedryss complained, giving Qingyi’s chest a weak little punch.</p>
 
 <p>Well, it was weak compared to her actual power.</p>
 
-<p>Still, the air was pushed out of his lungs and the legs of the bed they</p>
+<p>Still, the air was pushed out of his lungs and the legs of the bed they were on almost collapsed.</p>
 
-<p>were on almost collapsed.</p>
+<p>“J-just… put it inside me already…” Khaedryss said, her voice almost a whisper.</p>
 
-<p>“J-just… put it inside me already…” Khaedryss said, her voice almost a</p>
-
-<p>whisper.</p>
-
-<p>She had already killed many dragons who had tried to be her partners</p>
-
-<p>in her life.</p>
+<p>She had already killed many dragons who had tried to be her partners in her life.</p>
 
 <p>How did she end up with this shameless man?</p>

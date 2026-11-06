@@ -53,9 +53,7 @@ chapter = 558
 
 <p>They were immense, each the size of mountains, watching that fragment of light with interest.</p>
 
-<p>“Oh… if it isn’t the golden Lord himself, guardian of the righteous, Long Tianjin, hahaha!” A laugh echoed, filled with amusement and</p>
-
-<p>scorn.</p>
+<p>“Oh… if it isn’t the golden Lord himself, guardian of the righteous, Long Tianjin, hahaha!” A laugh echoed, filled with amusement and scorn.</p>
 
 <p>“You know… I sensed your scent on the heir of the dragon god of corruption… Even with a broken avatar, it’s still a very easy scent to detect.”</p>
 
@@ -81,60 +79,40 @@ chapter = 558
 
 <p>“What? Would you think something this big would be an eternal secret? You plan to dominate Aether and rule the heavens? Very well. Choke on your ambitions. My spear will find your throat soon.”</p>
 
-<p>A roar of deep hatred followed Tianjin’s words, the Heavenly Demon’s Qi engulfing the cosmos around him, powerful enough to tear a star</p>
-
-<p>apart.</p>
+<p>A roar of deep hatred followed Tianjin’s words, the Heavenly Demon’s Qi engulfing the cosmos around him, powerful enough to tear a star apart.</p>
 
 <p>But his anger no longer had anyone to target. Tianjin had left that place, exploding at the speed of light toward his main body.</p>
 
 <p>Alone, the Heavenly Demon calmed down.</p>
 
-<p>The projection of his eyes disappeared, and soon, his body appeared</p>
-
-<p>in the void.</p>
+<p>The projection of his eyes disappeared, and soon, his body appeared in the void.</p>
 
 <p>He was tall, with long white hair and robes the same color as his eyes, vibrant red.</p>
 
-<p>His powerful chest was exposed, and his beautiful face, previously</p>
-
-<p>twisted with rage, quickly regained its composure.</p>
+<p>His powerful chest was exposed, and his beautiful face, previously twisted with rage, quickly regained its composure.</p>
 
 <p>He should not fall for such cheap provocations.</p>
 
 <p>No. He was above all that.</p>
 
-<p>Calming his furious heart, the Heavenly Demon focused his mind,</p>
+<p>Calming his furious heart, the Heavenly Demon focused his mind, finding a small tear in the space around him.</p>
 
-<p>finding a small tear in the space around him.</p>
+<p>It was so tiny that it barely seemed capable of fitting a coin, but still, it was enough.</p>
 
-<p>It was so tiny that it barely seemed capable of fitting a coin, but still, it</p>
-
-<p>was enough.</p>
-
-<p>Carefully, he separated a piece of his consciousness and sent it</p>
-
-<p>through that hole in space.</p>
+<p>Carefully, he separated a piece of his consciousness and sent it through that hole in space.</p>
 
 <p>What did it matter if that damn golden dragon knew of his plans?</p>
 
-<p>He was the Heavenly Demon. The most noble and perfect being that</p>
+<p>He was the Heavenly Demon. The most noble and perfect being that ever existed in that pathetic universe.</p>
 
-<p>ever existed in that pathetic universe.</p>
-
-<p>He was destined to rule over everything and everyone, and no one</p>
-
-<p>would ever prove otherwise.</p>
+<p>He was destined to rule over everything and everyone, and no one would ever prove otherwise.</p>
 
 <p>***</p>
 
 <p>Still in the immortal heavens, Qingyi stared at the tear in the sky, the hands that held it open trembling slightly.</p>
 
-<p>He had seen that ray of golden light pass through the tear before, but</p>
+<p>He had seen that ray of golden light pass through the tear before, but he had barely paid attention.</p>
 
-<p>he had barely paid attention.</p>
-
-<p>It had been too fast for him to even discern the origin of that Qi. Especially with so many things occupying his mind at the same time. “So… you’re finally here…” Qingyi’s eyes narrowed as a flash of</p>
-
-<p>crimson light burst through the tear in the sky, falling toward the blood orb.</p>
+<p>It had been too fast for him to even discern the origin of that Qi. Especially with so many things occupying his mind at the same time. “So… you’re finally here…” Qingyi’s eyes narrowed as a flash of crimson light burst through the tear in the sky, falling toward the blood orb.</p>
 
 <p>His hair fluttered as he ascended into the sky, positioning himself at the same height as the orb and observing its changes.</p>

@@ -43,9 +43,7 @@ chapter = 666
 
 <p>“This is the highest formation in the world, the divine light formation, I have never seen it,” Chu Yuechan said to Ye Chen.</p>
 
-<p>Chu Yuechan had never seen such a formation, because such a</p>
-
-<p>formation was a very ancient thing.</p>
+<p>Chu Yuechan had never seen such a formation, because such a formation was a very ancient thing.</p>
 
 <p>Even to make it required a lot of super rare high-level items, the price might be able to buy an entire Realm for one item.</p>
 
@@ -71,15 +69,11 @@ chapter = 666
 
 <p>Chen’s attack was not strong enough yet.</p>
 
-<p>Ye Chen didn’t give up so easily, he opened his fire veins, he increased</p>
-
-<p>his power.</p>
+<p>Ye Chen didn’t give up so easily, he opened his fire veins, he increased his power.</p>
 
 <p>“Cracks, cracks..”</p>
 
-<p>The cracks spread so quickly, after the cracks spread quickly, they</p>
-
-<p>began to destroy the existing structure.</p>
+<p>The cracks spread so quickly, after the cracks spread quickly, they began to destroy the existing structure.</p>
 
 <p>“Not yet,” Ye Chen was not finished yet, he opened his water veins,he increased his power again.</p>
 
@@ -109,31 +103,21 @@ chapter = 666
 
 <p>This person always tried to hinder their plans.</p>
 
-<p>“this is our chance, destroy him” Everyone around Hong Maozen</p>
-
-<p>wanted to destroy Ye Chen.</p>
+<p>“this is our chance, destroy him” Everyone around Hong Maozen wanted to destroy Ye Chen.</p>
 
 <p>They really wanted to kill Ye Chen.</p>
 
-<p>If it weren’t for Ye Chen, they would have gotten what they were</p>
-
-<p>looking for.</p>
+<p>If it weren’t for Ye Chen, they would have gotten what they were looking for.</p>
 
 <p>Because of Ye Chen’s actions, they failed to get it.</p>
 
-<p>They failed to gain immortality because of Ye Chen, that’s what made</p>
-
-<p>them so angry and so annoyed, they wanted to destroy and kill Ye</p>
+<p>They failed to gain immortality because of Ye Chen, that’s what made them so angry and so annoyed, they wanted to destroy and kill Ye</p>
 
 <p>Chen.</p>
 
-<p>Ye Chen felt their killing intent, the killing intent they had was so</p>
+<p>Ye Chen felt their killing intent, the killing intent they had was so strong.</p>
 
-<p>strong.</p>
-
-<p>Hundreds of murderous gazes were directed at Ye Chen, they were</p>
-
-<p>clearly angry and annoyed at Ye Chen.</p>
+<p>Hundreds of murderous gazes were directed at Ye Chen, they were clearly angry and annoyed at Ye Chen.</p>
 
 <p>“It seems you are so hated” Chu Yuechan said to Ye Chen.</p>
 
@@ -141,23 +125,15 @@ chapter = 666
 
 <p>“Who cares about that.</p>
 
-<p>Ye Chen didn’t care too much about that, his goal now was to thwart</p>
+<p>Ye Chen didn’t care too much about that, his goal now was to thwart their plans.</p>
 
-<p>their plans.</p>
+<p>This was a battle of 1 vs many people, who would win, Ye Chen or them.</p>
 
-<p>This was a battle of 1 vs many people, who would win, Ye Chen or</p>
-
-<p>them.</p>
-
-<p>“I command all of you” Hong Maozen gave an order, he gave an order</p>
-
-<p>to kill Ye Chen.</p>
+<p>“I command all of you” Hong Maozen gave an order, he gave an order to kill Ye Chen.</p>
 
 <p>“Kill him” Hong Maozen shouted at everyone.</p>
 
-<p>“Kill him” dozens of people moved towards Ye Chen, they all wanted</p>
-
-<p>to kill Ye Chen.</p>
+<p>“Kill him” dozens of people moved towards Ye Chen, they all wanted to kill Ye Chen.</p>
 
 <p>Dozens of people had moved, Ye Chen would soon die.</p>
 

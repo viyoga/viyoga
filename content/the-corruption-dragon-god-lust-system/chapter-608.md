@@ -9,13 +9,9 @@ chapter = 608
 
 <p>Among them was a transport and cargo ship he himself called the Dragon’s Fang, a light vessel designed to carry small detachments as far and as fast as possible.</p>
 
-<p>It was a beautiful ship, with a main cabin resembling a dragon’s jaws, a platform at its center serving as both a piloting station and a meeting</p>
+<p>It was a beautiful ship, with a main cabin resembling a dragon’s jaws, a platform at its center serving as both a piloting station and a meeting area.</p>
 
-<p>area.</p>
-
-<p>“Let’s go.” Zhentian snapped his fingers, and immediately, the</p>
-
-<p>spacecraft’s main hatch opened, revealing the interior to everyone.</p>
+<p>“Let’s go.” Zhentian snapped his fingers, and immediately, the spacecraft’s main hatch opened, revealing the interior to everyone.</p>
 
 <p>“This will be a quick mission, so you won’t have your own quarters during the trip.” Zhentian took the lead, alongside the other two inner disciples accompanying him.</p>
 
@@ -65,15 +61,11 @@ chapter = 608
 
 <p>His concern didn’t seem the least bit feigned either.</p>
 
-<p>Should he simply believe that Zhentian was a man of a completely</p>
-
-<p>pure heart, who cared about everyone?</p>
+<p>Should he simply believe that Zhentian was a man of a completely pure heart, who cared about everyone?</p>
 
 <p>Qingyi didn’t want to believe that possibility.</p>
 
-<p>“Why are you telling me all this?” Qingyi finally asked, his words</p>
-
-<p>causing Zhentian to ponder for a long moment.</p>
+<p>“Why are you telling me all this?” Qingyi finally asked, his words causing Zhentian to ponder for a long moment.</p>
 
 <p>It didn’t seem like a question he wanted to answer, but still, he chose honesty.</p>
 
@@ -81,21 +73,15 @@ chapter = 608
 
 <p>Zhentian paused for a long moment, finishing his wine and pouring himself a little more.</p>
 
-<p>“I was wondering if, with your help, another person from the Immortal Heaven, I might be able to get some clue as to his</p>
-
-<p>whereabouts.”</p>
+<p>“I was wondering if, with your help, another person from the Immortal Heaven, I might be able to get some clue as to his whereabouts.”</p>
 
 <p>“I see…” Qingyi nodded, also taking a sip from his glass.</p>
 
 <p>He didn’t judge Zhentian in the slightest.</p>
 
-<p>“Your great-grandfather must have ascended thousands of years before I was even born, so it’s hard for me to know anything about</p>
+<p>“Your great-grandfather must have ascended thousands of years before I was even born, so it’s hard for me to know anything about him.”</p>
 
-<p>him.”</p>
-
-<p>“I know, it’s just a silly daydream of mine, ignore it.” Zhentian flashed a bitter smile and then stood up. “Still, it’s nice to meet someone who might have come from the same land as my great-grandfather. Let’s</p>
-
-<p>be friends.”</p>
+<p>“I know, it’s just a silly daydream of mine, ignore it.” Zhentian flashed a bitter smile and then stood up. “Still, it’s nice to meet someone who might have come from the same land as my great-grandfather. Let’s be friends.”</p>
 
 <p>He extended his hand to Qingyi, who didn’t hesitate to take it.</p>
 
@@ -109,9 +95,7 @@ chapter = 608
 
 <p>Even the leaders of major orthodox factions often valued their own personal gain above any of the ideals they swore to protect from demonic and unorthodox cultivators.</p>
 
-<p>In the end, a man who truly valued those ideals was rare, very rare. During the journey, the two continued chatting casually about various</p>
-
-<p>topics.</p>
+<p>In the end, a man who truly valued those ideals was rare, very rare. During the journey, the two continued chatting casually about various topics.</p>
 
 <p>From the sect’s major events and what Qingyi needed to keep up with to continue growing, to techniques that could be used to break through the Hidden Moon’s secret realm more easily, and, of course, occasionally talking about beauties.</p>
 

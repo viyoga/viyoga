@@ -61,9 +61,7 @@ chapter = 502
 
 <p>Ruyan was the first to throw herself into Qingyi’s arms, joining Khaedryss and pressing her lips against his.</p>
 
-<p>Soon after, Feiyan and Isabel followed suit, both hugging Qingyi from</p>
-
-<p>the sides, their huge tits pressing against his ribs.</p>
+<p>Soon after, Feiyan and Isabel followed suit, both hugging Qingyi from the sides, their huge tits pressing against his ribs.</p>
 
 <p>They wanted to have some fun with Khaedryss too, but unfortunately, the beauty stepped away.</p>
 
@@ -75,82 +73,46 @@ chapter = 502
 
 <p>“Hm, boring…” Ruyan bit the inside of her cheek, but didn’t complain too much, letting them have their moment.</p>
 
-<p>The group entered the purple palace and went to a room next to the main one, which had been destroyed by Khaedryss bouncing on</p>
-
-<p>Qingyi’s cock.</p>
+<p>The group entered the purple palace and went to a room next to the main one, which had been destroyed by Khaedryss bouncing on Qingyi’s cock.</p>
 
 <p>There, they immediately threw themselves next to Qingyi on the huge king-size bed.</p>
 
-<p>“Ah… you girls are thirsty today, huh?” Qingyi smiled, his cock</p>
+<p>“Ah… you girls are thirsty today, huh?” Qingyi smiled, his cock immediately surrounded by Feiyan and Ruyan’s lips.</p>
 
-<p>immediately surrounded by Feiyan and Ruyan’s lips.</p>
+<p>“Yeah, and hubby always does these dangerous things. You slept for two whole days, you know?” Isabel complained.</p>
 
-<p>“Yeah, and hubby always does these dangerous things. You slept for</p>
+<p>She hugged Qingyi, pulling his face against her large, heavy, soft breasts, her chocolaty skin glistening with sweat.</p>
 
-<p>two whole days, you know?” Isabel complained.</p>
-
-<p>She hugged Qingyi, pulling his face against her large, heavy, soft</p>
-
-<p>breasts, her chocolaty skin glistening with sweat.</p>
-
-<p>“Hm… I’m thirsty too, you know?” Qingyi exhaled and said no more, just allowing himself to relax, closing his lips around one of Isabel’s</p>
-
-<p>nipples.</p>
+<p>“Hm… I’m thirsty too, you know?” Qingyi exhaled and said no more, just allowing himself to relax, closing his lips around one of Isabel’s nipples.</p>
 
 <p>He sucked voraciously, feeling that warm, creamy milk, like melted chocolate, invade his mouth.</p>
 
 <p>She and Khaedryss were quite similar in that regard, although Isabel’s milkers were obviously much larger.</p>
 
-<p>Just below, Feiyan and Ruyan focused entirely on Qingyi’s cock,</p>
+<p>Just below, Feiyan and Ruyan focused entirely on Qingyi’s cock, kneeling on the mattress fabric as they bent over him.</p>
 
-<p>kneeling on the mattress fabric as they bent over him.</p>
+<p>Their asses were raised, swaying rhythmically as their tongues moved up and down around that large, veiny, nine-inch rod.</p>
 
-<p>Their asses were raised, swaying rhythmically as their tongues moved</p>
+<p>The two girls tongues met right in the top, where they exchanged a glance before going down again, bathing Qingyi’s cock with their saliva.</p>
 
-<p>up and down around that large, veiny, nine-inch rod.</p>
+<p>Ruyan was the first to swallow, her lips stretching around the bulging glans, her perfect pearly teeth grazing against the skin of the huge cock that slowly sank into her throat.</p>
 
-<p>The two girls tongues met right in the top, where they exchanged a glance before going down again, bathing Qingyi’s cock with their</p>
-
-<p>saliva.</p>
-
-<p>Ruyan was the first to swallow, her lips stretching around the bulging</p>
-
-<p>glans, her perfect pearly teeth grazing against the skin of the huge</p>
-
-<p>cock that slowly sank into her throat.</p>
-
-<p>“Go on, sis! Show this big dick who’s boss!” Feiyan gave an excited</p>
-
-<p>squeal and a firm slap on Ruyan’s ass. Her free hand moved up to her own breasts, squeezing them firmly.</p>
+<p>“Go on, sis! Show this big dick who’s boss!” Feiyan gave an excited squeal and a firm slap on Ruyan’s ass. Her free hand moved up to her own breasts, squeezing them firmly.</p>
 
 <p>“Nghnn~~” Ruyan moaned at the slap, her eyes watering as her throat tightened around Qingyi’s cock.</p>
 
-<p>She swallowed a little more before retreating, pulling her head back, her lips still connected to the reddish glans by thick, pearly strands of</p>
+<p>She swallowed a little more before retreating, pulling her head back, her lips still connected to the reddish glans by thick, pearly strands of saliva.</p>
 
-<p>saliva.</p>
-
-<p>“Your turn now, hehehe~~” Ruyan laughed, slapping Feiyan’s butt</p>
-
-<p>while rubbing her own, feeling the burning mark of the tanned</p>
-
-<p>beauty’s palm.</p>
+<p>“Your turn now, hehehe~~” Ruyan laughed, slapping Feiyan’s butt while rubbing her own, feeling the burning mark of the tanned beauty’s palm.</p>
 
 <p>Feiyan didn’t complain, her plump and perfect buttocks were taken by a powerful shockwave as she swallowed Qingyi’s cock.</p>
 
-<p>Her trained throat took in his entire girth, as tight as Ruyan’s, eliciting</p>
+<p>Her trained throat took in his entire girth, as tight as Ruyan’s, eliciting a soft groan from her husband.</p>
 
-<p>a soft groan from her husband.</p>
+<p>That only excited the tanned beauty even more as her head rose and fell rhythmically, her mouth accepting Qingyi’s cock as if it were nothing more than a hot, tight pussy.</p>
 
-<p>That only excited the tanned beauty even more as her head rose and</p>
+<p>“Hey, leave a little for me too! You… little slut!” Ruyan cursed, but it was too late.</p>
 
-<p>fell rhythmically, her mouth accepting Qingyi’s cock as if it were nothing more than a hot, tight pussy.</p>
-
-<p>“Hey, leave a little for me too! You… little slut!” Ruyan cursed, but it</p>
-
-<p>was too late.</p>
-
-<p>An explosion of cum invaded Feiyan’s mouth, going down her throat</p>
-
-<p>in greedy gulps.</p>
+<p>An explosion of cum invaded Feiyan’s mouth, going down her throat in greedy gulps.</p>
 
 <p>Only at the end did she pull back, leaving the last spurt for Ruyan, who caught it on her tongue with a dissatisfied but excited look.</p>

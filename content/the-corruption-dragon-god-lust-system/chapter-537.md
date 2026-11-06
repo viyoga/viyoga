@@ -59,11 +59,7 @@ chapter = 537
 
 <p>“Ah…” He exhaled, closed his eyes, and advanced.</p>
 
-<p>The demonic spawn raised a hand, strengthening the barrier in front</p>
-
-<p>of her, the steel of the Thunder Sword that defies the heavens</p>
-
-<p>clanging as it struck her, sending her flying away again.</p>
+<p>The demonic spawn raised a hand, strengthening the barrier in front of her, the steel of the Thunder Sword that defies the heavens clanging as it struck her, sending her flying away again.</p>
 
 <p>She gritted her teeth. A single tear appeared in her eyes as she pointed her hands at Qingyi. Dozens of swords appeared and exploded at speed toward the young man.</p>
 
@@ -101,31 +97,21 @@ chapter = 537
 
 <p>“It’s pain… The same pain you would make those women feel if I let you live,” Qingyi replied, still cold.</p>
 
-<p>“But… I don’t like this… I don’t want to hurt…” Tears streamed from her</p>
-
-<p>eyes without stopping. Her body trembled as she tried to understand</p>
-
-<p>what was happening to her.</p>
+<p>“But… I don’t like this… I don’t want to hurt…” Tears streamed from her eyes without stopping. Her body trembled as she tried to understand what was happening to her.</p>
 
 <p>“Does it hurt?” She pointed to the wounds covering Qingyi, the Heaven-defying Thunder Blade already under her chest.</p>
 
-<p>“Yes,” Qingyi said, but he didn’t push the sword in, a tremor</p>
-
-<p>overtaking his eyes.</p>
+<p>“Yes,” Qingyi said, but he didn’t push the sword in, a tremor overtaking his eyes.</p>
 
 <p>Why was he hesitating? Why was his heart so heavy?</p>
 
 <p>‘End this, damn it!’ He shouted at himself, but he couldn’t.</p>
 
-<p>“I… I’m sorry… I don’t want to hurt…” She grabbed the blade of the</p>
-
-<p>sword.</p>
+<p>“I… I’m sorry… I don’t want to hurt…” She grabbed the blade of the sword.</p>
 
 <p>Her face carried emotions that Qingyi couldn’t decipher.</p>
 
-<p>“I don’t want to die… I don’t want to feel this…” Her eyes turned to the</p>
-
-<p>blade at her chest. Her small, delicate hands squeezed the sharp steel, and blood spilled out endlessly.</p>
+<p>“I don’t want to die… I don’t want to feel this…” Her eyes turned to the blade at her chest. Her small, delicate hands squeezed the sharp steel, and blood spilled out endlessly.</p>
 
 <p>“Can you make it stop?” she asked honestly, begging. “Please…”</p>
 

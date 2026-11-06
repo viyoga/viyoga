@@ -33,9 +33,7 @@ chapter = 508
 
 <p>The Emperor stood up, breaking the necklace between his fingers.</p>
 
-<p>“Tell me, child, didn’t your mother tell you the importance of this thing? Give me a reason not to gouge out your eyes and dye your hair</p>
-
-<p>red with your own blood.” He growled, releasing a strand of mana, watching as the girl gasped for air.</p>
+<p>“Tell me, child, didn’t your mother tell you the importance of this thing? Give me a reason not to gouge out your eyes and dye your hair red with your own blood.” He growled, releasing a strand of mana, watching as the girl gasped for air.</p>
 
 <p>He moved his hand, forming a blade of mana.</p>
 
@@ -79,25 +77,15 @@ chapter = 508
 
 <p>“I’ll fix this, I promise…” He hugged her a little tighter, feeling her relax in his arms. Her breathing grew calmer and calmer as her eyes closed.</p>
 
-<p>She fell asleep in the arms of her beloved. He remained motionless, just watching her sleep, feeling the weight of her breasts pressed against his chest, his hands massaging the perfect, creamy skin of her</p>
+<p>She fell asleep in the arms of her beloved. He remained motionless, just watching her sleep, feeling the weight of her breasts pressed against his chest, his hands massaging the perfect, creamy skin of her ass.</p>
 
-<p>ass.</p>
+<p>When Sapphire woke up, it was already getting dark. Her eyes widened as she turned her face toward Qingyi.</p>
 
-<p>When Sapphire woke up, it was already getting dark. Her eyes</p>
+<p>“Did I fall asleep…? For how long?” she asked, getting up, her breasts bouncing with the movement.</p>
 
-<p>widened as she turned her face toward Qingyi.</p>
+<p>“Hm… the whole day.” Qingyi laughed, also getting up. He pulled Sapphire toward him and gave her ass a firm slap, grabbing her pale, milky skin firmly.</p>
 
-<p>“Did I fall asleep…? For how long?” she asked, getting up, her breasts</p>
-
-<p>bouncing with the movement.</p>
-
-<p>“Hm… the whole day.” Qingyi laughed, also getting up. He pulled Sapphire toward him and gave her ass a firm slap, grabbing her pale,</p>
-
-<p>milky skin firmly.</p>
-
-<p>“Nghnn~~ Husband!” Sapphire squealed, burying her face in Qingyi’s</p>
-
-<p>chest.</p>
+<p>“Nghnn~~ Husband!” Sapphire squealed, burying her face in Qingyi’s chest.</p>
 
 <p>“Let’s go,” he said, looking at the horizon beyond the bedroom window. “It’s late, Celestia must be worried.”</p>
 
@@ -109,15 +97,11 @@ chapter = 508
 
 <p>“Have you ever heard Auranys’ voice?” She asked Qingyi.</p>
 
-<p>He thought for a brief moment. “Technically yes, although she’s not</p>
-
-<p>very happy with me, hahaha.”</p>
+<p>He thought for a brief moment. “Technically yes, although she’s not very happy with me, hahaha.”</p>
 
 <p>Hearing that, Sapphire paused for a moment, her face taking on a thoughtful expression before sighing.</p>
 
-<p>“Celestia told me about the prophecy, about hearing Auranys’ voice</p>
-
-<p>telling her to always stay by your side… You’re not serious about.</p>
+<p>“Celestia told me about the prophecy, about hearing Auranys’ voice telling her to always stay by your side… You’re not serious about.</p>
 
 <p>taking a goddess as your wife, right?”</p>
 
@@ -127,14 +111,8 @@ chapter = 508
 
 <p>A real goddess?</p>
 
-<p>Didn’t he know about Auranys’ power? Even magicians from the</p>
+<p>Didn’t he know about Auranys’ power? Even magicians from the Twelfth Ring were weak in front of her.</p>
 
-<p>Twelfth Ring were weak in front of her.</p>
-
-<p>A million thoughts ran through the beauty’s mind, but in the end, all</p>
-
-<p>that remained was a soft smile as she accompanied Long Qingyi out of</p>
-
-<p>her room.</p>
+<p>A million thoughts ran through the beauty’s mind, but in the end, all that remained was a soft smile as she accompanied Long Qingyi out of her room.</p>
 
 <p>“Hubby’s greed really knows no bounds, huh?” She laughed loudly, quickening her pace.</p>

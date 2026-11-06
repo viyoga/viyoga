@@ -51,9 +51,7 @@ chapter = 503
 
 <p>Rising from the embrace of that sea of beauties, Qingyi got dressed.</p>
 
-<p>“Hey, wait for me!” Ruyan complained, noticing Qingyi getting ready</p>
-
-<p>to leave.</p>
+<p>“Hey, wait for me!” Ruyan complained, noticing Qingyi getting ready to leave.</p>
 
 <p>Smelling the sweet scent of whatever Elize was preparing, the other two beauties also woke up.</p>
 
@@ -73,45 +71,27 @@ chapter = 503
 
 <p>“Big sister?…” Khaedryss narrowed her eyes.</p>
 
-<p>“Well, they are big, fufufu~~” She covered her lips, letting out an</p>
+<p>“Well, they are big, fufufu~~” She covered her lips, letting out an elegant laugh, contrasting with her previous wild and hungry attitude.</p>
 
-<p>elegant laugh, contrasting with her previous wild and hungry attitude.</p>
+<p>Qingyi watched this with a gentle smile before taking a seat for himself.</p>
 
-<p>Qingyi watched this with a gentle smile before taking a seat for</p>
+<p>Fortunately, the two seemed to be just playing around, and there was no real anger in their voices as they complained about each other, sometimes blushing, sometimes looking away awkwardly.</p>
 
-<p>himself.</p>
-
-<p>Fortunately, the two seemed to be just playing around, and there was</p>
-
-<p>no real anger in their voices as they complained about each other, sometimes blushing, sometimes looking away awkwardly.</p>
-
-<p>It was good to see them like this. It was good to see them truly happy</p>
-
-<p>as they enjoyed Elize’s delicious food.</p>
+<p>It was good to see them like this. It was good to see them truly happy as they enjoyed Elize’s delicious food.</p>
 
 <p>Glancing at his status screen, he just started eating excitedly.</p>
 
-<p>With his afternoon of fun with Isabel, Feiyan, and Ruyan, he had</p>
+<p>With his afternoon of fun with Isabel, Feiyan, and Ruyan, he had finally reached five hundred trillion Lust points.</p>
 
-<p>finally reached five hundred trillion Lust points.</p>
+<p>It was time to make a new breakthrough in his power and prepare for the enemies that awaited him in the future.</p>
 
-<p>It was time to make a new breakthrough in his power and prepare for</p>
+<p>Sooner or later, he would have to fight enemies unlike anything he had ever faced in his life. Enemies capable of making entire continents tremble.</p>
 
-<p>the enemies that awaited him in the future.</p>
-
-<p>Sooner or later, he would have to fight enemies unlike anything he had ever faced in his life. Enemies capable of making entire continents</p>
-
-<p>tremble.</p>
-
-<p>Just being around someone like Lucios made him certain that he</p>
-
-<p>wasn’t ready yet.</p>
+<p>Just being around someone like Lucios made him certain that he wasn’t ready yet.</p>
 
 <p>***</p>
 
-<p>Countless kilometers away, in a city that seemed to be made of gold,</p>
-
-<p>the jewel among the jewels of the eastern continent, there was a man.</p>
+<p>Countless kilometers away, in a city that seemed to be made of gold, the jewel among the jewels of the eastern continent, there was a man.</p>
 
 <p>He was slightly corpulent, but he wasn’t simply fat.</p>
 
@@ -123,9 +103,7 @@ chapter = 503
 
 <p>Suddenly, he stopped writing and looked up.</p>
 
-<p>“Father!” a voice echoed, and a young man appeared, falling to his</p>
-
-<p>knees.</p>
+<p>“Father!” a voice echoed, and a young man appeared, falling to his knees.</p>
 
 <p>He was tall and strong, with masculine and arrogant features.</p>
 
@@ -133,13 +111,9 @@ chapter = 503
 
 <p>He was one of the three eldest sons of the King of Gold, just over a hundred years old.</p>
 
-<p>The man in front of him was none other than the King of Gold</p>
+<p>The man in front of him was none other than the King of Gold himself.</p>
 
-<p>himself.</p>
-
-<p>Short black hair, an aged but handsome face, despite a few wrinkles,</p>
-
-<p>and, of course, his imposing size.</p>
+<p>Short black hair, an aged but handsome face, despite a few wrinkles, and, of course, his imposing size.</p>
 
 <p>He was adorned with a short goatee and gentle but firm eyes.</p>
 

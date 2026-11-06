@@ -31,9 +31,7 @@ chapter = 428
 
 <p>This would be just a short, friendly duel.</p>
 
-<p>The two stared at each other for a brief moment before Aeryn took</p>
-
-<p>the initiative.</p>
+<p>The two stared at each other for a brief moment before Aeryn took the initiative.</p>
 
 <p>Her body turned into a blur, infinitely close to the speed of sound but not quite breaking it, her elven saber slashing towards Qingyi.</p>
 
@@ -71,9 +69,7 @@ chapter = 428
 
 <p>His face was immediately engulfed in a sea of unparalleled softness.</p>
 
-<p>A shockwave spread through the plump, perfect globes, the soft, plump mound of Aeryn’s elven pussy coming into perfect alignment</p>
-
-<p>with Qingyi’s lips.</p>
+<p>A shockwave spread through the plump, perfect globes, the soft, plump mound of Aeryn’s elven pussy coming into perfect alignment with Qingyi’s lips.</p>
 
 <p>Aeryn froze, feeling Qingyi’s hot breath against her intimacy.</p>
 
@@ -85,13 +81,9 @@ chapter = 428
 
 <p>“Nghnn~~” A short, soft moan escaped them before she finally acted.</p>
 
-<p>She went airborne, her body spinning once before landing a short</p>
+<p>She went airborne, her body spinning once before landing a short distance away.</p>
 
-<p>distance away.</p>
-
-<p>Even in such a situation, she did not lose her nobility; even her moan</p>
-
-<p>had been calm and composed.</p>
+<p>Even in such a situation, she did not lose her nobility; even her moan had been calm and composed.</p>
 
 <p>“I… I’m sorry…” Qingyi lied, also standing up, unable to contain the monster in his pants.</p>
 
@@ -99,9 +91,7 @@ chapter = 428
 
 <p>“No… it was my fault…” Aeryn looked away, sheathing her sword again.</p>
 
-<p>Her eyes flowed to Qingyi’s pants for a brief moment before she</p>
-
-<p>turned her face away.</p>
+<p>Her eyes flowed to Qingyi’s pants for a brief moment before she turned her face away.</p>
 
 <p>What was that huge, throbbing thing?</p>
 
@@ -115,19 +105,13 @@ chapter = 428
 
 <p>She knew full well that Aeryn was powerful enough to wipe out a small town with just a few blows. From the casual way she trained with Qingyi, she knew that he was no less powerful.</p>
 
-<p>Added to the fact that they were both infidels, she preferred to be</p>
+<p>Added to the fact that they were both infidels, she preferred to be cautious.</p>
 
-<p>cautious.</p>
-
-<p>“I have contacted the bishop in the imperial capital. You must leave immediately, he wants to take a look at the new hero… Miss Aeryn has also been released from her current mission.” The nun spoke, her eyes</p>
-
-<p>focusing on Qingyi.</p>
+<p>“I have contacted the bishop in the imperial capital. You must leave immediately, he wants to take a look at the new hero… Miss Aeryn has also been released from her current mission.” The nun spoke, her eyes focusing on Qingyi.</p>
 
 <p>“Do not allow yourself to be corrupted, infidel.</p>
 
-<p>Your soul can still be saved, surrender yourself to the light of</p>
-
-<p>Auranys!” She exclaimed.</p>
+<p>Your soul can still be saved, surrender yourself to the light of Auranys!” She exclaimed.</p>
 
 <p>In response, Qingyi just laughed.</p>
 
@@ -139,18 +123,12 @@ chapter = 428
 
 <p>Alone, Qingyi looked at Aeryn.</p>
 
-<p>“Let’s go… I’ll lead the way,” Aeryn said, nodding her head. A long cloak</p>
+<p>“Let’s go… I’ll lead the way,” Aeryn said, nodding her head. A long cloak immediately covered her curves.</p>
 
-<p>immediately covered her curves.</p>
-
-<p>“If Lucien causes trouble, just knock out a few of his teeth. That</p>
-
-<p>solves everything,” she said before finally leaving.</p>
+<p>“If Lucien causes trouble, just knock out a few of his teeth. That solves everything,” she said before finally leaving.</p>
 
 <p>Qingyi smiled, following close behind Aeryn.</p>
 
-<p>The cloak lifted, and even at extreme speed, he could appreciate the</p>
-
-<p>curves of Aeryn’s thighs and buttocks, swaying with each movement.</p>
+<p>The cloak lifted, and even at extreme speed, he could appreciate the curves of Aeryn’s thighs and buttocks, swaying with each movement.</p>
 
 <p>This was going to be a long journey and fortunately, the view was beautiful.</p>

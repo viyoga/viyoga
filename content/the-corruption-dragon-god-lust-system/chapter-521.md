@@ -25,9 +25,7 @@ chapter = 521
 
 <p>Lust points: 387,3T]</p>
 
-<p>As he left the cultivation room, Qingyi glanced briefly at his status</p>
-
-<p>screen.</p>
+<p>As he left the cultivation room, Qingyi glanced briefly at his status screen.</p>
 
 <p>The price to improve his cultivation and mana manipulation had increased as usual, but it was less than he had expected.</p>
 
@@ -65,9 +63,7 @@ chapter = 521
 
 <p>Qingyi paused for a moment, preparing his Qi.</p>
 
-<p>As he called upon his domain, all of his types of Qi spread out around</p>
-
-<p>him, causing the forest around him to change beyond recognition.</p>
+<p>As he called upon his domain, all of his types of Qi spread out around him, causing the forest around him to change beyond recognition.</p>
 
 <p>Qingyi reached out his hand toward the ground, and a stone flew toward him.</p>
 
@@ -75,9 +71,7 @@ chapter = 521
 
 <p>It flew at a terrifying speed, hitting the end of the domain with a powerful crash.</p>
 
-<p>In addition to being a region under Qingyi’s complete control, his domain also seemed to be able to prevent enemies from escaping. The young man was ready to move his sword and test the power of his domain in the real world. However, he soon stopped, turning his</p>
-
-<p>head.</p>
+<p>In addition to being a region under Qingyi’s complete control, his domain also seemed to be able to prevent enemies from escaping. The young man was ready to move his sword and test the power of his domain in the real world. However, he soon stopped, turning his head.</p>
 
 <p>In the distance, he could sense someone approaching at an absurd speed, with a powerful aura falling upon him.</p>
 
@@ -87,9 +81,7 @@ chapter = 521
 
 <p>It was an old man, looking like someone in his sixties or seventies. He had a long white beard and carried an elegant saber at his waist. “Oh… Calm down, young man! I don’t want any trouble, hahaha.” The old man smiled, stopping about a hundred meters away from Qingyi. “I was traveling towards the capital when I sensed a powerful Qi. I was just curious.”</p>
 
-<p>“Hm…” Qingyi didn’t respond immediately, his eyes analyzing the old</p>
-
-<p>man.</p>
+<p>“Hm…” Qingyi didn’t respond immediately, his eyes analyzing the old man.</p>
 
 <p>He was clearly at the peak of the Astral Body Realm. His power was so restrained that even using his draconic eyes, Qingyi was not even able to discern the lines of Qi running through his body.</p>
 
@@ -101,29 +93,21 @@ chapter = 521
 
 <p>“Oh, you didn’t startle me, don’t worry!” The old man shook his head, his hand sliding away from his saber.</p>
 
-<p>“I’m just a little confused. It’s been many years since I’ve set foot in the imperial capital, and I really don’t remember a genius like you</p>
-
-<p>here.</p>
+<p>“I’m just a little confused. It’s been many years since I’ve set foot in the imperial capital, and I really don’t remember a genius like you here.</p>
 
 <p>With your level of power, I highly doubt it’s something that could go unnoticed, right? Tell me, are you one of the new Five Dragons and Nine Phoenixes?”</p>
 
 <p>Qingyi couldn’t help but be confused by the old man’s words.</p>
 
-<p>Five Dragons and Nine Phoenixes? What the hell was that old man</p>
+<p>Five Dragons and Nine Phoenixes? What the hell was that old man talking about?</p>
 
-<p>talking about?</p>
-
-<p>“Uh? You don’t know? The rank of the greatest talents in the imperial capital!” The old man exclaimed, looking at Qingyi with even more</p>
-
-<p>strangeness.</p>
+<p>“Uh? You don’t know? The rank of the greatest talents in the imperial capital!” The old man exclaimed, looking at Qingyi with even more strangeness.</p>
 
 <p>“You know, I myself was one of them during my youth. My son-in-law’s eldest son is actually the strongest among the current Five Dragons!”</p>
 
 <p>Hearing that, Qingyi thought for a moment.</p>
 
-<p>While walking with Meilin through the city, he had indeed heard someone say something about dragons and phoenixes, but nothing he</p>
-
-<p>had paid much attention to.</p>
+<p>While walking with Meilin through the city, he had indeed heard someone say something about dragons and phoenixes, but nothing he had paid much attention to.</p>
 
 <p>So that was what the old man was talking about.</p>
 

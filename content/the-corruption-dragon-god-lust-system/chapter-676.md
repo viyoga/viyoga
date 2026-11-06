@@ -33,9 +33,7 @@ chapter = 676
 
 <p>Naturally, the sect’s grand elder, Xue Hua’s father, noticed his daughter’s flushed face and the intimacy with which she interacted with Qingyi before stepping away.</p>
 
-<p>His jaw tightened and his gaze lingered on the young man for a</p>
-
-<p>moment.</p>
+<p>His jaw tightened and his gaze lingered on the young man for a moment.</p>
 
 <p>Truly, being a father was difficult.</p>
 
@@ -61,17 +59,13 @@ chapter = 676
 
 <p>Dragons, tigers, lions, giant serpents.</p>
 
-<p>Every kind of beast existed in that sect, and their own guardian was,</p>
-
-<p>in reality, a powerful Bloodhorn Bear said to have once killed ten Stellar Sovereigns with a single slap and even counted to infinity. Twice.</p>
+<p>Every kind of beast existed in that sect, and their own guardian was, in reality, a powerful Bloodhorn Bear said to have once killed ten Stellar Sovereigns with a single slap and even counted to infinity. Twice.</p>
 
 <p>Obviously, the last part was just a joke among the sect’s young talents trying to glorify their ancestral guardian.</p>
 
 <p>A being who had lived for over three million years and who, with his own hands, had forged what was now the oldest and most powerful sect in the northern celestial sky.</p>
 
-<p>Still, despite the comical exaggeration, few would dare doubt that celestial emperors with exceptionally powerful minds were capable of</p>
-
-<p>at least visualizing infinity.</p>
+<p>Still, despite the comical exaggeration, few would dare doubt that celestial emperors with exceptionally powerful minds were capable of at least visualizing infinity.</p>
 
 <p>Great readers of destiny and the master known as the Divine Calculator often played freely with these concepts.</p>
 
@@ -79,25 +73,17 @@ chapter = 676
 
 <p>Shortly after the three arrived, the sect’s elders mobilized with determined and excited expressions.</p>
 
-<p>At the center of it all, a pillar had been erected to calculate each cultivator’s soul gains. Lines of energy ran across its surface, pulsing</p>
+<p>At the center of it all, a pillar had been erected to calculate each cultivator’s soul gains. Lines of energy ran across its surface, pulsing faintly like a heartbeat.</p>
 
-<p>faintly like a heartbeat.</p>
+<p>There were nine levels in total, but only the sixth was generally attained. The ninth level was nothing more than a legend.</p>
 
-<p>There were nine levels in total, but only the sixth was generally</p>
-
-<p>attained. The ninth level was nothing more than a legend.</p>
-
-<p>Many of the Star Sovereigns could already sense the suppressed soul</p>
-
-<p>force radiating from Xue Hua.</p>
+<p>Many of the Star Sovereigns could already sense the suppressed soul force radiating from Xue Hua.</p>
 
 <p>How many forbidden fortunes had she obtained?</p>
 
 <p>Three? Four?</p>
 
-<p>Could the Ice Phoenix, the sect’s most dangerous forbidden fortune,</p>
-
-<p>be among them?</p>
+<p>Could the Ice Phoenix, the sect’s most dangerous forbidden fortune, be among them?</p>
 
 <p>If they knew the truth, they would likely be in shock.</p>
 
@@ -105,25 +91,19 @@ chapter = 676
 
 <p>In one month, Qingyi had obtained them all for Xue Hua.</p>
 
-<p>Fortunes that had been born over thousands of years, plucked in a</p>
-
-<p>single month by a single person.</p>
+<p>Fortunes that had been born over thousands of years, plucked in a single month by a single person.</p>
 
 <p>“Now, four of you, the disciples with the greatest gains and the highest potential, will be chosen based on your results. The top four will advance to the second stage, a stage that has even given birth to Stellar Sovereigns!” an elder declared, his voice cutting through the murmuring crowd.</p>
 
 <p>Since they already considered Rou’er to take one of the spots, this time they offered only four spots to the remaining disciples.</p>
 
-<p>It was a pity, but this was a demand from the leader himself. An order</p>
-
-<p>that could not be denied, not even if all the elders went against it.</p>
+<p>It was a pity, but this was a demand from the leader himself. An order that could not be denied, not even if all the elders went against it.</p>
 
 <p>Rou’er had to enter the second stage of the secret realm at any cost.</p>
 
 <p>Shaking his head, the elder touched the pillar.</p>
 
-<p>“This pillar will calculate your fortunes from the first stage of the</p>
-
-<p>secret realm. Only those with fortunes above level four will be considered. If there are more than four people with level six fortunes, an exception will be made and the number of spots will be expanded.”</p>
+<p>“This pillar will calculate your fortunes from the first stage of the secret realm. Only those with fortunes above level four will be considered. If there are more than four people with level six fortunes, an exception will be made and the number of spots will be expanded.”</p>
 
 <p>“When you touch the pillar, the number of lights that turn on will indicate your results. Any questions?”</p>
 

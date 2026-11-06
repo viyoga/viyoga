@@ -7,17 +7,13 @@ chapter = 669
 
 <p>Bai Hu Lie completely ignored the source of that scream, just as he had ignored the source of that drink.</p>
 
-<p>Opening the barrel of liquor with his claws, he raised it above his head</p>
-
-<p>and opened his bloodied jaws wide, letting the liquid drip directly onto his porous tongue.</p>
+<p>Opening the barrel of liquor with his claws, he raised it above his head and opened his bloodied jaws wide, letting the liquid drip directly onto his porous tongue.</p>
 
 <p>Qingyi merely smiled upon seeing the gleam in Bai Hu Lie’s eyes.</p>
 
 <p>He hadn’t skimped on that liquor, since it was for someone he hoped to have as a friend in the future.</p>
 
-<p>‘System… what is the cost of a pill capable of awakening his</p>
-
-<p>bloodline?’ Qingyi asked, already well aware of Bai Hu Lie’s true intention.</p>
+<p>‘System… what is the cost of a pill capable of awakening his bloodline?’ Qingyi asked, already well aware of Bai Hu Lie’s true intention.</p>
 
 <p>The tiger wanted a treasure to awaken his bloodline, but he wouldn’t find anything like that here, only in the second stage of the secret realm, which could take months or years.</p>
 
@@ -85,13 +81,9 @@ chapter = 669
 
 <p>Qingyi reversed his transformation. His wings, well, his wing, since one had been torn off by Bai Hu Lie, disappeared. His black horns shrank in size, and his beastly features gradually faded away.</p>
 
-<p>In a few moments, he looked like nothing more than a mortally</p>
+<p>In a few moments, he looked like nothing more than a mortally handsome human with long black horns.</p>
 
-<p>handsome human with long black horns.</p>
-
-<p>“Do you plan to accompany us, or will you go your own way?” Qingyi</p>
-
-<p>asked.</p>
+<p>“Do you plan to accompany us, or will you go your own way?” Qingyi asked.</p>
 
 <p>Bai Hu Lie shook his head.</p>
 
@@ -99,41 +91,27 @@ chapter = 669
 
 <p>Qingyi nodded and handed him a pill.</p>
 
-<p>“It’s a bloodline awakening pill, the only one I have, and a gift from a</p>
+<p>“It’s a bloodline awakening pill, the only one I have, and a gift from a master alchemist of the past to me,” Qingyi explained as Bai Hu Lie studied the pill carefully.</p>
 
-<p>master alchemist of the past to me,” Qingyi explained as Bai Hu Lie studied the pill carefully.</p>
-
-<p>“The purity is ninety-eight percent, so don’t be afraid to use it, but only once you leave the Secret Realm. I recommend doing it as soon</p>
-
-<p>as possible.”</p>
+<p>“The purity is ninety-eight percent, so don’t be afraid to use it, but only once you leave the Secret Realm. I recommend doing it as soon as possible.”</p>
 
 <p>The moment he heard that, Bai Hu Lie’s eyes shone brightly.</p>
 
 <p>Yes, that was wonderful!</p>
 
-<p>A man worthy of being his brother-in-law and of having his seed in</p>
+<p>A man worthy of being his brother-in-law and of having his seed in his beautiful sister!</p>
 
-<p>his beautiful sister!</p>
-
-<p>“HAHAHAHA, I really chose a good brother-in-law, hahaha! Know that I am my father’s heir, and he will certainly be very happy to hear of your help! I’ll tell him that you gave me this pill as a wedding dowry! I’ll leave the secret realm early; my father will arrange the marriage with the leader of your sect, don’t worry!” Bai Hu Lie roared with</p>
-
-<p>laughter as he put the pill away.</p>
+<p>“HAHAHAHA, I really chose a good brother-in-law, hahaha! Know that I am my father’s heir, and he will certainly be very happy to hear of your help! I’ll tell him that you gave me this pill as a wedding dowry! I’ll leave the secret realm early; my father will arrange the marriage with the leader of your sect, don’t worry!” Bai Hu Lie roared with laughter as he put the pill away.</p>
 
 <p>As for Longwei’s death, he couldn’t care less.</p>
 
 <p>Longwei knew the risks of choosing Bai Hu Lie, and no one would offend the most powerful stellar sovereign in combat in all of the northern celestial heavens just because of him.</p>
 
-<p>Before Qingyi could even say a word, the tiger had already left,</p>
+<p>Before Qingyi could even say a word, the tiger had already left, leaving him behind with a strange and slightly regretful look.</p>
 
-<p>leaving him behind with a strange and slightly regretful look.</p>
+<p>That damn tiger really wanted to marry him off to his sister at all costs, didn’t he?</p>
 
-<p>That damn tiger really wanted to marry him off to his sister at all</p>
-
-<p>costs, didn’t he?</p>
-
-<p>Well, it would be problematic if she had bad traits, but Qingyi wasn’t</p>
-
-<p>in the mood to think about that.</p>
+<p>Well, it would be problematic if she had bad traits, but Qingyi wasn’t in the mood to think about that.</p>
 
 <p>In the worst-case scenario, he would pretend nothing had ever happened and delay everything until he was strong enough to simply flee to the central regions.</p>
 

@@ -61,9 +61,7 @@ chapter = 397
 
 <p>‘Damn… it feels even more painful than before… Qingyi repeated in his mind, gritting his teeth.</p>
 
-<p>His body was engulfed in intense light. His four types of Qi divided the world around him into exactly four parts before dissipating with a</p>
-
-<p>loud bang, generating a shockwave that made the entire ship shake.</p>
+<p>His body was engulfed in intense light. His four types of Qi divided the world around him into exactly four parts before dissipating with a loud bang, generating a shockwave that made the entire ship shake.</p>
 
 <p>For long minutes, the improvement continued, slow and painful, rebuilding Qingyi’s Dantian and meridians, multiplying his capacity to move and store Qi several times over.</p>
 
@@ -73,15 +71,11 @@ chapter = 397
 
 <p>Opening his status screen, he glanced at the new prices.</p>
 
-<p>150 billion to improve his cultivation to the realm of false immortal. The price to improve his spiritual roots reached ten trillion, an</p>
-
-<p>increase of more than forty times.</p>
+<p>150 billion to improve his cultivation to the realm of false immortal. The price to improve his spiritual roots reached ten trillion, an increase of more than forty times.</p>
 
 <p>Well, it was only natural, since his spiritual roots were reaching the peak of what the immortal heavens allowed.</p>
 
-<p>He even thought about improving his cultivation right away, but they had already landed, and he needed to talk to Tai’Ren before leaving</p>
-
-<p>with Linyue.</p>
+<p>He even thought about improving his cultivation right away, but they had already landed, and he needed to talk to Tai’Ren before leaving with Linyue.</p>
 
 <p>Sighing heavily, he left the cultivation room, immediately greeted by Linyue’s embrace.</p>
 
@@ -103,15 +97,9 @@ chapter = 397
 
 <p>***</p>
 
-<p>In the Blue Sea Kingdom, it had been many months since the civil war</p>
+<p>In the Blue Sea Kingdom, it had been many months since the civil war had begun.</p>
 
-<p>had begun.</p>
-
-<p>A decisive battle took place between the two brothers, a confrontation that only ended with the death of the second prince at</p>
-
-<p>the hands of the Crimson Blade Duke, who sacrificed himself to</p>
-
-<p>deliver the final blow and put his nephew on the throne.</p>
+<p>A decisive battle took place between the two brothers, a confrontation that only ended with the death of the second prince at the hands of the Crimson Blade Duke, who sacrificed himself to deliver the final blow and put his nephew on the throne.</p>
 
 <p>In this battle, Jin Meilin, daughter of the Golden King, Margareth, a noblewoman from another continent, and Qingyi, a prodigious cultivator, had also disappeared.</p>
 
@@ -121,9 +109,7 @@ chapter = 397
 
 <p>Qingyi with him.</p>
 
-<p>Right now, he was sitting on the throne that once belonged to his father, recognized by the people and the true immortals who guarded</p>
-
-<p>the royal family.</p>
+<p>Right now, he was sitting on the throne that once belonged to his father, recognized by the people and the true immortals who guarded the royal family.</p>
 
 <p>All his subjects were kneeling, except for one: his brother-in-law and current manager of the Five-Color Pavilion, Jin Tianshi.</p>
 
@@ -135,9 +121,7 @@ chapter = 397
 
 <p>I promise that I will forgive your debt and personally erect a monument in memory of my sister and the young hero, Long Qingyi!”</p>
 
-<p>Tianshi’s irritating, slightly hoarse voice echoed through the throne</p>
-
-<p>room.</p>
+<p>Tianshi’s irritating, slightly hoarse voice echoed through the throne room.</p>
 
 <p>Of course, unlike the new king, Tianshi already knew that his sister and Qingyi had survived and had contacted their father through the branch in the land of the beastmen.</p>
 

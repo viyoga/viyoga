@@ -77,9 +77,7 @@ chapter = 482
 
 <p>Silently, she walked to the huge platform.</p>
 
-<p>With Qingyi by her side, their bodies were swallowed by a powerful spatial distortion, the mana around them changing shape</p>
-
-<p>immediately.</p>
+<p>With Qingyi by her side, their bodies were swallowed by a powerful spatial distortion, the mana around them changing shape immediately.</p>
 
 <p>When Qingyi realized it, they were already in a completely different place. The density of mana surrounding him exploded, the air filling his lungs even purer than before.</p>
 
@@ -87,9 +85,7 @@ chapter = 482
 
 <p>Immediately, Qingyi heard the unmistakable sound of steel sliding against steel. A noble and elegant elven saber appeared in his vision, pressing against his throat.</p>
 
-<p>“What is your motivation with Lady Seraphine?” Viola demanded,</p>
-
-<p>pressing her saber a little harder, just enough to draw blood.</p>
+<p>“What is your motivation with Lady Seraphine?” Viola demanded, pressing her saber a little harder, just enough to draw blood.</p>
 
 <p>To her surprise, Qingyi did not move, and his skin did not yield.</p>
 
@@ -101,27 +97,19 @@ chapter = 482
 
 <p>“We are old acquaintances.”</p>
 
-<p>“Acquaintance? With Lady Seraphine? Since when have you known each other?” Viola questioned, her face filled with even more</p>
+<p>“Acquaintance? With Lady Seraphine? Since when have you known each other?” Viola questioned, her face filled with even more suspicion.</p>
 
-<p>suspicion.</p>
-
-<p>How could she believe that this strange foreigner had already been in</p>
-
-<p>contact with her mistress?</p>
+<p>How could she believe that this strange foreigner had already been in contact with her mistress?</p>
 
 <p>“That is a question you should ask Lady Seraphine herself, not me.</p>
 
-<p>She will tell you everything that needs to be said.” Qingyi’s voice</p>
-
-<p>hardened, slightly irritated.</p>
+<p>She will tell you everything that needs to be said.” Qingyi’s voice hardened, slightly irritated.</p>
 
 <p>He had neither the time nor the inclination to deal with whatever nonsense this woman was spouting.</p>
 
 <p>Viola gritted her teeth, gripping her sword even tighter.</p>
 
-<p>She held the blade to Qingyi’s neck for another moment before</p>
-
-<p>stepping back.</p>
+<p>She held the blade to Qingyi’s neck for another moment before stepping back.</p>
 
 <p>She simply couldn’t afford to wait any longer.</p>
 
@@ -135,6 +123,4 @@ chapter = 482
 
 <p>“This must be RedDeath… Qingyi repeated in his mind.</p>
 
-<p>He watched as the bronze dragon landed beside the crimson dragon,</p>
-
-<p>the two exchanging angry roars before beginning to ignore each other’s presence.</p>
+<p>He watched as the bronze dragon landed beside the crimson dragon, the two exchanging angry roars before beginning to ignore each other’s presence.</p>

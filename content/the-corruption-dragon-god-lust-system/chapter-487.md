@@ -29,9 +29,7 @@ chapter = 487
 
 <p>The draconic beauty only gave a restrained and elegant smile, raising a single finger.</p>
 
-<p>Of course, they were powerful enough to fall from thousands of</p>
-
-<p>kilometers high without suffering a single scratch, and they could fly freely.</p>
+<p>Of course, they were powerful enough to fall from thousands of kilometers high without suffering a single scratch, and they could fly freely.</p>
 
 <p>But as powerful as they were, they were also dramatic.</p>
 
@@ -71,9 +69,7 @@ chapter = 487
 
 <p>Elize stopped beside Seraphine, also stroking the scales on Khaedryss’s snout.</p>
 
-<p>“What are you waiting for? Let’s go fly for a bit.” Qingyi approached from behind the two, slapping their bottoms and then pulling them</p>
-
-<p>onto his lap.</p>
+<p>“What are you waiting for? Let’s go fly for a bit.” Qingyi approached from behind the two, slapping their bottoms and then pulling them onto his lap.</p>
 
 <p>When he jumped onto Khaedryss’s back, he felt the two voluptuous bodies of the beauties sink into his arms.</p>
 
@@ -85,47 +81,31 @@ chapter = 487
 
 <p>Linyue, Qingxue, Qianyao, and Xueyao arrived just in time to see Khaedryss leave.</p>
 
-<p>“Oh… it looks like hubby got another sister!” Linyue exclaimed,</p>
-
-<p>impressed.</p>
+<p>“Oh… it looks like hubby got another sister!” Linyue exclaimed, impressed.</p>
 
 <p>“So shameless!” Xueyao commented from the side, eliciting laughter from the other girls.</p>
 
 <p>Yes, their husband was too shameless. But that was okay, because this naughty and shameless husband was the husband they loved.</p>
 
-<p>It took only a moment for Khaedryss to reach the clouds, flying freely</p>
+<p>It took only a moment for Khaedryss to reach the clouds, flying freely at a slow but steady speed.</p>
 
-<p>at a slow but steady speed.</p>
+<p>At least, considering her current level of power. It was still an extremely high speed for any mortal.</p>
 
-<p>At least, considering her current level of power. It was still an</p>
+<p>The world of the mind was already a few thousand kilometers wide, but she still didn’t fly freely very often.</p>
 
-<p>extremely high speed for any mortal.</p>
+<p>The two beauties in Qingyi’s arms just closed their eyes, letting the wind blow against their faces and ruffle their hair.</p>
 
-<p>The world of the mind was already a few thousand kilometers wide,</p>
-
-<p>but she still didn’t fly freely very often.</p>
-
-<p>The two beauties in Qingyi’s arms just closed their eyes, letting the</p>
-
-<p>wind blow against their faces and ruffle their hair.</p>
-
-<p>Both of them could fly and experience this feeling for themselves, but</p>
-
-<p>it was nothing compared to flying on Khaedryss’s back.</p>
+<p>Both of them could fly and experience this feeling for themselves, but it was nothing compared to flying on Khaedryss’s back.</p>
 
 <p>“Husband… what do we do now?” Seraphine asked.</p>
 
 <p>Would they just run away immediately? Leave everything behind?</p>
 
-<p>She didn’t hate that idea, and honestly, she couldn’t give less of a fuck</p>
-
-<p>about the Grand Duchy of Vaeldrinn.</p>
+<p>She didn’t hate that idea, and honestly, she couldn’t give less of a fuck about the Grand Duchy of Vaeldrinn.</p>
 
 <p>She was tired of this land.</p>
 
-<p>Qingyi hesitated for a brief moment, thinking before replying, “I still</p>
-
-<p>plan to have Khaedryss eat Karlan’s heart before we leave.”</p>
+<p>Qingyi hesitated for a brief moment, thinking before replying, “I still plan to have Khaedryss eat Karlan’s heart before we leave.”</p>
 
 <p>To his surprise, both beauties remained silent.</p>
 
@@ -135,12 +115,8 @@ chapter = 487
 
 <p>“Yes, hubby is the best!”</p>
 
-<p>The two beauties replied at the same time, eliciting a big smile from</p>
+<p>The two beauties replied at the same time, eliciting a big smile from Qingyi.</p>
 
-<p>Qingyi.</p>
-
-<p>His lips parted, but before he could say anything, Seraphine</p>
-
-<p>continued.</p>
+<p>His lips parted, but before he could say anything, Seraphine continued.</p>
 
 <p>“Husband… Do you know why Khaedryss ascended and became the most powerful dragon in the history of Vaeldrinn?”</p>

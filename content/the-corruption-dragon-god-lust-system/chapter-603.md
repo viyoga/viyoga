@@ -29,9 +29,7 @@ chapter = 603
 
 <p>Rongyan’s lips parted as she clenched her teeth.</p>
 
-<p>In one fluid motion, with Qingyi still inside her, she spun around. Her legs wrapped around his hips and her nails dug into his shoulders,</p>
-
-<p>leaving long red marks behind.</p>
+<p>In one fluid motion, with Qingyi still inside her, she spun around. Her legs wrapped around his hips and her nails dug into his shoulders, leaving long red marks behind.</p>
 
 <p>She leaned over him, pressed her lips against his, their tongues tangling as their bodies pressed together.</p>
 
@@ -59,9 +57,7 @@ chapter = 603
 
 <p>Without hesitation, she took him into her mouth, receiving the final spurt directly down her throat, swallowing greedily with a sigh of satisfaction.</p>
 
-<p>“Hm… good girl.” Qingyi stroked Rongyan’s short red hair as she sucked him, her head tilted upward and her lips sealed around the</p>
-
-<p>head of his member.</p>
+<p>“Hm… good girl.” Qingyi stroked Rongyan’s short red hair as she sucked him, her head tilted upward and her lips sealed around the head of his member.</p>
 
 <p>Her cheeks were hollowed out by the suction, and her tongue swirled around the sensitive head.</p>
 
@@ -73,9 +69,7 @@ chapter = 603
 
 <p>“Ah~~ I want a fight… a real fight.” She stood up, wrapping her arms around him.</p>
 
-<p>“You know it’s dangerous to let any of you go out… I still don’t know what dangers this place holds.” Qingyi sighed, returning the hug. “Hm… it doesn’t have to be now… I still have a lot to train. I just want to break a few bones… It’s been so long since I’ve had a good, real</p>
-
-<p>fight.</p>
+<p>“You know it’s dangerous to let any of you go out… I still don’t know what dangers this place holds.” Qingyi sighed, returning the hug. “Hm… it doesn’t have to be now… I still have a lot to train. I just want to break a few bones… It’s been so long since I’ve had a good, real fight.</p>
 
 <p>Sometimes I go out with Khaedryss to hunt; it’s fun to punch beasts, but it’s not the same as beating up cultivators.”</p>
 
@@ -91,13 +85,9 @@ chapter = 603
 
 <p>Qingyi didn’t judge Rongyan for craving blood either.</p>
 
-<p>She was, at her core, a woman addicted to violence, though she only showed it when necessary and, thankfully, was a sweetheart to all his</p>
+<p>She was, at her core, a woman addicted to violence, though she only showed it when necessary and, thankfully, was a sweetheart to all his other women.</p>
 
-<p>other women.</p>
-
-<p>“I think Elize has already finished breakfast… when I’m in a better</p>
-
-<p>position, I promise I’ll let you fight a little.” Qingyi smiled, kissing Rongyan on the forehead and giving her a gentle pat on the butt.</p>
+<p>“I think Elize has already finished breakfast… when I’m in a better position, I promise I’ll let you fight a little.” Qingyi smiled, kissing Rongyan on the forehead and giving her a gentle pat on the butt.</p>
 
 <p>Soon after, the two left the hot springs and entered the temple, where they had a long and pleasant meal.</p>
 

@@ -77,79 +77,55 @@ chapter = 641
 
 <p>With a beaming smile, he guided Qingyi to his office, where the transaction was completed and the token, its credit now spent, was deactivated.</p>
 
-<p>“Congratulations on your purchase, Senior Brother Qingyi! What name will you choose for her?” The chubby man handed over the key</p>
-
-<p>and the ship’s documentation.</p>
+<p>“Congratulations on your purchase, Senior Brother Qingyi! What name will you choose for her?” The chubby man handed over the key and the ship’s documentation.</p>
 
 <p>The handsome young man thought for a moment, scratching his chin.</p>
 
 <p>What name would be fitting for a ship like this?</p>
 
-<p>Admiring the black and light gray contours of its elegant fuselage, he</p>
+<p>Admiring the black and light gray contours of its elegant fuselage, he smiled.</p>
 
-<p>smiled.</p>
+<p>At the top of it, two structures rose up, like the horns of a black dragon.</p>
 
-<p>At the top of it, two structures rose up, like the horns of a black</p>
-
-<p>dragon.</p>
-
-<p>“The Dragon’s Pride.” He finally spoke, extending the key toward the</p>
-
-<p>ship.</p>
+<p>“The Dragon’s Pride.” He finally spoke, extending the key toward the ship.</p>
 
 <p>Immediately, an intense glow spread across the fuselage, and writing appeared on its surface.</p>
 
 <p>The Dragon’s Pride.</p>
 
-<p>The chubby man clapped his hands excitedly, not stopping to praise Qingyi’s choice for even a second as the ship was taken to a launch</p>
-
-<p>pad.</p>
+<p>The chubby man clapped his hands excitedly, not stopping to praise Qingyi’s choice for even a second as the ship was taken to a launch pad.</p>
 
 <p>He was, after all, not only a coward but also a huge flatterer.</p>
 
 <p>And one who knew very well how to strike gold.</p>
 
-<p>He had hoped to receive a large tip from Qingyi, but in the end, he</p>
-
-<p>was disappointed.</p>
+<p>He had hoped to receive a large tip from Qingyi, but in the end, he was disappointed.</p>
 
 <p>Well… the commission was good enough.</p>
 
-<p>Silently, Qingyi stepped into his ship, the hatch closing behind him</p>
-
-<p>with a soft click.</p>
+<p>Silently, Qingyi stepped into his ship, the hatch closing behind him with a soft click.</p>
 
 <p>The sound of his footsteps echoed through the wide main corridor as he walked to the pilot’s seat, where he sat down.</p>
 
 <p>Immediately, the seat swiveled.</p>
 
-<p>The tinted glass of the cockpit lit up, and beneath him, a control</p>
+<p>The tinted glass of the cockpit lit up, and beneath him, a control console emerged, with a joystick similar to an airplane’s rising between his legs.</p>
 
-<p>console emerged, with a joystick similar to an airplane’s rising between his legs.</p>
+<p>His fingers wrapped around the joystick, and the massive engines of the Dragon’s Pride came to life, a bluish flame roaring as Qi coursed through each of them.</p>
 
-<p>His fingers wrapped around the joystick, and the massive engines of</p>
-
-<p>the Dragon’s Pride came to life, a bluish flame roaring as Qi coursed through each of them.</p>
-
-<p>The vibration of the engines coursed through the entire ship, rising</p>
-
-<p>up through the seat to his bones.</p>
+<p>The vibration of the engines coursed through the entire ship, rising up through the seat to his bones.</p>
 
 <p>Then, he took off.</p>
 
 <p>He pointed the ship’s sharp nose toward the skies and accelerated.</p>
 
-<p>His body was crushed against the seat by the absurd acceleration. The clouds in the black sky drew closer before being torn apart in a single</p>
-
-<p>second.</p>
+<p>His body was crushed against the seat by the absurd acceleration. The clouds in the black sky drew closer before being torn apart in a single second.</p>
 
 <p>It was fast. Fucking fast.</p>
 
 <p>Much faster than the ship he had rented before.</p>
 
-<p>In less than three seconds, Qingyi reached the high orbit of the</p>
-
-<p>Aurora planet.</p>
+<p>In less than three seconds, Qingyi reached the high orbit of the Aurora planet.</p>
 
 <p>“Ah…” He sighed, his lips curving wider and wider.</p>
 

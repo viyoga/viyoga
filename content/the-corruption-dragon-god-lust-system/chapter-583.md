@@ -77,15 +77,11 @@ chapter = 583
 
 <p>“What?” Auranys asked, feeling Qingyi’s hands slide down to her huge tits, sinking into her milky, perfect skin.</p>
 
-<p>“Here… staying with the other girls,” Qingyi said, falling silent for a moment. “I will be going to the celestial sky soon, and I plan to</p>
-
-<p>become its new ruler.</p>
+<p>“Here… staying with the other girls,” Qingyi said, falling silent for a moment. “I will be going to the celestial sky soon, and I plan to become its new ruler.</p>
 
 <p>If you want, I can help you regain all your power.”</p>
 
-<p>“Hm… Isn’t that only natural?” Auranys turned around, staring him in</p>
-
-<p>the eyes.</p>
+<p>“Hm… Isn’t that only natural?” Auranys turned around, staring him in the eyes.</p>
 
 <p>“If I am your woman, I must evolve alongside you, mustn’t I?” She flashed a shy smile on her pink lips.</p>
 
@@ -95,9 +91,7 @@ chapter = 583
 
 <p>Ruling the heavens, in her eyes, was simply Qingyi’s destiny.</p>
 
-<p>“I…” Auranys’ hands closed over the hem of her dress, a soft blush</p>
-
-<p>taking over her face.</p>
+<p>“I…” Auranys’ hands closed over the hem of her dress, a soft blush taking over her face.</p>
 
 <p>She couldn’t believe what she was about to do…</p>
 
@@ -105,9 +99,7 @@ chapter = 583
 
 <p>“My purity…” She finally lifted her dress, revealing her virgin and untouched pussy, the pale, plump lips of her vulva already drenched with her love juices.</p>
 
-<p>“I-I gave you permission to love me… now, I give you permission to</p>
-
-<p>take my purity.” Auranys spoke, stammering softly.</p>
+<p>“I-I gave you permission to love me… now, I give you permission to take my purity.” Auranys spoke, stammering softly.</p>
 
 <p>Was it the right thing to do?</p>
 
@@ -119,39 +111,27 @@ chapter = 583
 
 <p>Slowly, he lowered himself.</p>
 
-<p>His large, strong hands moved to the deity’s hips, his fingers closing</p>
-
-<p>around the milky, creamy skin that covered them.</p>
+<p>His large, strong hands moved to the deity’s hips, his fingers closing around the milky, creamy skin that covered them.</p>
 
 <p>“I’ve always wondered what a goddess’s pussy tastes like…”</p>
 
-<p>His lips parted, and then he sank his tongue into that soft, perfect,</p>
-
-<p>tight pussy, reaching her clitoris.</p>
+<p>His lips parted, and then he sank his tongue into that soft, perfect, tight pussy, reaching her clitoris.</p>
 
 <p>“Y-your tongue… N-not there, you… nghnn~~ pervert!” Auranys shuddered, overcome with confusion and pleasure.</p>
 
 <p>“Ah… I’m sorry, love… but this divine little pussy is too delicious…”</p>
 
-<p>Qingyi smiled before sinking in again, reveling in her moans of</p>
-
-<p>pleasure.</p>
+<p>Qingyi smiled before sinking in again, reveling in her moans of pleasure.</p>
 
 <p>“Nghnn~~ fuck~~ so aghnn~~” Auranys clung to Qingyi’s horns, her legs shaking violently as he used his tongue to masturbate her.</p>
 
-<p>In her entire life, she never believed that such intense pleasure could</p>
-
-<p>be real.</p>
+<p>In her entire life, she never believed that such intense pleasure could be real.</p>
 
 <p>Feeling that she was ready, Qingyi finally pulled away from her pussy.</p>
 
-<p>With a swift movement, he tore off her dress and began to move</p>
+<p>With a swift movement, he tore off her dress and began to move upward.</p>
 
-<p>upward.</p>
-
-<p>His tongue passed over her crotch, her slender belly, and finally the</p>
-
-<p>deep valley between her huge, heavy tits.</p>
+<p>His tongue passed over her crotch, her slender belly, and finally the deep valley between her huge, heavy tits.</p>
 
 <p>When he reached those sweet, divine lips, Qingyi kissed her.</p>
 

@@ -31,9 +31,7 @@ chapter = 600
 
 <p>Although capable of roaming through space, anyone below the First Step of the Path of Extinction Realm would face great difficulties getting around, expending nearly all their Qi to traverse the long distances separating worlds and moons.</p>
 
-<p>Only those in the Star Sovereign Realm were, in fact, capable of</p>
-
-<p>roaming freely through the cosmos.</p>
+<p>Only those in the Star Sovereign Realm were, in fact, capable of roaming freely through the cosmos.</p>
 
 <p>The best part about that size was, honestly, that the disciples could have their own rooms.</p>
 
@@ -55,9 +53,7 @@ chapter = 600
 
 <p>“Yes, Elder!” The young people clenched their fists, responding in unison.</p>
 
-<p>“Very well. Your first lesson with the sect’s instructors will take place at the Fighting Soul Palace early tomorrow. It’s marked on the map you’ll receive in your rooms.” The elder waved his hands, and then hundreds of tokens flew through the air, landing in each disciple’s</p>
-
-<p>hands.</p>
+<p>“Very well. Your first lesson with the sect’s instructors will take place at the Fighting Soul Palace early tomorrow. It’s marked on the map you’ll receive in your rooms.” The elder waved his hands, and then hundreds of tokens flew through the air, landing in each disciple’s hands.</p>
 
 <p>Those tokens confirmed that they were disciples of the Cosmic Dawn Sect, in addition to granting access to their private quarters and serving as payment cards loaded with sect credits.</p>
 
@@ -69,9 +65,7 @@ chapter = 600
 
 <p>Naturally, no one spoke aloud or made a fuss.</p>
 
-<p>It wasn’t even wrong to say that Qingyi was the only one relaxed among those young people, not flinching even when receiving</p>
-
-<p>piercing glances from the senior disciples.</p>
+<p>It wasn’t even wrong to say that Qingyi was the only one relaxed among those young people, not flinching even when receiving piercing glances from the senior disciples.</p>
 
 <p>“Long Qingyi.” A voice came from behind him.</p>
 
@@ -79,9 +73,7 @@ chapter = 600
 
 <p>Master Luo, the one who had led the men who tried to prevent Chen Wei from reaching the sect’s selection.</p>
 
-<p>“Speak, worm,” Long Qingyi declared, like a dragon looking down on</p>
-
-<p>an insect.</p>
+<p>“Speak, worm,” Long Qingyi declared, like a dragon looking down on an insect.</p>
 
 <p>“Ugh… tonight I’ll advance to the Astral blood realm and defeat you in the initiation duels during tomorrow’s class! You’ll regret meddling in the Luo family’s affairs!” he declared.</p>
 
@@ -89,11 +81,7 @@ chapter = 600
 
 <p>“Your enemy is Chen Wei, not me. But if you want to lose every tooth in your mouth that badly, fine.” Qingyi smiled contemptuously, turning his back on Young Master Luo.</p>
 
-<p>“Uh… breakthrough tonight, as if that were possible. That bastard Luo</p>
-
-<p>has more guts than brains.” Chen Wei puffed out his chest as he</p>
-
-<p>walked side by side with Qingyi.</p>
+<p>“Uh… breakthrough tonight, as if that were possible. That bastard Luo has more guts than brains.” Chen Wei puffed out his chest as he walked side by side with Qingyi.</p>
 
 <p>“So, big brother Qingyi, how about we have a drink to celebrate? I’ll tell you everything I know about Ruoxi and the selection process to become her next adopted child! Hehehe.” Chen Wei chuckled. Qingyi wasn’t interested at first, but upon hearing the end of the proposal, he could only nod.</p>
 
@@ -103,9 +91,7 @@ chapter = 600
 
 <p>When they reappeared, Chen Wei was wearing the standard disciple uniform of the Cosmic Dawn Sect, while Qingyi wore his regular clothes, wearing only the sect’s insignia on his chest.</p>
 
-<p>Those black robes with golden dragons had been designed by Feiyan</p>
-
-<p>and tailored by Meilin, with a touch from each of his wives as well.</p>
+<p>Those black robes with golden dragons had been designed by Feiyan and tailored by Meilin, with a touch from each of his wives as well.</p>
 
 <p>As such, they were basically the only clothes he wore, high-quality and made with a lot of love.</p>
 

@@ -29,9 +29,7 @@ chapter = 614
 
 <p>Fortunately, in the eyes of enemies like the Heavenly Demon, Qingyi was a needle in a haystack.</p>
 
-<p>Being literally on the opposite side of the universe from the land of demons, with the central region, rich and teeming with powerful orthodox experts, separating them, he didn’t stress much over that</p>
-
-<p>threat.</p>
+<p>Being literally on the opposite side of the universe from the land of demons, with the central region, rich and teeming with powerful orthodox experts, separating them, he didn’t stress much over that threat.</p>
 
 <p>They would likely only learn of each other’s existence when Qingyi was strong enough to reveal himself, or when he was already under Tianjin’s protection.</p>
 
@@ -45,13 +43,9 @@ chapter = 614
 
 <p>A few more days and he could already improve his lineage, constitution, and even his spiritual roots.</p>
 
-<p>After all, though powerful, his spiritual roots were still not sufficient to fully and efficiently absorb all the Qi surrounding him in the</p>
+<p>After all, though powerful, his spiritual roots were still not sufficient to fully and efficiently absorb all the Qi surrounding him in the celestial heavens.</p>
 
-<p>celestial heavens.</p>
-
-<p>Only when, just like in the Immortal Realm, he was able to exhaust the Qi of his region during cultivation would he be extracting the</p>
-
-<p>maximum possible from each session.</p>
+<p>Only when, just like in the Immortal Realm, he was able to exhaust the Qi of his region during cultivation would he be extracting the maximum possible from each session.</p>
 
 <p>With a sigh, Qingyi pushed those thoughts aside and turned his attention back to the two of them.</p>
 
@@ -75,45 +69,29 @@ chapter = 614
 
 <p>How could it fail? She was the one coming up with the idea.</p>
 
-<p>“Ah…” Qingyi stifled a laugh, shaking his head. “I’ll assess the financial</p>
-
-<p>feasibility of this with Meilin later.”</p>
+<p>“Ah…” Qingyi stifled a laugh, shaking his head. “I’ll assess the financial feasibility of this with Meilin later.”</p>
 
 <p>Ruyan always managed to cheer him up.</p>
 
-<p>She was crazy, but a crazy woman with a tight throat, a plump pussy,</p>
-
-<p>and a perfect ass.</p>
+<p>She was crazy, but a crazy woman with a tight throat, a plump pussy, and a perfect ass.</p>
 
 <p>Honestly, she was exactly his type of woman.</p>
 
-<p>Qingyi was about to get ready for another round with the two of them</p>
-
-<p>when he froze.</p>
+<p>Qingyi was about to get ready for another round with the two of them when he froze.</p>
 
 <p>Something made him stop.</p>
 
-<p>Exchanging farewell caresses with Ruyan and Nianxue, he stepped</p>
-
-<p>out of the world of mind and returned to the cultivation room where</p>
-
-<p>he was.</p>
+<p>Exchanging farewell caresses with Ruyan and Nianxue, he stepped out of the world of mind and returned to the cultivation room where he was.</p>
 
 <p>Someone was waiting outside.</p>
 
 <p>Chen Wei didn’t know he was there, so it could only be someone else.</p>
 
-<p>Maybe some bastard looking for a beating. Or something more</p>
+<p>Maybe some bastard looking for a beating. Or something more important.</p>
 
-<p>important.</p>
+<p>Not wanting to take any chances, Qingyi stood up slowly and gripped the sky-defying thunder sword in his hand.</p>
 
-<p>Not wanting to take any chances, Qingyi stood up slowly and gripped</p>
-
-<p>the sky-defying thunder sword in his hand.</p>
-
-<p>The cultivation chamber was no different from the ones he used in</p>
-
-<p>the mortal and immortal realms. Why change what worked? Walls as black as obsidian, illuminated by bluish crystals, surrounded by formations designed to prevent them from collapsing under surges of power and to repair them instantly in case of damage. Furthermore, Qi formations suppressed sound, both from the inside out and from the outside in.</p>
+<p>The cultivation chamber was no different from the ones he used in the mortal and immortal realms. Why change what worked? Walls as black as obsidian, illuminated by bluish crystals, surrounded by formations designed to prevent them from collapsing under surges of power and to repair them instantly in case of damage. Furthermore, Qi formations suppressed sound, both from the inside out and from the outside in.</p>
 
 <p>The only way to interrupt cultivation inside would be to open the door, or to use the formations themselves to communicate.</p>
 
@@ -121,29 +99,17 @@ chapter = 614
 
 <p>That alone guaranteed that, whoever was on the other side, they were someone of considerable power.</p>
 
-<p>He quickly wiped the sweat and kiss marks from his body and opened</p>
+<p>He quickly wiped the sweat and kiss marks from his body and opened the door to the cultivation room.</p>
 
-<p>the door to the cultivation room.</p>
+<p>The attendant who had served him earlier was there, her hands clasped slightly nervously in front of her body.</p>
 
-<p>The attendant who had served him earlier was there, her hands</p>
-
-<p>clasped slightly nervously in front of her body.</p>
-
-<p>“Greetings, esteemed client Long Qingyi. Forgive me for interrupting your cultivation, but this esteemed guest would like to speak with</p>
-
-<p>you.” Qingyi’s gaze followed her gesture and fell upon a man with a rough face and composed, professional eyes.</p>
+<p>“Greetings, esteemed client Long Qingyi. Forgive me for interrupting your cultivation, but this esteemed guest would like to speak with you.” Qingyi’s gaze followed her gesture and fell upon a man with a rough face and composed, professional eyes.</p>
 
 <p>He wore a central palace uniform.</p>
 
-<p>His cultivation was no less than that of a central disciple, perhaps at</p>
+<p>His cultivation was no less than that of a central disciple, perhaps at the late stage of the Cosmic Domain Realm, just one step below the elders.</p>
 
-<p>the late stage of the Cosmic Domain Realm, just one step below the</p>
-
-<p>elders.</p>
-
-<p>“Young Master Long Qingyi.” The man pulled a small letter from his robes and held it out. “Our princess’s head maid ordered me to deliver</p>
-
-<p>this to you.”</p>
+<p>“Young Master Long Qingyi.” The man pulled a small letter from his robes and held it out. “Our princess’s head maid ordered me to deliver this to you.”</p>
 
 <p>‘Uh… that girl again…’</p>
 

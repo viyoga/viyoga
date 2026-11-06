@@ -75,9 +75,7 @@ chapter = 648
 
 <p>[You have received a new bloodline ability: “The Dragon’s Aura.]</p>
 
-<p>Qingyi raised a brow. This was… something similar to bloodline</p>
-
-<p>projection?</p>
+<p>Qingyi raised a brow. This was… something similar to bloodline projection?</p>
 
 <p>With a quiet sigh, he turned and found Ruxue already watching him, a bright gleam in her purple eyes.</p>
 
@@ -87,15 +85,11 @@ chapter = 648
 
 <p>He squeezed, and the dense, pillowy volume compressed around his grip, reshaping itself to his hand.</p>
 
-<p>Even through the thin fabric, he could feel her nipple stiffen against</p>
-
-<p>his skin.</p>
+<p>Even through the thin fabric, he could feel her nipple stiffen against his skin.</p>
 
 <p>Ruxue let out a short breath against his lips.</p>
 
-<p>“When you’re done, come to the mind world. Rou’er wants to show</p>
-
-<p>off her culinary skills to you.”</p>
+<p>“When you’re done, come to the mind world. Rou’er wants to show off her culinary skills to you.”</p>
 
 <p>She straightened up, and the breast he’d been gripping bounced free from his hold with a slow, weighty jiggle.</p>
 
@@ -105,21 +99,15 @@ chapter = 648
 
 <p>Pushing the distraction aside, he drew on the flood of information that had invaded his mind and activated the dragon aura.</p>
 
-<p>It was an interesting ability. It allowed him to channel bloodline Qi directly as a form of attack, in the same way he could use normal Qi. The difference was that bloodline Qi was far more tyrannical. Its raw potency was comparable to the flames of primordial chaos</p>
+<p>It was an interesting ability. It allowed him to channel bloodline Qi directly as a form of attack, in the same way he could use normal Qi. The difference was that bloodline Qi was far more tyrannical. Its raw potency was comparable to the flames of primordial chaos themselves.</p>
 
-<p>themselves.</p>
-
-<p>As he considered its applications, the first thing that came to mind was the Heaven-Shattering Divine Slash, the most powerful attack in</p>
-
-<p>his arsenal.</p>
+<p>As he considered its applications, the first thing that came to mind was the Heaven-Shattering Divine Slash, the most powerful attack in his arsenal.</p>
 
 <p>In the Immortal Heavens, that strike was something he reserved for moments that truly mattered.</p>
 
 <p>Here, however, with vastly larger Qi reserves, he had been throwing it around casually.</p>
 
-<p>Wasn’t it a waste? A skill with such an arrogant name, reduced to a</p>
-
-<p>common tool?</p>
+<p>Wasn’t it a waste? A skill with such an arrogant name, reduced to a common tool?</p>
 
 <p>He had the Tempest Monarch’s sword art for dealing with ordinary enemies, along with other lesser techniques.</p>
 
@@ -129,16 +117,12 @@ chapter = 648
 
 <p>After a few moments of thought, a grin crept across his face.</p>
 
-<p>What if he fused the flames of primordial chaos with his bloodline</p>
-
-<p>aura into a single strike?</p>
+<p>What if he fused the flames of primordial chaos with his bloodline aura into a single strike?</p>
 
 <p>With the bloodline Qi freshly strengthened by the latest upgrade, the possibilities sent a thrill through him.</p>
 
 <p>Grinning broadly, he spent the remaining hundred-plus G lust points without hesitation.</p>
 
-<p>He elevated his mana heart to the fourteenth stage, improved his</p>
-
-<p>affinities, and purchased every remaining form of the Tempest Monarch’s sword art, completing the full set.</p>
+<p>He elevated his mana heart to the fourteenth stage, improved his affinities, and purchased every remaining form of the Tempest Monarch’s sword art, completing the full set.</p>
 
 <p>Soon, he would forge a martial technique unmatched even in the celestial heavens.</p>

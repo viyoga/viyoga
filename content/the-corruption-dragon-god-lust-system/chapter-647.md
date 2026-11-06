@@ -17,9 +17,7 @@ chapter = 647
 
 <p>“Ah…” Qingyi grunted, his fingers tightening in Rou’er’s pink hair.</p>
 
-<p>After another second like that, her throat stuffed full, she finally pulled back. The thick shaft slid free, drenched in a glistening coat of</p>
-
-<p>saliva.</p>
+<p>After another second like that, her throat stuffed full, she finally pulled back. The thick shaft slid free, drenched in a glistening coat of saliva.</p>
 
 <p>*Pop*</p>
 
@@ -29,13 +27,9 @@ chapter = 647
 
 <p>Each warm droplet rolled over the pale, smooth mounds and gathered at her stiffened nipples before trickling further down her stomach.</p>
 
-<p>“Ah big brother Qingyi is so big… I could drown in his huge, delicious cock for the rest of my life!” Rou’er declared, her small hand wrapping around the shaft. She stroked it a few times, her fingers barely closing</p>
+<p>“Ah big brother Qingyi is so big… I could drown in his huge, delicious cock for the rest of my life!” Rou’er declared, her small hand wrapping around the shaft. She stroked it a few times, her fingers barely closing around the girth, before swallowing it again.</p>
 
-<p>around the girth, before swallowing it again.</p>
-
-<p>“Ah… good girl…” Qingyi stroked her pink hair as Rou’er took him deep</p>
-
-<p>once more.</p>
+<p>“Ah… good girl…” Qingyi stroked her pink hair as Rou’er took him deep once more.</p>
 
 <p>She pressed forward, her throat accepting the full length until it couldn’t take any more, her lips sealing against the base.</p>
 
@@ -87,9 +81,7 @@ chapter = 647
 
 <p>Affinities: Lightning: 6000 – Sword: 6000 – Fire: 6000 – Ice: 6000 – Space: 6000 Light: 6000 – Shadow: 6000 – Charm: 6000 (can be upgraded in the Lust Store)</p>
 
-<p>Spiritual Roots: Astral-level Primordial Creation Seed Spirit Root (Lightning, Sword, Fire, Ice, Space, Light, Shadow) (10 G Lust Points to</p>
-
-<p>upgrade).</p>
+<p>Spiritual Roots: Astral-level Primordial Creation Seed Spirit Root (Lightning, Sword, Fire, Ice, Space, Light, Shadow) (10 G Lust Points to upgrade).</p>
 
 <p>Spiritual Roots2: None/Astral-level Primordial Creation Seed Mana Heart (10 G Lust Points to upgrade).</p>
 
@@ -103,49 +95,33 @@ chapter = 647
 
 <p>G Lust Points: 286.7]</p>
 
-<p>Over two hundred and eighty-six G Lust Points. Enough to elevate</p>
-
-<p>both lineage and constitution to the origin grade, with a fortune left over for affinities, spiritual roots, and mana heart.</p>
+<p>Over two hundred and eighty-six G Lust Points. Enough to elevate both lineage and constitution to the origin grade, with a fortune left over for affinities, spiritual roots, and mana heart.</p>
 
 <p>That was simply too good to be true.</p>
 
-<p>Qingyi’s gaze drifted down to Rou’er as if he had stumbled upon a</p>
+<p>Qingyi’s gaze drifted down to Rou’er as if he had stumbled upon a gold mine.</p>
 
-<p>gold mine.</p>
-
-<p>How much would he earn if he fucked that tight little pussy and took</p>
-
-<p>her virginity?</p>
+<p>How much would he earn if he fucked that tight little pussy and took her virginity?</p>
 
 <p>Rou’er felt his stare and pulled away from the now-clean cock.</p>
 
-<p>“Hm~~ you’ll only get to fuck my pussy once we’re married, big brother Qingyi! So hurry up and get rid of that damn Tianhao! ♡” She</p>
+<p>“Hm~~ you’ll only get to fuck my pussy once we’re married, big brother Qingyi! So hurry up and get rid of that damn Tianhao! ♡” She poked his chest, drawing an honest laugh from him.</p>
 
-<p>poked his chest, drawing an honest laugh from him.</p>
-
-<p>“Yes, Rou’er, he won’t make it past this year, hahaha.” Qingyi pulled</p>
-
-<p>her onto his lap.</p>
+<p>“Yes, Rou’er, he won’t make it past this year, hahaha.” Qingyi pulled her onto his lap.</p>
 
 <p>“Let’s take a shower now, you’re filthy.”</p>
 
 <p>“Hey, so are you!”</p>
 
-<p>The two stepped into the bathroom, and warm water cascaded over</p>
-
-<p>their bodies.</p>
+<p>The two stepped into the bathroom, and warm water cascaded over their bodies.</p>
 
 <p>Rou’er’s small hands stayed wrapped around his cock the entire time.</p>
 
 <p>Her soap-slick fingers glided along every inch of the shaft, squeezing gently whenever she reached the base.</p>
 
-<p>The suds ran down her wet body, tracing the curve of her narrow waist and the gentle swell of her hips before sliding down her slender</p>
+<p>The suds ran down her wet body, tracing the curve of her narrow waist and the gentle swell of her hips before sliding down her slender legs.</p>
 
-<p>legs.</p>
-
-<p>Before they stepped out, she planted a teasing kiss on the tip, her lips</p>
-
-<p>lingering just a second too long.</p>
+<p>Before they stepped out, she planted a teasing kiss on the tip, her lips lingering just a second too long.</p>
 
 <p>Back in the bedroom, the two settled on the bed with their eyes turned toward the window beside them.</p>
 
@@ -153,30 +129,18 @@ chapter = 647
 
 <p>Rou’er’s naked body melted into Qingyi’s lap. His cock rested buried between her plump thighs, the warm, cushiony flesh pressing snug around the shaft. Her round, full ass sat firm against his pelvis, the supple cheeks dimpling slightly under her own weight.</p>
 
-<p>“Hm… don’t you think it’s time to introduce Rou’er to the others? You</p>
+<p>“Hm… don’t you think it’s time to introduce Rou’er to the others? You shameless womanizer… We barely blinked and you already have your cock down another woman’s throat.”</p>
 
-<p>shameless womanizer… We barely blinked and you already have your cock down another woman’s throat.”</p>
-
-<p>Rou’er’s eyes shifted at the voice, landing on Ruxue, and her whole</p>
-
-<p>face lit up with excitement.</p>
+<p>Rou’er’s eyes shifted at the voice, landing on Ruxue, and her whole face lit up with excitement.</p>
 
 <p>“Oh… it’s the spirit big sister. Ruxue, right? You’re so big…” Her gaze drifted downward, settling on Ruxue’s enormous pale tits.</p>
 
-<p>She wanted to be that big, but she was already a grown woman. Her</p>
+<p>She wanted to be that big, but she was already a grown woman. Her body wouldn’t grow any further.</p>
 
-<p>body wouldn’t grow any further.</p>
+<p>She could use a body rebirth to change her appearance, but the effect was only temporary. In the end, the appearance of her body was a reflection of her soul.</p>
 
-<p>She could use a body rebirth to change her appearance, but the effect</p>
-
-<p>was only temporary. In the end, the appearance of her body was a reflection of her soul.</p>
-
-<p>At such an advanced realm of cultivation, changing it was nearly</p>
-
-<p>impossible.</p>
+<p>At such an advanced realm of cultivation, changing it was nearly impossible.</p>
 
 <p>None of that mattered much right now, though. Rou’er was simply excited to meet these “others.”</p>
 
-<p>Her big brother wouldn’t waste his time on mediocre women, would</p>
-
-<p>he?</p>
+<p>Her big brother wouldn’t waste his time on mediocre women, would he?</p>

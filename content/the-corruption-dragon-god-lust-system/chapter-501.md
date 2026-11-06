@@ -5,11 +5,7 @@ weight = 501
 chapter = 501
 +++
 
-<p>Right after their bath, Qingyi went to another room with Khaedryss,</p>
-
-<p>where they lay down tightly embraced, feeling nothing but each</p>
-
-<p>other’s warmth.</p>
+<p>Right after their bath, Qingyi went to another room with Khaedryss, where they lay down tightly embraced, feeling nothing but each other’s warmth.</p>
 
 <p>Before falling completely asleep, Qingyi didn’t miss the chance to take a look at his status screen.</p>
 
@@ -87,27 +83,19 @@ chapter = 501
 
 <p>There, the tanned beauty was already drinking some wine and preparing to start practicing some new pill recipes.</p>
 
-<p>Next to her were Ruyan and Isabel, both reminiscing about the last time their hubby had blown up the balls of an arrogant young master</p>
-
-<p>who didn’t recognize Mount Tai.</p>
+<p>Next to her were Ruyan and Isabel, both reminiscing about the last time their hubby had blown up the balls of an arrogant young master who didn’t recognize Mount Tai.</p>
 
 <p>When would those golden days return?</p>
 
-<p>The moment Feiyan saw Khaedryss, naked beside Qingyi, she was</p>
-
-<p>unable to stop a big, sensual smile from spreading across her red lips.</p>
+<p>The moment Feiyan saw Khaedryss, naked beside Qingyi, she was unable to stop a big, sensual smile from spreading across her red lips.</p>
 
 <p>“Oh… Big sister Khaedryss is truly beautiful! Fufufu~~”</p>
 
 <p>“Yes, yes, yes!”</p>
 
-<p>Ruyan and Isabel exclaimed, their eyes shining as they admired the</p>
+<p>Ruyan and Isabel exclaimed, their eyes shining as they admired the beautiful sight.</p>
 
-<p>beautiful sight.</p>
-
-<p>That lazy and grumpy dragoness, now naked, blushing, melting in the</p>
-
-<p>embrace of her husband.</p>
+<p>That lazy and grumpy dragoness, now naked, blushing, melting in the embrace of her husband.</p>
 
 <p>How could they not be impressed by that sight?</p>
 
@@ -125,31 +113,21 @@ chapter = 501
 
 <p>“Oh…!”</p>
 
-<p>The sparkle in Feiyan’s eyes intensified even more, her face filled with</p>
-
-<p>joy.</p>
+<p>The sparkle in Feiyan’s eyes intensified even more, her face filled with joy.</p>
 
 <p>She loved dressing her sisters!</p>
 
-<p>With a big smile, she opened her space ring, covering her lips and</p>
-
-<p>giggling.</p>
+<p>With a big smile, she opened her space ring, covering her lips and giggling.</p>
 
 <p>“Well… I have a few things that might fit her…</p>
 
-<p>The next moment, she took out a piece of clothing and handed it to</p>
-
-<p>Khaedryss.</p>
+<p>The next moment, she took out a piece of clothing and handed it to Khaedryss.</p>
 
 <p>Well, calling it a piece of clothing was definitely an exaggeration. “Isn’t this… too small?” Khaedryss asked, looking at the strange outfit.</p>
 
-<p>It was completely white and seemed to cover only her torso, made of a thin, elastic material, the likes of which she had never seen before in</p>
+<p>It was completely white and seemed to cover only her torso, made of a thin, elastic material, the likes of which she had never seen before in her life. Given its current size, it would barely cover her bosom, but when she gently stretched it, she realized how elastic the fabric was.</p>
 
-<p>her life. Given its current size, it would barely cover her bosom, but when she gently stretched it, she realized how elastic the fabric was.</p>
-
-<p>It resembled leather, at least in part of its texture, but much smoother, as if it had been bathed in a subtle, shiny layer of natural</p>
-
-<p>oil.</p>
+<p>It resembled leather, at least in part of its texture, but much smoother, as if it had been bathed in a subtle, shiny layer of natural oil.</p>
 
 <p>‘Is this… a swimsuit?”</p>
 
@@ -161,8 +139,6 @@ chapter = 501
 
 <p>“Hm…” Khaedryss hesitated for a moment.</p>
 
-<p>“We can move on to the next piece if you’re not interested in this</p>
-
-<p>one,” Feiyan said with a little laugh.</p>
+<p>“We can move on to the next piece if you’re not interested in this one,” Feiyan said with a little laugh.</p>
 
 <p>“No…” Khaedryss whispered. “I’ll try this one.”</p>

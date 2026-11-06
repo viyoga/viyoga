@@ -55,9 +55,7 @@ chapter = 629
 
 <p>He had never been humiliated like this.</p>
 
-<p>As the sect’s most talented inner disciple and the son of an</p>
-
-<p>incomparable tycoon, it was simply unacceptable.</p>
+<p>As the sect’s most talented inner disciple and the son of an incomparable tycoon, it was simply unacceptable.</p>
 
 <p>“Is that all you have to say, Young Master Tianhao?” The leader of the recruitment pavilion, an old man with deep-set eyes and a thin beard, broke the silence.</p>
 
@@ -79,49 +77,27 @@ chapter = 629
 
 <p>The breasts of a goddess were pressed warm and full against his face, and a draconic beauty on all fours took him in, her tight, hot pussy gripping his cock with every thrust.</p>
 
-<p>“Ah~~ aghnn~~ fuck~~ Q-Qingyi~~♡” Khaedryss’s sensual, mature voice echoed through the room, muffled by the pillow into which she</p>
-
-<p>had buried her face.</p>
+<p>“Ah~~ aghnn~~ fuck~~ Q-Qingyi~~♡” Khaedryss’s sensual, mature voice echoed through the room, muffled by the pillow into which she had buried her face.</p>
 
 <p>She lay with her head pressed down into the bed, her ass raised high and her back arched in a perfect curve, the obsidian skin of her full, round buttocks gleaming with sweat.</p>
 
-<p>Behind her, Qingyi gripped one of her horns with his left hand for</p>
+<p>Behind her, Qingyi gripped one of her horns with his left hand for support and pounded pussy her mercilessly, his hips slamming forward in a relentless rhythm.</p>
 
-<p>support and pounded pussy her mercilessly, his hips slamming</p>
+<p>With every thrust, he struck the full, juicy swell of her buttocks, each impact sending a deep, heavy shockwave rolling across both cheeks before they settled back into place, trembling.</p>
 
-<p>forward in a relentless rhythm.</p>
+<p>Beside him, with her eyes closed and her massive breasts squeezed by his possessive embrace, lay Auranys.</p>
 
-<p>With every thrust, he struck the full, juicy swell of her buttocks, each impact sending a deep, heavy shockwave rolling across both cheeks</p>
+<p>Her soft, pink nipples were between his lips, and she moaned sensually with every suck, her enormous pale breasts yielding against his face with a supple, pillowy weight.</p>
 
-<p>before they settled back into place, trembling.</p>
+<p>Her fingers sank into his black hair with a tenderness that contrasted sharply with her own breathless moans.</p>
 
-<p>Beside him, with her eyes closed and her massive breasts squeezed by</p>
+<p>“Ah…” He let the nipple slip from his lips, his hot breath brushing against her sensitive skin.</p>
 
-<p>his possessive embrace, lay Auranys.</p>
-
-<p>Her soft, pink nipples were between his lips, and she moaned</p>
-
-<p>sensually with every suck, her enormous pale breasts yielding against</p>
-
-<p>his face with a supple, pillowy weight.</p>
-
-<p>Her fingers sank into his black hair with a tenderness that contrasted</p>
-
-<p>sharply with her own breathless moans.</p>
-
-<p>“Ah…” He let the nipple slip from his lips, his hot breath brushing</p>
-
-<p>against her sensitive skin.</p>
-
-<p>A thin trickle of milk traced a slow, warm line down the full curve of</p>
-
-<p>her breast.</p>
+<p>A thin trickle of milk traced a slow, warm line down the full curve of her breast.</p>
 
 <p>“Nghnn~~ are you satisfied already?♡” Auranys asked with a shy smile, watching the trickle with half-lidded eyes.</p>
 
-<p>“Not even close.” Qingyi smiled, then brought his palm down in a firm slap across her butt, the sound sharp and clean in the warm air of the</p>
-
-<p>room.</p>
+<p>“Not even close.” Qingyi smiled, then brought his palm down in a firm slap across her butt, the sound sharp and clean in the warm air of the room.</p>
 
 <p>He pulled her toward him and threw her onto Khaedryss.</p>
 
@@ -129,6 +105,4 @@ chapter = 629
 
 <p>Khaedryss moaned, confused as she felt the goddess’s weight pressing against her back, Auranys’s pale, heavy breasts spreading their warmth across her obsidian skin, the soft flesh squeezing against her with a lazy, pliant heaviness, while the goddess’s legs instinctively spread above her raised ass.</p>
 
-<p>Soon the two found themselves aligned, their asses stacked and their bodies pressed flush together, Qingyi’s cock still buried deep in</p>
-
-<p>Khaedryss’s pussy while his hands clung possessively to Auranys’s ass.</p>
+<p>Soon the two found themselves aligned, their asses stacked and their bodies pressed flush together, Qingyi’s cock still buried deep in Khaedryss’s pussy while his hands clung possessively to Auranys’s ass.</p>

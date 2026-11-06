@@ -33,9 +33,7 @@ chapter = 520
 
 <p>[This is the preparation for the formation of your domain. Just be patient and endure. Each person has a unique domain, some larger and more powerful than others. How much you can endure here will define that.]</p>
 
-<p>A system notification arrived to Qingyi, who nodded silently, focusing</p>
-
-<p>on controlling his breathing.</p>
+<p>A system notification arrived to Qingyi, who nodded silently, focusing on controlling his breathing.</p>
 
 <p>After a few moments of silence, he felt something emerge from the farthest regions of his mental world.</p>
 
@@ -67,17 +65,13 @@ chapter = 520
 
 <p>Fire, ice, shadow, sword, space, and draconic Qi.</p>
 
-<p>In one moment, he was a flaming monarch; in the next, a living shadow. He was even a being that existed throughout space at the</p>
-
-<p>same time.</p>
+<p>In one moment, he was a flaming monarch; in the next, a living shadow. He was even a being that existed throughout space at the same time.</p>
 
 <p>His domain stretched for tens of kilometers, and Qingyi was able to shape it freely.</p>
 
 <p>[This… is not common.] The system replied after a moment of hesitation.</p>
 
-<p>Domains were formed from the origin of a person’s soul, their deeds in life, blood, and personality. Once defined, they could not be</p>
-
-<p>changed.</p>
+<p>Domains were formed from the origin of a person’s soul, their deeds in life, blood, and personality. Once defined, they could not be changed.</p>
 
 <p>But then… What the hell was Qingyi doing?</p>
 
@@ -87,9 +81,7 @@ chapter = 520
 
 <p>Qingyi’s domain was not linked to his destiny. Or, to be specific, his destiny was not something that was under the control of the heavens.</p>
 
-<p>In the entire existence of the system, in its millennia of searching for a worthy heir to the Dragon God of Corruption, it had never seen</p>
-
-<p>anything like this.</p>
+<p>In the entire existence of the system, in its millennia of searching for a worthy heir to the Dragon God of Corruption, it had never seen anything like this.</p>
 
 <p>“Ah…” Qingyi stretched.</p>
 
@@ -97,35 +89,21 @@ chapter = 520
 
 <p>It was pleasant to be there and test everything he could experience.</p>
 
-<p>He could even control the size of his domain, or fill it with draconic Qi</p>
-
-<p>if necessary.</p>
+<p>He could even control the size of his domain, or fill it with draconic Qi if necessary.</p>
 
 <p>“That won’t be enough…” He whispered, calling for another sword, as the previous one had broken.</p>
 
-<p>He felt his Qi and Mana bubble up in his body as he put everything</p>
+<p>He felt his Qi and Mana bubble up in his body as he put everything out there.</p>
 
-<p>out there.</p>
+<p>Unstoppable lightning tore through the skies, endless shadows blackened the ground, and from all of that, roses of flame and ice rose up.</p>
 
-<p>Unstoppable lightning tore through the skies, endless shadows</p>
-
-<p>blackened the ground, and from all of that, roses of flame and ice rose</p>
-
-<p>up.</p>
-
-<p>His domain continued to grow until it was just over thirty kilometers</p>
-
-<p>around him.</p>
+<p>His domain continued to grow until it was just over thirty kilometers around him.</p>
 
 <p>Finally, he stopped, feeling the flames of Primordial Chaos.</p>
 
-<p>They were still his strongest power, although he avoided using them,</p>
+<p>They were still his strongest power, although he avoided using them, as they caused terrible damage to his body.</p>
 
-<p>as they caused terrible damage to his body.</p>
-
-<p>Was his own domain what he needed to withstand them at full</p>
-
-<p>power?</p>
+<p>Was his own domain what he needed to withstand them at full power?</p>
 
 <p>Qingyi extended a single hand.</p>
 
@@ -133,40 +111,26 @@ chapter = 520
 
 <p>“Ugh…” He groaned, feeling the burning on his skin increase as he prepared his sword.</p>
 
-<p>The damage wasn’t reaching his meridians, so that was already a good</p>
-
-<p>start.</p>
+<p>The damage wasn’t reaching his meridians, so that was already a good start.</p>
 
 <p>With a swift movement, he attacked.</p>
 
-<p>The sea of gray flames descended onto his sword. Then, it spread out in a crescent shape, consuming all the Qi in front of him like a hungry</p>
+<p>The sea of gray flames descended onto his sword. Then, it spread out in a crescent shape, consuming all the Qi in front of him like a hungry beast.</p>
 
-<p>beast.</p>
+<p>“Ugh… untamable as ever…” Qingyi smiled, holding his own burning hand.</p>
 
-<p>“Ugh… untamable as ever…” Qingyi smiled, holding his own burning</p>
-
-<p>hand.</p>
-
-<p>There had been no internal damage, so he was happy. Shaking his</p>
-
-<p>head, Qingyi left his sea of mind.</p>
+<p>There had been no internal damage, so he was happy. Shaking his head, Qingyi left his sea of mind.</p>
 
 <p>[Your cultivation has increased! Third stage of the immortal emperor realm-&gt;first stage of the ancestral emperor realm!]</p>
 
-<p>[Your mana manipulation level has increased! Tenth ring -&gt; eleventh</p>
-
-<p>ring.]</p>
+<p>[Your mana manipulation level has increased! Tenth ring -&gt; eleventh ring.]</p>
 
 <p>[You have acquired a domain: (Primordial Creation Seed Sea Domain)]</p>
 
 <p>“Primordial Creation Seed again…” Qingyi scratched his chin, looking at the name of his domain.</p>
 
-<p>He had seen that name so many times before. Both Ruxue and the</p>
+<p>He had seen that name so many times before. Both Ruxue and the system refused to tell him more about what the Primordial Creation Seed was.</p>
 
-<p>system refused to tell him more about what the Primordial Creation Seed was.</p>
-
-<p>All he knew, at least for now, was that the heavens were not big fans</p>
-
-<p>of its existence.</p>
+<p>All he knew, at least for now, was that the heavens were not big fans of its existence.</p>
 
 <p>“Ah… I wonder what the girls are doing.” He shook his head, putting it out of his mind.</p>

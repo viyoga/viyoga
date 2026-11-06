@@ -15,9 +15,7 @@ chapter = 616
 
 <p>“N-no, Young Master Tianhao! I promise! It’s not a joke! It’s the truth!”</p>
 
-<p>“Uh… ah…” Tianhao took a deep breath before exhaling sharply. “Long Qingyi… you stole my record, and now you want to steal my wife</p>
-
-<p>too…”</p>
+<p>“Uh… ah…” Tianhao took a deep breath before exhaling sharply. “Long Qingyi… you stole my record, and now you want to steal my wife too…”</p>
 
 <p>He fixed his gaze on the young Li, slowly taming the rage burning in his heart.</p>
 
@@ -69,9 +67,7 @@ chapter = 616
 
 <p>How could he break out of that loop?</p>
 
-<p>Fortunately, on the fourteenth day, after two weeks of nothing but sex, moans, and orgies, Qingyi finally found himself outside the mind</p>
-
-<p>world.</p>
+<p>Fortunately, on the fourteenth day, after two weeks of nothing but sex, moans, and orgies, Qingyi finally found himself outside the mind world.</p>
 
 <p>His body was covered in scratch marks, lipstick stains, and hickies scattered across his skin.</p>
 
@@ -87,9 +83,7 @@ chapter = 616
 
 <p>Affinities: Lightning: 6000 Sword: 6000 – Fire: 6000 Ice: 6000 – Space: 6000 Light: 6000 – Shadow: 6000 – Charm: 6000 (can be upgraded in the lust store)</p>
 
-<p>Spiritual Roots: Astral-level Primordial Creation Seed Spirit Root (Lightning, Sword, Fire, Ice, Space, Light, Shadow) (10 G Lust Points to</p>
-
-<p>upgrade).</p>
+<p>Spiritual Roots: Astral-level Primordial Creation Seed Spirit Root (Lightning, Sword, Fire, Ice, Space, Light, Shadow) (10 G Lust Points to upgrade).</p>
 
 <p>Spiritual Roots2: None/Astral-level Primordial Creation Seed Mana Heart (10 G Lust Points to upgrade).</p>
 
@@ -97,29 +91,19 @@ chapter = 616
 
 <p>Points to upgrade.)</p>
 
-<p>Constitution: Primordial Dragon Body (Astral grade, 15 G Lust Points</p>
-
-<p>to upgrade.)</p>
+<p>Constitution: Primordial Dragon Body (Astral grade, 15 G Lust Points to upgrade.)</p>
 
 <p>G Lust Points: 36.3]</p>
 
-<p>He barely paid attention to the fact that his age had increased a little</p>
+<p>He barely paid attention to the fact that his age had increased a little more, now reaching twenty-three.</p>
 
-<p>more, now reaching twenty-three.</p>
-
-<p>Well, he never knew his own birthday, so he never paid much</p>
-
-<p>attention to it, and hadn’t even thought to ask the system, which surely knew it.</p>
+<p>Well, he never knew his own birthday, so he never paid much attention to it, and hadn’t even thought to ask the system, which surely knew it.</p>
 
 <p>What truly mattered, above all else, were his 36 G Lust Points.</p>
 
-<p>It was enough to upgrade both his bloodline and his constitution to</p>
+<p>It was enough to upgrade both his bloodline and his constitution to the Ethereal rank, and he was far too curious to see what he would gain from this upgrade.</p>
 
-<p>the Ethereal rank, and he was far too curious to see what he would gain from this upgrade.</p>
-
-<p>So, with a triumphant smile, he clicked to upgrade both at the same</p>
-
-<p>time.</p>
+<p>So, with a triumphant smile, he clicked to upgrade both at the same time.</p>
 
 <p>As always, the smile vanished quickly.</p>
 
@@ -131,56 +115,34 @@ chapter = 616
 
 <p>[Initiating constitution enhancement…] ‘It hurts more than usual…</p>
 
-<p>He looked down at his own arm and watched as the skin tore in</p>
+<p>He looked down at his own arm and watched as the skin tore in thousands of places at once, crimson blood pooling beneath his crossed body.</p>
 
-<p>thousands of places at once, crimson blood pooling beneath his crossed body.</p>
+<p>The pain was sharp, throbbing, as if someone had shoved live embers under his skin.</p>
 
-<p>The pain was sharp, throbbing, as if someone had shoved live embers</p>
+<p>On his back, close to his shoulder blades, a strange tingling arose, intense and growing, as if something were struggling to break through the surface from the inside out.</p>
 
-<p>under his skin.</p>
+<p>His horns grew a single centimeter and his robes tore, the thin fabric piling up beneath his crossed legs.</p>
 
-<p>On his back, close to his shoulder blades, a strange tingling arose, intense and growing, as if something were struggling to break</p>
-
-<p>through the surface from the inside out.</p>
-
-<p>His horns grew a single centimeter and his robes tore, the thin fabric</p>
-
-<p>piling up beneath his crossed legs.</p>
-
-<p>When he looked back, gazing at his own back, he saw it unfold</p>
-
-<p>gloriously in the air.</p>
+<p>When he looked back, gazing at his own back, he saw it unfold gloriously in the air.</p>
 
 <p>Scales black as night, stretching into broad, majestic wings.</p>
 
 <p>Dragon wings.</p>
 
-<p>The pain ceased suddenly, and a subtle shockwave spread through the cultivation chamber, causing the candle flames to flicker all</p>
-
-<p>around.</p>
+<p>The pain ceased suddenly, and a subtle shockwave spread through the cultivation chamber, causing the candle flames to flicker all around.</p>
 
 <p>[Bloodline successfully upgraded! Astral Grade -&gt; Ethereal Grade]</p>
 
 <p>[Constitution successfully upgraded! Astral Grade -&gt; Ethereal Grade] [You have awakened a new bloodline ability: Dragonization (Lower)] Qingyi froze for a moment, realizing that it wasn’t just the wings that had appeared. In reality, his entire body had transformed.</p>
 
-<p>His fingers had been replaced by sharp claws, the white sclera of his</p>
+<p>His fingers had been replaced by sharp claws, the white sclera of his eyes turning as dark as ink, and his skin entirely covered in black scales that reflected the dim light of the room.</p>
 
-<p>eyes turning as dark as ink, and his skin entirely covered in black scales that reflected the dim light of the room.</p>
-
-<p>‘Is this similar to the Demonization that the heir of the Heavenly Demon Cult’s leader used in Mortal Heaven?’ Qingyi wondered,</p>
-
-<p>recalling how much that ability had amplified Ruyan’s brother’s power.</p>
+<p>‘Is this similar to the Demonization that the heir of the Heavenly Demon Cult’s leader used in Mortal Heaven?’ Qingyi wondered, recalling how much that ability had amplified Ruyan’s brother’s power.</p>
 
 <p>He wanted to test it right now. He wanted to feel how much his power would increase upon activating it.</p>
 
-<p>With a single thought, he deactivated the ability. The wings retracted,</p>
+<p>With a single thought, he deactivated the ability. The wings retracted, the claws vanished, and the scales disappeared, leaving only his ordinary skin behind.</p>
 
-<p>the claws vanished, and the scales disappeared, leaving only his</p>
-
-<p>ordinary skin behind.</p>
-
-<p>He calmly dressed himself again, a smile slowly spreading across his</p>
-
-<p>face.</p>
+<p>He calmly dressed himself again, a smile slowly spreading across his face.</p>
 
 <p>It was time to beat up some filthy bastards.</p>

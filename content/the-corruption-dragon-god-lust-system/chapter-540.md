@@ -73,9 +73,7 @@ chapter = 540
 
 <p>The initial wave of pain from having her virginity broken lasted only a moment, her powerful constitution getting used to the size as Qingyi injected small strands of Qi into the two.</p>
 
-<p>[You have taken the purity of Lingxue, matriarch of the fox people and an expert of much higher origin than yours. +50 trillion lust</p>
-
-<p>points]</p>
+<p>[You have taken the purity of Lingxue, matriarch of the fox people and an expert of much higher origin than yours. +50 trillion lust points]</p>
 
 <p>[Lingxue’s corruption has reached its maximum!]</p>
 
@@ -85,25 +83,15 @@ chapter = 540
 
 <p>Fifty trillion just for her virginity. Astral Body Realm experts really were incredible!</p>
 
-<p>Salivating and feeling that incomparable pressure around his cock,</p>
-
-<p>Qingyi retracted his hips, the glans almost escaping from the fat, pale</p>
-
-<p>lips of Lingxue’s pussy.</p>
+<p>Salivating and feeling that incomparable pressure around his cock, Qingyi retracted his hips, the glans almost escaping from the fat, pale lips of Lingxue’s pussy.</p>
 
 <p>With a broad smile, he pushed everything back in again.</p>
 
-<p>His hips hit the two girls’ full, perfect asses, their bodies bouncing</p>
+<p>His hips hit the two girls’ full, perfect asses, their bodies bouncing before they came back against Qingyi.</p>
 
-<p>before they came back against Qingyi.</p>
+<p>“Hm…” Qingyi leaned over them, keeping his hands on Lanyin’s ass as he moved his hips hard, gaining speed.</p>
 
-<p>“Hm…” Qingyi leaned over them, keeping his hands on Lanyin’s ass as</p>
-
-<p>he moved his hips hard, gaining speed.</p>
-
-<p>“Have I told you how good your people’s pussies are? … Xueyao and</p>
-
-<p>even you two…”</p>
+<p>“Have I told you how good your people’s pussies are? … Xueyao and even you two…”</p>
 
 <p>“Nghnn~~ Stop saying those nghnn~~ Fuck!~~ shameful things!”</p>
 
@@ -111,9 +99,7 @@ chapter = 540
 
 <p>On the one hand, it was so shameful; on the other, it was just so good!</p>
 
-<p>She couldn’t even think of anything else but that monster filling her</p>
-
-<p>up until she couldn’t fit anything else.</p>
+<p>She couldn’t even think of anything else but that monster filling her up until she couldn’t fit anything else.</p>
 
 <p>Her breasts rippled along with Lanyin’s with every impact of Qingyi’s hips, powerful shockwaves spreading across the cheeks of their asses.</p>
 
@@ -121,9 +107,7 @@ chapter = 540
 
 <p>“What?” Qingyi smiled.</p>
 
-<p>“Fuck me harder… fill me with your seed!” She begged, her voice</p>
-
-<p>sweet and obscene.</p>
+<p>“Fuck me harder… fill me with your seed!” She begged, her voice sweet and obscene.</p>
 
 <p>“M-Matriarch?!” Lanyin’s eyes widened. But she barely had time to react before the speed of Qingyi’s movements exploded.</p>
 

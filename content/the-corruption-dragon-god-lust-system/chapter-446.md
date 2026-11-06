@@ -5,9 +5,7 @@ weight = 446
 chapter = 446
 +++
 
-<p>The sound of flesh, muscles, and bones tearing apart was not</p>
-
-<p>pleasant. Naturally, to tear off the arms of such a powerful cultivator, immense strength was required.</p>
+<p>The sound of flesh, muscles, and bones tearing apart was not pleasant. Naturally, to tear off the arms of such a powerful cultivator, immense strength was required.</p>
 
 <p>Something that Qingyi certainly did not lack.</p>
 
@@ -39,9 +37,7 @@ chapter = 446
 
 <p>It was just enough to hear the bones being crushed into dust, followed by that cry of pain and despair.</p>
 
-<p>Without wasting any more time there, Qingyi simply went up to his</p>
-
-<p>room.</p>
+<p>Without wasting any more time there, Qingyi simply went up to his room.</p>
 
 <p>He didn’t want to draw too much attention, but sometimes it was necessary to make exceptions.</p>
 
@@ -79,37 +75,27 @@ chapter = 446
 
 <p>A little shaky, she knelt in front of him. Her face was inches away from the large, throbbing bulge in his pants.</p>
 
-<p>“Husband… What should I do?” She asked, placing her index finger on her lips, while a confused expression appeared on her beautiful,</p>
-
-<p>sweet face.</p>
+<p>“Husband… What should I do?” She asked, placing her index finger on her lips, while a confused expression appeared on her beautiful, sweet face.</p>
 
 <p>“mmhm~~ I’ll help you, dear…” A voice emerged; sweet, mature, and sensual, contrasting heavily with Celestia’s.</p>
 
 <p>Behind her, a figure emerged.</p>
 
-<p>She was beautiful and voluptuous, her skin as pale as snow. Her huge tits pressed against Celestia’s shoulders as she hugged her from</p>
-
-<p>behind.</p>
+<p>She was beautiful and voluptuous, her skin as pale as snow. Her huge tits pressed against Celestia’s shoulders as she hugged her from behind.</p>
 
 <p>The woman’s full purple lips curved into a soft smile as her eyes, the same color, rose to meet Qingyi’s.</p>
 
 <p>The golden-haired beauty trembled, her entire body stiffening.</p>
 
-<p>“Don’t be afraid, I’m one of your sisters too… fufufu~~” Ruxue said,</p>
+<p>“Don’t be afraid, I’m one of your sisters too… fufufu~~” Ruxue said, letting a suppressed giggle escape her lips. “Another victim of that shameless womanizing scoundrel.”</p>
 
-<p>letting a suppressed giggle escape her lips. “Another victim of that shameless womanizing scoundrel.”</p>
-
-<p>“Hm… hubby isn’t a scoundrel! He may be shameless and a womanizer, but he is the hero chosen by the goddess Auranys!” Celestia</p>
-
-<p>exclaimed.</p>
+<p>“Hm… hubby isn’t a scoundrel! He may be shameless and a womanizer, but he is the hero chosen by the goddess Auranys!” Celestia exclaimed.</p>
 
 <p>Her face became confused as her words drew laughter from both Qingyi and Ruxue.</p>
 
 <p>“Ah… what did I say wrong?” Celestia asked, shuddering slightly.</p>
 
-<p>She already knew that Qingyi had other wives, as he had told her about it. But this was the first time she had met another one of his</p>
-
-<p>wives.</p>
+<p>She already knew that Qingyi had other wives, as he had told her about it. But this was the first time she had met another one of his wives.</p>
 
 <p>“Nothing, sweetheart…” Ruxue hugged Celestia a little tighter.</p>
 
@@ -119,11 +105,7 @@ chapter = 446
 
 <p>“Do as I do…”</p>
 
-<p>Ruxue moved her face closer to Qingyi’s cock. Her lips parted and</p>
-
-<p>then closed around the glans, her cheeks sinking with the force of</p>
-
-<p>suction.</p>
+<p>Ruxue moved her face closer to Qingyi’s cock. Her lips parted and then closed around the glans, her cheeks sinking with the force of suction.</p>
 
 <p>Slowly, she swallowed more. Soft gurgles escaped her lips as Qingyi’s cock reached the back of her throat and began to slide down. The twenty-three centimeters of cock pushed its way into her tight throat, causing an elongated bulge to appear on her neck.</p>
 
@@ -133,9 +115,7 @@ chapter = 446
 
 <p>“Ah~~ nghnn~~” Ruxue finally released Qingyi’s cock, grabbing it and masturbating it vigorously.</p>
 
-<p>She turned her face to the side, watching the impressed look on</p>
-
-<p>Celestia’s face.</p>
+<p>She turned her face to the side, watching the impressed look on Celestia’s face.</p>
 
 <p>So that was why Feiyan, probably one of the best at sucking Qingyi’s cock among all the wives, loved teaching the others so much.</p>
 

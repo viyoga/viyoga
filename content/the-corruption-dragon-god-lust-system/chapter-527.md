@@ -59,13 +59,9 @@ chapter = 527
 
 <p>Qingxue snuggled into Qingyi’s lap, her eyes closing briefly as she pressed her head against his chest.</p>
 
-<p>“How has your sword path been?” she asked after a moment of</p>
+<p>“How has your sword path been?” she asked after a moment of silence.</p>
 
-<p>silence.</p>
-
-<p>The beauty hadn’t had much time to train with Qingyi lately, so she</p>
-
-<p>had no idea how he was progressing.</p>
+<p>The beauty hadn’t had much time to train with Qingyi lately, so she had no idea how he was progressing.</p>
 
 <p>“I… I’m not sure,” Qingyi replied thoughtfully.</p>
 
@@ -87,21 +83,15 @@ chapter = 527
 
 <p>“Yes, I think you’re right,” he whispered, his hands rising to Qingxue’s pale boobs and gently grabbing them.</p>
 
-<p>He didn’t squeeze or massage them, just keeping his hand there,</p>
+<p>He didn’t squeeze or massage them, just keeping his hand there, feeling their shape and softness.</p>
 
-<p>feeling their shape and softness.</p>
-
-<p>They might not come close to Elize’s, or even Tang Biyue’s, but that</p>
-
-<p>didn’t matter.</p>
+<p>They might not come close to Elize’s, or even Tang Biyue’s, but that didn’t matter.</p>
 
 <p>They were perfect.</p>
 
 <p>***</p>
 
-<p>Far from Meilin’s mansion and on the outskirts of the fortress of one of the many powerful cultivator families surrounding the capital, two figures could be seen passing through the central gates and past the</p>
-
-<p>guards.</p>
+<p>Far from Meilin’s mansion and on the outskirts of the fortress of one of the many powerful cultivator families surrounding the capital, two figures could be seen passing through the central gates and past the guards.</p>
 
 <p>One of them was Jin Hao, the Gold King.</p>
 
@@ -109,14 +99,10 @@ chapter = 527
 
 <p>Eclipse Saber.</p>
 
-<p>They had barely taken a step inside the fortress before they stopped, their eyes focusing on a figure even older than Jianming, clearly also from the Astral Body Realm, though infinitely weaker. “Hm… Jin Hao, Jianming, for you to have come here at this hour, it</p>
-
-<p>must be related to my daughter, right?” The old expert asked, scratching his sparse beard.</p>
+<p>They had barely taken a step inside the fortress before they stopped, their eyes focusing on a figure even older than Jianming, clearly also from the Astral Body Realm, though infinitely weaker. “Hm… Jin Hao, Jianming, for you to have come here at this hour, it must be related to my daughter, right?” The old expert asked, scratching his sparse beard.</p>
 
 <p>“Yes. You must have already heard about what happened to your grandson, my third son.”</p>
 
-<p>“A rotten brat,” the old man nodded, showing no love for his grandson, “but his son, my great-grandson, still has potential. It’s good that his father won’t have the chance to produce anyone else to compete with</p>
-
-<p>him.”</p>
+<p>“A rotten brat,” the old man nodded, showing no love for his grandson, “but his son, my great-grandson, still has potential. It’s good that his father won’t have the chance to produce anyone else to compete with him.”</p>
 
 <p>“Now tell me…” The old man coughed. “Why are you here?” “His mother disappeared shortly after seeing her son’s condition. We wanted to know if you have any news about her.”</p>

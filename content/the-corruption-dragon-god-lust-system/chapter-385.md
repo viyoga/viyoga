@@ -27,9 +27,7 @@ chapter = 385
 
 <p>Unfortunately, there was no improvement in any lineage skill, let alone the acquisition of a new skill. Even so, this was not an improvement that Qingyi would despise.</p>
 
-<p>After long minutes of agonizing pain, the improvement was finally</p>
-
-<p>over.</p>
+<p>After long minutes of agonizing pain, the improvement was finally over.</p>
 
 <p>The torn muscles regenerated and the cracked skin regained its former softness and purity, now covered in a disgusting black goo.</p>
 
@@ -65,23 +63,17 @@ chapter = 385
 
 <p>She opened her mouth in a long, sensual moan, only to be silenced by Qingyi’s lips as well, his tongue invading her mouth voraciously. Ruxue just gave in, her small, delicate tongue curling around Qingyi’s in a gentle dance, her body momentarily losing strength.</p>
 
-<p>When Qingyi pulled back, he found himself with two blushing, panting women in his arms, two huge pairs of twin mountains pressed against his chest and two orbs of pale, soft flesh for his hands to</p>
-
-<p>grasp.</p>
+<p>When Qingyi pulled back, he found himself with two blushing, panting women in his arms, two huge pairs of twin mountains pressed against his chest and two orbs of pale, soft flesh for his hands to grasp.</p>
 
 <p>How could he not feel in heaven?</p>
 
 <p>“Don’t you think you should compensate your husband a little for these defamations?” Qingyi asked, strengthening his grip on Ruxue’s buttocks, who soon flashed a sensual and provocative smile.</p>
 
-<p>She knelt in front of Qingyi, grabbing his pants and pulling them down. His huge cock escaped its confinement and hit her mature and</p>
-
-<p>beautiful face.</p>
+<p>She knelt in front of Qingyi, grabbing his pants and pulling them down. His huge cock escaped its confinement and hit her mature and beautiful face.</p>
 
 <p>“Ah…” Ruxue gasped against that huge cock, the base pressed against her chin as the member rested against her face.</p>
 
-<p>With a moment’s hesitation, she pulled her head back slightly, lined</p>
-
-<p>her lips up with the tip of the cock and swallowed.</p>
+<p>With a moment’s hesitation, she pulled her head back slightly, lined her lips up with the tip of the cock and swallowed.</p>
 
 <p>Qianyao just watched with shock in Qingyi’s arms.</p>
 
@@ -89,50 +81,28 @@ chapter = 385
 
 <p>Qianyao asked, blushing deeply and looking away.</p>
 
-<p>“Why wouldn’t she?” Qingyi smiled, grabbing Qianyao’s cleavage, revealing her breasts and then, sinking between them, sucking</p>
-
-<p>voraciously.</p>
+<p>“Why wouldn’t she?” Qingyi smiled, grabbing Qianyao’s cleavage, revealing her breasts and then, sinking between them, sucking voraciously.</p>
 
 <p>Although initially provocative, Ruxue couldn’t help but feel a little embarrassed when she heard Qianyao’s words.</p>
 
 <p>Wasn’t she being a little too naughty? Look what that shameless womanizer had done to her!</p>
 
-<p>Ruxue increased the speed at which she moved her head, swallowing Qingyi’s cock more and more voraciously, her throat working</p>
+<p>Ruxue increased the speed at which she moved her head, swallowing Qingyi’s cock more and more voraciously, her throat working incessantly.</p>
 
-<p>incessantly.</p>
+<p>Qingyi naturally didn’t complain, just letting Ruxue strain to suck him dry, feeling his cock reach its limit, throbbing painfully before finally releasing.</p>
 
-<p>Qingyi naturally didn’t complain, just letting Ruxue strain to suck him</p>
+<p>Ruxue stopped the movement of her head for a brief moment, keeping Qingyi’s cock inside her, swallowing fat spurt after fat spurt of cum.</p>
 
-<p>dry, feeling his cock reach its limit, throbbing painfully before finally</p>
+<p>“Ah… nghnn~~” Ruxue finally pulled back, panting heavily, placing her hand on her slim, elegant belly.</p>
 
-<p>releasing.</p>
-
-<p>Ruxue stopped the movement of her head for a brief moment, keeping Qingyi’s cock inside her, swallowing fat spurt after fat spurt</p>
-
-<p>of cum.</p>
-
-<p>“Ah… nghnn~~” Ruxue finally pulled back, panting heavily, placing her</p>
-
-<p>hand on her slim, elegant belly.</p>
-
-<p>Raising her beautiful eyes to Qingyi, she stood up, exchanging caresses with Qingyi for a little while before finally returning to the</p>
-
-<p>world of the mind.</p>
+<p>Raising her beautiful eyes to Qingyi, she stood up, exchanging caresses with Qingyi for a little while before finally returning to the world of the mind.</p>
 
 <p>Soon, Qingyi and Qianyao were alone again.</p>
 
 <p>The handsome young man straightened his clothes while the golden-eyed beauty grabbed the neckline of her dress, hiding her breasts again.</p>
 
-<p>Her nipples were still moist, leaking a little milk and wetting the pure</p>
+<p>Her nipples were still moist, leaking a little milk and wetting the pure white fabric of her dress, so thin that it revealed the pink aureoles in an lewd stain. Qingyi unfortunately couldn’t enjoy the sight for much longer.</p>
 
-<p>white fabric of her dress, so thin that it revealed the pink aureoles in</p>
+<p>There was a time limit and they needed to get to the matriarch of the fox people as quickly as possible.</p>
 
-<p>an lewd stain. Qingyi unfortunately couldn’t enjoy the sight for much longer.</p>
-
-<p>There was a time limit and they needed to get to the matriarch of the</p>
-
-<p>fox people as quickly as possible.</p>
-
-<p>Both for him to remove the doubts from his heart and to fulfill his</p>
-
-<p>promise to Xueyao.</p>
+<p>Both for him to remove the doubts from his heart and to fulfill his promise to Xueyao.</p>

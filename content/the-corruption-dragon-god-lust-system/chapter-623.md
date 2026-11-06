@@ -27,9 +27,7 @@ chapter = 623
 
 <p>“Young man…” The old man took a step forward, his heart pounding in his chest as, behind Qingyi, the golden pavilion dissolved into tiny fragments of light.</p>
 
-<p>That could only mean one thing: the secret realm had been</p>
-
-<p>conquered.</p>
+<p>That could only mean one thing: the secret realm had been conquered.</p>
 
 <p>“Greetings, senior.” Qingyi bowed immediately, clasping his fists. That old man was powerful, far more so than Elder Shen, likely just a single step away from entering the realm of the Stellar Sovereign.</p>
 
@@ -53,9 +51,7 @@ chapter = 623
 
 <p>At that moment, holding the elixir between his fingers, he raised his eyes to the heavens and recalled the silly promise he had made: to marry his beloved granddaughter to the young man capable of retrieving the elixir.</p>
 
-<p>Breaking promises made to the heavens usually had terrible</p>
-
-<p>consequences, but this had been nothing more than a joke, without any real weight.</p>
+<p>Breaking promises made to the heavens usually had terrible consequences, but this had been nothing more than a joke, without any real weight.</p>
 
 <p>The heavens wouldn’t demand that he keep it, would they?</p>
 
@@ -65,29 +61,19 @@ chapter = 623
 
 <p>‘Ah… as long as I don’t directly prevent their marriage, I won’t have any problems, right? After advancing, I’ll head to the central regions to be with her.</p>
 
-<p>It’s not as if that young man has the ability to get there, and even if he did, what are the chances he’d find her and she’d fall in love with</p>
-
-<p>him?’ The old man thought, smiling to himself.</p>
+<p>It’s not as if that young man has the ability to get there, and even if he did, what are the chances he’d find her and she’d fall in love with him?’ The old man thought, smiling to himself.</p>
 
 <p>He was absolutely certain the chances were slim to none.</p>
 
-<p>His cute little granddaughter would never fall in love with just any</p>
+<p>His cute little granddaughter would never fall in love with just any pretty face from the outer regions.</p>
 
-<p>pretty face from the outer regions.</p>
-
-<p>“Uh… senior? Qingyi called out, uncomfortable with the expression on</p>
-
-<p>the old man’s face.</p>
+<p>“Uh… senior? Qingyi called out, uncomfortable with the expression on the old man’s face.</p>
 
 <p>He was planning something unpleasant?</p>
 
 <p>“Oh… cough… cough…” The old man cleared his throat, his ears slightly reddened.</p>
 
-<p>“You may go now, young man. I will send a message to the sect asking</p>
-
-<p>them to grant you a generous reward. If you need help with anything, do not hesitate to invoke the name of Ma Zhenwu, the sect’s revered</p>
-
-<p>founding hero.”</p>
+<p>“You may go now, young man. I will send a message to the sect asking them to grant you a generous reward. If you need help with anything, do not hesitate to invoke the name of Ma Zhenwu, the sect’s revered founding hero.”</p>
 
 <p>Hearing those words, Qingyi couldn’t hide his shock.</p>
 
@@ -97,19 +83,13 @@ chapter = 623
 
 <p>He was the only one of the five original founding heroes still alive, which was curious, as he was also the least talented of the five. With nothing more to say, the old man turned his back and soared off toward the horizon.</p>
 
-<p>That elixir might not only aid him in his advancement but perhaps</p>
+<p>That elixir might not only aid him in his advancement but perhaps even enhance his talent, and, if he was lucky, he could use his hundreds of thousands of years of accumulated cultivation to cross several realms at once.</p>
 
-<p>even enhance his talent, and, if he was lucky, he could use his hundreds of thousands of years of accumulated cultivation to cross several realms at once.</p>
-
-<p>He didn’t want to admit it because of the foolish mistake he’d made in</p>
-
-<p>despising Qingyi and making that promise to the heavens, but the young man had done the Ma family a great service.</p>
+<p>He didn’t want to admit it because of the foolish mistake he’d made in despising Qingyi and making that promise to the heavens, but the young man had done the Ma family a great service.</p>
 
 <p>Qingyi simply watched the old man walk away, receiving a nod from the guards who also withdrew.</p>
 
-<p>They had already collected the corpses and notified the sect of what</p>
-
-<p>had happened.</p>
+<p>They had already collected the corpses and notified the sect of what had happened.</p>
 
 <p>That would likely result in no punishment for Tianhao because of his status, but it was still a blow to his prestige, especially since it was the Ma family itself, one of the sect’s most respected vassals, that had denounced him for paying to kill a fellow disciple. Qingyi, honestly, couldn’t have cared less about it.</p>
 

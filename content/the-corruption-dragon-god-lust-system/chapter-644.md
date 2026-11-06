@@ -29,9 +29,7 @@ chapter = 644
 
 <p>The Realm of Celestial Ascension demanded a complete physical reconstruction. A full rebirth of the body.</p>
 
-<p>A painful breakthrough even for ordinary cultivators who, unlike him, did not have the system multiplying every sensation several times</p>
-
-<p>over.</p>
+<p>A painful breakthrough even for ordinary cultivators who, unlike him, did not have the system multiplying every sensation several times over.</p>
 
 <p>Slowly, his skin cracked open.</p>
 
@@ -53,9 +51,7 @@ chapter = 644
 
 <p>But he was smiling.</p>
 
-<p>[Congratulations, you have broken through in your cultivation! Ninth</p>
-
-<p>stage of the Astral Blood Realm -&gt; first stage of the Celestial Ascension Realm.]</p>
+<p>[Congratulations, you have broken through in your cultivation! Ninth stage of the Astral Blood Realm -&gt; first stage of the Celestial Ascension Realm.]</p>
 
 <p>With a gentle smile still on his lips, Qingyi settled back into a meditative posture, using a mana spell he had learned from Margareth to cleanse his body and restore his destroyed clothes.</p>
 
@@ -65,9 +61,7 @@ chapter = 644
 
 <p>***</p>
 
-<p>In the main palace, residence of the sect leader, preparations began in</p>
-
-<p>earnest.</p>
+<p>In the main palace, residence of the sect leader, preparations began in earnest.</p>
 
 <p>A powerful guard was assembled to accompany the sect’s most formidable battleship, tasked with escorting Rou’er, the leader’s daughter and beloved princess of the sect, to the Cosmic Void Sect.</p>
 
@@ -81,33 +75,19 @@ chapter = 644
 
 <p>Of course, this would only happen if he managed to reach the Celestial Ascension Realm within the time limit.</p>
 
-<p>With the day of the journey finally arriving, several people gathered in</p>
+<p>With the day of the journey finally arriving, several people gathered in the courtyard of the sect leader’s palace.</p>
 
-<p>the courtyard of the sect leader’s palace.</p>
+<p>Rou’er sat beside her adoptive father and the elder at the peak of the first step of the Path of Extinction, who would be responsible for her protection.</p>
 
-<p>Rou’er sat beside her adoptive father and the elder at the peak of the</p>
+<p>He was an elder of the Celestial War Pavilion, one of the sect’s most powerful fist users.</p>
 
-<p>first step of the Path of Extinction, who would be responsible for her</p>
+<p>“Ugh… why hasn’t Big Brother Qingyi shown up yet?” Rou’er whispered to herself, her eyes shining with anxiety.</p>
 
-<p>protection.</p>
-
-<p>He was an elder of the Celestial War Pavilion, one of the sect’s most</p>
-
-<p>powerful fist users.</p>
-
-<p>“Ugh… why hasn’t Big Brother Qingyi shown up yet?” Rou’er</p>
-
-<p>whispered to herself, her eyes shining with anxiety.</p>
-
-<p>She didn’t want to go with Tianhao. Especially not since the secret</p>
-
-<p>realm would operate in two parts.</p>
+<p>She didn’t want to go with Tianhao. Especially not since the secret realm would operate in two parts.</p>
 
 <p>The first would begin as soon as they arrived, where they would be selected and could enter the initial phase.</p>
 
-<p>The second could take anywhere from months to years, since the secret realm would seal itself to prepare the formations meant to</p>
-
-<p>strengthen the cultivators’ souls.</p>
+<p>The second could take anywhere from months to years, since the secret realm would seal itself to prepare the formations meant to strengthen the cultivators’ souls.</p>
 
 <p>Through this process, it could awaken her bloodline.</p>
 
@@ -115,21 +95,13 @@ chapter = 644
 
 <p>Wasn’t that just terrible?</p>
 
-<p>Of course, while some were anxious, others were thrilled. Tianhao was by far the most excited, and Tianfa, who supported him</p>
+<p>Of course, while some were anxious, others were thrilled. Tianhao was by far the most excited, and Tianfa, who supported him and didn’t exactly have a good relationship with Qingyi, wasn’t far behind.</p>
 
-<p>and didn’t exactly have a good relationship with Qingyi, wasn’t far</p>
-
-<p>behind.</p>
-
-<p>“Young Miss Rou’er! I think we’ve waited long enough! Qingyi is a coward, incapable of advancing to the Realm of Celestial Ascension, and that’s why he ran away!” Tianhao took an eager step forward, his</p>
-
-<p>chest puffed out with confidence.</p>
+<p>“Young Miss Rou’er! I think we’ve waited long enough! Qingyi is a coward, incapable of advancing to the Realm of Celestial Ascension, and that’s why he ran away!” Tianhao took an eager step forward, his chest puffed out with confidence.</p>
 
 <p>“Let’s go, I’ll-“</p>
 
-<p>“If you say one more word about Big Brother Qingyi, I’ll ask Daddy to</p>
-
-<p>cut off your balls and make you eat them through your bottom mouth.” Rou’er cut him off with an irritated growl.</p>
+<p>“If you say one more word about Big Brother Qingyi, I’ll ask Daddy to cut off your balls and make you eat them through your bottom mouth.” Rou’er cut him off with an irritated growl.</p>
 
 <p>Her voice was so sweet that even her threats sounded cute.</p>
 

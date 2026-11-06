@@ -85,9 +85,7 @@ chapter = 462
 
 <p>Like it or not, he was technically the leader of that group of heroes.</p>
 
-<p>“We can send minor attacks little by little, test their defenses, and then allow them to continue torturing and killing countless innocents</p>
-
-<p>before we finally intervene.</p>
+<p>“We can send minor attacks little by little, test their defenses, and then allow them to continue torturing and killing countless innocents before we finally intervene.</p>
 
 <p>Or we can go there right now and crush them like the cockroaches they are,” Lucien declared.</p>
 
@@ -95,9 +93,7 @@ chapter = 462
 
 <p>Was it a stupid plan? Absolutely, but he didn’t care.</p>
 
-<p>He liked to be direct, just as he liked to crush ants, and in the end,</p>
-
-<p>even Aeryn, who didn’t like to be so direct, had to agree with that idea.</p>
+<p>He liked to be direct, just as he liked to crush ants, and in the end, even Aeryn, who didn’t like to be so direct, had to agree with that idea.</p>
 
 <p>In the end, everyone just wanted to solve the problem as quickly as possible and then never set foot in that godforsaken place again. Besides, of course, the fact that they wanted to join their husband soon and no longer be bound by those damn doctrines.</p>
 
@@ -111,9 +107,7 @@ chapter = 462
 
 <p>“We’ve arrived, heretics! Prepare for death!”</p>
 
-<p>Lucien’s attack landed with a bang, tearing through the first cultists</p>
-
-<p>standing in front of the lair’s entrance.</p>
+<p>Lucien’s attack landed with a bang, tearing through the first cultists standing in front of the lair’s entrance.</p>
 
 <p>The poor wretches barely had time to react.</p>
 

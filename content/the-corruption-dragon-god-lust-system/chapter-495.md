@@ -29,21 +29,13 @@ chapter = 495
 
 <p>Both the patriarch and Qingyi glanced once at the beasts’ fight before advancing toward each other.</p>
 
-<p>Their blades met only once before they retreated, their bodies</p>
+<p>Their blades met only once before they retreated, their bodies turning into blurred blurs, a sea of crimson mana and lightning engulfing everything around them.</p>
 
-<p>turning into blurred blurs, a sea of crimson mana and lightning</p>
-
-<p>engulfing everything around them.</p>
-
-<p>Neither of them held back, their swords meeting hundreds of times in</p>
-
-<p>the short space between them in a single moment.</p>
+<p>Neither of them held back, their swords meeting hundreds of times in the short space between them in a single moment.</p>
 
 <p>Everything around them disintegrated, the first defensive arrays beginning to fail as the battle spread.</p>
 
-<p>A single attack struck a piece of the stone walls that was not perfectly defended by the arrays, sinking into the rock for nearly ten</p>
-
-<p>kilometers, creating a crater large enough to fit a city.</p>
+<p>A single attack struck a piece of the stone walls that was not perfectly defended by the arrays, sinking into the rock for nearly ten kilometers, creating a crater large enough to fit a city.</p>
 
 <p>The two were ready to advance against each other again when they were forced to separate.</p>
 
@@ -87,41 +79,29 @@ chapter = 495
 
 <p>Space itself was tearing apart, the primordial laws being cut so perfectly that they barely noticed they were being divided, leaving a perfect, darkened, crescent shape behind.</p>
 
-<p>The patriarch’s blade met Qingyi’s with frightening power, but it was</p>
-
-<p>to no avail.</p>
+<p>The patriarch’s blade met Qingyi’s with frightening power, but it was to no avail.</p>
 
 <p>In the end, it was barely able to resist for a brief moment before the Heaven-Defying Thunder Sword cut straight through it, flowing toward the abdomen of its bearer.</p>
 
-<p>The scream that escaped his lips made even Qingyi shiver, guts falling to the ground alongside the upper part of a tall and powerful body,</p>
-
-<p>blood spreading in untraceable streams.</p>
+<p>The scream that escaped his lips made even Qingyi shiver, guts falling to the ground alongside the upper part of a tall and powerful body, blood spreading in untraceable streams.</p>
 
 <p>“Ugh… damn it! No…. this can’t be happening…”</p>
 
 <p>The patriarch struggled desperately, his eyes filling with even more terror as he saw two figures appear beside Qingyi.</p>
 
-<p>“I told you not to hurt yourself too much, silly hubby…” One of the figures spoke, her sweet voice full of concern as she placed a kiss on</p>
-
-<p>Qingyi’s lips.</p>
+<p>“I told you not to hurt yourself too much, silly hubby…” One of the figures spoke, her sweet voice full of concern as she placed a kiss on Qingyi’s lips.</p>
 
 <p>“I’m fine, dear.” Qingyi laughed, returning Elize’s kiss. “In fact, I’ve never been better.”</p>
 
-<p>His eyes fell on his dying opponent, the two beauties approaching</p>
+<p>His eyes fell on his dying opponent, the two beauties approaching him.</p>
 
-<p>him.</p>
-
-<p>“Oh… my dear little daughters… hahahaha…” The patriarch crawled across the floor. “Are you here for your daddy? Don’t worry, I approve of your marriage to this man-no, not only that, I declare him my heir and will even tell you where I threw your mother’s remains, I</p>
-
-<p>promise-“</p>
+<p>“Oh… my dear little daughters… hahahaha…” The patriarch crawled across the floor. “Are you here for your daddy? Don’t worry, I approve of your marriage to this man-no, not only that, I declare him my heir and will even tell you where I threw your mother’s remains, I promise-“</p>
 
 <p>The patriarch did not have time to finish his promise as Elize took the Heaven-Defying Thunder Sword from Qingyi’s hands and thrust it into her father’s chest.</p>
 
 <p>Seraphine didn’t stand idly by either, grabbing her own sword and, with a smooth movement, decapitating him.</p>
 
-<p>“Die in silence… pig…” The two spoke in unison, their eyes filled with</p>
-
-<p>rage.</p>
+<p>“Die in silence… pig…” The two spoke in unison, their eyes filled with rage.</p>
 
 <p>In the distance, Khaedryss also ended her battle, using her sharp claws to pin RedDeath to the ground as her sharp teeth sank into his chest, reaching his heart and devouring it in one bloody bite.</p>
 
@@ -129,18 +109,10 @@ chapter = 495
 
 <p>She had more important things to eat for now.</p>
 
-<p>Her eyes focused on the end of that huge chamber, and she dragged</p>
+<p>Her eyes focused on the end of that huge chamber, and she dragged her injured body forward.</p>
 
-<p>her injured body forward.</p>
+<p>It was time for her to devour Karlan’s heart, to return to her original power- no.</p>
 
-<p>It was time for her to devour Karlan’s heart, to return to her original</p>
+<p>It was time for her to reach a level of power she had never before imagined.</p>
 
-<p>power- no.</p>
-
-<p>It was time for her to reach a level of power she had never before</p>
-
-<p>imagined.</p>
-
-<p>Whatever changes that would cause to her body, she would accept</p>
-
-<p>them.</p>
+<p>Whatever changes that would cause to her body, she would accept them.</p>

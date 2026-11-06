@@ -139,9 +139,7 @@ chapter = 934
 
 <p>His neck split open down the middle, from the jaw all the way to the base of his chest. His esophagus lay exposed, and behind his also exposed chest, his still-beating heart, his lungs, and the ribs that caged them.</p>
 
-<p>Everyone’s stomach churned. T</p>
-
-<p>he coppery stench of blood flooded the street, thick enough to taste, and Mingzhu, who had been ready to blow herself up a moment ago, pressed a hand over her mouth and turned her face away.</p>
+<p>Everyone’s stomach churned. The coppery stench of blood flooded the street, thick enough to taste, and Mingzhu, who had been ready to blow herself up a moment ago, pressed a hand over her mouth and turned her face away.</p>
 
 <p>The front half of Zhang Fei’s torso hit the ground with a wet slap: the lower half of his jaw, his throat, and the skin and muscle that had covered his chest—all in a red, steaming heap on the stones.</p>
 

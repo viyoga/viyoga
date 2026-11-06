@@ -39,9 +39,7 @@ chapter = 626
 
 <p>“Oh… what is this place?” Rou’er’s purple and pink eyes sparkled as she slowly turned, taking in every detail around her. “It’s so beautiful!”</p>
 
-<p>Qingyi grabbed the Heaven-Defying Thunder Sword without</p>
-
-<p>hesitation and left the Mind World in the blink of an eye.</p>
+<p>Qingyi grabbed the Heaven-Defying Thunder Sword without hesitation and left the Mind World in the blink of an eye.</p>
 
 <p>Rou’er turned her gaze to him with a look of disappointment, her lips pursed into an exaggerated pout.</p>
 
@@ -83,9 +81,7 @@ chapter = 626
 
 <p>“Yes, I will.” Qingyi smiled.</p>
 
-<p>Failing the mission he’d received from the sect princess’s head maid</p>
-
-<p>had once been a possibility, but now, knowing who she was, such a thought didn’t even cross his mind. He would reach the Realm of Celestial Ascension in the blink of an eye.</p>
+<p>Failing the mission he’d received from the sect princess’s head maid had once been a possibility, but now, knowing who she was, such a thought didn’t even cross his mind. He would reach the Realm of Celestial Ascension in the blink of an eye.</p>
 
 <p>“Yay!” Rou’er let out an excited squeal, accompanied by little excited hops.</p>
 
@@ -95,37 +91,21 @@ chapter = 626
 
 <p>“Just marking my territory, hehehe~~” She gave a sweet little laugh, turned her back, and disappeared shortly after.</p>
 
-<p>He could no longer detect her, neither with his spatial abilities nor</p>
-
-<p>with his draconic eyes.</p>
+<p>He could no longer detect her, neither with his spatial abilities nor with his draconic eyes.</p>
 
 <p>“That woman…’</p>
 
-<p>Qingyi touched his own lips, still feeling the residual heat of hers and</p>
+<p>Qingyi touched his own lips, still feeling the residual heat of hers and a powerful bulge pressing against his pants.</p>
 
-<p>a powerful bulge pressing against his pants.</p>
+<p>The kiss had been so clumsy that he could barely taste her, but he was still happy, and even slightly anxious at the thought of having her all to himself.</p>
 
-<p>The kiss had been so clumsy that he could barely taste her, but he</p>
+<p>Well, from now on, he couldn’t treat Tianhao as just an annoying, clueless idiot anymore.</p>
 
-<p>was still happy, and even slightly anxious at the thought of having her</p>
+<p>Rou’er wanted nothing to do with that bastard, and a single word from her would be enough for him to ensure Tianhao wouldn’t breathe for another single day.</p>
 
-<p>all to himself.</p>
+<p>Of course, he didn’t have the power for that yet, but he knew full well he was close.</p>
 
-<p>Well, from now on, he couldn’t treat Tianhao as just an annoying,</p>
-
-<p>clueless idiot anymore.</p>
-
-<p>Rou’er wanted nothing to do with that bastard, and a single word</p>
-
-<p>from her would be enough for him to ensure Tianhao wouldn’t breathe for another single day.</p>
-
-<p>Of course, he didn’t have the power for that yet, but he knew full well</p>
-
-<p>he was close.</p>
-
-<p>A few more encounters with Rou’er, and getting to Tianhao would be</p>
-
-<p>a piece of cake.</p>
+<p>A few more encounters with Rou’er, and getting to Tianhao would be a piece of cake.</p>
 
 <p>Rou’er wouldn’t suffer anymore. Not while he was there.</p>
 
@@ -133,16 +113,10 @@ chapter = 626
 
 <p>Qingyi raised his gaze to the sky.</p>
 
-<p>That was the name of the man who made that lovely woman suffer so</p>
-
-<p>much, the same one who made his Ruxue suffer so much, the same</p>
-
-<p>one who took everything from his Meilin…</p>
+<p>That was the name of the man who made that lovely woman suffer so much, the same one who made his Ruxue suffer so much, the same one who took everything from his Meilin…</p>
 
 <p>Qingyi would kill him.</p>
 
 <p>For Meilin’s grandfather. For Ruxue’s teacher. For Rou’er’s parents.</p>
 
-<p>He would make the Heavenly Demon regret ever being born, making</p>
-
-<p>him pay for every life taken, both in the Immortal Heaven and the Celestial Heaven.</p>
+<p>He would make the Heavenly Demon regret ever being born, making him pay for every life taken, both in the Immortal Heaven and the Celestial Heaven.</p>

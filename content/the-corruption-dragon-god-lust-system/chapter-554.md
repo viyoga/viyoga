@@ -33,9 +33,7 @@ chapter = 554
 
 <p>The moment he appeared above the imperial capital, Qingyi’s heart sank.</p>
 
-<p>The smell of blood invaded his nostrils, and the hellish heat of the</p>
-
-<p>flames hit his face.</p>
+<p>The smell of blood invaded his nostrils, and the hellish heat of the flames hit his face.</p>
 
 <p>For all he could see, he saw nothing but the deepest darkness and death, millions of souls screaming in agony.</p>
 
@@ -61,9 +59,7 @@ chapter = 554
 
 <p>A terrible cry of pain echoed and the spear of blood fell to the ground, next to the demon’s severed arm.</p>
 
-<p>The creature retreated hastily, turning and grabbing the bloody</p>
-
-<p>stump.</p>
+<p>The creature retreated hastily, turning and grabbing the bloody stump.</p>
 
 <p>His eyes focused on a handsome young man who barely paid attention to him.</p>
 
@@ -75,57 +71,39 @@ chapter = 554
 
 <p>He looked at his mother-in-law and father-in-law, his face full of pain.</p>
 
-<p>“I’m sorry… I didn’t make it in time.” Qingyi gritted his teeth, more</p>
-
-<p>anger than sadness rising in his voice.</p>
+<p>“I’m sorry… I didn’t make it in time.” Qingyi gritted his teeth, more anger than sadness rising in his voice.</p>
 
 <p>Anger at himself, not at the demon.</p>
 
 <p>He had been complacent.</p>
 
-<p>He knew full well that he should return to the capital immediately,</p>
-
-<p>but he didn’t.</p>
+<p>He knew full well that he should return to the capital immediately, but he didn’t.</p>
 
 <p>It was all his fault. If it weren’t for the delay…</p>
 
-<p>Qingyi knelt down, grabbing Jianming’s severed head and using Qi to</p>
-
-<p>reconnect it to the body.</p>
+<p>Qingyi knelt down, grabbing Jianming’s severed head and using Qi to reconnect it to the body.</p>
 
 <p>It wouldn’t do much good.</p>
 
-<p>The old man’s soul had already been consumed. Now, all that</p>
-
-<p>remained was an empty shell.</p>
+<p>The old man’s soul had already been consumed. Now, all that remained was an empty shell.</p>
 
 <p>Qingyi stood up with Jianming in his arms, walking toward the barrier.</p>
 
 <p>“Son-in-law, be careful!” Jin Hao shouted.</p>
 
-<p>The demon behind Qingyi saw this as a perfect opportunity and</p>
-
-<p>lunged toward the handsome young man, his face lit up with a crazed</p>
-
-<p>light.</p>
+<p>The demon behind Qingyi saw this as a perfect opportunity and lunged toward the handsome young man, his face lit up with a crazed light.</p>
 
 <p>Qingyi didn’t even turn around.</p>
 
-<p>He just moved the Qi on his back, pushing everything toward the</p>
+<p>He just moved the Qi on his back, pushing everything toward the demon.</p>
 
-<p>demon.</p>
-
-<p>That being was strong, but far inferior to Nianxue and obviously even</p>
-
-<p>more inferior to the current Qingyi.</p>
+<p>That being was strong, but far inferior to Nianxue and obviously even more inferior to the current Qingyi.</p>
 
 <p>The demon barely had time to react, the lightning Qi tearing his body into hundreds of pieces.</p>
 
 <p>Qingyi noticed the creature regenerating, but didn’t care.</p>
 
-<p>He crossed the barrier and finally arrived in front of Jin Hao and the</p>
-
-<p>White Heron.</p>
+<p>He crossed the barrier and finally arrived in front of Jin Hao and the White Heron.</p>
 
 <p>With a sigh, he knelt down, placing the corpse on the ground.</p>
 
@@ -133,33 +111,21 @@ chapter = 554
 
 <p>She threw herself onto the cold body, crying uncontrollably.</p>
 
-<p>“Why did you have to be so stubborn? Why couldn’t you just come</p>
+<p>“Why did you have to be so stubborn? Why couldn’t you just come back here and wait? Just a little longer… if you had waited just a little longer…” She punched her father’s chest, sobbing.</p>
 
-<p>back here and wait? Just a little longer… if you had waited just a little longer…” She punched her father’s chest, sobbing.</p>
+<p>Qingyi raised his face, closing his eyes and trying to calm his burning heart.</p>
 
-<p>Qingyi raised his face, closing his eyes and trying to calm his burning</p>
+<p>He failed miserably and his mind was consumed by a single feeling: The deepest hatred, on a level he was sure he had never felt in his entire life.</p>
 
-<p>heart.</p>
+<p>‘Heavenly demon…’ He looked up at the heavens. ‘I will kill you a thousand-no, ten thousand times!” Qingyi roared in his mind before focusing his vision once more.</p>
 
-<p>He failed miserably and his mind was consumed by a single feeling: The deepest hatred, on a level he was sure he had never felt in his</p>
-
-<p>entire life.</p>
-
-<p>‘Heavenly demon…’ He looked up at the heavens. ‘I will kill you a thousand-no, ten thousand times!” Qingyi roared in his mind before</p>
-
-<p>focusing his vision once more.</p>
-
-<p>“You can teleport your palace out of the capital, correct?” Jin Hao</p>
-
-<p>asked.</p>
+<p>“You can teleport your palace out of the capital, correct?” Jin Hao asked.</p>
 
 <p>“Uh… yes, but-“</p>
 
 <p>“Do it, now.” Qingyi said.</p>
 
-<p>Feeling the coldness and anger in his son-in-law’s voice, Jin Hao did</p>
-
-<p>not hesitate any longer.</p>
+<p>Feeling the coldness and anger in his son-in-law’s voice, Jin Hao did not hesitate any longer.</p>
 
 <p>For now, he should no longer cling to his foolish pride, unlike</p>
 
@@ -169,21 +135,13 @@ chapter = 554
 
 <p>With quick steps, he returned to the office, and a multitude of spatial formations activated around the palace.</p>
 
-<p>Ensuring that all customers and guards were inside, he began the</p>
+<p>Ensuring that all customers and guards were inside, he began the teleportation process.</p>
 
-<p>teleportation process.</p>
+<p>The range wasn’t very far, only a thousand kilometers away, but it was more than enough to give them time to escape.</p>
 
-<p>The range wasn’t very far, only a thousand kilometers away, but it was</p>
+<p>The price for a single use was absurd, of course, but who would care about money in the face of certain death?</p>
 
-<p>more than enough to give them time to escape.</p>
-
-<p>The price for a single use was absurd, of course, but who would care</p>
-
-<p>about money in the face of certain death?</p>
-
-<p>Qingyi watched the huge palace disappear, his body floating as he</p>
-
-<p>sensed each of the demons.</p>
+<p>Qingyi watched the huge palace disappear, his body floating as he sensed each of the demons.</p>
 
 <p>There were just over nine hundred and fifty, still in fierce combat with the many experts from the imperial capital.</p>
 
@@ -191,8 +149,6 @@ chapter = 554
 
 <p>More than three thousand translucent swords surrounded his body, his draconic mind already calculating the trajectory of each one.</p>
 
-<p>He was about to begin the slaughter when, once again, he had to stop</p>
-
-<p>himself.</p>
+<p>He was about to begin the slaughter when, once again, he had to stop himself.</p>
 
 <p>His eyes focused on the horizon and he gritted his teeth. He truly wouldn’t even have a single second of peace, would he?</p>

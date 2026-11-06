@@ -65,9 +65,7 @@ chapter = 530
 
 <p>“Hahaha! Let’s begin the banquet, honored guests! This party is just getting started!” Jin Hao laughed loudly beside Yunfeng, hugging Qingyi and Meilin.</p>
 
-<p>The doors of the great hall opened and the Gold King’s servants entered carrying tables, followed by an endless succession of special</p>
-
-<p>delicacies.</p>
+<p>The doors of the great hall opened and the Gold King’s servants entered carrying tables, followed by an endless succession of special delicacies.</p>
 
 <p>There was everything from the meat of spirit beasts from the Ancestral Emperor’s Realm to fish from the frozen lakes of the North. Even a dish of roasted phoenix was served exclusively to the most fortunate guests.</p>
 
@@ -83,9 +81,7 @@ chapter = 530
 
 <p>“Yes, thank you, hubby…” A shy smile spread across Meilin’s face. She closed her eyes, pressing her face against her husband’s chest.</p>
 
-<p>With a smile, he lay down on the bed, and Meilin quickly nestled into</p>
-
-<p>his arms.</p>
+<p>With a smile, he lay down on the bed, and Meilin quickly nestled into his arms.</p>
 
 <p>“Husband, you seem pensive. What’s wrong?” Meilin asked, resting her hand on his chest.</p>
 
@@ -93,23 +89,17 @@ chapter = 530
 
 <p>He shouldn’t disturb Meilin with these bad matters, not now.</p>
 
-<p>Meilin’s face showed a subtle initial strangeness, but she decided not</p>
-
-<p>to insist.</p>
+<p>Meilin’s face showed a subtle initial strangeness, but she decided not to insist.</p>
 
 <p>If Qingyi wouldn’t talk, it was because he didn’t think it was important enough at the moment.</p>
 
-<p>Her eyes closed, letting exhaustion take over. That night, she didn’t want sex; she just wanted to smell and feel the warmth of her</p>
-
-<p>husband’s protective embrace.</p>
+<p>Her eyes closed, letting exhaustion take over. That night, she didn’t want sex; she just wanted to smell and feel the warmth of her husband’s protective embrace.</p>
 
 <p>When Meilin finally fell asleep, a voice echoed in Qingyi’s mind.</p>
 
 <p>[What’s wrong?] Ruxue asked.</p>
 
-<p>[I sensed your emotions when you met the Emperor. What happened</p>
-
-<p>between you?]</p>
+<p>[I sensed your emotions when you met the Emperor. What happened between you?]</p>
 
 <p>Qingyi thought for a moment before sighing mentally.</p>
 

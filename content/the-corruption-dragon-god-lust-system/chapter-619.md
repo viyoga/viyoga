@@ -75,35 +75,21 @@ chapter = 619
 
 <p>Overcome by terror, the opponent tried to defend himself, raising his sword with both hands. That attempt was of little use.</p>
 
-<p>Qingyi’s sharp claws closed around his arm, and a sharp crack echoed</p>
+<p>Qingyi’s sharp claws closed around his arm, and a sharp crack echoed through the air as bones were crushed and reduced to dust in a single squeeze.</p>
 
-<p>through the air as bones were crushed and reduced to dust in a</p>
-
-<p>single squeeze.</p>
-
-<p>Before the enemy even had time to scream, his neck had already been</p>
-
-<p>torn open, hot blood spurting non stop.</p>
+<p>Before the enemy even had time to scream, his neck had already been torn open, hot blood spurting non stop.</p>
 
 <p>“Seven left.” Qingyi smiled coldly, a smile that sent a chill down the spines of everyone present.</p>
 
-<p>That bastard had just crushed the Qi-enhanced arm of a cultivator at the same stage with such ease it looked like he was snapping a dry</p>
-
-<p>twig.</p>
+<p>That bastard had just crushed the Qi-enhanced arm of a cultivator at the same stage with such ease it looked like he was snapping a dry twig.</p>
 
 <p>What absurd physical strength!</p>
 
 <p>Qingyi felt a slight sense of pride in himself.</p>
 
-<p>His physical strength had at least doubled with draconization, with</p>
+<p>His physical strength had at least doubled with draconization, with his speed and Qi power increasing considerably as well.</p>
 
-<p>his speed and Qi power increasing considerably as well.</p>
-
-<p>Overall, despite being only an Ethereal-grade lineage, his power was</p>
-
-<p>only slightly inferior to lineages two grades above. “Attack all at once!” Young Li roared, and following his orders, everyone charged forward, unleashing the most powerful techniques</p>
-
-<p>they possessed.</p>
+<p>Overall, despite being only an Ethereal-grade lineage, his power was only slightly inferior to lineages two grades above. “Attack all at once!” Young Li roared, and following his orders, everyone charged forward, unleashing the most powerful techniques they possessed.</p>
 
 <p>Dozens of explosions echoed, the Heaven-Defying Thunder Sword parrying the blows incessantly, each defended attack followed by two more right behind it. The clang of metal against metal filled the air, mixed with the smell of blood and the smoke from the Qi explosions. “Ah… you guys are annoying, aren’t you?” Qingyi growled, kicking out.</p>
 
@@ -111,9 +97,7 @@ chapter = 619
 
 <p>A blade sliced through his back, piercing the scales and puncturing one of Qingyi’s lungs.</p>
 
-<p>The pain burned like embers, and he felt the taste of iron flood his</p>
-
-<p>throat.</p>
+<p>The pain burned like embers, and he felt the taste of iron flood his throat.</p>
 
 <p>Before his opponent could channel Qi to destroy his internal organs, Qingyi spun abruptly, swinging the Heaven-Defying Thunder Sword and activating the Heaven-Shattering Divine Slash.</p>
 
@@ -121,6 +105,4 @@ chapter = 619
 
 <p>“Ah… cough… cough…” Qingyi coughed up large gulps of blood, yanking the sword from his own back and throwing it to the ground.</p>
 
-<p>“Three left…” he said coldly. “Will you come forward, or shall I come to</p>
-
-<p>you?”</p>
+<p>“Three left…” he said coldly. “Will you come forward, or shall I come to you?”</p>
