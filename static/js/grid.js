@@ -17,35 +17,12 @@
   // band would paint over the smoke.
   const flue = !!document.getElementById('flue-canvas');
   let mx = -9999, my = -9999, lmx = -9999, lmy = -9999;
-  try {
-    const p = JSON.parse(sessionStorage.getItem('bgGridPointer') || 'null');
-    if (p && isFinite(p.x) && isFinite(p.y)) { mx = lmx = p.x; my = lmy = p.y; }
-  } catch (e) {}
   let pts = [];
   const SPACING = 55;
   const RADIUS = 180;
   const STRENGTH = 0.22;
   const DAMP = 0.88;
   const SPRING = 0.04;
-
-  let seed = 0;
-  try { seed = Number(sessionStorage.getItem('bgGridSeed')) || 0; } catch (e) {}
-  if (!seed) {
-    seed = ((Date.now() & 0xffffffff) ^ Math.floor(Math.random() * 0xffffffff)) >>> 0;
-    try { sessionStorage.setItem('bgGridSeed', String(seed)); } catch (e) {}
-  }
-  const seed0 = seed;
-  function rand() {
-    seed = (seed + 0x6D2B79F5) >>> 0;
-    let t = seed;
-    t = Math.imul(t ^ (t >>> 15), t | 1);
-    t ^= t + Math.imul(t ^ (t >>> 7), t | 61);
-    return ((t ^ (t >>> 14)) >>> 0) / 4294967296;
-  }
-  let timeBase = 0;
-  try { timeBase = Number(sessionStorage.getItem('bgGridTime')) || 0; } catch (e) {}
-  const timeStart = performance.now();
-  const clockNow = () => timeBase + (performance.now() - timeStart);
 
   // viyoga defines both --canvas-* and --grid-* vars (same values);
   // prefer --canvas-* to match the extension, fall back to --grid-*.
@@ -80,22 +57,6 @@
     fadeSolid = !isTransparent(clr.fade);
   });
 
-  let restored = false;
-  function restoreState() {
-    try {
-      const s = JSON.parse(sessionStorage.getItem('bgGridState') || 'null');
-      if (!s || s.w !== c.width || s.h !== c.height || !Array.isArray(s.p)) return;
-      for (let i = 0; i < pts.length && i < s.p.length; i++) {
-        const a = s.p[i];
-        if (!Array.isArray(a) || a.length !== 4) continue;
-        pts[i].x = +a[0];
-        pts[i].y = +a[1];
-        pts[i].vx = +a[2];
-        pts[i].vy = +a[3];
-      }
-    } catch (e) {}
-  }
-
   function resize() {
     // The canvas is 100vh, not the window: using innerHeight made the URL bar
     // collapsing on a phone resize (and rebuild) the whole grid mid-scroll.
@@ -105,15 +66,10 @@
     c.width = w;
     c.height = h;
     build();
-    if (!restored) {
-      restored = true;
-      restoreState();
-    }
   }
 
   function build() {
     pts = [];
-    seed = seed0;
     const cols = Math.ceil(c.width / SPACING) + 2;
     const rows = Math.ceil(c.height / SPACING) + 2;
     for (let r = 0; r < rows; r++) {
@@ -124,8 +80,8 @@
           x: col * SPACING,
           y: r * SPACING,
           vx: 0, vy: 0,
-          phase: rand() * Math.PI * 2,
-          flick: 0.003 + rand() * 0.007,
+          phase: Math.random() * Math.PI * 2,
+          flick: 0.003 + Math.random() * 0.007,
         });
       }
     }
@@ -142,7 +98,7 @@
     return 'rgba(' + r + ',' + g + ',' + b + ',' + a + ')';
   }
 
-  function draw(now = clockNow()) {
+  function draw(now = performance.now()) {
     const w = c.width, h = c.height;
     ctx.clearRect(0, 0, w, h);
 
@@ -241,7 +197,7 @@
   }
 
   function tick() {
-    const now = clockNow();
+    const now = performance.now();
     for (let i = 0; i < pts.length; i++) {
       const p = pts[i];
       const dx = p.ox - mx;
@@ -268,7 +224,6 @@
       live = true;
       // First live frame drawn — fade out the static CSS underlay.
       document.documentElement.classList.add('grid-live');
-      try { sessionStorage.setItem('bgGridSeen', '1'); } catch (e) {}
     }
     requestAnimationFrame(tick);
   }
@@ -297,34 +252,11 @@
     lmy = my = ny;
   });
 
-  function saveState() {
-    try {
-      sessionStorage.setItem('bgGridTime', String(clockNow()));
-      if (mx > -9999 && my > -9999) {
-        sessionStorage.setItem('bgGridPointer', JSON.stringify({ x: mx, y: my }));
-      }
-      if (pts.length) {
-        sessionStorage.setItem('bgGridState', JSON.stringify({
-          w: c.width, h: c.height,
-          p: pts.map(p => [
-            Math.round(p.x * 100) / 100,
-            Math.round(p.y * 100) / 100,
-            Math.round(p.vx * 10000) / 10000,
-            Math.round(p.vy * 10000) / 10000
-          ])
-        }));
-      }
-    } catch (e) {}
-  }
-  window.addEventListener('pagehide', saveState);
-  document.addEventListener('visibilitychange', () => { if (document.hidden) saveState(); });
-
   window.addEventListener('resize', resize);
   resize();
   if (window.matchMedia && window.matchMedia('(prefers-reduced-motion: reduce)').matches) {
     draw();
     document.documentElement.classList.add('grid-live');
-    try { sessionStorage.setItem('bgGridSeen', '1'); } catch (e) {}
     return;
   }
   tick();

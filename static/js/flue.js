@@ -344,18 +344,6 @@ void main() {
   const coarsePointer = !!mq && mq('(hover: none), (pointer: coarse)').matches;
   const pointerOn = !staticMode && !coarsePointer;
 
-  if (pointerOn) {
-    try {
-      const p = JSON.parse(sessionStorage.getItem('bgFluePointer') || 'null');
-      if (p && isFinite(p.x) && isFinite(p.y)) {
-        mouse.tx = p.x; mouse.ty = p.y;
-        mouse.ax = mouse.x = p.x;
-        mouse.ay = mouse.y = p.y;
-        mouse.wx = p.x; mouse.wy = p.y;
-      }
-    } catch (e) {}
-  }
-
   // Nothing steers the field on a phone, so its own drift is the only motion
   // on screen. Ease it back a touch: still alive, no longer a metronome.
   if (coarsePointer) SETTINGS.speed = 0.28;
@@ -376,17 +364,6 @@ void main() {
 
   /* ── render loop ────────────────────────────────────────────────────── */
   let prevT = performance.now(), clock = 0;
-  try { clock = Number(sessionStorage.getItem('bgFlueClock')) || 0; } catch (e) {}
-  function saveState() {
-    try {
-      sessionStorage.setItem('bgFlueClock', String(clock));
-      if (pointerOn) {
-        sessionStorage.setItem('bgFluePointer', JSON.stringify({ x: mouse.tx, y: mouse.ty }));
-      }
-    } catch (e) {}
-  }
-  window.addEventListener('pagehide', saveState);
-  document.addEventListener('visibilitychange', () => { if (document.hidden) saveState(); });
   function frame(now) {
     requestAnimationFrame(frame);
     const raw = now - prevT;
@@ -440,18 +417,15 @@ void main() {
   if (staticMode) {
     drawStatic();
     document.documentElement.classList.add('flue-live');
-    try { sessionStorage.setItem('bgFlueSeen', '1'); } catch (e) {}
     document.addEventListener('themechange', () => { applyColors(); drawStatic(); });
   } else {
-    // Warm frame: start from the state the loop will settle into.
-    u1f('iTime', clock);
-    if (coarsePointer) u1f('uCoolFloor', 0.30 + 0.45 * (0.5 - 0.5 * Math.cos(clock * Math.PI / 36)));
-    u2f('iMouse', pointerOn ? mouse.x : 0, pointerOn ? mouse.y : -9999);
+    // Warm frame: start from the resting state the loop will settle into.
+    u1f('iTime', 0);
+    u2f('iMouse', 0, pointerOn ? 0 : -9999);
     u2f('iMouseVel', 0, 0);
-    u2f('iMouseWake', pointerOn ? mouse.wx : 0, pointerOn ? mouse.wy : -9999);
+    u2f('iMouseWake', 0, pointerOn ? 0 : -9999);
     gl.drawArrays(gl.TRIANGLES, 0, 3);
     document.documentElement.classList.add('flue-live');
-    try { sessionStorage.setItem('bgFlueSeen', '1'); } catch (e) {}
     document.addEventListener('themechange', applyColors);
     requestAnimationFrame(frame);
   }
