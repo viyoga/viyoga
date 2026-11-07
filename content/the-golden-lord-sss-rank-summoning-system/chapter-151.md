@@ -1,0 +1,69 @@
++++
+title = "Chapter 151: Regional map"
+weight = 151
+[extra]
+chapter = 151
++++
+
+<p>The moment Ethan activated the regional map ability, his eyes flared with a golden glow.</p>
+<p>Before him, a map unfurled, laying bare an area of roughly five hundred kilometers around Goldenveil.</p>
+<p>[You have used the regional map for the first time! Only known factions are shown on the regional map!</p>
+<p>The map’s size will scale with Goldenveil territory.]</p>
+<p>[Note: Once a month, you can use one hundred gold coins to perform a random scan around Goldenveil! The random scan may reveal pleasant surprises]</p>
+<p>Ethan forced down the excitement bubbling in his chest, sweeping his gaze across every corner of the map.</p>
+<p>To the east, portions of the Kingdom of Burning Ice came into view.</p>
+<p>To the southeast, fragments of the Kingdom of the Solemn River.</p>
+<p>To the west, roughly two hundred and fifty kilometers out, stood the City of Howling Flames, home of that powerful expert who had visited Goldenveil only a few days earlier.</p>
+<p>Whitefall lay to the northwest, some sixty or seventy kilometers away, tucked close against the Eternal Peaks.</p>
+<p>When he clicked on the city, an information screen appeared, though it only showed data he already knew.</p>
+<p>Beyond those known points, the rest of the map stayed shrouded in a dense, deep fog.</p>
+<p>Raising a finger, Ethan tapped to spend one hundred gold coins and trigger a scan around Goldenveil.</p>
+<p>In that instant, a soft golden pulse rippled across the map’s surface, and just over eight points of interest lit up all at once.</p>
+<p>[You used Random Scan and found 2x Small Goblin Camp]</p>
+<p>[You used Random Scan and found 2x Medium Goblin Camps]</p>
+<p>[You used Random Scan and found 1x Medium Orc Camps]</p>
+<p>[You used Random Scan and found 1x Medium Elf Camp]</p>
+<p>[You used Random Scan and found 2x Medium Human Villages]</p>
+<p>Clicking through each point, the smile on Ethan’s lips widened little by little, his mind already turning over which ones to strike first.</p>
+<p>Each small goblin camp held, on average, between two hundred and five hundred goblins.</p>
+<p>Beyond that, there were likely hundreds of human prisoners crammed inside. Perhaps even elves and dwarves among them.</p>
+<p>Even if the medium camp packed two or three thousand goblins, maybe more, he would find a way to wipe them out.</p>
+<p>Setting aside the orcs and elves, who would be far harder to handle, goblins posed no real problem. Slowly grinding down their numbers would be enough.</p>
+<p>The one thing that worried him about the medium goblin camps, specifically, was that their leader would almost certainly be a third-stage hobgoblin.</p>
+<p>With just these goblin camps alone, Ethan believed he could rescue at least another seven hundred people.</p>
+<p>Of course, the medium-sized human villages hadn’t escaped his eye either.</p>
+<p>Two in total, both with at least a thousand inhabitants, and both sitting right within the Barony of Goldenveil’s territory.</p>
+<p>The farthest lay sixty kilometers to the west, while the nearest sat forty kilometers in the same direction.</p>
+<p>There was just one problem... how on earth would he conquer so many people?</p>
+<p>Convincing the common folk to move to Goldenveil would be easy enough. But what about their Lords?</p>
+<p>They had to be at least at the third stage, and they wouldn’t give in without a fight.</p>
+<p>As he mulled it over, his thoughts suddenly drifted back to an item he had obtained even before the system’s arrival.</p>
+<p>He would only use this item if it were absolutely necessary, but he still considered the possibility.</p>
+<p>The best outcome would be to defeat the enemy Lord in a dignified and honorable duel.</p>
+<p>It would also make it easier to integrate the people of those cities into Goldenveil, since duels for control of cities were at the heart of many human traditions in that region.</p>
+<p>The legitimacy of such a duel was highly valued.</p>
+<p>[Name: Three-Step Poison Vial</p>
+<p>Description: A colorless, odorless poison that takes one to two days to take effect, but once active, can lead to the target’s death before they can even take three steps. It is effective even against third-stage warriors</p>
+<p>Rank: C]</p>
+<p>A terrible poison.</p>
+<p>With a sigh, Ethan rose from his seat and made his way down to the wine cellar.</p>
+<p>Cool, still air greeted him as he descended, the faint scent of oak and aged vintage curling around his nose.</p>
+<p>He pulled two bottles of the finest wine from the stock that came with the mansion. More than enough to make any third-stage expert’s eyes gleam with intense greed.</p>
+<p>He had no wish to condemn innocent men, and possibly their entire families, to death. But in that moment, he simply didn’t care.</p>
+<p>He knew full well that if he weren’t already in the fourth stage, those men would never bow their heads willingly.</p>
+<p>And given Goldenveil’s current situation, he needed to force its growth to explode as quickly as possible.</p>
+<p>He didn’t want, nor would he accept, watching everything he had built up to this point slip into someone else’s hands over something as trivial as Earth’s common moral standards.</p>
+<p>He respected innocent lives... until they stood in his way. From that point on, such lives were no longer innocent in his eyes.</p>
+<p>With another heavy sigh, Ethan set the wine bottles aside and carefully tucked the poison vial away.</p>
+<p>Soon after, he went to attend to more urgent matters.</p>
+<p>To the master builders of Goldenveil, he issued a single order: double or triple the number of houses produced, as the situation demanded.</p>
+<p>Before winter arrived, he wanted all the new citizens from those cities welcomed and settled into Goldenveil.</p>
+<p>By early summer, they should be fully integrated, with new guards stationed in their proper places and trained directly by Doran.</p>
+<p>As for food, Ethan knew it would be a difficult winter with such massive population growth. His enormous stockpiles would run dry fast.</p>
+<p>Still, a glance at the number of gacha tickets sitting in his system inventory was enough to ease the weight pressing on his shoulders.</p>
+<p>Winning Elena’s absolute loyalty had earned him another twenty premium gacha tickets and fifty common ones.</p>
+<p>All told, he now had forty premium and one hundred twenty common gacha tickets at his disposal.</p>
+<p>With that, he could easily pull something capable of solving his problem, especially since he naturally wouldn’t leave the food stores of those conquered peoples behind either.</p>
+<p>Scratching his chin thoughtfully, Ethan turned his attention toward the instant construction skill.</p>
+<p>The increase in the number of upgrades per month had triggered a partial reset of the skill, and now he could upgrade three Goldenveil structures.</p>
+<p>He hadn’t decided on the last one yet, but given Goldenveil’s new needs, he knew the barracks and the warehouse had to be the priority.</p>

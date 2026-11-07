@@ -40,7 +40,7 @@
   <div class="section-header">
     <h2 class="section-heading"><span class="heading-sym">~/</span>novels</h2>
     <div class="section-line" aria-hidden="true"></div>
-    <span class="section-badge">18 books</span>
+    <span class="section-badge">21 books</span>
   </div>
   {% set ri = get_section(path="reverend-insanity/_index.md") %}
   {% set lotm = get_section(path="lord-of-the-mysteries/_index.md") %}
@@ -60,7 +60,10 @@
   {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
   {% set ima = get_section(path="i-am-a-mage-but-with-milf-system/_index.md") %}
   {% set tcdg = get_section(path="the-corruption-dragon-god-lust-system/_index.md") %}
-  {% set shelves = [ri, lotm, chapters, md, wn, idiot, nfu, bk, meta, trial, pride, odyssey, lith, hos, shotk, hearth, ima, tcdg] %}
+  {% set ptg = get_section(path="path-to-godhood/_index.md") %}
+  {% set golden = get_section(path="the-golden-lord-sss-rank-summoning-system/_index.md") %}
+  {% set cuck = get_section(path="my-cuckhold-system/_index.md") %}
+  {% set shelves = [ri, lotm, chapters, md, wn, idiot, nfu, bk, meta, trial, pride, odyssey, lith, hos, shotk, hearth, ima, tcdg, ptg, golden, cuck] %}
   <div class="novels-grid">
     {% for shelf in shelves %}
     <a href="{{ shelf.path }}" class="novel-card">
@@ -212,9 +215,14 @@
     {% set pride = get_section(path="pride-and-prejudice/_index.md") %}
     {% set odyssey = get_section(path="the-odyssey/_index.md") %}
     {% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
+    {% set hos = get_section(path="herald-of-shalia/_index.md") %}
+    {% set shotk = get_section(path="son-of-the-hero-king/_index.md") %}
     {% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
     {% set ima = get_section(path="i-am-a-mage-but-with-milf-system/_index.md") %}
     {% set tcdg = get_section(path="the-corruption-dragon-god-lust-system/_index.md") %}
+    {% set ptg = get_section(path="path-to-godhood/_index.md") %}
+    {% set golden = get_section(path="the-golden-lord-sss-rank-summoning-system/_index.md") %}
+    {% set cuck = get_section(path="my-cuckhold-system/_index.md") %}
     {% set_global ri_n = 0 %}
     {% for sub in ri.subsections %}
       {% set vol = get_section(path=sub) %}
@@ -252,14 +260,24 @@
     {% set pride_n = pride.pages | length %}
     {% set odyssey_n = odyssey.pages | length %}
     {% set lith_n = lith.pages | length %}
+    {% set_global hos_n = 0 %}
+    {% for sub in hos.subsections %}
+      {% set vol = get_section(path=sub) %}
+      {% set vol_n = vol.pages | length %}
+      {% set_global hos_n = hos_n + vol_n %}
+    {% endfor %}
+    {% set shotk_n = shotk.pages | length %}
     {% set hearth_n = hearth.pages | length %}
     {% set ima_n = ima.pages | length %}
     {% set tcdg_n = tcdg.pages | length %}
+    {% set ptg_n = ptg.pages | length %}
+    {% set golden_n = golden.pages | length %}
+    {% set cuck_n = cuck.pages | length %}
     {% set ch_n = chapters.pages | length %}
-    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + hearth_n + ima_n + tcdg_n %}
+    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + hos_n + shotk_n + hearth_n + ima_n + tcdg_n + ptg_n + golden_n + cuck_n %}
     <div class="stat-card">
       <div class="stat-top-bar"><span class="stat-indicator">●</span> ARCHIVE</div>
-      <div class="value">13+8</div>
+      <div class="value">21+8</div>
       <div class="label">Novels &amp; Tools</div>
     </div>
     <div class="stat-card">

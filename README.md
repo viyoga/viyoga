@@ -15,7 +15,7 @@ Static HTML, no tracking, and every tool runs client-side.
 
 ## What's here
 
-**~4,500 pages** of reading and tools, served as pure static HTML.
+**~9,800 pages** of reading and tools, served as pure static HTML.
 
 ### Tools
 

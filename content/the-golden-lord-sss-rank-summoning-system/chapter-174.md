@@ -1,0 +1,65 @@
++++
+title = "Chapter 174: A chamber of commerce"
+weight = 174
+[extra]
+chapter = 174
++++
+
+<p>"I have more gold than any price you could possibly ask for your magic herbs, hahaha!"</p>
+<p>Ron’s laughter didn’t last long.</p>
+<p>Soon, he found himself standing in the storeroom of Ethan’s mansion, the dense, earthy scent of magic herbs hanging thick in the spacious chamber.</p>
+<p>He let out a heavy sigh.</p>
+<p>What the hell was that?</p>
+<p>He moved from crate to crate, prying each lid open carefully and examining the contents with keen eyes.</p>
+<p>Each crate held about a thousand units, and some of them stored herbs of unparalleled quality, separated into their own compartments and meticulously organized.</p>
+<p>By the quantity he counted there, it was more than enough to become the army’s largest supplier of herbs, with a margin of at least ten percent of the total.</p>
+<p>It seemed small, but second place would only have four percent, since the supply of magical herbs to the army was spread thin among various names.</p>
+<p>Ron wanted, at all costs, to ask about the origin of those herbs, to dig up what Ethan’s secrets were.</p>
+<p>But knowing what a terrifying presence his mother was, he bit his tongue and stayed silent.</p>
+<p>"I... heard news about your mother, Lord Ethan," he said, momentarily forgetting that Ethan still didn’t know he was aware of his true identity.</p>
+<p>It was the price of being too relaxed.</p>
+<p>Ethan’s face clouded over for an instant. Then, seeing Ron flinch at the realization of his slip, he simply laughed.</p>
+<p>"It’s all right, it’s natural that you’d do your research on me. How is she?"</p>
+<p>"I’ve heard rumors that she’s in the final stages of her advancement to the fifth stage. It shouldn’t take more than a year." Ron replied, a slight strangeness creeping over his face. "You don’t have contact with her?"</p>
+<p>"No." Ethan shook his head.</p>
+<p>Honestly, he had a somewhat complicated relationship with his mother in this world.</p>
+<p>When he transmigrated, he was already nearly thirty, and, well, he’d already had a mother and a father in his previous life.</p>
+<p>He was too old to form that kind of bond with the woman who claimed to be his mother in this world, despite the affection he felt for her, who had always protected him.</p>
+<p>Remembering her mature face and that voluptuous, perfect body, Ethan could only sigh.</p>
+<p>His childhood in this world had been a special kind of torment, having to grow up cradled in the arms of such a hot woman, with an adult mind that simply refused to see her as a mother.</p>
+<p>At least he’d been able to grope those huge tits without any consequences.</p>
+<p>’System... you’re not going to screw me over with this, are you?’</p>
+<p>[hehehe...]</p>
+<p>’Shit...’</p>
+<p>Ethan had no problem with turning his father in this world into a cuckold; that damn old man deserved it. But he quickly shoved the thought aside.</p>
+<p>Daydreaming about the huge, bouncing tits of the woman who was the mother of this body—even if she wasn’t truly his mother—wasn’t something he wanted to do for long.</p>
+<p>"There are four hundred thousand spiritual herbs in there." Ethan pulled a ledger from his spatial ring and handed it to Ron, who read everything carefully.</p>
+<p>"If you want to make your own ledger to verify the numbers, go ahead."</p>
+<p>"It won’t be necessary." Ron smiled, already running the numbers in his head while pushing his shock back down his throat.</p>
+<p>He was on business, and staying calm at all times was very important. "How could our business function without trust?"</p>
+<p>Honestly, he was very happy with Ethan.</p>
+<p>He’d managed to sell the last shipment of five hundred bottles of green fairy wine for about one hundred and thirty thousand gold coins.</p>
+<p>That was more than ten times the purchase price, even considering the cost and risk of sailing to that region.</p>
+<p>Even the wealthiest merchants could barely earn a million gold coins in profit from gigantic caravans, ones made up of dozens of ships and even protected by fourth-stage warriors.</p>
+<p>That, of course, involved venturing deep into Lake Azur and doing business with massive, powerful coastal cities, whose lords—sometimes fifth-stage warriors—could kill them at any moment out of sheer tyranny or for the slightest mistake.</p>
+<p>Ron was quite lucky to be basically the only person who knew of Goldenveil.</p>
+<p>He knew Ethan was fully aware of just how much profit he was making from this, and that made him a little anxious.</p>
+<p>Ethan would probably want to raise the price soon, right?</p>
+<p>Finishing his review of the little over three pages containing an organized list of all the herbs, Ron finally arrived at a figure.</p>
+<p>"One hundred and ten thousand gold coins," Ron said, drawing a soft smile from Ethan, who held out his hand.</p>
+<p>Ethan had been expecting somewhere between ninety and one hundred thousand gold coins, and although he knew he could charge a little more, he held back.</p>
+<p>"You should build a permanent residence here in Goldenveil," Ethan said as he shook Ron’s hand firmly.</p>
+<p>"Hahaha, if you’re willing to give me this one or build one like it for me, I have no problem coming to live here."</p>
+<p>"Hm..." Ethan scratched his chin thoughtfully. "How long can you wait?"</p>
+<p>Ron laughed heartily at those words, but soon realized Ethan was serious.</p>
+<p>"You’re going to establish a chamber of commerce, and to do that, you’ll set up a main branch, right? This main branch must be built in Goldenveil... No, I’ll build it myself, and by the end of winter, when you come to visit us, it’ll be ready."</p>
+<p>Ron paused for a moment.</p>
+<p>He had plans for that, of course.</p>
+<p>After all, the real commercial potential lay not with independent merchants, but with the major chambers of commerce, some of them based in the great central empires and capable of earning billions a year.</p>
+<p>That was his biggest dream.</p>
+<p>He’d planned to open the main branch of his chamber of commerce in the massive capital of the Kingdom of Burning Ice, home to nearly a million inhabitants.</p>
+<p>But now Ethan wanted the main branch to be in the small Goldenveil, leaving him to only build secondary branches in the Kingdom of Burning Ice?</p>
+<p>Ron thought about refusing, but deep down, his inner merchant was screaming for him to accept.</p>
+<p>"If you don’t want to, that’s fine. I’ll find someone else."</p>
+<p>Those words snapped Ron out of his daze, and he seized Ethan’s hand again, firmly.</p>
+<p>Apparently, he would have to serve Goldenveil for the rest of his life.</p>
