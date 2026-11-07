@@ -1,0 +1,37 @@
++++
+title = "Chapter 46: In her Home (3) {R-18}"
+weight = 46
+[extra]
+chapter = 46
++++
+
+<p>As the sounds of his pelvis slapping into Arlette’s ass over and over kept ringing out and near reverberating all over the room, Caius placed a hand at the small of her back and his fingers felt up the ridge of her spine.</p>
+<p>Even though his thrusting never faltered, he looked so taken by the feel of her back. He seemed so taken by how her back muscles bunched with each back-thrust even though it looked like she was hardly moving. He was so taken by that feeling that he was soon running his hand even further until he was touching her neck.</p>
+<p>Arlette shivered at the touch and her motion of thrusting her ass back into him changed as she began to rotate instead, moving his dick in marvelous ways all over her insides.</p>
+<p>Caius let his hand feel around her neck, still looking mesmerized. And then he gripped tight. He had no fear about squeezing as hard as he could because, despite now being a True Vampire, Arlette still far outclassed him magically and physically so there was very little—maybe even nothing—that he could do to hurt her physically.</p>
+<p>This afforded him a level of freedom as he drew back his free hand and let it fly to deliver a crisp spank to her ass.</p>
+<p>"Ah," Arlette let out. She felt it certainly. It even stung but it was not at all to a point where she would cry out in pain that overwhelmed the pleasure she was feeling.</p>
+<p>Meanwhile, Caius’s hand moved around until he was touching his palm to Arlette’s throat which he used to lift her off the bed until her back was arched against his chest. He had her maintain that position with his hand still on her throat and pressed his lips to the side of her face as Arlette raised both of her arms to reach back and grab his head with her hands.</p>
+<p>"Mmmm..." she moaned with an almost delirious smile. The smile only got wider when she felt Caius’ tongue licking across her neck.</p>
+<p>They remained in that position for however long and then fell onto the bed together. Caius’s lower half moved in a sensual motion as he kept up the thrusts but in a more slow and methodical way that made it feel all the more intimate.</p>
+<p>And then, they turned on their sides. Arlette raised one leg and reached it backward to place it behind Caius’ thighs, easily using it to pull him even closer to her body and even harder into the thrusts. As she did this, she still moved and—in-tune with the rhythm of the thrusts—she moaned and groaned in such an enrapturing tone that caused Caius’ rod to twitch and jerk inside her.</p>
+<p>Caius had released her neck now even though he still had his lips placed against it and still sucked on her skin. He had one hand down her front, his arm placed across one of her breasts—feeling the hardened nipple rub across his forearm—while his hand grabbed the other one.</p>
+<p>He squeezed the boob that his hand could hardly contain and felt his fingers sink into that smooth pliable flesh. He pulled at the erect nipple when he was feeling particularly interested in hearing Arlette take a sharp breath. Which was always followed by a chuckle and a quiet little,</p>
+<p>"Naughty."</p>
+<p>Eventually, Caius could hold back no longer and with groans directly in Arlette’s ears—groans that only had her pushing her ass even harder against his pelvis—his cock jerked and he began to spew his seeds deep inside to join the many litters he had deposited maybe thirty minutes earlier.</p>
+<p>They stayed mostly silent during that period. Arlette angled herself until her face was in a position where they could join their lips together in a kiss.</p>
+<p>When Caius’ release finally ended, Arlette pulled away from his hold and with a hand on his chest, she forced him off his side and onto his back right before she gripped his cock that was still slick with her juices mixed with his cum.</p>
+<p>With her eyes on his face, she found her way down, and did it in such a way that her boobs dragged on either side of the large member. Her nipples grazed Caius’ thigh while the warmth of her tits bordered his cock on either side and, in that position, she stroked him even more. As it turned out, Caius’ climax wasn’t quite over yet because he was jerking upward and pushing his cock into Arlette’s grip as he felt another round of cum-shooting right on its way.</p>
+<p>That caused Arlette’s lips to spread in a wide lascivious grin as she continued downward with her hand still gripping the rod. Before Caius got the chance to be disappointed at loosing the bordering warmth of her tits, she grabbed his dickhead into her mouth and enveloped him in a different kind of warmth and one that seemed intent on tightening around him more than her pussy had. An impossible task but one she was going to try anyway.</p>
+<p>Arlette sucked almost the entirety of Caius’ cock into her mouth and only came back up when it began to tickle the entry of her throat and triggered her gag reflex. Coming back up, she sucked so hard that Caius’ ass was completely lifted off the bed like his weight was starting to only be supported by his dick in his lover’s mouth.</p>
+<p>When Arlette released the dickhead from her mouth, it came out with a fairly loud ’POP’ sound that only further showcased the insanity of the suction she had employed.</p>
+<p>Meanwhile, Arlette was far more engrossed in the mixed taste of her and Caius’ discharges. It had her completely obsessed and she found she wanted more of it which only left her disappointed when she had lapped up the entirety of the rod and there was now nothing left.</p>
+<p>She perked up quickly though when Caius’s jerks announced to her that there was still a treat on the way. It only took a few more strokes of her hand around the part she couldn’t take into her mouth as well as that soul-sucking suction of hers before Caius reached down to grab handfuls of her hair to pull her harder onto his cock, forcing more than a few inches down her throat as he climaxed and fired his seeds down deep into her gullet.</p>
+<p>If Arlette’s mouth allowed any more stretching or shaping, she would have given a smile wide enough to show off the proud joy she was feeling in that moment while she let herself enjoy the warmth of copious wad after copious wad of cum slide down her throat.</p>
+<p>She had no idea how long Caius spent cumming but she could tell when it was starting to end and pulled back until only the head was in her mouth so she could collect enough samples to savor.</p>
+<p>"Oh God," Caius couldn’t help but let out as his ass flopped back onto the bed.</p>
+<p>"That good, huh?" Arlette said still holding on to his cock and smiling like she didn’t just witness the effect her godly fellation skills had on him.</p>
+<p>Caius laughed and grabbed her then as he got back on her and his cock was back inside her before the laughter ended. He had barely started thrusting that Arlette seized control again with laughter of her own, squatting on him and groaning as she started self-thrusts only to quickly realize how close she was to release.</p>
+<p>"FUCK!!!" She let out a yell as she threw her head back and groaned.</p>
+<p>Amid that groan and while her spasms were causing her to tighten around him in delicious ways, Caius reclaimed control and set the pace of the thrusts.</p>
+<p>At least until Arlette came down from her orgasmic high and wrestled it from him again...</p>

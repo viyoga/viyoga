@@ -1,0 +1,45 @@
++++
+title = "Chapter 534: Similar yet different Emotion {R-18}"
+weight = 534
+[extra]
+chapter = 534
++++
+
+<p>Keeping up the trend that had begun since the thin band first formed around her heart tonight, the touch of the top of Caius's a cock to her pussy lips hit Roxanne harder than she could have ever anticipated.</p>
+<p>Roxanne locked her legs even tighter around Caius's waist and, now that she didn't need to keep keeping his cock aligned to get pussy, she raised the other hand to join the one already around Caius's shoulders for an even more secure hold there.</p>
+<p>Caius was not at all a stoic figure either. He groaned and gripped Roxanne with as much force as he had dug his claws into the door— even more force, actually, because his grip tightened the longer her inner muscles had a firm grip on the tip of his cock.</p>
+<p>He didn't guide Roxanne down. It took everything he had to refrain and keep his hold on her body. He stopped himself because, as much as he wanted to get things going faster and thrust himself as deep inside Roxanne as he could go, he thought she deserved the chance to move at her own pace.</p>
+<p>Plus, there was something tantalizing about not being in control. Something wonderful for just being there for the ride, so every sensation he experienced wracked him with as much surprise as it did pleasure.</p>
+<p>In contrast, Roxanne reveled in the control she had in the moment. It was actually rare to be the one directing her sexual encounters with Caius, so this was a much-welcomed departure from the usual that she really wanted to enjoy as much as she could before eventually, ultimately, becoming awash in his control, which she always enjoyed still. If for nothing, Caius always knew how to get her going, after all.</p>
+<p>Roxanne continued to descend and became so overcome with sensations that she threw her head back and let out a stream of groans and moans as she was gripped with spasms.</p>
+<p>But while there was some climactic twinge to the tremors, most of it was coming from emotions distinct from arousal. Emotions that seemed to emanate simultaneously from the thin band as well as from her heart itself. The two sources met like the confluence of two streams, becoming an even more powerful stream of emotion that sought to swallow Roxanne whole. And she was happy to let it.</p>
+<p>Surely, life—or whatever one will call vampiric existence—was only worth living now that she was filled to the brim with so much… love.</p>
+<p>Caius had not been privy to all that was happening in Roxanne's head for a while now, but he became aware of the intense spike in arousal in her blood. He also smelled something similar and yet completely different wrapped up in it.</p>
+<p>Without thinking and while still more inches of his cock made their way into Roxanne's right snatch, Calus leaned forward and placed his fangs on the marks he had already made in Roxanne's neck. By the slightest pressure, her blood seeped out, and Caius took a light lick.</p>
+<p>Caius was in control of his urges and had tamed the strange thirst that had ached in his throat, so he didn't drink from Roxanne with the hungry fervor of before. It seemed cruel and pointless to deprive her of her blood when it wasn't contributing to his evolution. There was a fine line between drinking from her for bonding and drinking from her due to a perverse desire to impose himself on her.</p>
+<p>In any case, the little bit of Roxanne's blood Caius collected on his tongue proved enough for him to be able to contemplate what he smelled in her blood. He tasted it now—stronger and teeming with more permanence than arousal—an emotion that his Evolution leaped at the presence of and then mellowed immediately after.</p>
+<p>Caius guessed already what that emotion was. He didn't even need to think or dwell on its name and just let himself be steeped in how much he desired it— in the fact that even though it didn't improve his evolution progress, he felt beyond wonderful to be able to taste it. Especially to be able to taste that it was for him— That he had been the one to elicit such a strong show of that emotion within Roxanne.</p>
+<p>When he pulled his tongue away from the mark in Roxanne's neck, the marks had sealed up, and blood didn't seep out anymore. Caius was gripped with a desire for more of Roxanne's blood, for more of that strange emotion inside it, but was also swamped with a tenderness that curbed that desire.</p>
+<p>So instead, he pressed his face into the crook of Roxanne's neck, breathing in her scent. In her scent, he saw how that emotion had radiated all over Roxanne's body, and he took more deep breaths to fill himself with her delightful smell.</p>
+<p>Meanwhile, Roxanne had been descending while Caius was lost in his contemplation of the emotion in her blood, and now, her pussy swallowed the last inches of Caius's rod.</p>
+<p>To be inside the velvety walls of Roxanne's insides, to feel the intense grip of her inner muscles clamping down on him, proved a strong enough stimulant that pulled Caius slightly back from the depths he had gladly sunk into by Roxanne's scent.</p>
+<p>Roxanne's back hit the wall again, and Caius pulled back from her just enough to raise one hand and grab one of her breasts, and through the supple, wonderful mammary, he could feel the fast beating of her heart, as it raced in accordance with the intensity of Roxanne's pleasure.</p>
+<p>Caius noticed his own heart was beating in rhythm with hers. It was probably a coincidence, but he did take note. He also took note of her starting to rise, causing some of the inches of his cock to slip out of her insides, and then, she descended, taking it all back in with one smooth movement and a sound of impact as their lower bodies met.</p>
+<p>With a groan, Caius joined in her next thrust, pulling back his hips as she pulled up his body, so when they came back together, perfectly in synch, it was with an even more impactful sound.</p>
+<p>And so began a stream of thrusts with groans and moans and grunts from both their sets of lips as Caius's rod, over and over again, visited the depths of Roxanne's tunnel.</p>
+<p>Roxanne gyrated, causing his cock to move all about her insides, and with one hand still on her waist, Caius himself rocked his waist in tune. He knew her insides well and with incredible clarity. He found his points of interest quickly, causing even more spikes in the volume of Roxanne's groans of pleasure.</p>
+<p>And he wasn't spared from the throes of pleasure, himself.</p>
+<p>Every slight contact of his cock against Roxanne's insides wracked Caius with so much pleasure. So the entirety of his rod buried inside that grip just gave even more surface area for Roxanne's pleasurable insides to work with.</p>
+<p>Caius was losing his grip on conscious thoughts.</p>
+<p>Why were they in this County, so far from home? He didn't know at the moment and didn't care.</p>
+<p>Why were they in an inn? It didn't matter.</p>
+<p>Mission? What mission?</p>
+<p>The only thing that mattered was that the pleasure he was gleaning from Roxanne might cause his brain to short-circuit long before he brought her to climax. It was that fucking good!</p>
+<p>Caius's hands eventually descended, and he took hold of Roxanne's asscheeks again, feeling the vibrations that rippled the supple flesh at every impactful thrust. He let his fingers sink deep into the goodness, while also using his grips like anchors to keep his grip on reality… his grip on some kind of rational thinking.</p>
+<p>But it was wonderfully pointless.</p>
+<p>Roxanne had him under a spell, basically. All he could think about was the hypnotic movement of her breasts in front of his eyes as she leaped up and down.</p>
+<p>Many times, he had leaned forward and grabbed the nipple that topped one of those breasts, sucking hard and stopping its leaping while its twin continued to do so. But more often, he just leaned back and watched.</p>
+<p>And what about Roxanne's thighs against his sides? The smoothness of them, the strength behind them, and the wave of comfort and stability they gave him.</p>
+<p>And then there were Roxanne's hands in his hair: Caius wasn't new to the act, but there was something spine-tingling about the way her fingers touched his scalp. There was a wash of relief it gave him, like a touch of cool water after a hot summer day.</p>
+<p>And finally, there was the kiss: It had been passionate since they started this tonight, but there was something especially delectable about it now. There was something about the way Roxanne's soft lips yielded to his, something about the way her tongue left her mouth into his, engaging him in a dance not for dominance but unity. Equal partners in their sweet, sloppy exchange.</p>
+<p>All this together, and it's no wonder that Caius soon took both his hands off Roxanne's ass to press them against the door on both sides of her head as he let out a telltale grunt against her lips— A grunt that was the herald of his climax.</p>

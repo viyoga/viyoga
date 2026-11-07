@@ -1,0 +1,38 @@
++++
+title = "Chapter 456: Synchronized movements {R-18}"
+weight = 456
+[extra]
+chapter = 456
++++
+
+<p>Despite the sound-dampening enchantments all over the walls, there was a manner in which the denizens of the Coven reacted to Caius’s tower that suggested that all had heard Meline’s climactic proclamation.</p>
+<p>Meline didn’t care. If anything, she wanted them to hear. She could practically taste the envy that would be directed at her for what she was having the benefit of partaking in and would love to boast of it. If she had been in a more lucid state of mind, that is.</p>
+<p>As it stood, Meline was far too wrapped up in the intense pleasure thrill charging through her body. The orgasmic episode had caused her to spasm which made her clench her thighs against Caius’s sides so hard that he winced. But she couldn’t bring herself to care. Not because she was callous but because she was too far gone.</p>
+<p>Caius, to his credit, wasn’t actually crying out in pain. For one thing, any such sounds would get muffled in Roxanne’s chest. And for another, he also really enjoyed how Meline’s pussy was reacting around his cock.</p>
+<p>This was the first time he was experiencing her insides and as it usually was, he was filled with an ego of essentially conquering new grounds. His cock swelled even more, the veins pulsing and flexing against the ribbed insides of Meline’s warm, moist caverns.</p>
+<p>Caius was very much aware of the fact that Meline had barely taken a quarter of his rod and he would have liked to grab her hips and assist her on the journey but he was far too wrapped up with Roxanne. Still, he provided her with support by thrusting upward, helping her take even more of him into her spasming pussy.</p>
+<p>Meline bit her lower lip to stifle the sound of her orgasmic cries and despite how much her muscles clamped down hard on Caius’s rod, the increased moisture release by her pussy made it all so easy to continue to descend.</p>
+<p>"Oh, gods!" She couldn’t help but exclaim in the moment. She felt as her insides rearranged to accommodate Caius’s imposing length and girth properly. She felt as if, despite not yet being inside her completely, Caius’s rod was making his mark and imprinting her insides with a seal that seemed to bind her to him.</p>
+<p>Meline was so overwhelmed by the pleasure sensations that she fell forward and dropped her hands on Caius’s midsection to brace herself. Alas, the trembling from the pleasures of orgasmic bliss was so powerful that her arms shook and she came close to losing her balance.</p>
+<p>It was at this point that Roxanne sat up especially straight on Caius while still grinding her wet pussy against him as she moaned and bit her lip lightly in bliss.</p>
+<p>Roxanne was only coming up for a bit of air, allowing herself to look down and take in Caius’s face, letting those impossible good looks really get her gears running into overdrive when she felt two hands grab her shoulders. The hands themselves were soft but the strength behind their grip was anything but.</p>
+<p>"What- what are you doing?" Roxanne asked as she looked back at Meline.</p>
+<p>"Just hold on a sec," Meline said with a groan.</p>
+<p>Bending over to grab Caius’s midsection for support hadn’t worked all that well. It only made Meline more prone to collapsing but grabbing Roxanne’s shoulders provided her with so much more stability. She was able to remain upright and lean the entirety of her weight on her fellow Leopold woman.</p>
+<p>Roxanne tried to protest but had to stop when Meline’s fingers flexed in a particular way, digging into nerves that instantly caused Roxanne to mellow for a second and give Meline the chance to really secure her hold on her shoulders.</p>
+<p>"Why you— Mnnghh!" Roxanne started to speak before trailing off into a groan as she unknowingly leaned back toward Meline who was pulling her closer.</p>
+<p>Caius just smiled at it all. With Roxanne pulled away from him, his hands were free again and he placed them on Meline’s waist, working his fingers across her skin before taking a firmer grip and starting to guide her down so she could take even more inches of his cock.</p>
+<p>"Yes!" Meline jubilated at Caius’s hands on her. She flexed her fingers even more into Roxanne’s shoulders while continuing her descent despite how much her clamped-down inner muscles were making that difficult.</p>
+<p>Soon, Meline had taken in more than half of Caius’s cock and, as full as she felt, her insides, her entire being, were demanding more. There was still space to be occupied and her muscles were actively working to prepare that space for Caius’s arrival.</p>
+<p>Roxanne had gotten pulled even further back and didn’t quickly realize until her back was resting against Meline’s large pillowy breasts.</p>
+<p>Meline wrapped both her arms around Roxanne’s shoulders pulling her close like they were hugging. She pressed her face into the crook of Roxanne’s neck and used it to try to muffle her moans.</p>
+<p>Feeling the vibrations of Meline’s muffled orgasmic cries against her skin had Roxanne gyrating against Caius’s body beneath her, grinding herself to a minor orgasm. She also became very aware of Meline’s erect nipples rubbing against her back and actively rocked herself against them.</p>
+<p>Whatever protest Roxanne might have been planning to have over Meline pulling her over and interrupting what she had been busy doing with Caius, was suddenly gone as she found pleasure in the moment. She stretched one hand back, her eyes locked on Caius as she grabbed the back of Meline’s head and the two ladies began to synchronize their movements.</p>
+<p>Caius found that incredibly hot. Despite how he could really only see one of the two ladies, he could feel every action they took. His hands were still on Meline’s waist and still pulled her down to take the rest of him but he inadvertently made that task harder for her because his horniness for some girl-on-girl action was making him even larger. Making the already snug fit even tighter.</p>
+<p>But through it all, with her experiencing two Climaxes all the while, Meline’s ass finally made an impactful clap sound against Caius’s thighs as her pussy accepted every final inch of his rod.</p>
+<p>"Yes! My Lord, YES!" Meline yelled, taking her face off Roxanne’s neck to moan and groan as loudly as she possibly could.</p>
+<p>Hearing those cries so close to her ear, Roxanne wasn’t annoyed. Instead, she got all the more excited, gyrating against Caius beneath her all the more, rubbing up against Meline’s nipples and keeping a firm hold on the back of Meline’s head as she arched her back, cried out, and experienced an orgasm herself.</p>
+<p>"Fuck!" Roxanne let out as she came down from her minor orgasmic high, her body becoming so weak that she lost her grip on Meline’s head and fell forward onto Caius’s body.</p>
+<p>The only thing that stopped her fall was Meline’s arms still wrapped around her shoulder. But then, Meline’s arms went slack, releasing Roxanne gently onto Caius’s body so she could fall flat onto his chest.</p>
+<p>Once she fell, Roxanne raised her head to look at Caius’s face and he was smiling at her. He took one hand off Meline’s waist and beckoned her to come closer. And with her heart full with delight at his call, Roxanne crawled up his body once again.</p>
+<p>Meline hadn’t let go of Roxanne because she became weak. She let go because she had needed those arms for balance. Now that she had every inch of Caius’s rod inside her gripping, moist snatch, she leaned back, grabbed his legs, and began to rise and fall. The starting of a thrusting motion and the beginning of her mind getting tossed into orgasmic heaven.</p>

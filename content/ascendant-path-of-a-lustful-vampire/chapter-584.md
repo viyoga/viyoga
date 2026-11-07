@@ -1,0 +1,44 @@
++++
+title = "Chapter 584: I just do! {R-18}"
+weight = 584
+[extra]
+chapter = 584
++++
+
+<p>When she had thrust herself back and taken more than half of the rod into herself, Zaila grew impatient and pushed herself up on the surface of the desk to thrust back as hard as she possibly could.</p>
+<p>With a crisp sound of groin against supple ass cheeks, Caius bottomed out in the Garrison Captain's delicious insides and he was struck so hard by the spike in pleasure that he gritted his teeth and trembled. He came so close to release that it was a testament to his willpower that he managed to hold it back. Even then, though, he had to stop moving and hold his position so as not to test that self-control.</p>
+<p>Zaila didn't move either. Somehow, despite the great expectations that had built in her head judging by how good it had all been so far, she had still massively underestimated how wonderful it would be to have all of the vampire's rod within her gripping walls. She had underestimated the ache she would feel as the head struck her cervix or how quickly that ache would translate into pleasure.</p>
+<p>The arch of Zaila's back relaxed and she flopped onto the desk to get accustomed to being filled as she never had been filled before— more filled than she dared say anyone anywhere had ever been before.</p>
+<p>Caius couldn't help it and collapsed onto her back. Zaila moaned at the feeling of his weight on her. At her Magic Circle, it should have been a negligible weight that she wouldn't have taken notice of, but she did take notice. And she enjoyed it.</p>
+<p>Zaila's eyes were closed when she felt the vampire place his hands atop hers and then he worked his fingers into hers and gripped tight. In response, Zaila reciprocated the grip and then she let out a gasp when, in their position—with his upper body laid atop hers and their hands interlocked—the vampire drew back just a few inches and thrust back in, striking the head of his cock against the end of her pussy.</p>
+<p>"Ohhhh," She let out in a trembling voice as her inner muscles began to work their wonders around the rod.</p>
+<p>With a groan at the actions of inner muscles and the way they milked him—wearing down his self-control—Caius kept up his thrusts. He welcomed the tightness and the welcoming manner the inner muscles worked across his cock and pulled him deeper in.</p>
+<p>Considering their positions and because Caius favored a slower and more intimate thrust pattern, there were very few loud and impactful sounds of his groin smacking Zaila's ass. But that didn't mean the session was silent. Far from it actually because the Study was permeated with animalistic groans and grunts of desire and pleasure from their throats.</p>
+<p>Neither Zaila nor Caius opened their mouths to actually speak words and it wasn't needed. Not right now anyway. Whatever they wanted to communicate in their current states of pleasure was expressed well enough by their non-verbal sounds.</p>
+<p>Back and forth, Caius went. He never exited too far, not just because he didn't want to right now, but also because their positions didn't allow a wide range of backward movement.</p>
+<p>At some point, Caius placed his lips to Zaila's cheek. It wasn't the first time he had done so today or even since they had been in their current positions, but this kiss on the cheek was especially notable because it roused Zaila and caused her to push herself off the desk.</p>
+<p>Zaila didn't struggle to stand and lift the vampire with her and the moment they were even slightly upright, she reached back to grab the back of the vampire's head, turning her head until she could lock his lips in a kiss as tender as the one he had placed on her cheek just seconds before.</p>
+<p>Caius reciprocated. He also took advantage of Zaila no longer lying over the desk to grab both of her breasts and knead them with his eager hands. The pleasure she gleaned from this act was so great that Zaila couldn't even keep her lips on Caius's as she opened her mouth to let out a deep moan.</p>
+<p>His lips free, Caius dipped his head and lay his chin on Zaila's shoulder, turning his face to press his lips to her neck. Specifically, he pressed his lips to the fang marks he had already made there and had drunk her blood from a few times already.</p>
+<p>Zaila arched her back against the vampire's chest, pressing her ass as hard as she possibly could against his groin to get his dick to remain as deep inside her pussy as it could be. She began to move up and down the vampire's body like an exotic dancer against a pole.</p>
+<p>Caius didn't complain. He was too busy gritting his teeth against Zaila's neck to form words in any case. He simply kneaded her tits even harder, taking care to maintain self-control and not unsheathe his claws. He grabbed both of Zaila's nipples and pinched down hard.</p>
+<p>As she moaned in response, her body writhing against the vampire's and doing wonders to the way his cock felt inside her, Zaila became aware of a harbinger of a greater oncoming orgasmic delight and it made her pussy juices flow as much and as hard as any orgasm would.</p>
+<p>'YES!' She exclaimed delightedly in her head. She didn't use actual words because her mouth was still unable to form verbal sounds.</p>
+<p>Pinching one nipple, Caius palmed the other and the different approaches only added to the intensity of the harbinger orgasm that was currently rocking Zaila's shit.</p>
+<p>'Oh FUCK ME!' She exclaimed mentally while her lips produced more groans and grunts.</p>
+<p>And then Zaila became very aware of the vampire's lips on her neck. She was also aware of when he opened his mouth and not only knew what was coming but fervently craved it.</p>
+<p>Whatever reluctance she might have ever felt toward the bite was gone and it was now no longer just something that maybe added to the thrilling experience while she was getting her jollies with the vampire but was now something that, on its own, she desired.</p>
+<p>Yes, so far the pain of the bite had enhanced or at least added—even if only slightly— to her pleasure but now it wasn't even about that. No, Zaila found herself believing the vampire deserved to feed on her. She found herself believing that, with how much she had gained that she couldn't even put into actual words, she owed the vampire and her blood was only the start to paying him back.</p>
+<p>'I must have been lobotomized,' the rational part of Zaila's mind thought in complete disbelief at the way the rest of her mind, along with her body, was rationalizing getting fed on by a vampire as not just being a good thing but being something the vampire had a right to do.</p>
+<p>'He received pleasure too,' her rational part of her mind argued, 'Why do I owe him my blood?!'</p>
+<p>'I JUST DO!' The rest of her mind, along with her body yelled back and that rational part of her mind was not only quelled but also 'saw sense' and was absorbed into the fold.</p>
+<p>So when the vampire's fangs reopened the fang marks and drank her blood once again, the smile that spread across Zaila's face was one of profound satisfaction— of submission.</p>
+<p>"Yes," she moaned, speaking for the first time in a good while, "Take it. Have as much as you need."</p>
+<p>Caius paused his feeding. He had not expected to reach this point with her so quickly— or ever really. He feared he might have gone too far and done all this too well, too fast.</p>
+<p>Still, Zaila's blood was far too delicious for him to just stop short when it was still trickling into his mouth. So he took a few more sips.</p>
+<p>Mewling with a desire so profound that she herself probably didn't even understand it, Zaila caressed the masked vampire's head with one hand and grabbed one of his hands with her other hand to hold it tight to one of her breasts.</p>
+<p>When Zaila moved her hips again and performed the wonders she was capable of, Caius finally gave up on fighting it. He allowed his climax to hit him so hard that he couldn't help but sink his fangs an inch deeper into Zaila's neck.</p>
+<p>"Oh, fuck yes, that's it!" Zaila groaned with a light bite of her lower lip, "Bite me harder! I know you've got it in you!"</p>
+<p>Caius just groaned in response and the vibrations that thrummed into Zaila's neck as a result made her squirm in a delectable way. Caius's balls grew taut and his hips jerked as he released the first spurt of his release, coating Zaila's walls with his pearly white seeds.</p>
+<p>The sheer warmth of the first batch took Zaila so much by surprise that her eyelids flew up so her eyes could widen. And the surprise didn't end there…</p>
+<p>'Is it… No, it's never supposed to be this much, right?' She couldn't help but ask in her head as the very first spurt had her pussy already feeling full and the next ones just kept adding to the ample load.</p>

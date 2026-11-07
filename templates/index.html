@@ -40,7 +40,7 @@
   <div class="section-header">
     <h2 class="section-heading"><span class="heading-sym">~/</span>novels</h2>
     <div class="section-line" aria-hidden="true"></div>
-    <span class="section-badge">21 books</span>
+    <span class="section-badge">23 books</span>
   </div>
   {% set ri = get_section(path="reverend-insanity/_index.md") %}
   {% set lotm = get_section(path="lord-of-the-mysteries/_index.md") %}
@@ -63,7 +63,9 @@
   {% set ptg = get_section(path="path-to-godhood/_index.md") %}
   {% set golden = get_section(path="the-golden-lord-sss-rank-summoning-system/_index.md") %}
   {% set cuck = get_section(path="my-cuckhold-system/_index.md") %}
-  {% set shelves = [ri, lotm, chapters, md, wn, idiot, nfu, bk, meta, trial, pride, odyssey, lith, hos, shotk, hearth, ima, tcdg, ptg, golden, cuck] %}
+  {% set asc = get_section(path="ascendant-path-of-a-lustful-vampire/_index.md") %}
+  {% set villain = get_section(path="the-lustful-villain-every-milfs-and-gilfs-are-mine/_index.md") %}
+  {% set shelves = [ri, lotm, chapters, md, wn, idiot, nfu, bk, meta, trial, pride, odyssey, lith, hos, shotk, hearth, ima, tcdg, ptg, golden, cuck, asc, villain] %}
   <div class="novels-grid">
     {% for shelf in shelves %}
     <a href="{{ shelf.path }}" class="novel-card">
@@ -223,6 +225,8 @@
     {% set ptg = get_section(path="path-to-godhood/_index.md") %}
     {% set golden = get_section(path="the-golden-lord-sss-rank-summoning-system/_index.md") %}
     {% set cuck = get_section(path="my-cuckhold-system/_index.md") %}
+    {% set asc = get_section(path="ascendant-path-of-a-lustful-vampire/_index.md") %}
+    {% set villain = get_section(path="the-lustful-villain-every-milfs-and-gilfs-are-mine/_index.md") %}
     {% set_global ri_n = 0 %}
     {% for sub in ri.subsections %}
       {% set vol = get_section(path=sub) %}
@@ -273,11 +277,13 @@
     {% set ptg_n = ptg.pages | length %}
     {% set golden_n = golden.pages | length %}
     {% set cuck_n = cuck.pages | length %}
+    {% set asc_n = asc.pages | length %}
+    {% set villain_n = villain.pages | length %}
     {% set ch_n = chapters.pages | length %}
-    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + hos_n + shotk_n + hearth_n + ima_n + tcdg_n + ptg_n + golden_n + cuck_n %}
+    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + hos_n + shotk_n + hearth_n + ima_n + tcdg_n + ptg_n + golden_n + cuck_n + asc_n + villain_n %}
     <div class="stat-card">
       <div class="stat-top-bar"><span class="stat-indicator">●</span> ARCHIVE</div>
-      <div class="value">21+8</div>
+      <div class="value">23+8</div>
       <div class="label">Novels &amp; Tools</div>
     </div>
     <div class="stat-card">

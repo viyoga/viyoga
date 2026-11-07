@@ -1,0 +1,46 @@
++++
+title = "Chapter 426: Closest to Divinity {R-18}"
+weight = 426
+[extra]
+chapter = 426
++++
+
+<p>Caius sheathed his claws and in one swipe, he ripped Roxanne's lingerie. The material posed no resistance. It almost felt like it wanted to be cut. Feeling the soft, smooth material fall away, Caius was almost sad to have ruined such a wonderful scanty and sexy garment but to view Roxanne's body without it as a barrier made up for that quite nicely.</p>
+<p>The Leopolds have always had beauty. It runs in the family quite strongly, and Roxanne might just be the epitome of it. Caius didn't know much about her. Even in the original canon, she hadn't had enough importance for him to have every necessary information about her.</p>
+<p>He wasn't delusional. He knew he hadn't fallen for her. No, he didn't feel an inkling of feelings he had for his other lovers for her but he could absolutely acknowledge just how undoubtedly sexy she was.</p>
+<p>He could acknowledge how her breasts seemed to yearn for his lips as they trembled ever so slightly atop her chest due to the spasms her body was undergoing at the moment.</p>
+<p>He could acknowledge how her snatch radiated a warmth that called him into her most private of zones. He could acknowledge the clenching of her inner muscles that he could feel with the head of his rod pressed up against her plump pussy lips.</p>
+<p>He could acknowledge her red lips as they parted ever so slightly, letting out sultry breaths. He could acknowledge her gleaming fangs and the way they glistened in their sharpness.</p>
+<p>Caius leaned close and took a whiff of Roxanne's scent, shivering at how much it caused his hormones to rage. He let out his tongue and took a lick of her skin, tasting the perspiration, and it was like perfectly added spice to the already delicious cuisine that was the natural taste of her skin.</p>
+<p>As Caius nuzzled his face into Roxanne's lips, his lower half got even closer to hers and thanks to Roxanne's guidance, the head slipped in and was instantly wrapped in a tightness that held on like the jaws of life and refused to let go.</p>
+<p>Speaking of jaws, Roxanne's opened wide. She had expected something transcendental from Caius finally entering her caverns and those expectations were met and surpassed just by the head of the rod.</p>
+<p>She wrapped an arm around Caius's back and splayed her fingers across the ripped fabric of his shirt from her previous use of claws on the back of his clothes. Roxanne still struggled with that self-control and her claws kept appearing and retracting at random intervals.</p>
+<p>The same was the case for her fangs. Except once Roxanne placed her human teeth against Caius's skin, she realized she didn't quite want to restrain herself. And so, she clenched her jaw quite hard onto his shoulder so that when her self-control slipped and her fangs appeared, they sank into Caius's skin with ridiculous ease.</p>
+<p>"Ngh!" Caius groaned and trembled and then he chuckled.</p>
+<p>He chuckled because after licking Roxanne's skin and smelling the arousal coursing through her blood, he had been very interested in biting her. Her biting him validated this desire and his eyes turned vampire red as he shifted and sank his impossibly sharp fangs into her perfect skin.</p>
+<p>Roxanne's eyes bugged as Caius's blood hit her tongue. Like his semen, it was a ridiculously delicious liquid that he could just produce apparently. But while Caius's seed had only really granted satisfaction and a great taste, his blood carried something stronger;</p>
+<p>Authority.</p>
+<p>It was like Roxanne was seeing God for the first time.</p>
+<p>Yes, she was aware of the existence of gods, and knew she owed her existence as a Vampire to Nyx but that it's ultimately an impersonal view of godhood because while she could definitely feel the influence of divinity—especially in the very vow that allowed Caius possession of their Coven—she had never physically interacted with one.</p>
+<p>Tasting Caius's blood and feeling the power within it seemed the closest she was probably ever going to get to a physical interaction with divinity. Divinity just seemed the only reason one's blood should possess such… power.</p>
+<p>And that was without the traces of divine power she was sure she could taste in his blood. How did she recognize the power as Divine? Roxanne had no idea.</p>
+<p>Had she imagined the traces to be divine because she already likened Caius's existence to divine representation? She didn't know.</p>
+<p>What she did know was that she couldn't quite get enough of it. She siphoned as much of Caius's blood as she could and could have sworn that whatever traces of divine power she was sensing (or hallucinating) was strengthening her.</p>
+<p>She got so wrapped up in the taste of Caius's blood and the power she could detect within it that she didn't even make a sound when his fangs pierced her skin. She reacted of course with twitches but she mostly just grabbed Caius even harder.</p>
+<p>With one hand at his back, Roxanne grabbed the back of his head, wrapping her fingers in locks of his hair to keep him right where he was so she could keep sucking on his blood.</p>
+<p>She got so lost in sucking on Caius that the only things she registered were in relation to his continued entry into her caverns.</p>
+<p>Caius could taste the arousal in her blood. While Roxanne being a vampire made her blood useless to his evolution, he could absolutely still enjoy the taste. As he sucked with less vigor than Roxanne used on him, Caius placed his hand on her ass, pulling her closer as he worked more inches of his rod into her snatch.</p>
+<p>The tightness, heightened by the sheer intensity with which Roxanne's inner muscles were determined to imprison him made it a daunting task but that actually made it all the more pleasurable. The ache that came with the all-around clenching and the way her muscles undulated around him despite that made his entry simply delicious.</p>
+<p>He took some handful squeezes of Roxanne's ass, mesmerized with the perfection and how it always returned to its natural state no matter his handling. In a way that he could actually feel and accompanied by minute vibrations that did wonders for how the connection of their genitals felt.</p>
+<p>Through sheer dedication, Caius got about half of his cock into Roxanne's pussy and he hit a spot within her that was so pleasurable that it pulled her from his neck. She opened her mouth, the inside of which was tinged slightly red from Calus's blood, and let out a breathy moan. Caius pulled away from her neck as well and connected their lips.</p>
+<p>"Mmmmmm…" Roxanne moaned deeply as the two thrust their tongues deep into one another's mouths, swapping not just saliva but blood as well.</p>
+<p>They continued to kiss as Caius still worked the rest of his cock into her. Soon, only a quarter of the imposing length was left outside Roxanne's snatch, and with a determined zeal and a determination to swallow the entirety of the organ, Roxanne raised her feet off the floor and wrapped her legs around Caius's waist.</p>
+<p>She used her grip to pull him closer, putting every bit of strength she had into her thrust until hers and Caius's mouths parted as he bottomed out inside her.</p>
+<p>"Yes!" Roxanne exclaimed with a deep sigh. She had both of her hands on Caius's head and turned her face toward the high ceiling of her room as she grinned with delight and fulfillment.</p>
+<p>There was an ache as the head of the rod struck the end of her pussy but that only intensified her pleasure as she began to rock herself on the rod, moving it this way and that inside her spasming snatch.</p>
+<p>Caius on the other hand let out a very deep groan in pleasure. He had moved even closer to the wall because Roxanne pulled him closer and because of that, she had ridden higher up on the wall as well so Caius's face fell between her breasts. Though, really, he would have it any other way.</p>
+<p>His groan was guttural and with both of his hands supporting Roxanne's ass now, he began to pull back, dragging a couple of inches out of her gripping snatch and pushing back in to complete the first of many thrusts.</p>
+<p>Caius felt himself already close to a release but kept a lid on it as he kick-started a series of thrusts that took advantage of an unspoken agreement between himself and her muscles to relax enough around him so he could at least pull out enough to set up the thrusts.</p>
+<p>He snapped up one of Roxanne's nipples. He sucked on it with great fervor and then grabbed it between normal human teeth so he could clench as hard as he wished to without risking breaking her skin. The ache of the pressure of teeth still caused Roxanne to squirm as her pussy moistened even further and facilitated the continued thrusts.</p>
+<p>As he clenched the nipple between his teeth, Caius stroked the tip with his tongue. That went on for a while and the sound of him sucking as well as the wet flesh sounds of their groins smacking into one another was prevalent in the room. Only really joined by Roxanne's moans.</p>
+<p>Moans that hiked in volume as she neared an orgasm she had no hope of keeping back. And she didn't even try.</p>

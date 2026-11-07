@@ -1,0 +1,38 @@
++++
+title = "Chapter 458: You never really know {R-18}"
+weight = 458
+[extra]
+chapter = 458
++++
+
+<p>When Meline's orgasmic high finally began to wane, she found the strength to remain upright. Her entire nethers were sensitive to even the slightest motion by Caius's rod within her.</p>
+<p>Just the smallest jerks and twitches were sending sensations so hard through her that she spasmed and clenched hard around the rod with her inner muscles. She moaned, biting down on her lower lip, and kept rocking herself on the organ, really driving those sensations to new heights and not yet too sensitive to say she had had enough.</p>
+<p>Roxanne was the same. She came down from the climactic peak with a drive to get back there. She pulled at Caius's hair so hard that she was practically lifting him off the water surface. At a point, she seemed to have activated her Freeform flight unknowingly as she began to rise.</p>
+<p>She continued to grind her pussy into Caius's mouth and he in turn ate her out with as much fervor as ever. Her juices and the very energy of the climax of the two ladies gave him such strength that he was all too encouraged to keep things going longer.</p>
+<p>Caius placed his hands on Roxanne's waist and then worked down to grab her ass cheeks, his fingers digging in deep as he pulled her even harder down onto his face. There was some negligible space between Roxanne's center and Caius's mouth as she practically hovered above him but Caius sought to get rid of that space by truly suffocating himself with her sex.</p>
+<p>All the while, Caius continued his hip jerks, aiding Meline's thrusts. His sensitivity had been heightened following a powerful climax and Caius very happily rode the wave of that sensitivity as he went in and out of Meline's snatch, constantly moaning into Roxann's pussy.</p>
+<p>Oh, the pleasure was immaculate. The in and out motion, the insane tightening of Meline's inner muscles—so tight that she might have been trying to break his cock right off—around him, the way the veiny surface of his cock interacted with her ribbed pussy insides… It all just sent Caius down into a pleasure delirium that he could have easily lost himself in.</p>
+<p>But he managed to remain lucid. He ate Roxanne out with a passion. He could feel her spasms atop him and he knew exactly what spots to lap his tongue across and increase the intensity of the sensations coursing through her body.</p>
+<p>His tongue extended deep inside her, finding and stroking erogenous zones within her pussy in a manner that caused Roxanne to close her thighs tight against his head as her back arched and she turned her face towards the ceiling.</p>
+<p>"Fucking YES!" She howled.</p>
+<p>She yelled again a second after that, in an even louder volume and with such powerful profanities that she seemed almost incoherent, when Caius raked his teeth against her pussy even harder.</p>
+<p>Roxanne felt it coming. She wanted to resist it and keep it away for longer but it came so hard that she knew she had no chance. The climax was going to arrive so soon on the heels of the last, and it would be more impactful, leaving her a simpering mess.</p>
+<p>There was simply no going around it. The very feel of Caius's mouth against her ascertained that possibility already and really the use of his tongue, teeth, and clit-suckling aptitude only seemed like an overkill to the goal.</p>
+<p>But it was a delicious 'overkill'. One that Roxanne was absolutely grateful for. All of those sensations, the way his tongue moved around inside her and touched her erogenous zones as well as the way his teeth moved on her clit followed by his gentle and intense sucking were all individual pleasure zones that overstimulated her so much that her brain practically short-circuited with pleasure.</p>
+<p>"IT'S HEREEEEEEE!!!" Roxanne announced proudly and loudly as she bathed Caius with another round of her ample and delicious juices.</p>
+<p>Meline didn't really notice what was happening in front of her, and Caius knew why. He could feel Meline approaching her second orgasm as well with how her spasms sent vibrations trudging into his cock.</p>
+<p>Caius did all he could to hold back a second release so soon after the last but it would seem that his 'punishment' for driving the two women so quickly to multiple climaxes was a lack of control over his own orgasmic experiences.</p>
+<p>While Roxanne was feeding him her juices that he was too happy to drink up, Caius noticed they were moving. The dark magic manipulating the section of bath water they were lying on was moving and it was moving them along with it.</p>
+<p>Caius knew Meline was responsible but with how far gone she was—her eyes shut tight, her weight pressing down on him as she tried to hold back a massive wave of orgasmic bliss—Caius couldn't be sure if she was moving them on purpose or not.</p>
+<p>They stopped when Meline's thigh, which was on one side of Caius's body touched the edge of the bath. She did not indicate that she noticed and just let out another orgasmic cry as her muscles began to undulate around Caius's cock, sending him groaning and arching his neck as he climaxed once again.</p>
+<p>Meline couldn't believe what she was experiencing and the only reason she knew it was real was that, for centuries since she had existed, she had never imagined or dreamed of pleasure this great.</p>
+<p>In short, her mind couldn't come up with something this good so it had to be real. It was so good that it tossed Meline's mind into a trance-like state as she reminisced on the past. There was so much though that to get through it all, it seemed a lot like her life was flashing before her eyes.</p>
+<p>Roxanne had been happy as a human. The Leopolds were at the height of material wealth and her needs and wants were always attended to. She had a happy marriage that she was fond of so much that she got her husband turned.</p>
+<p>Things really changed when she became a Vampire.</p>
+<p>Sure, you can be long-lived as a human, but time still passes. You still feel like you're aging. That was one of the 'sadnesses' of the Magic Circles in the sense that they make one so strong and so sensitive that they can feel time pass far too well.</p>
+<p>The desire to climb magic circles is primarily to roll back aging and keep living a bit longer. And while that can be sad for someone hellbent on immortality—like Kerwin had been when he was human—this feeling of cheating death, of getting so strong that aging has to catch up to you, brings a thrill that is, itself, very human.</p>
+<p>Meline hadn't really understood any of this until after she accepted Kerwin's offer of immortality and became a vampire. As a Vampire, that human drive of cheating death, of making aging catch up to you, is completely gone.</p>
+<p>The enhanced vampiric senses also make it easy for you to tell so clearly that your aging has been stopped and will never again catch up to you. Sure, you can still die and maybe can derive some thrill from avoiding the sun—or cheating it with a Moonstone Ring—for eternity. But the thrill is different.</p>
+<p>Really, that human drive is gone once one becomes a Vampire. Things they used to like as a human suddenly become less… flavourful.</p>
+<p>You never really know how much of what you cherish, is cherished only because your time with them will ultimately end. You never really know how mundane the relationships you cherish actually are and how much you are willing to overlook and ignore because of human mortality.</p>
+<p>You never really know how boring life can be until you have too much of it.</p>
