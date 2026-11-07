@@ -58,6 +58,10 @@
 html {
   scroll-behavior: smooth;
   scroll-padding-top: 54px;
+  overflow-x: hidden;
+}
+@supports (overflow-x: clip) {
+  html { overflow-x: clip; }
 }
 
 /* Lenis smooth scroll: the script owns the scroll position while active,
@@ -484,6 +488,7 @@ body {
   flex-direction: column;
   min-height: 100vh;
   overflow-x: clip;
+  overflow-wrap: break-word;
   background:
     radial-gradient(1000px 500px at 12% -5%, var(--halo-a, transparent), transparent 70%),
     radial-gradient(900px 500px at 88% 8%, var(--halo-b, transparent), transparent 70%),
@@ -1434,6 +1439,8 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
   font-family: var(--font-read);
   font-size: 1rem; line-height: 1.85; color: var(--fg);
+  overflow-wrap: anywhere;
+  word-break: break-word;
 }
 /* Reading prose sits one step heavier than the UI: regular reads thin across a
    long column, bold shouts. None of the three reading faces ship a medium, so
