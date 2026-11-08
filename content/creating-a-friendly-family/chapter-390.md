@@ -38,7 +38,7 @@ chapter = 390
 
 <p>Sehee Nuna avoided Shiwoo's gaze and replied awkwardly, as if rambling.</p>
 
-<p>"Is that so~?"</p>
+<p>"Is that so?"</p>
 
 <p>Shiwoo casually brushed off Sehee Nuna's answer and subtly glanced at the clock hanging on the living room wall.</p>
 

@@ -74,11 +74,11 @@ chapter = 320
 
 <p>Seyoung asks, as if reacting familiarly to Shiwoo's soliloquy.</p>
 
-<p>"No~ I was just thinking about the puppy at home~ because it licked up the ice cream Sua gave it so well last time~"</p>
+<p>"No I was just thinking about the puppy at home because it licked up the ice cream Sua gave it so well last time"</p>
 
 <p>Shiwoo answers as if provoking his younger sisters, reminding them of what happened last time.</p>
 
-<p>"Ah~ You mean Sae-a? That kid licks up anything Sua gives her so well~! Hehe~!"</p>
+<p>"Ah You mean Sae-a? That kid licks up anything Sua gives her so well! Hehe!"</p>
 
 <p>Is Seyoung understanding what Shiwoo is saying and responding?</p>
 
@@ -90,7 +90,7 @@ chapter = 320
 
 <p>The question was whether she had ever smeared ice cream on her crotch and let the dog lick it, just like Sua had done.</p>
 
-<p>"No, I haven't tried that yet~"</p>
+<p>"No, I haven't tried that yet"</p>
 
 <p>Seyoung answers Shiwoo with a bright, innocent smile.</p>
 
@@ -108,11 +108,11 @@ chapter = 320
 
 <p>Shiwoo realized that he could now naturally engage in such lewd conversations with Seyoung at any time.</p>
 
-<p>"If you're okay with it, try it sometime when we get home~ The ice cream we bought before should still be at home."</p>
+<p>"If you're okay with it, try it sometime when we get home The ice cream we bought before should still be at home."</p>
 
 <p>Shiwoo, matching Seyoung's slyness, indirectly gave the command to smear ice cream on her clitoris and let the puppy lick it.</p>
 
-<p>"Shall I~? Hehe~"</p>
+<p>"Shall I? Hehe"</p>
 
 <p>Seyoung responded playfully, accepting Shiwoo's words.</p>
 
@@ -148,7 +148,7 @@ chapter = 320
 
 <p>Seyoung checked her smartphone and, as if imitating Shiwoo again, called Mom and Sehee noona by their names without honorifics.</p>
 
-<p>"No, I had ordered something earlier, and since neither Seonmi nor Sehee has responded yet, I was just wondering~"</p>
+<p>"No, I had ordered something earlier, and since neither Seonmi nor Sehee has responded yet, I was just wondering"</p>
 
 <p>Shiwoo answered as if deliberately emphasizing his position and showing off in front of his younger sisters.</p>
 
@@ -188,7 +188,7 @@ chapter = 320
 
 <p>The number next to the photo decreased by one, indicating Seonju Imo-nim had seen it.</p>
 
-<p>'It's Master-nim's, so don't be shy and enjoy it to your heart's content~! Fighting~!'</p>
+<p>'It's Master-nim's, so don't be shy and enjoy it to your heart's content! Fighting!'</p>
 
 <p>Seonju Imo-nim's playful message, as if cheering on Shiwoo's molestation.</p>
 

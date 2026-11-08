@@ -114,7 +114,7 @@ chapter = 394
 
 <p>Mom continues to check the texts and photos that Shiwoo sent without replying or responding.</p>
 
-<p>[Seyoung is in the shower right now! Sehee has taken off all her clothes and is waiting for me in the living room~!]</p>
+<p>[Seyoung is in the shower right now! Sehee has taken off all her clothes and is waiting for me in the living room!]</p>
 
 <p>Shiwoo sends a text as if explaining the situation in the house to Mom, even though he knows that he won't get a reply.</p>
 

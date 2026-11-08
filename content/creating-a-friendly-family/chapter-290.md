@@ -4,7 +4,7 @@ weight = 290
 [extra]
 chapter = 290
 +++
-<p>,There are even cages for large dogs~ Sua bought one for her house a while ago~ Haven't you seen it yet? Should I show you?\,</p>
+<p>,There are even cages for large dogs Sua bought one for her house a while ago Haven't you seen it yet? Should I show you?\,</p>
 
 <p>Seyoung asks Shiwoo, as if she's about to find another picture and show it to him.</p>
 
@@ -42,7 +42,7 @@ chapter = 290
 
 <p>Shiwoo stares at the text message that Seyoung sent for a long time in a daze.</p>
 
-<p>,I just sent the photo in a text message~ Shiwoo Oppa~\,</p>
+<p>,I just sent the photo in a text message Shiwoo Oppa\,</p>
 
 <p>Seyoung says, confirming that the text message she just sent was the photo she sent.</p>
 
@@ -68,11 +68,11 @@ chapter = 290
 
 <p>Shiwoo says, touching the screen of the conversation window with Seyoung up and down as if trying to calm his mind.</p>
 
-<p>,Right~? I went in with Sua and it was huge~ And sturdy too! There are even curtains on the outside~? You can cover it so you can't see inside from the outside~ Hehe~\,</p>
+<p>,Right? I went in with Sua and it was huge And sturdy too! There are even curtains on the outside? You can cover it so you can't see inside from the outside Hehe\,</p>
 
 <p>Seyoung explains to Shiwoo about the functions of the cage as if she was boasting about them, as if she was enjoying it.</p>
 
-<p>,I see~ It's huge~ This could be used to punish bad people who lie or steal things,\,</p>
+<p>,I see It's huge This could be used to punish bad people who lie or steal things,\,</p>
 
 <p>Shiwoo was speaking as if he was pinpointing the actions that Mom had done in the morning.</p>
 
@@ -80,7 +80,7 @@ chapter = 290
 
 <p>Mom's face was filled with a blush, as if she had a premonition of her fate.</p>
 
-<p>,Oh right~! Sehee, didn't you say you had something to give to Mom later?\,</p>
+<p>,Oh right! Sehee, didn't you say you had something to give to Mom later?\,</p>
 
 <p>Shiwoo says, turning to Sehee Nuna next to him as if he had just thought of it.</p>
 
@@ -94,33 +94,33 @@ chapter = 290
 
 <p>Mom asks, looking back and forth between Shiwoo and Sehee Nuna as if she was uneasy.</p>
 
-<p>,That's...well...I'll...I'll tell you later separately~ Mom...,\</p>
+<p>,That's...well...I'll...I'll tell you later separately Mom...,\</p>
 
 <p>Sehee Nuna was looking at Seyoung's expression and answering hesitantly as if she was troubled.</p>
 
-<p>,Sehee Unnie~ Why are you telling her separately later~? What are you going to give Mom~? Can't you tell me?\,</p>
+<p>,Sehee Unnie Why are you telling her separately later? What are you going to give Mom? Can't you tell me?\,</p>
 
 <p>Seyoung asks with a disappointed expression, as if she was disappointed by Sehee Nuna's words that she would only tell Mom later.</p>
 
 <p>Sehee Nuna, whose words were blocked because she didn't know what to say with a troubled face.</p>
 
-<p>,It's nothing~ Seyoung-ah~ We're talking about snacks to feed Mom after we leave!\,</p>
+<p>,It's nothing Seyoung-ah We're talking about snacks to feed Mom after we leave!\,</p>
 
 <p>Shiwoo was kindly explaining to Seyoung on behalf of Sehee Nuna, who was in trouble.</p>
 
-<p>,Feed Mom~? What is it?\,</p>
+<p>,Feed Mom? What is it?\,</p>
 
 <p>Seyoung asks, leaning her body forward and leaning forward with her arms propped up on the table, as if she was even more curious about Shiwoo's explanation.</p>
 
 <p>The hem of her dress was pushed under the table, exposing Seyoung's sensual pink nipples to the outside.</p>
 
-<p>,Ah~ Should I say it's something to drink? It would be nice if Seyoung could try it properly later~ Well~ Does Seyoung already know the taste?\,</p>
+<p>,Ah Should I say it's something to drink? It would be nice if Seyoung could try it properly later Well Does Seyoung already know the taste?\,</p>
 
 <p>Shiwoo, speaking to Seyoung as if he was doing a twenty questions game, as if he was making sure Mom could hear him with a playful tone.</p>
 
 <p>Mom was breathing heavily with her head bowed, as if she had immediately realized what Shiwoo and Sehee Nuna were trying to give her.</p>
 
-<p>,When we leave, Sehee will give it to you and you drink it right away~ You have to drink it all in front of Sehee! Got it?\,</p>
+<p>,When we leave, Sehee will give it to you and you drink it right away You have to drink it all in front of Sehee! Got it?\,</p>
 
 <p>Shiwoo speaks to Mom as if he was making a request with a soft but solemn tone.</p>
 
@@ -150,11 +150,11 @@ chapter = 290
 
 <p>Seyoung simply lowered her head slightly as if she was checking her smartphone, and then looked straight at Shiwoo again.</p>
 
-<p>,I'll let Seyoung drink it next time too~!\,</p>
+<p>,I'll let Seyoung drink it next time too!\,</p>
 
 <p>Shiwoo said to Seyoung as if he was checking the situation, pretending to be calm after pressing the send button.</p>
 
-<p>,Okay~ I like it~ Shiwoo Oppa~ Hehe~\,</p>
+<p>,Okay I like it Shiwoo Oppa Hehe\,</p>
 
 <p>Seyoung, who makes eye contact with Shiwoo as is and answers brightly, as if Shiwoo's text and the words that followed were nothing.</p>
 

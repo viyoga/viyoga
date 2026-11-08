@@ -18,7 +18,7 @@ chapter = 191
 
 <p>Sehee Nuna, who had gone to the restroom, returned to the room, seemingly passing the Hyeong-s. Sehee Nuna returned to the seat next to the door, opposite Shiwoo, and sat down. Inside the room, Shiwoo, Sehee Nuna, Sora Nuna, and Semi Nuna were left.</p>
 
-<p>"How is it~? Having fun?"</p>
+<p>"How is it? Having fun?"</p>
 
 <p>Sora Nuna, who was sitting next to him, approached Shiwoo and spoke to him tenderly. Through the white blouse shirt with three buttons undone, Sora Nuna's large, voluptuous breasts, leaning forward, were encased in a purple bra and hung provocatively.</p>
 
@@ -38,11 +38,11 @@ chapter = 191
 
 <p>"Yeah... I... I think I'll have to, depending on the situation." Shiwoo replied, glancing at Sehee Nuna.</p>
 
-<p>"It would be nice if you stayed with us~"</p>
+<p>"It would be nice if you stayed with us"</p>
 
 <p>Sora Nuna spoke to Shiwoo, slowly stroking her hand upwards on his thigh.</p>
 
-<p>"Or it wouldn't matter if you switched from Sinbi to me right now~ Fufufut~" Sora Nuna continued, speaking playfully in a whisper.</p>
+<p>"Or it wouldn't matter if you switched from Sinbi to me right now Fufufut" Sora Nuna continued, speaking playfully in a whisper.</p>
 
 <p>Shiwoo's penis, bulging with a startled force, strained the fabric of his pants even tighter upwards, twitching. Sora Nuna was smiling, seemingly amused by Shiwoo's reaction.</p>
 
@@ -54,11 +54,11 @@ chapter = 191
 
 <p>Just then, a blatant gasp/panting sound came from Sehee Nuna opposite them. Shiwoo, startled, quickly pulled his hand away from Sora Nuna's chest area and looked back at Sehee Nuna. Sehee Nuna still had her arms crossed and legs crossed, her head turned towards the main screen, pretending not to notice.</p>
 
-<p>"Kukukuk~ Doesn't seem like today's the day~ Sora-ya~"</p>
+<p>"Kukukuk Doesn't seem like today's the day Sora-ya"</p>
 
 <p>Semi Nuna's laughter was heard from the corner seat.</p>
 
-<p>"What a shame~..." Sora Nuna said to Shiwoo, glancing at Sehee Nuna.</p>
+<p>"What a shame..." Sora Nuna said to Shiwoo, glancing at Sehee Nuna.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -86,18 +86,18 @@ chapter = 191
 
 <p>Before moving locations, Shiwoo briefly stopped by the karaoke room's restroom. Throughout the song's accompaniment, watching Sehee Nuna embraced by Juni Hyeong, Shiwoo had been continuously breaking out in cold sweat down his back. 'I thought today was just about meeting and confirming faces... Did Sehee Nuna's feelings change after spending the night at Sinbi Nuna's house yesterday?' 'Or did Juni Hyeong, her partner, appeal to her enough to make her change her mind?' As he washed the sweat from his neck with a blank feeling, Cheoljin followed him in and stood beside Shiwoo.</p>
 
-<p>"Don't leave your partner alone~ And Sehee too~! What if something happens in a place like this~? Heheheh"</p>
+<p>"Don't leave your partner alone And Sehee too! What if something happens in a place like this? Heheheh"</p>
 
 <p>Cheoljin spoke, teasing Shiwoo, who was tense, as soon as he entered the restroom.</p>
 
-<p>"What the fuck are you talking about?! Haa~"</p>
+<p>"What the fuck are you talking about?! Haa"</p>
 
 <p>Shiwoo suddenly burst out, glaring at Cheoljin, then shook his head with a sigh as if losing all energy.</p>
 
-<p>"How were Sinbi's breasts? Compared to Mom, Gyuri?! Can't you let me touch Sinbi's breasts just once later? Honestly, in that situation, I was most envious of Juni Hyeong and you, Shiwoo~"</p>
+<p>"How were Sinbi's breasts? Compared to Mom, Gyuri?! Can't you let me touch Sinbi's breasts just once later? Honestly, in that situation, I was most envious of Juni Hyeong and you, Shiwoo"</p>
 
 <p>Cheoljin was teasing Shiwoo, even casually calling his own Mom by her name.</p>
 
-<p>"You crazy bastard! Is that something to say?! I'm not in the mood to joke around with you right now, so stop spouting useless shit~!"</p>
+<p>"You crazy bastard! Is that something to say?! I'm not in the mood to joke around with you right now, so stop spouting useless shit!"</p>
 
 <p>Shiwoo said to Cheoljin, shaking the water from his hands, as if utterly disgusted.</p>

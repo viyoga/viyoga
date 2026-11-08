@@ -26,7 +26,7 @@ chapter = 56
 
 <p>Perhaps due to the confidence gained from having sex with Mom, Shiwoo answered Sehee Nuna without a hint of hesitation.</p>
 
-<p>"Haa~~"</p>
+<p>"Haa"</p>
 
 <p>Sehee Nuna let out a deep sigh, as if Shiwoo's confident attitude was rather perplexing.</p>
 
@@ -40,7 +40,7 @@ chapter = 56
 
 <p>"Why?" Shiwoo asked with a slightly annoyed tone.</p>
 
-<p>"Isn't that obvious?! Originally, we shouldn't even be doing things like this~"</p>
+<p>"Isn't that obvious?! Originally, we shouldn't even be doing things like this"</p>
 
 <p>Sehee Nuna was speaking as if admonishing Shiwoo.</p>
 
@@ -48,7 +48,7 @@ chapter = 56
 
 <p>Shiwoo was speaking as if pressuring and being stubborn.</p>
 
-<p>"Haaah~~"</p>
+<p>"Haaah"</p>
 
 <p>Sehee Nuna let out another long sigh, and continued speaking as if admonishing her younger brother.</p>
 
@@ -64,7 +64,7 @@ chapter = 56
 
 <p>Shiwoo approached Sehee Nuna, who was blushing. And he gently placed his hand on Sehee Nuna's head, stroking it softly.</p>
 
-<p>"It's okay, I'll never make you regret it, Nuna~!!"</p>
+<p>"It's okay, I'll never make you regret it, Nuna!!"</p>
 
 <p>Shiwoo said, looking at Sehee Nuna with serious eyes, as if making a promise to himself.</p>
 
@@ -138,7 +138,7 @@ chapter = 56
 
 <p>Shiwoo grabbed Sehee Nuna's breasts over her clothes. After repeatedly squeezing and releasing them a few times, he gripped Sehee Nuna's hard, erect, protruding nipple with his thumb and forefinger, twisting it slightly.</p>
 
-<p>"A-aaah~ Ueup"</p>
+<p>"A-aaah Ueup"</p>
 
 <p>Sehee Nuna's lips, pressed against Shiwoo's, let out her seductive moaning sound.</p>
 

@@ -16,7 +16,7 @@ chapter = 169
 
 <p>Whether she knew of Shiwoo's erect state or not, Sua was looking at Shiwoo with her usual shy smile.</p>
 
-<p>「Hehe~ I brought our puppy~ The one we're adopting this time~」</p>
+<p>「Hehe I brought our puppy The one we're adopting this time」</p>
 
 <p>Seyoung, as if not caring about Shiwoo's erect thing, slightly turned her body to the side, turning her head towards where Sua was standing.</p>
 
@@ -26,7 +26,7 @@ chapter = 169
 
 <p>Shiwoo carefully stroked his hand, which was placed on Seyoung's buttocks, up and down as he asked.</p>
 
-<p>「Yes, that's right~ I saw it. Before, when Sehee-unnie and Shiwoo-oppa were holding hands and coming home, when we caught them~」</p>
+<p>「Yes, that's right I saw it. Before, when Sehee-unnie and Shiwoo-oppa were holding hands and coming home, when we caught them」</p>
 
 <p>Sua was speaking, holding out the puppy to Shiwoo so it could be seen well.</p>
 
@@ -44,7 +44,7 @@ chapter = 169
 
 <p>Perhaps she might have heard everything about Shiwoo and Sehee-nuna from Seonju Imo.</p>
 
-<p>「Shiwoo and Sehee seem to be holding hands outside~? Different from how they appear on the surface, they must be really close? Kikik! Well~ it's good for siblings to be close, isn't it~」</p>
+<p>「Shiwoo and Sehee seem to be holding hands outside? Different from how they appear on the surface, they must be really close? Kikik! Well it's good for siblings to be close, isn't it」</p>
 
 <p>Seonju Imo, looking at Shiwoo's tense expression, spoke leisurely and slyly, as if glossing over the situation.</p>
 
@@ -66,7 +66,7 @@ chapter = 169
 
 <p>Although he thought there was no need to hide the molestation of Seyoung in front of Seonju Imo and Sua, what Shiwoo was actually concerned about now was Seyoung, the subject of the molestation.</p>
 
-<p>「I too want to hold hands with Shiwoo-oppa outside~ Because Shiwoo-oppa is close with me too~ Hehe~」</p>
+<p>「I too want to hold hands with Shiwoo-oppa outside Because Shiwoo-oppa is close with me too Hehe」</p>
 
 <p>Seyoung was speaking, looking up at Shiwoo, with her body pressed even closer.</p>
 
@@ -82,7 +82,7 @@ chapter = 169
 
 <p>There was no doubt that Seyoung's recent eccentric and provocative actions towards Shiwoo were influenced by Sua and Seonju Imo.</p>
 
-<p>「Oh my~ Seyoung wants to hold hands with Shiwoo-oppa too? Imo and Sua are also eyeing that spot~! Kikik! If Seonmi-unnie joins in soon, Shiwoo will be so happy he'll go wild~」</p>
+<p>「Oh my Seyoung wants to hold hands with Shiwoo-oppa too? Imo and Sua are also eyeing that spot! Kikik! If Seonmi-unnie joins in soon, Shiwoo will be so happy he'll go wild」</p>
 
 <p>Seonju Imo, taking Seyoung's words, was mischievously making a joke that seemed to have a hidden meaning, and laughing.</p>
 
@@ -104,7 +104,7 @@ chapter = 169
 
 <p>Seyoung's flesh, held in his hand, was changing shape as if distorting.</p>
 
-<p>「Haaaaa~」</p>
+<p>「Haaaaa」</p>
 
 <p>Seyoung's sigh, as if filled with pain.</p>
 
@@ -120,7 +120,7 @@ chapter = 169
 
 <p class="scene-break">· · ·</p>
 
-<p>「I bought this to give to Shiwoo~」</p>
+<p>「I bought this to give to Shiwoo」</p>
 
 <p>Seonju Imo was speaking, showing Shiwoo a small box she was holding in her hand.</p>
 
@@ -138,7 +138,7 @@ chapter = 169
 
 <p>And in her other hand, a wide pizza box was held.</p>
 
-<p>「It's ice cream cake and pizza! The cake, I bought it to give to Shiwoo-oppa after visiting the cafe below the magic academy~ Hehe~」</p>
+<p>「It's ice cream cake and pizza! The cake, I bought it to give to Shiwoo-oppa after visiting the cafe below the magic academy Hehe」</p>
 
 <p>Seyoung, having separated her body from Shiwoo, answered, smiling brightly as if nothing had happened.</p>
 
@@ -146,7 +146,7 @@ chapter = 169
 
 <p>Hearing Seyoung's answer, Shiwoo asked Seonju Imo as if confirming.</p>
 
-<p>「Yes~! I had some errands to run anyway, so I went out and stopped by on the way~ You're hungry, aren't you? I'll warm up the pizza right away, wait a moment~!」</p>
+<p>「Yes! I had some errands to run anyway, so I went out and stopped by on the way You're hungry, aren't you? I'll warm up the pizza right away, wait a moment!」</p>
 
 <p>Seonju Imo, holding boxes in both hands, headed to the kitchen.</p>
 
@@ -166,7 +166,7 @@ chapter = 169
 
 <p>Mom, who had learned about the relationship between Shiwoo and Seonju Imo, there's no way she would have willingly let Seonju Imo go, saying she was taking Seyoung and Sua to Shiwoo...</p>
 
-<p>「What was there to tell her before coming? I just took the kids out and sent one text saying I'd feed them dinner and then go back in~! Kikik」</p>
+<p>「What was there to tell her before coming? I just took the kids out and sent one text saying I'd feed them dinner and then go back in! Kikik」</p>
 
 <p>Seonju Imo answered Shiwoo with a triumphant attitude.</p>
 
@@ -174,7 +174,7 @@ chapter = 169
 
 <p>Shiwoo, recalling Mom's usual appearance of getting furiously angry, asked, surprised.</p>
 
-<p>「Lately, your mom can't even make a peep at me, can she~? Even when there's nothing special, if our eyes meet, she seems to just try to avoid me, you know? Even though she's my older sister, she's really so cute I could die~」</p>
+<p>「Lately, your mom can't even make a peep at me, can she? Even when there's nothing special, if our eyes meet, she seems to just try to avoid me, you know? Even though she's my older sister, she's really so cute I could die」</p>
 
 <p>Seonju Imo was explaining the situation as if satisfied with the relationship between Mom and herself that had been reversed because of Shiwoo.</p>
 
@@ -188,11 +188,11 @@ chapter = 169
 
 <p>Shiwoo asked, looking at Seonju Imo as if suddenly remembering.</p>
 
-<p>「Oh~ that's right, Seyoung and Sua said they had a gift for you, Shiwoo.」</p>
+<p>「Oh that's right, Seyoung and Sua said they had a gift for you, Shiwoo.」</p>
 
 <p>「A gift?」</p>
 
-<p>「Yes~ this! I made it with Sua at the academy~」</p>
+<p>「Yes this! I made it with Sua at the academy」</p>
 
 <p>Seyoung placed the object she was holding in her hand on the table and spoke to Shiwoo, smiling.</p>
 

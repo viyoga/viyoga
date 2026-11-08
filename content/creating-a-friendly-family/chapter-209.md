@@ -4,7 +4,7 @@ weight = 209
 [extra]
 chapter = 209
 +++
-<p>"Ehwiyu~~!"</p>
+<p>"Ehwiyu!"</p>
 
 <p>Sehee Nuna stared at Shiwoo for a long time, then let out a long sigh, almost like a groan of despair.</p>
 
@@ -12,33 +12,33 @@ chapter = 209
 
 <p>Shiwoo, seeing Sehee Nuna sigh after his serious declaration, asked, slightly flustered.</p>
 
-<p>"It's not that~ It's just that now that things are like this between us, I won't be able to meet any other men for the rest of my life, will I?"</p>
+<p>"It's not that It's just that now that things are like this between us, I won't be able to meet any other men for the rest of my life, will I?"</p>
 
 <p>Sehee Nuna, realizing the unfairness of it, spoke to Shiwoo as if complaining.</p>
 
-<p>"Of course~! Sehee, you're mine now!" Shiwoo answered Sehee Nuna's words resolutely.</p>
+<p>"Of course! Sehee, you're mine now!" Shiwoo answered Sehee Nuna's words resolutely.</p>
 
-<p>"Haa~ Shiwoo, you're planning to do it with Mom, Seyoung, Sinbi, everyone! But I have to live knowing only you as a man from now on, don't I?! How is that fair~?!"</p>
+<p>"Haa Shiwoo, you're planning to do it with Mom, Seyoung, Sinbi, everyone! But I have to live knowing only you as a man from now on, don't I?! How is that fair?!"</p>
 
 <p>Sehee Nuna sighed again, speaking to Shiwoo in a whining tone.</p>
 
-<p>"Hehehe... Well, what can we do~ It's already happened like this~! Instead, I'll let you do whatever you want with other women~" Shiwoo answered Sehee Nuna playfully, with a sly grin.</p>
+<p>"Hehehe... Well, what can we do It's already happened like this! Instead, I'll let you do whatever you want with other women" Shiwoo answered Sehee Nuna playfully, with a sly grin.</p>
 
-<p>"What~?!"</p>
+<p>"What?!"</p>
 
 <p>Sehee Nuna reacted to Shiwoo's answer with a slight sense of disbelief.</p>
 
-<p>"You can keep seeing Sinbi~ If you're interested, you can even seduce Mom and Seyoung yourself and fuck them~ Hehe~" Shiwoo answered Sehee Nuna again with a sly grin.</p>
+<p>"You can keep seeing Sinbi If you're interested, you can even seduce Mom and Seyoung yourself and fuck them Hehe" Shiwoo answered Sehee Nuna again with a sly grin.</p>
 
 <p>"W-what are you saying?!..."</p>
 
 <p>Sehee Nuna, as if flustered by Shiwoo's words, blurted out her usual way of speaking.</p>
 
-<p>"Haaaaa~~"</p>
+<p>"Haaaaa"</p>
 
 <p>And then, Sehee Nuna's sigh deepened again, as if she had realized the reality of the situation.</p>
 
-<p>"Don't worry~! Sehee, I'll protect you and our family with my life forever~! And I'll make sure you experience everything other men can't!!"</p>
+<p>"Don't worry! Sehee, I'll protect you and our family with my life forever! And I'll make sure you experience everything other men can't!!"</p>
 
 <p>Shiwoo tightened his grip on Sehee Nuna's hand, speaking as if making a vow.</p>
 
@@ -50,7 +50,7 @@ chapter = 209
 
 <p>Sehee Nuna continued to stand silently, holding Shiwoo's hand, for about two more subway stops. Then, as if blurted out unintentionally, Sehee Nuna's words dropped.</p>
 
-<p>"If you let me get fat, you'll be dead meat~!"</p>
+<p>"If you let me get fat, you'll be dead meat!"</p>
 
 <p>Sehee Nuna spoke, as if giving a final warning to Shiwoo as his older sister.</p>
 
@@ -78,19 +78,19 @@ chapter = 209
 
 <p>"Want me to take care of it and come back?" Shiwoo asked lightly, as if understanding Sehee Nuna's concern.</p>
 
-<p>"Haa~"</p>
+<p>"Haa"</p>
 
 <p>Sehee Nuna, without looking at Shiwoo, flushed and sighed, then nodded her head.</p>
 
 <p>Although they had already done many things, Sehee Nuna seemed embarrassed to directly mention such acts in front of Shiwoo. Moreover, after the final warning she'd given Shiwoo in the subway train earlier, Sehee Nuna seemed to be experiencing a 'reality check' and was quite shy about speaking directly in her own voice.</p>
 
-<p>"Then take off your panties~ I saw earlier that they were pretty wet, with fluid flowing down the sides!"</p>
+<p>"Then take off your panties I saw earlier that they were pretty wet, with fluid flowing down the sides!"</p>
 
 <p>Shiwoo now, without a hint of embarrassment, asked Sehee Nuna to take off the panties she was wearing.</p>
 
 <p>Sehee Nuna couldn't meet Shiwoo's eyes. She merely nodded, released Shiwoo's hand, and turned towards the women's restroom as if fleeing.</p>
 
-<p>"Ah~ No~! No need for that. This time, we can just go in together!"</p>
+<p>"Ah No! No need for that. This time, we can just go in together!"</p>
 
 <p>Shiwoo grabbed Sehee Nuna's wrist firmly as she turned to go towards the women's restroom, and spoke.</p>
 
@@ -98,7 +98,7 @@ chapter = 209
 
 <p>Sehee Nuna, startled by Shiwoo grabbing her wrist, turned to look at him.</p>
 
-<p>"Why go back and forth? We can just finish it all at once~!!"</p>
+<p>"Why go back and forth? We can just finish it all at once!!"</p>
 
 <p>Shiwoo pulled Sehee Nuna by the wrist and entered the men's restroom with her.</p>
 
@@ -120,7 +120,7 @@ chapter = 209
 
 <p>Sehee Nuna, with unfocused eyes, as if intoxicated, took Shiwoo's 'thing' fully into her mouth.</p>
 
-<p>"Chyureup chyureup chyuuup~"</p>
+<p>"Chyureup chyureup chyuuup"</p>
 
 <p>The wet sounds from Sehee Nuna's mouth.</p>
 
@@ -128,7 +128,7 @@ chapter = 209
 
 <p>Shiwoo felt an overwhelming thrill from Sehee Nuna's service, received in the familiar toilet stall of the park restroom near his childhood home.</p>
 
-<p>"M-mm... Ugh~ Se-Seonmi too... I'll m-make her just like you, Sehee, so ugh... don't worry about anything!"</p>
+<p>"M-mm... Ugh Se-Seonmi too... I'll m-make her just like you, Sehee, so ugh... don't worry about anything!"</p>
 
 <p>Shiwoo stroked Sehee Nuna's head with the hand he had placed on top of it.</p>
 
@@ -140,7 +140,7 @@ chapter = 209
 
 <p>Sehee Nuna, as if understanding, met Shiwoo's eyes, increased the suction pressure in her mouth, and moved her head in rhythm with Shiwoo's hip movements. Soon, an intense, surging sensation of ejaculation.</p>
 
-<p>-Pooshuk~! Pooshuk~! Pooshuk~!! Shiwoo, still maintaining eye contact with Sehee Nuna, ejaculated his semen into her mouth.</p>
+<p>-Pooshuk! Pooshuk! Pooshuk!! Shiwoo, still maintaining eye contact with Sehee Nuna, ejaculated his semen into her mouth.</p>
 
 <p>"Olgak olgak olgak!"</p>
 
@@ -154,7 +154,7 @@ chapter = 209
 
 <p>Mom seemed to have reverted to the Mom she was before having sex with Shiwoo. It was as if Mom was setting the mood, pretending Sehee Nuna didn't know about the fact that she had sex with Shiwoo or that they had agreed to be master and slave via text.</p>
 
-<p>Shiwoo also checked the text messages sent from Mom to his smartphone. 'Where are you two now?', 'You're with Sehee, right?', 'I told you to always use contraception!', 'What are you really going to do?', 'Mom and Seyoung are waiting at home, so hurry back~!'</p>
+<p>Shiwoo also checked the text messages sent from Mom to his smartphone. 'Where are you two now?', 'You're with Sehee, right?', 'I told you to always use contraception!', 'What are you really going to do?', 'Mom and Seyoung are waiting at home, so hurry back!'</p>
 
 <p>After Shiwoo ignored Mom's first text, a series of messages were sent to Shiwoo's smartphone... Mom also sent a flurry of texts to Shiwoo, who was ignoring her messages, just as she had done with Sehee Nuna.</p>
 

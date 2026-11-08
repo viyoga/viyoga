@@ -72,7 +72,7 @@ chapter = 736
 
 <p>She squeezed her lips shut and, eyes closed tight as if unfamiliar with the act, began to gulp down the semen.</p>
 
-<p>"Hua-aa-aa-aa~"</p>
+<p>"Hua-aa-aa-aa"</p>
 
 <p>Finally, after sending the last of the heat down her throat, Seulgi opened her mouth and exhaled raggedly. As Shiwoo brought the camera closer to her face, she opened her mouth wide to show him the inside. Shiwoo smiled contentedly at the sight of her clean, emptied mouth.</p>
 
@@ -146,7 +146,7 @@ chapter = 736
 
 <p>After a brief silence, Yu Yena-seonsaengnim sent another text...</p>
 
-<p>[Alright~ We'll handle it on our end. Don't worry about that.]</p>
+<p>[Alright We'll handle it on our end. Don't worry about that.]</p>
 
 <p>Yu Yena-seonsaengnim accepted Shiwoo's request skillfully, as if it were nothing.</p>
 

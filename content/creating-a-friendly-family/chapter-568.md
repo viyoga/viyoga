@@ -6,15 +6,15 @@ chapter = 568
 +++
 <p>But barely suppressing that intensely surging impulse, Shiwoo speaks to Mom again.</p>
 
-<p>「Yeah. It seems you drank just the right amount as I thought~ Hehe. How is it now? Is it worth swirling around your tongue to taste?」</p>
+<p>「Yeah. It seems you drank just the right amount as I thought Hehe. How is it now? Is it worth swirling around your tongue to taste?」</p>
 
 <p>Shiwoo texted Mom, as if repeatedly confirming and asking for her impressions of the taste of his semen that she was holding in her mouth.</p>
 
-<p>「Why do you keep asking about that?! Mom is dying of embarrassment~! You seriously don't know what 'moderately' means! What 'moderately' means!」</p>
+<p>「Why do you keep asking about that?! Mom is dying of embarrassment! You seriously don't know what 'moderately' means! What 'moderately' means!」</p>
 
 <p>Mom says, flaring up as if grumbling to herself.</p>
 
-<p>「I can't even ask~! I'm curious about what it tastes like! You received my semen in your mouth from Seyoung, and you're even having this conversation with me via text, and you can't even tell me that much?」</p>
+<p>「I can't even ask! I'm curious about what it tastes like! You received my semen in your mouth from Seyoung, and you're even having this conversation with me via text, and you can't even tell me that much?」</p>
 
 <p>Shiwoo, rather brazenly, retorted to Mom as if he was feeling hurt.</p>
 
@@ -26,7 +26,7 @@ chapter = 568
 
 <p>Seeing Mom's text, which described her impressions of the taste of his semen, blood rushes to Shiwoo's penis.</p>
 
-<p>「Cute, our Mom~! Just because I asked, you're answering everything like that~~ I'll have to give you lots of love when I get home today when the other family members aren't watching~ Hehehe」</p>
+<p>「Cute, our Mom! Just because I asked, you're answering everything like that I'll have to give you lots of love when I get home today when the other family members aren't watching Hehehe」</p>
 
 <p>Shiwoo said, teasing Mom in a nonchalant manner.</p>
 
@@ -52,7 +52,7 @@ chapter = 568
 
 <p>Mom answers Shiwoo as if she remembers the rule.</p>
 
-<p>「You can take a picture and send it to me before you go up to the second floor, right~? A full-body picture... reflected in the mirror!」</p>
+<p>「You can take a picture and send it to me before you go up to the second floor, right? A full-body picture... reflected in the mirror!」</p>
 
 <p>Shiwoo spoke to Mom in a casual tone, as if demanding something obvious.</p>
 
@@ -82,7 +82,7 @@ chapter = 568
 
 <p>A text message arrived from Mom again, as if seeking permission from Shiwoo.</p>
 
-<p>「You have to get permission from Sehee too~! That's what we decided. Sehee's room is on the second floor too~! Send the picture you sent me to Sehee, and then talk to her~!」</p>
+<p>「You have to get permission from Sehee too! That's what we decided. Sehee's room is on the second floor too! Send the picture you sent me to Sehee, and then talk to her!」</p>
 
 <p>Shiwoo said, as if reminding Mom of the rule that she had to get permission from Sehee Nuna to go up to the second floor.</p>
 
@@ -100,7 +100,7 @@ chapter = 568
 
 <p>Thanks to what she experienced in one night, have those psychological barriers been broken down now?</p>
 
-<p>「Yeah~ Try asking her~! But know that if Sehee says no, you have to keep doing it~!」</p>
+<p>「Yeah Try asking her! But know that if Sehee says no, you have to keep doing it!」</p>
 
 <p>Shiwoo answers as if doing her a favor and granting Mom's request.</p>
 
@@ -146,7 +146,7 @@ chapter = 568
 
 <p>Shiwoo sends a text to Cheoljin, as if joking with him, with a nonchalant tone mixed with concern and playfulness.</p>
 
-<p>「Ah~ It's not that nothing's wrong~ Hehe. I think I'll be a bit late today. Something big came up...」</p>
+<p>「Ah It's not that nothing's wrong Hehe. I think I'll be a bit late today. Something big came up...」</p>
 
 <p>Cheoljin replies to Shiwoo, putting his unique swaggering tone in the text.</p>
 
@@ -154,7 +154,7 @@ chapter = 568
 
 <p>Shiwoo sends a text, as if trying to figure out what Cheoljin is up to, with a feeling of subtly probing about the bondage play of Gyuri Ajumma that he saw last time.</p>
 
-<p>「Well... is it similar?... I'll tell you when we meet later~」</p>
+<p>「Well... is it similar?... I'll tell you when we meet later」</p>
 
 <p>「I think I can somehow arrive before lunchtime, so let's meet then!」</p>
 
@@ -186,6 +186,6 @@ chapter = 568
 
 <p>Shiwoo retorts, as if denying that anything happened.</p>
 
-<p>「Well, it's okay if nothing happened~ But if you're ever in trouble alone or something strange happens, tell hyung right away~! Especially be careful because you shouldn't just sign things carelessly... Kkkk」</p>
+<p>「Well, it's okay if nothing happened But if you're ever in trouble alone or something strange happens, tell hyung right away! Especially be careful because you shouldn't just sign things carelessly... Kkkk」</p>
 
 <p>Cheoljin says to Shiwoo with an attitude that seems to be swaggering to the end.</p>

@@ -12,7 +12,7 @@ chapter = 791
 
 <p>The fine particles dispersing into the air were scattered over Mom's waist, the hem of her one-piece dress, and even near her groin—the area she was most concerned about. At the familiar yet overpowering scent stinging her nose, Mom froze and caught her breath. Mom stood still, defenselessly taking in the perfume Shiwoo was meticulously spraying all over her body. Meanwhile, she blankly felt Shiwoo's hands as he touched her here and there as if it were nothing. Mom's expression shifted into a gaze soaked with a distant yet agonizing sense of shame.</p>
 
-<p>「Now that's done~? If I've sprayed this much, people won't be able to tell.」</p>
+<p>「Now that's done? If I've sprayed this much, people won't be able to tell.」</p>
 
 <p>Shiwoo nodded, seemingly satisfied with himself, and spoke as he capped the perfume bottle. Mom lowered her head for a moment and sniffed, taking in the scent of the perfume sprayed on her body.</p>
 
@@ -24,7 +24,7 @@ chapter = 791
 
 <p>The two of them stopped in front of an ordinary coffee shop where warm light leaked through the plate glass. Just before crossing the threshold, Shiwoo naturally released his arm from Mom's waist. A momentary awkwardness hung in the air, but the two of them soon stepped into the cafe, feigning the appearance of a kind and ordinary mother and son that could be found anywhere in the world.</p>
 
-<p>Chiri-ing~</p>
+<p>Chiri-ing</p>
 
 <p>Along with the cheerful ring of the bell, the interior of the cafe was filled with the savory aroma of roasted beans and the murmur of people. Located in the heart of the busy downtown area, the place was bustling with people enjoying a weekend afternoon. It wasn't a large franchise or a famous landmark, but rather a cafe with a cozy atmosphere and a strange sense of seclusion created by its rustic vibe. The moderately low lighting and the layout of the seats, which seemed partitioned off, felt like the perfect place to hide from the eyes of others.</p>
 
@@ -46,7 +46,7 @@ chapter = 791
 
 <p>Mom answered shyly, as if informing him that all decision-making power had been transferred to Shiwoo at some point.</p>
 
-<p>「Yeah~ I'm going to... but I'm asking because I want to know if Mom wants to eat too~」</p>
+<p>「Yeah I'm going to... but I'm asking because I want to know if Mom wants to eat too」</p>
 
 <p>Shiwoo smiled slightly and spoke to Mom as if he already knew. Mom looked at the desserts displayed in the glass case for a moment before opening her lips.</p>
 
@@ -70,11 +70,11 @@ chapter = 791
 
 <p>Mom grumbled sharply as if talking to herself, yet she leaned weakly against Shiwoo's shoulder and surrendered her body as if she had resigned herself. As Mom leaned slightly into his embrace, Shiwoo slid the hand that had been around her waist upward to cup her breast. The soft sensation of the heavy flesh transmitted through the thin fabric of the one-piece dress filled Shiwoo's palm.</p>
 
-<p>「I never get tired of touching them, no matter how many times I do~ How could I ever stop?」</p>
+<p>「I never get tired of touching them, no matter how many times I do How could I ever stop?」</p>
 
 <p>Shiwoo spoke while kneading her breast, as if he were barely listening to Mom's words.</p>
 
-<p>「Goodness~ I never imagined you'd be such a lecherous person, Shiwoo...」</p>
+<p>「Goodness I never imagined you'd be such a lecherous person, Shiwoo...」</p>
 
 <p>「Until not long ago, you'd turn red and feel ashamed just at the mention of you touching Mom's breasts to sleep when you were little...」</p>
 
@@ -82,9 +82,9 @@ chapter = 791
 
 <p>Mom let out a hollow laugh as if it were absurd, yet she spoke with a dazed expression, unable to reject Shiwoo's bold touch.</p>
 
-<p>「I guess I can't help it since I'm Mom's son! The acting and the obscenity... I take after Mom in everything~」</p>
+<p>「I guess I can't help it since I'm Mom's son! The acting and the obscenity... I take after Mom in everything」</p>
 
-<p>「Well~ back then, it was partly because I never thought I'd actually be able to have sex with Mom... If I had known it would turn out like this, I would have pounced on you and raped you right away! Hehehe.」</p>
+<p>「Well back then, it was partly because I never thought I'd actually be able to have sex with Mom... If I had known it would turn out like this, I would have pounced on you and raped you right away! Hehehe.」</p>
 
 <p>Shiwoo spoke playfully, explicitly using his fingers to poke and crush her breast.</p>
 
@@ -92,7 +92,7 @@ chapter = 791
 
 <p>Mom spoke as if cautioning Shiwoo, looking around carefully with a slightly anxious air.</p>
 
-<p>「Of course I know~ That's why I'm touching you carefully.. Hehehe~」</p>
+<p>「Of course I know That's why I'm touching you carefully.. Hehehe」</p>
 
 <p>Shiwoo let out a smirk and applied pressure with his fingertips, rolling Mom's nipple, which was forming a hard silhouette beneath the fabric of her dress.</p>
 
@@ -100,13 +100,13 @@ chapter = 791
 
 <p>Mom bit her lip and looked at Shiwoo with a slightly resentful gaze.</p>
 
-<p>「I'm not stripping you and touching your bare skin out in the open like before~ So this is careful in its own way~」</p>
+<p>「I'm not stripping you and touching your bare skin out in the open like before So this is careful in its own way」</p>
 
-<p>「Why~? Should I try touching you without being careful for real? Should I pull your dress up over your neck right now~?」</p>
+<p>「Why? Should I try touching you without being careful for real? Should I pull your dress up over your neck right now?」</p>
 
 <p>Shiwoo spoke in a playful tone, his lips curling into a smirk as if he were enjoying ravaging Mom's shame.</p>
 
-<p>「Haaaaaaa~」</p>
+<p>「Haaaaaaa」</p>
 
 <p>Mom let out a hot breath, leaning further into Shiwoo.</p>
 

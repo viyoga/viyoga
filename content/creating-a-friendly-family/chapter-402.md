@@ -82,6 +82,6 @@ chapter = 402
 
 <p>Mom stopped breathing for a moment, arched her waist, and trembled violently. Her thighs, which had been slightly open, squeezed shut strongly again, grasping Shiwoo's hand. For a while, Mom was unable to move, holding her breath, and stiffened just like that.</p>
 
-<p>"Ha-eueueu~ Haaaaa~! Ha-eueueueup~!"</p>
+<p>"Ha-eueueu Haaaaa! Ha-eueueueup!"</p>
 
 <p>Mom was like that for a long time, then gasped for breath as if the stiffness had released. Only then did the strength of her thighs, which had been squeezing Shiwoo's hand, also release.</p>

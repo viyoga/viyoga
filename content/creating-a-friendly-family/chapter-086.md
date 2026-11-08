@@ -6,7 +6,7 @@ chapter = 86
 +++
 <p>-Jjigeok! -Jjigeok!! -Jjigeok!! Shiwoo slowly moving, filling Seonju Imo's inside from behind. Each time Shiwoo put force into his hips and pushed his penis into Seonju Imo's hole, Seonju Imo's cervix, meeting his glans, was pushed up with it. Seonju Imo was struggling to endure the dull, heavy internal stimulation created by Shiwoo's massive cock, clenching her legs inward.</p>
 
-<p>"Haa..haa...haaaat~!"</p>
+<p>"Haa..haa...haaaat!"</p>
 
 <p>Seonju Imo's moaning sound, as if suppressing her intense passion, slowly reached Shiwoo's ears.</p>
 
@@ -14,17 +14,17 @@ chapter = 86
 
 <p>Shiwoo kept whispering obscene words into Seonju Imo's ear to stimulate her, all while moving his hips.</p>
 
-<p>"Heueuung~"</p>
+<p>"Heueuung"</p>
 
 <p>Instead of answering, Seonju Imo let out a long, sobbing gasp.</p>
 
-<p>"But it's not even halfway in yet~!!"</p>
+<p>"But it's not even halfway in yet!!"</p>
 
 <p>Shiwoo's penis, slowly rocking back and forth. Shiwoo, timing his thrusts, put his weight into his penis and plunged it deep inside Seonju Imo.</p>
 
 <p>-Jjigeudeok!! About two-thirds of Shiwoo's cock was instantly sucked into Seonju Imo's cavern.</p>
 
-<p>"Haaak~!!"</p>
+<p>"Haaak!!"</p>
 
 <p>Seonju Imo, with Shiwoo's penis deeply thrust into her cavern. A death-rattle-like scream burst from Seonju Imo's lips.</p>
 
@@ -40,7 +40,7 @@ chapter = 86
 
 <p>Shiwoo spoke, pressing down on Seonju Imo's body, which was sprawled face down on the floor, his cock crammed inside her.</p>
 
-<p>"Heuheu...heuheu...heueueu~"</p>
+<p>"Heuheu...heuheu...heueueu"</p>
 
 <p>Seonju Imo's moaning sound, trembling faintly.</p>
 
@@ -48,7 +48,7 @@ chapter = 86
 
 <p>Shiwoo was trying to stimulate Seonju Imo by imitating the lewd lines from a training-themed porn video he had seen before, choosing provocative words.</p>
 
-<p>"Haa-eue~haa-euee!! Haa-eung! Heueuung"</p>
+<p>"Haa-euehaa-euee!! Haa-eung! Heueuung"</p>
 
 <p>Whether Shiwoo's words were stimulating, or if enduring his massive cock inside her was too much, Seonju Imo's lips continuously burst forth with cries mixed with moans.</p>
 
@@ -76,7 +76,7 @@ chapter = 86
 
 <p>Shiwoo again crammed his penis deep into Seonju Imo's pussy and stopped his hips, as if pinning her body in place.</p>
 
-<p>"Heu...heu...heu...heuheuheu~"</p>
+<p>"Heu...heu...heu...heuheuheu"</p>
 
 <p>Seonju Imo, making sobbing sounds as if she had lost her mind, her body trembling violently.</p>
 
@@ -86,7 +86,7 @@ chapter = 86
 
 <p>Blasphemous obscenities, using an unborn child between Shiwoo and Seonju Imo as the subject.</p>
 
-<p>"Haa-eung....eueung~~haa-eung..eueung heuung"</p>
+<p>"Haa-eung....eueunghaa-eung..eueung heuung"</p>
 
 <p>Seonju Imo was making sounds that were indistinguishable as either moans or answers. Although it was difficult to distinguish, Shiwoo was convinced that the moaning sound was Seonju Imo's answer. Seonju Imo was now completely subjugated beneath Shiwoo.</p>
 
@@ -94,7 +94,7 @@ chapter = 86
 
 <p>** Shiwoo slowly began to move his hips with leisure. Shiwoo's heavy, massive penis rubbing against her vaginal walls as it moved in and out.</p>
 
-<p>"Heuut heuung heueuut~"</p>
+<p>"Heuut heuung heueuut"</p>
 
 <p>Now, impatient, lewd moans of a wanton woman were leaking from Seonju Imo's lips.</p>
 
@@ -122,7 +122,7 @@ chapter = 86
 
 <p>Shiwoo himself was confused whether the words he just uttered were merely an act to stimulate Seonju Imo, or if they were a genuine expression of his desire to fuck Sua. It seemed the same for Seonju Imo. Even if it was obscene talk meant for sexual stimulation, having her own young daughter used as a subject seemed to create resistance.</p>
 
-<p>"Eueueu...eue~"</p>
+<p>"Eueueu...eue"</p>
 
 <p>A stifled groan leaked from Seonju Imo's lips.</p>
 
@@ -132,7 +132,7 @@ chapter = 86
 
 <p>-Challssak!!!! Shiwoo slapped Seonju Imo's buttocks.</p>
 
-<p>"Heueuk~"</p>
+<p>"Heueuk"</p>
 
 <p>Seonju Imo's moan, as if forced out.</p>
 
@@ -146,7 +146,7 @@ chapter = 86
 
 <p>Shiwoo reached out and stroked Seonju Imo's head.</p>
 
-<p>"Our Seonju is obedient too~~ Now I'll really ram it in."</p>
+<p>"Our Seonju is obedient too Now I'll really ram it in."</p>
 
 <p>Shiwoo slipped his arms under Seonju Imo's armpits, gripping her shoulders as if to pin them. Shiwoo pulled his hips back, then thrust forward with a force that seemed to pierce Seonju Imo's cavern.</p>
 
@@ -158,17 +158,17 @@ chapter = 86
 
 <p>-Peok!! Peok!! Peok!!! Peok!!! Peok!!! Shiwoo's relentless fucking continued for a long time.</p>
 
-<p>"Haat hat haaaak!! Haat haa-eueu...heeik~"</p>
+<p>"Haat hat haaaak!! Haat haa-eueu...heeik"</p>
 
 <p>Seonju Imo was letting out cries as if she would lose consciousness from Shiwoo's frantic fucking. Seonju Imo had no idea how many times she had climaxed. Shiwoo's unending fucking. The sensations transmitted to her genitals seemed to have already transcended the realms of pain and pleasure. An illusion of floating in the air, with the sensations around that spot disappearing. An intense light seemed to envelop and melt Seonju Imo's brain and flesh.</p>
 
-<p>"Aaaah~Seonju-ya~~"</p>
+<p>"AaaahSeonju-ya"</p>
 
 <p>Simultaneously, Shiwoo's shout announcing his climax. Shiwoo then poured his semen into Seonju Imo's vagina.</p>
 
 <p>-Pusyuk Pusyuk Pusyuk!!! An enormous amount of semen flowed into Seonju Imo's body.</p>
 
-<p>"Heuaaang haaaat haaat~!!!"</p>
+<p>"Heuaaang haaaat haaat!!!"</p>
 
 <p>A humiliating pleasure, as if being continuously torn apart, pierced through Seonju Imo's body. Seonju Imo's moaning sound, close to a scream, filled Shiwoo's living room.</p>
 

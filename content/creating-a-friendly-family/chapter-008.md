@@ -6,7 +6,7 @@ chapter = 8
 +++
 <p>Sehee Nuna's scolding ended, and we sat at the dining table, eating the ramen Sinbi Nuna had cooked together.</p>
 
-<p>"We all went and got it done today~"</p>
+<p>"We all went and got it done today"</p>
 
 <p>Sinbi Nuna's gentle voice.</p>
 
@@ -50,13 +50,13 @@ chapter = 8
 
 <p>Then, with a mischievous air, she swiftly pulled her skirt back down over her thighs.</p>
 
-<p>"You really thought I'd show you, didn't you~ Puhahaha!"</p>
+<p>"You really thought I'd show you, didn't you Puhahaha!"</p>
 
 <p>Sinbi Nuna's teasing voice and laughter echoed through the house.</p>
 
 <p>Shiwoo was flustered for a moment.</p>
 
-<p>"Your little brother is so cute~ Did you see his face turn red?"</p>
+<p>"Your little brother is so cute Did you see his face turn red?"</p>
 
 <p>Sinbi Nuna, with a playful expression, said to Sehee Nuna.</p>
 
@@ -66,11 +66,11 @@ chapter = 8
 
 <p>Sinbi Nuna hit the nail on the head, teasing Shiwoo relentlessly.</p>
 
-<p>"Ah, damn it~ No, I wasn't!!!"</p>
+<p>"Ah, damn it No, I wasn't!!!"</p>
 
 <p>Shiwoo, displeased with the situation where even Sinbi Nuna, whom he trusted, was teasing him, replied with annoyance.</p>
 
-<p>"Kkareureureu~"</p>
+<p>"Kkareureureu"</p>
 
 <p>As if radiating the vitality of a female advanced academy student, Sinbi Nuna held her stomach and laughed for a long time.</p>
 
@@ -108,7 +108,7 @@ chapter = 8
 
 <p>Sehee repeated the same words, answering Shiwoo coldly.</p>
 
-<p>"Ah, damn it, do you think I'd tell Mom something like that~?!"</p>
+<p>"Ah, damn it, do you think I'd tell Mom something like that?!"</p>
 
 <p>Shiwoo, too, was slowly starting to get annoyed by his Nuna's attitude.</p>
 
@@ -168,19 +168,19 @@ chapter = 8
 
 <p>Shiwoo froze in that position, unable to say a word, only staring at Sinbi Nuna's lips.</p>
 
-<p>"Ah~ You thought about it for a moment, didn't you? Kissing Nuna."</p>
+<p>"Ah You thought about it for a moment, didn't you? Kissing Nuna."</p>
 
 <p>Sinbi Nuna spoke again, her voice full of playfulness.</p>
 
 <p>"Oh, stop it!! What are you even saying!!"</p>
 
-<p>"Shiwoo really is cute, I'm telling you! Kkareureuk~"</p>
+<p>"Shiwoo really is cute, I'm telling you! Kkareureuk"</p>
 
 <p>His Nuna held her stomach and burst into laughter again.</p>
 
 <p>As Sinbi Nuna continued to tease him, Shiwoo now just ate his ramen, listening to Sehee Nuna and Sinbi Nuna's conversation.</p>
 
-<p>"Ugh~ But dancing won't work either. I sweat a lot, but it's too difficult. It's hard to use muscles I'm not used to, and it seems I shouldn't have approached it so lightly."</p>
+<p>"Ugh But dancing won't work either. I sweat a lot, but it's too difficult. It's hard to use muscles I'm not used to, and it seems I shouldn't have approached it so lightly."</p>
 
 <p>It seemed Sehee Nuna was the first to talk about the dance they had been practicing earlier.</p>
 
@@ -214,9 +214,9 @@ chapter = 8
 
 <p>As expected, Sinbi Nuna spoke, glancing at Sehee Nuna.</p>
 
-<p>"I'm sorry, Shiwoo-ya~ I don't mind telling you, but then Sehee will really get angry."</p>
+<p>"I'm sorry, Shiwoo-ya I don't mind telling you, but then Sehee will really get angry."</p>
 
-<p>"Ah, seriously, what is it, why are you like this~"</p>
+<p>"Ah, seriously, what is it, why are you like this"</p>
 
 <p>Shiwoo's tone had become whiny out of frustration.</p>
 
@@ -248,7 +248,7 @@ chapter = 8
 
 <p>Sinbi Nuna's usual voice, devoid of playfulness.</p>
 
-<p>"It's almost done, so it's fine~ More importantly, Nuna, wasn't what you were talking about earlier, when we were eating ramen, about diet?"</p>
+<p>"It's almost done, so it's fine More importantly, Nuna, wasn't what you were talking about earlier, when we were eating ramen, about diet?"</p>
 
 <p>Thinking she might answer now that Sehee Nuna wasn't around, Shiwoo quickly asked.</p>
 
@@ -262,19 +262,19 @@ chapter = 8
 
 <p>It was still Sinbi Nuna, not giving a clear answer.</p>
 
-<p>"Ah~ Seriously, even Sinbi Nuna is going to be like this?"</p>
+<p>"Ah Seriously, even Sinbi Nuna is going to be like this?"</p>
 
 <p>"Sorry, but if I tell you, Sehee will really get angry."</p>
 
 <p>Sinbi Nuna kept the secret to the very end.</p>
 
-<p>"This is too much, what is it~ First you just teased me, and now you're excluding me, making me feel left out, just the two of you? How many years have Nuna and I known each other!!! Can't you just tell your close little brother?"</p>
+<p>"This is too much, what is it First you just teased me, and now you're excluding me, making me feel left out, just the two of you? How many years have Nuna and I known each other!!! Can't you just tell your close little brother?"</p>
 
 <p>He appealed to Sinbi Nuna one last time, expressing his disappointment.</p>
 
 <p>Sinbi Nuna wore a troubled expression.</p>
 
-<p>"Don't be too disappointed~"</p>
+<p>"Don't be too disappointed"</p>
 
 <p>And after a moment of thought, she spoke.</p>
 

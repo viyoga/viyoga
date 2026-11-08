@@ -8,7 +8,7 @@ chapter = 282
 
 <p>Mom spoke, seemingly worried about the picture of her perverted figure that Shiwoo had just sent to Seyoung and showed her to confirm.</p>
 
-<p>,Ah~ The picture of Mom I sent to Seyoung earlier? Mom stole Seyoung's smartphone anyway, so Seyoung can't even see it right now, can she~?'</p>
+<p>,Ah The picture of Mom I sent to Seyoung earlier? Mom stole Seyoung's smartphone anyway, so Seyoung can't even see it right now, can she?'</p>
 
 <p>Shiwoo spoke in a playful tone, sarcastically criticizing Mom's actions as if blaming her.</p>
 
@@ -16,7 +16,7 @@ chapter = 282
 
 <p>Mom listened to Shiwoo's answer and still looked troubled as she spoke.</p>
 
-<p>,I'll delete it later, so don't worry~!'</p>
+<p>,I'll delete it later, so don't worry!'</p>
 
 <p>Shiwoo said, reassuring Mom.</p>
 
@@ -26,7 +26,7 @@ chapter = 282
 
 <p>Shiwoo was standing with only a towel wrapped around his waist and pelvis on his naked body.</p>
 
-<p>,I said it's okay to walk around naked after showering in the evening, so it should be okay for a little while after showering in the morning too, right~?'</p>
+<p>,I said it's okay to walk around naked after showering in the evening, so it should be okay for a little while after showering in the morning too, right?'</p>
 
 <p>Shiwoo picked up the smartphone he had placed on the table and muttered to himself as if talking to himself.</p>
 
@@ -56,7 +56,7 @@ chapter = 282
 
 <p>Every time she turned around to move the side dishes in the bowls to the table, Seyoung's pink nipples, barely covered inside her clothes, stimulated Shiwoo's mood as if they were about to be seen.</p>
 
-<p>,Wow~ That looks delicious~ Is the meal almost ready now?'</p>
+<p>,Wow That looks delicious Is the meal almost ready now?'</p>
 
 <p>Shiwoo approached Seyoung, glanced at her exposed nipples, and asked in a nonchalant tone.</p>
 
@@ -76,7 +76,7 @@ chapter = 282
 
 <p>Moreover, even if Seyoung noticed Shiwoo's erection and showed a flustered or shy expression, he also thought that it wouldn't matter.</p>
 
-<p>,Yes~ It's almost ready now~ I think it'll be ready after the rice is done in the rice cooker and it's been steamed a little~ Hehe~'</p>
+<p>,Yes It's almost ready now I think it'll be ready after the rice is done in the rice cooker and it's been steamed a little Hehe'</p>
 
 <p>Seyoung looked at Shiwoo and answered with a bright smile.</p>
 
@@ -84,19 +84,19 @@ chapter = 282
 
 <p>Seyoung hardly seemed to care about Shiwoo's thing, which was slightly swollen below.</p>
 
-<p>,Is this sausage and egg roll made by Seyoung~? It looks delicious~~ Aam~!'</p>
+<p>,Is this sausage and egg roll made by Seyoung? It looks delicious Aam!'</p>
 
 <p>Shiwoo picked up one of the sausage and egg rolls placed on the table with his hand and put it in his mouth.</p>
 
-<p>,Shiwoo Oppa! Mom's going to scold you again if you do that~!'</p>
+<p>,Shiwoo Oppa! Mom's going to scold you again if you do that!'</p>
 
 <p>Seyoung glanced at the dressing room and spoke to Shiwoo as if worried.</p>
 
-<p>,I can secretly eat it without Mom knowing~ Uum~!'</p>
+<p>,I can secretly eat it without Mom knowing Uum!'</p>
 
 <p>Shiwoo said to Seyoung while putting two more sausage and egg rolls on the table into his mouth.</p>
 
-<p>,You're really hopeless~ Is the spot where Mom hit your head earlier okay? It sounded loud~?'</p>
+<p>,You're really hopeless Is the spot where Mom hit your head earlier okay? It sounded loud?'</p>
 
 <p>Seyoung reached out her hand towards Shiwoo's head, making a pitiful expression, and spoke.</p>
 
@@ -106,11 +106,11 @@ chapter = 282
 
 <p>The fresh fruit tips, protruding as if they had just been picked with a finger, were ripe as if they would burst with juice at any moment.</p>
 
-<p>,Yeah... it's okay~... It feels a bit swollen, but it'll get better soon~'</p>
+<p>,Yeah... it's okay... It feels a bit swollen, but it'll get better soon'</p>
 
 <p>Shiwoo answered, blatantly staring at Seyoung's chest, which was revealed as if she was intentionally showing it to him.</p>
 
-<p>,You should stop teasing Mom so much~! What if Mom runs away again after you tease her like that~!'</p>
+<p>,You should stop teasing Mom so much! What if Mom runs away again after you tease her like that!'</p>
 
 <p>Seyoung scolded Shiwoo in a tone with a strange nuance, unlike her usual self.</p>
 
@@ -162,19 +162,19 @@ chapter = 282
 
 <p>Seyoung asked Shiwoo in a questioning tone, pouring the egg soup from the pot into the bowl she had taken out.</p>
 
-<p>,Ah! I... I spilled something while cleaning up the dressing room... Mom's probably showering right now~'</p>
+<p>,Ah! I... I spilled something while cleaning up the dressing room... Mom's probably showering right now'</p>
 
 <p>Shiwoo was answering as if making excuses, as if he himself was flustered by Seyoung's unexpected actions and questioning questions.</p>
 
-<p>,Really? Suddenly while cooking~? What did you spill in the dressing room~?'</p>
+<p>,Really? Suddenly while cooking? What did you spill in the dressing room?'</p>
 
 <p>Seyoung made a puzzled expression and continued to ask Shiwoo questions.</p>
 
-<p>,De... detergent! Mom spilled it all over her clothes while taking out the laundry... Oh, that's right! So, I was going to take some clothes for Mom to change into and go up to the second floor to wake up Sehee~'</p>
+<p>,De... detergent! Mom spilled it all over her clothes while taking out the laundry... Oh, that's right! So, I was going to take some clothes for Mom to change into and go up to the second floor to wake up Sehee'</p>
 
 <p>Shiwoo said to Seyoung as if rattling off an excuse that had suddenly come to mind.</p>
 
-<p>,Mom is really living with her mind somewhere else these days~ It's because Oppa keeps bothering her~! Go quickly, the meal will be ready soon now!'</p>
+<p>,Mom is really living with her mind somewhere else these days It's because Oppa keeps bothering her! Go quickly, the meal will be ready soon now!'</p>
 
 <p>Seyoung said to Shiwoo in front of him, uttering sounds that were neither nagging nor complaining, in a tone that she wouldn't usually use.</p>
 

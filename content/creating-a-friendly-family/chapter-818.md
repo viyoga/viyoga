@@ -38,7 +38,7 @@ chapter = 818
 
 <p>"You must be surprised, Siu. You've probably never seen anything like this before..."</p>
 
-<p>"Oh, wait~! If you hang out with Cheol-jin, you might have seen something similar once or twice."</p>
+<p>"Oh, wait! If you hang out with Cheol-jin, you might have seen something similar once or twice."</p>
 
 <p>Shin Yuna smiled brightly, speaking casually as if it were a light joke.</p>
 

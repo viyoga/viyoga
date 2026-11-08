@@ -56,7 +56,7 @@ chapter = 24
 
 <p>Seonju Imo and Sua were standing at the front door.</p>
 
-<p>"Seonju Imo is here? Sua, hello~"</p>
+<p>"Seonju Imo is here? Sua, hello"</p>
 
 <p>Shiwoo greeted Seonju Imo and his cousin Sua with pleasure.</p>
 
@@ -92,7 +92,7 @@ chapter = 24
 
 <p>Imo's exaggerated greeting.</p>
 
-<p>"Imo also seems to be getting younger every time I see you~ But didn't we see each other last week?"</p>
+<p>"Imo also seems to be getting younger every time I see you But didn't we see each other last week?"</p>
 
 <p>Shiwoo greeted her back, matching her tension as if he was used to it.</p>
 
@@ -128,11 +128,11 @@ chapter = 24
 
 <p>At that time, Sehee Nuna came down from the second floor.</p>
 
-<p>"Ah, Seonju Imo~ Sua, you're here?"</p>
+<p>"Ah, Seonju Imo Sua, you're here?"</p>
 
 <p>As soon as she saw Seonju Imo and Sua, Sehee Nuna greeted them as she came down.</p>
 
-<p>"Oh, Sehee-ya~ I heard your Mom had another outburst? There's really no one like my sister!?"</p>
+<p>"Oh, Sehee-ya I heard your Mom had another outburst? There's really no one like my sister!?"</p>
 
 <p>Imo said, looking at Sehee Nuna, who was coming down from the second floor, as if she had heard that Sehee Nuna had been scolded by Mom.</p>
 
@@ -146,7 +146,7 @@ chapter = 24
 
 <p>Shiwoo suddenly imagined Seonju Imo and Sua, mother and daughter, in their underwear.</p>
 
-<p>"Your house only has the two of you~!!"</p>
+<p>"Your house only has the two of you!!"</p>
 
 <p>Mom said as if Shiwoo was in the house, so she couldn't help it.</p>
 
@@ -170,7 +170,7 @@ chapter = 24
 
 <p>-Although she still wasn't looking him in the eye, he felt like they were connected in some way-</p>
 
-<p>"Okay, Mom~"</p>
+<p>"Okay, Mom"</p>
 
 <p>Shiwoo answered, secretly pleased, and went to the intercom to open the gate.</p>
 
@@ -178,7 +178,7 @@ chapter = 24
 
 <p>"Oh? Everyone's here? I'm not late, am I?"</p>
 
-<p>"Welcome, Gyuri-ya. You came just in time~ But what's keeping your husband and son so busy?"</p>
+<p>"Welcome, Gyuri-ya. You came just in time But what's keeping your husband and son so busy?"</p>
 
 <p>Mom greeted Gyuri Ajumma and asked about her recent situation as if she was disappointed.</p>
 
@@ -190,7 +190,7 @@ chapter = 24
 
 <p>"Oh my, really?"</p>
 
-<p>"He went to the dentist and his face is swollen, so he's lying down now~ If I ask him what he was doing to get hurt, he doesn't answer me well"</p>
+<p>"He went to the dentist and his face is swollen, so he's lying down now If I ask him what he was doing to get hurt, he doesn't answer me well"</p>
 
 <p>Shiwoo felt a pang of guilt.</p>
 

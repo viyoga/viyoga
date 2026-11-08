@@ -10,7 +10,7 @@ chapter = 323
 
 <p>Even though they were probably looking at Shiwoo's text at the same time, Shiwoo was ordering Seyoung to convey the lewd act he was going to make Sua do, as if giving an order.</p>
 
-<p>'Okay~ I'll tell Sua that~'</p>
+<p>'Okay I'll tell Sua that'</p>
 
 <p>Seyoung answered Shiwoo's command obediently, as if she had heard nothing of importance.</p>
 
@@ -68,7 +68,7 @@ chapter = 323
 
 <p>Shiwoo's order was to make sure that his semen was well smeared on the inside of the panties that would directly touch her pussy.</p>
 
-<p>'Okay~'</p>
+<p>'Okay'</p>
 
 <p>Seyoung answered Shiwoo's command without complaint.</p>
 
@@ -150,7 +150,7 @@ chapter = 323
 
 <p>Shiwoo sent a text message to the two mothers in the group chat, asking them to confirm the current situation, adding profanity.</p>
 
-<p>'What are we going to do with Unni and Sehee? They're going to get scolded a lot when Master returns home~~! lol'</p>
+<p>'What are we going to do with Unni and Sehee? They're going to get scolded a lot when Master returns home! lol'</p>
 
 <p>Seonju Imo's line, playfully flattering.</p>
 

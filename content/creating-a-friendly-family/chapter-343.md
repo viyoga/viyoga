@@ -152,7 +152,7 @@ chapter = 343
 
 <p>Although he felt a slight pain from the sensitive rubbing, Shiwoo didn't remove his penis until Seyoung's work was finished.</p>
 
-<p>,Kkul-geok kkul-geok kkul-geok~!,</p>
+<p>,Kkul-geok kkul-geok kkul-geok!,</p>
 
 <p>Finally, the sound of Seyoung swallowing, as if she had finished her work below, was heard.</p>
 

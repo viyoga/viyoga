@@ -12,7 +12,7 @@ chapter = 55
 
 <p>Sehee Nuna blushed as if her private parts had been touched, her body trembling slightly, and she spoke with downcast eyes.</p>
 
-<p>"You've really been like a pervert from way back, you know~!?"</p>
+<p>"You've really been like a pervert from way back, you know!?"</p>
 
 <p>Shiwoo, as if Sehee Nuna looked utterly adorable, wrapped his arms around her and embraced her tightly, expressing his heightened emotions. Shiwoo's massive, hard object was pressed firmly against Sehee Nuna's stomach and groin. Sehee Nuna's large breasts and erect nipples were also pressed against Shiwoo's chest and stomach, crushed and mashed. Sehee Nuna's soft, yielding flesh, pressed by Shiwoo's object, created a tingling pleasure. Sehee Nuna, held in Shiwoo's embrace, whimpered and muttered something to herself, then soon, as if resigned, quietly closed her mouth and let Shiwoo do as he pleased.</p>
 
@@ -30,7 +30,7 @@ chapter = 55
 
 <p>Every time Shiwoo's hand moved up and down Sehee Nuna's waist, she flinched and trembled. Sehee Nuna's body, which seemed to have loosened and relaxed as if pickled in arousal from a full day of contact with Shiwoo, was now trembling and reacting sensitively to even the slightest stimulation.</p>
 
-<p>"Oh, for fuck's sake~! This will never end, you idiot!"</p>
+<p>"Oh, for fuck's sake! This will never end, you idiot!"</p>
 
 <p>Sehee Nuna, while fully leaning her body against Shiwoo's, seemed somewhat displeased... somewhat regretful... periodically letting out deep sighs.</p>
 
@@ -42,7 +42,7 @@ chapter = 55
 
 <p>"Where are we going now?" Sehee Nuna asked Shiwoo, her eyes unfocused and troubled.</p>
 
-<p>"You'll know once we get there~~"</p>
+<p>"You'll know once we get there"</p>
 
 <p>At Shiwoo's seemingly cheerful reply, Sehee Nuna, as if deciding to go along with it for now, stopped questioning and walked wherever Shiwoo led.</p>
 
@@ -68,7 +68,7 @@ chapter = 55
 
 <p>Sehee Nuna looked around at the leashes on display as if choosing clothes for herself, then pointed to a leash that seemed to match the collar.</p>
 
-<p>"As expected, Nuna has such good taste~~" Shiwoo said that, stroking Sehee Nuna's head.</p>
+<p>"As expected, Nuna has such good taste" Shiwoo said that, stroking Sehee Nuna's head.</p>
 
 <p>"..Really?"</p>
 

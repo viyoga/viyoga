@@ -80,11 +80,11 @@ chapter = 31
 
 <p>Then, she raised her voice, as if expressing all her resentment towards Shiwoo's harassment and teasing at once.</p>
 
-<p>,Okay~ Okay~ Mom~"</p>
+<p>,Okay Okay Mom"</p>
 
 <p>Shiwoo replied playfully.</p>
 
-<p>,Well, Shiwoo says it's okay too... It does look a bit revealing to Mom... But it seems like it can be covered up if you wear something over it... Anyway!! Since the kids are being so insistent, I can't help but give in~"</p>
+<p>,Well, Shiwoo says it's okay too... It does look a bit revealing to Mom... But it seems like it can be covered up if you wear something over it... Anyway!! Since the kids are being so insistent, I can't help but give in"</p>
 
 <p>Mom, as if embarrassed to show her sudden change in attitude, as if she was only buying it because Sehee wanted it so badly, rambled on with incoherent words of permission.</p>
 
@@ -158,7 +158,7 @@ chapter = 31
 
 <p>Sehee Nuna said, opening the shopping bag, taking out the outfit, and smiling happily like a child.</p>
 
-<p>,I know~ That's great, Sehee Nuna,"</p>
+<p>,I know That's great, Sehee Nuna,"</p>
 
 <p>Shiwoo also felt a sense of satisfaction looking at Nuna.</p>
 
@@ -196,7 +196,7 @@ chapter = 31
 
 <p>There were puppies wiggling around in the display case, and Seyoung, seeing them from afar, ran over to look at them.</p>
 
-<p>,Cute~ Hehe, it would be nice if our family raised a puppy too,"</p>
+<p>,Cute Hehe, it would be nice if our family raised a puppy too,"</p>
 
 <p>Seyoung, who had been looking at the puppies in a daze for a while, quietly murmured to herself.</p>
 

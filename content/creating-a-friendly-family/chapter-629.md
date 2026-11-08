@@ -4,7 +4,7 @@ weight = 629
 [extra]
 chapter = 629
 +++
-<p>「Hahaha, anyway, you worked hard~ Is the tattoo okay? It looks a bit red and swollen now?」</p>
+<p>「Hahaha, anyway, you worked hard Is the tattoo okay? It looks a bit red and swollen now?」</p>
 
 <p>Shiwoo spoke to her in a gentle tone, as if concerned about Mom again.</p>
 
@@ -24,7 +24,7 @@ chapter = 629
 
 <p>Then, Mom grumbled as if she was upset by Shiwoo's words.</p>
 
-<p>「Hehe... I wonder if you'll be okay tonight~?」</p>
+<p>「Hehe... I wonder if you'll be okay tonight?」</p>
 
 <p>Shiwoo saw Mom's text and spoke nonchalantly, as if talking to himself.</p>
 
@@ -38,11 +38,11 @@ chapter = 629
 
 <p>He tried hard to suppress it, but the corners of his lips were already reacting first.</p>
 
-<p>「I guess~ Our 'marital relations' will be difficult today? Sehee will be the same as Mom...」</p>
+<p>「I guess Our 'marital relations' will be difficult today? Sehee will be the same as Mom...」</p>
 
 <p>Shiwoo deliberately emphasized the words marital relations, adding quotation marks as he wrote and sent the text.</p>
 
-<p>「I think it's better to sleep separately with Seyoung tonight~ I've never slept with Seyoung while feeling like newlyweds」</p>
+<p>「I think it's better to sleep separately with Seyoung tonight I've never slept with Seyoung while feeling like newlyweds」</p>
 
 <p>Then, Shiwoo continued to provoke Mom by foreshadowing a honeymoon-like sleep with Seyoung.</p>
 
@@ -52,7 +52,7 @@ chapter = 629
 
 <p>Mom's text seemed to contain suppressed resentment and anxiety...</p>
 
-<p>「Don't make it complicated? What~? What are you saying not to make complicated?」</p>
+<p>「Don't make it complicated? What? What are you saying not to make complicated?」</p>
 
 <p>Shiwoo asked back as if deliberately touching the emotions Mom had been suppressing.</p>
 
@@ -64,7 +64,7 @@ chapter = 629
 
 <p>Sejin Nuna's back, which contained insulting titles, her relationship with Shiwoo, and various scribbles and signatures...</p>
 
-<p>「Ah, you saw it~? Sejin was out of the house for a long time, right? I thought she wouldn't know much about our changed family situation for a while~ Hahaha」</p>
+<p>「Ah, you saw it? Sejin was out of the house for a long time, right? I thought she wouldn't know much about our changed family situation for a while Hahaha」</p>
 
 <p>Shiwoo deliberately acted embarrassed and playfully pretended not to know.</p>
 
@@ -98,7 +98,7 @@ chapter = 629
 
 <p>Mom seemed to be asking, tracing the order of the names written on Sejin Nuna's back in reverse.</p>
 
-<p>「That's right~ Sae-a is the second...」</p>
+<p>「That's right Sae-a is the second...」</p>
 
 <p>Shiwoo continued to answer Mom's questions.</p>
 
@@ -124,17 +124,17 @@ chapter = 629
 
 <p>Mom said fiercely, as if she was relieved to have confirmed that she was Shiwoo's first wife.</p>
 
-<p>「But you're still a slave~ So don't get too excited~!」</p>
+<p>「But you're still a slave So don't get too excited!」</p>
 
 <p>「You even had my initials tattooed on your body today, right? It's proof that Seonmi is my slave, so there's no way to deny it!」</p>
 
-<p>「The slave ranking might change later~! You have to be nervous all the time! Hahaha」</p>
+<p>「The slave ranking might change later! You have to be nervous all the time! Hahaha」</p>
 
 <p>Shiwoo spoke to Mom as if giving a warning, with a tone that was hard to tell whether it was serious or a joke.</p>
 
 <p>Mom became silent again, as if dumbfounded by Shiwoo's warning.</p>
 
-<p>「Now I have to be careful not to be seen in bathhouses or swimming pools~ It would be a disaster if I got caught, right? Having fallen into being my son's slave... Hahaha」</p>
+<p>「Now I have to be careful not to be seen in bathhouses or swimming pools It would be a disaster if I got caught, right? Having fallen into being my son's slave... Hahaha」</p>
 
 <p>Shiwoo, as if enjoying Mom's quiet reaction, threw out mischievous jokes as if teasing her, even more excitedly.</p>
 
@@ -144,7 +144,7 @@ chapter = 629
 
 <p>A cute reaction mixed with a touch of embarrassment and awkwardness to lightly hide her feelings...</p>
 
-<p>「What can you do if you regret it after already doing it? You can just live as my slave for the rest of your life~」</p>
+<p>「What can you do if you regret it after already doing it? You can just live as my slave for the rest of your life」</p>
 
 <p>Shiwoo nonchalantly accepted Mom's sulking.</p>
 
@@ -156,7 +156,7 @@ chapter = 629
 
 <p>Mom's tone still seemed to be nagging Shiwoo, but it felt softer, as if she had found a sense of ease somewhere.</p>
 
-<p>「Then your thighs will be full of initials later? Considering Mom's age, you can probably have at least 10 more of our kids~ Hahaha」</p>
+<p>「Then your thighs will be full of initials later? Considering Mom's age, you can probably have at least 10 more of our kids Hahaha」</p>
 
 <p>Shiwoo cheerfully accepted Mom's sulking and answered with a happy feeling.</p>
 

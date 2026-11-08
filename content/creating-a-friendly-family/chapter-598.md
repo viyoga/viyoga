@@ -26,7 +26,7 @@ chapter = 598
 
 <p>Shiwoo pointed at her swollen belly with his finger.</p>
 
-<p>"Ah~ The pregnancy? Yeah. He knew... because I told Dad first about being pregnant."</p>
+<p>"Ah The pregnancy? Yeah. He knew... because I told Dad first about being pregnant."</p>
 
 <p>Sejin Nuna answered Shiwoo's question naturally, as if stating the obvious.</p>
 
@@ -194,14 +194,14 @@ chapter = 598
 
 <p>"Are you okay...?" Shiwoo asked cautiously, as if concerned about Sejin Nuna's state.</p>
 
-<p>"Instead~ from that day on, I could openly seduce Dad at home~!"</p>
+<p>"Instead from that day on, I could openly seduce Dad at home!"</p>
 
 <p>She smiled lightly, as if recalling her appearance from that time.</p>
 
 <p>"I used to walk around in just my underwear even when Mom or you guys were there?..."</p>
 
-<p>"And after showering, of course, I'd walk around completely bare-chested~ Remember?"</p>
+<p>"And after showering, of course, I'd walk around completely bare-chested Remember?"</p>
 
-<p>"But Mom couldn't say anything to me? She probably still can't? Isn't it funny~?"</p>
+<p>"But Mom couldn't say anything to me? She probably still can't? Isn't it funny?"</p>
 
 <p>Instead of answering Shiwoo's question about whether she was okay, Sejin Nuna changed the atmosphere, recounting her adorable revenge against Mom at the time like a heroic tale.</p>

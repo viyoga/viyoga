@@ -124,7 +124,7 @@ chapter = 348
 
 <p>Shiwoo, checking the driver's seat, carefully rammed his enormous penis into Sua's hole.</p>
 
-<p>"Heup! Heup! Heueut~ Heueup! Heup!"</p>
+<p>"Heup! Heup! Heueut Heueup! Heup!"</p>
 
 <p>Sua desperately covered her mouth, swallowing her moaning sounds.</p>
 

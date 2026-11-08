@@ -116,7 +116,7 @@ chapter = 368
 
 <p>Seyoung whispers in a small voice that Seonju Imo-nim wouldn't be able to hear.</p>
 
-<p>"With Sua~!"</p>
+<p>"With Sua!"</p>
 
 <p>Seyoung whispers in Shiwoo's ear, as if confirming to Shiwoo again the words she had just said without making a sound.</p>
 
@@ -196,7 +196,7 @@ chapter = 368
 
 <p>Shiwoo, as Sua sucked his cock, spoke as if chiding Seonju Imo-nim.</p>
 
-<p>"Haat... Yes... Heut... I'm sorry, Juinin-nim~! I'll suck it right now!"</p>
+<p>"Haat... Yes... Heut... I'm sorry, Juinin-nim! I'll suck it right now!"</p>
 
 <p>Seonju Imo-nim, unable to properly open her eyes, groped Shiwoo's thigh with her hand and spoke guiltily.</p>
 

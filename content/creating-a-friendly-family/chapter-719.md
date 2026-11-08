@@ -14,7 +14,7 @@ chapter = 719
 
 <p>Aunt Seonju's body, having lost consciousness, was shaking violently as if beyond control. Her moans flowed out in an almost unconscious state, as if following the pleasure her body remembered. Shiwoo felt his body tremble with a tingling sensation at the climax he could no longer hold back.</p>
 
-<p>"Ha-aaaa-at! Seonju-ya! Heu-heu-eu-eut! Aunt Seonju~!"</p>
+<p>"Ha-aaaa-at! Seonju-ya! Heu-heu-eu-eut! Aunt Seonju!"</p>
 
 <p>Giving up on any further suppression or resistance, Shiwoo poured his semen directly into Aunt Seonju's body.</p>
 
@@ -32,7 +32,7 @@ chapter = 719
 
 <p>His fingertips were trembling minutely, and his heart was still beating rapidly. After ejaculating, Shiwoo's penis was gradually losing its strength, but its heavy presence and tension did not easily relax or fade.</p>
 
-<p>"Huuuuuuuuu~!"</p>
+<p>"Huuuuuuuuu!"</p>
 
 <p>Shiwoo took a deep breath and exhaled slowly while lying on top of Aunt Seonju's body. The tension and trembling remaining in his body flowed out with his breath, making him feel the lingering afterglow that remained stiff somewhere even more clearly. That subtle discomfort seemed to make the sensations of Shiwoo's entire body even more sensitive. Suddenly, the sour, tight sensation of urination that had filled his bladder slowly rose within Shiwoo's chest like a deferred desire. Shiwoo hugged Aunt Seonju's body even tighter, as if squeezing it.</p>
 
@@ -64,7 +64,7 @@ chapter = 719
 
 <p>Shiwoo came down the stairs to the first-floor living room. The living room was submerged in a silence that felt indifferently sunken, with the TV turned off. It seemed Seyoung and Sua had already left the house to go to the academy. Mom was not visible, but thanks to the excited presence felt through the slightly ajar master bedroom door, Shiwoo could tell she was still there.</p>
 
-<p>"Mom~ I'm heading to the academy~!"</p>
+<p>"Mom I'm heading to the academy!"</p>
 
 <p>Shiwoo greeted Mom in a cheerful tone.</p>
 
@@ -80,7 +80,7 @@ chapter = 719
 
 <p>Mom's voice cut off for a moment, then flowed out awkwardly after a subtle pause. Mom, who had agreed to go back to the tattoo shop with Shiwoo today to manufacture a dildo modeled after Shiwoo's penis. It seemed Mom was reflecting on the things they did yesterday and the conversations she shared with Shiwoo.</p>
 
-<p>"Then I'll contact you later, so look after the house well while I'm gone~!"</p>
+<p>"Then I'll contact you later, so look after the house well while I'm gone!"</p>
 
 <p>Shiwoo spoke to Mom in a sweet and friendly tone, as if talking to a lover or a wife.</p>
 
@@ -106,7 +106,7 @@ chapter = 719
 
 <p>Mom's text, as if scolding and lamenting.</p>
 
-<p>『Why~?』</p>
+<p>『Why?』</p>
 
 <p>Shiwoo asked playfully, feigning innocence.</p>
 

@@ -8,7 +8,7 @@ chapter = 466
 
 <p>Mom, still turned away, answered as if she'd fallen for Sehee Nuna's provocation, flaring up cutely. While holding back from pointing out that her second daughter, Sehee, whom she had given birth to, was calling her name disrespectfully....</p>
 
-<p>"So then~! Even if you say you won't show the two of you having sex, why are you trying to act like a married couple in front of Seyoung?"</p>
+<p>"So then! Even if you say you won't show the two of you having sex, why are you trying to act like a married couple in front of Seyoung?"</p>
 
 <p>Sehee Nuna now openly treated Mom as if she were of equal or lower status, lowering Mom by grouping her with Shiwoo using the term 'you two'. Furthermore, she explicitly mixed in the word 'sex,' a term difficult to use between parent and child, as she interrogated Mom.</p>
 
@@ -18,7 +18,7 @@ chapter = 466
 
 <p>"I don't understand... You could have just ignored him! If that's the case, you should have said no from the start! And now that you've opened yourself up like this, isn't there no need to go back?"</p>
 
-<p>"Anyway, when Shiwoo pushes you, you'll just pretend you can't help it, spread your legs even in front of Seyoung, and immediately start calling him 'Master~'!"</p>
+<p>"Anyway, when Shiwoo pushes you, you'll just pretend you can't help it, spread your legs even in front of Seyoung, and immediately start calling him 'Master'!"</p>
 
 <p>Sehee Nuna spoke in a cynical, blaming tone about Mom's contradictory attitudes and words.</p>
 

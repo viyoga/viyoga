@@ -52,7 +52,7 @@ chapter = 812
 
 <p>"It'd be such a waste for me to be the only one seeing this, right?"</p>
 
-<p>"Set this as your new background in a bit! The current one is fine, but we should update it before we get tired of it~"</p>
+<p>"Set this as your new background in a bit! The current one is fine, but we should update it before we get tired of it"</p>
 
 <p>Siu muttered mockingly, rubbing his penis against her face as if crushing it.</p>
 
@@ -74,7 +74,7 @@ chapter = 812
 
 <p>Every time Siu's blows landed, Mother slightly leaned her head forward, offering her cheeks as if keeping beat.</p>
 
-<p>"The sound is great, right, Mother? Honestly, there's nothing like slapping Mother around like this~! You take it so well! Now I see why Seon-ju teases you so much."</p>
+<p>"The sound is great, right, Mother? Honestly, there's nothing like slapping Mother around like this! You take it so well! Now I see why Seon-ju teases you so much."</p>
 
 <p>At Siu's mocking compliment, she could only work her lips, unable to answer.</p>
 

@@ -56,7 +56,7 @@ chapter = 641
 
 <p>A text from Seyoung arrived just then...</p>
 
-<p>『Our class just ended! You're inside the cafe, right? Sua and I are coming down now~』</p>
+<p>『Our class just ended! You're inside the cafe, right? Sua and I are coming down now』</p>
 
 <p>It was a text from Seyoung saying she was coming down to the cafe after finishing class. Her energetic tone was vividly conveyed even through the screen.</p>
 

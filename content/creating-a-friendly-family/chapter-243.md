@@ -4,17 +4,17 @@ weight = 243
 [extra]
 chapter = 243
 +++
-<p>"Okay~ then I'll do that~?"</p>
+<p>"Okay then I'll do that?"</p>
 
 <p>Shiwoo smiled contentedly, looking down at Mom for a moment with eyes that seemed to belittle her.</p>
 
 <p>A strange tension and silence flowed in the living room and kitchen.</p>
 
-<p>"Seyoung-i should go in now~ If she keeps doing that and stays any longer, she might really catch a cold like Mom said~"</p>
+<p>"Seyoung-i should go in now If she keeps doing that and stays any longer, she might really catch a cold like Mom said"</p>
 
 <p>Shiwoo spoke as if establishing Mom's authority in front of Seyoung-i one last time, trying to send Seyoung-i into her room.</p>
 
-<p>"Hehe~ Okay~! Since even Oppa is saying that~ I should go in now~! Hehe~"</p>
+<p>"Hehe Okay! Since even Oppa is saying that I should go in now! Hehe"</p>
 
 <p>Unlike when Mom spoke, Seyoung-i complied with Shiwoo's words and went straight into her room.</p>
 
@@ -28,7 +28,7 @@ chapter = 243
 
 <p class="scene-break">· · ·</p>
 
-<p>"Mom~ Did you check all the texts and videos I sent you on your smartphone earlier~?"</p>
+<p>"Mom Did you check all the texts and videos I sent you on your smartphone earlier?"</p>
 
 <p>As soon as Seyoung-i went into her room, Shiwoo was asking Mom, who was in the kitchen.</p>
 
@@ -40,15 +40,15 @@ chapter = 243
 
 <p>A shamefully distorted expression and emotion were cast like shadows on Mom's red face.</p>
 
-<p>"Then I think you can take it out and drink it right away~? The one Mom was drinking earlier... before Seyoung-i comes out~"</p>
+<p>"Then I think you can take it out and drink it right away? The one Mom was drinking earlier... before Seyoung-i comes out"</p>
 
 <p>Shiwoo was instructing her to take out Mom's liquor glass, which he had mixed with his semen, from the refrigerator and drink it, in a tone that seemed to soothe and encourage Mom.</p>
 
-<p>"Ugh... okay... Haaaah~"</p>
+<p>"Ugh... okay... Haaaah"</p>
 
 <p>Mom answered in a barely audible voice, then let out a long sigh with a troubled expression.</p>
 
-<p>"Or~ Do you want to wait and drink it after Seyoung-i comes out then?"</p>
+<p>"Or Do you want to wait and drink it after Seyoung-i comes out then?"</p>
 
 <p>Shiwoo spoke as if forcing an unfair choice, as if testing Mom.</p>
 
@@ -58,7 +58,7 @@ chapter = 243
 
 <p>Shiwoo smiled as if amused at Mom's reaction and picked up his smartphone.</p>
 
-<p>'What are you doing? Sehee has been holding my semen in her mouth since earlier, just waiting for Seonmi you to drink it~!!'</p>
+<p>'What are you doing? Sehee has been holding my semen in her mouth since earlier, just waiting for Seonmi you to drink it!!'</p>
 
 <p>Shiwoo was informing Mom, as if reminding her of the fact that Sehee Nuna was holding his semen in her mouth.</p>
 
@@ -70,7 +70,7 @@ chapter = 243
 
 <p>Mom confirmed that sight of Sehee Nuna and then lowered her head deeply as if embarrassed and pitiful.</p>
 
-<p>'Seonmi-ya~ You have to drink it now~ I've been waiting since earlier~!!'</p>
+<p>'Seonmi-ya You have to drink it now I've been waiting since earlier!!'</p>
 
 <p>Shiwoo continued to call Mom's name in texts, urging her.</p>
 
@@ -78,13 +78,13 @@ chapter = 243
 
 <p>Mom was writing and asking, looking embarrassed after checking Shiwoo's text.</p>
 
-<p>'Why? You don't want to drink it? It won't taste good if time passes~ hehe You sent Seyoung-i into her room too! Drink it now~!'</p>
+<p>'Why? You don't want to drink it? It won't taste good if time passes hehe You sent Seyoung-i into her room too! Drink it now!'</p>
 
 <p>Shiwoo was playfully ordering Mom as if it was extremely natural for her to drink the liquor he had put in the refrigerator now.</p>
 
 <p>Mom, who was looking at her smartphone in the kitchen, repeatedly read Shiwoo's text and let out a deep sigh.</p>
 
-<p>'Or a little later, when Seyoung-i comes out, do you want to share and drink it together, including what's in Sehee's mouth~?'</p>
+<p>'Or a little later, when Seyoung-i comes out, do you want to share and drink it together, including what's in Sehee's mouth?'</p>
 
 <p>Shiwoo was sending a text to Mom in a tone that threatened her by mentioning Seyoung-i's name.</p>
 
@@ -98,7 +98,7 @@ chapter = 243
 
 <p>That metallic sound was being transmitted to the living room where Shiwoo was, with a subtle resonance.</p>
 
-<p>"Haaaah~"</p>
+<p>"Haaaah"</p>
 
 <p>The sound of Mom's sigh, as if she had let go of everything, continued to be heard.</p>
 
@@ -120,7 +120,7 @@ chapter = 243
 
 <p>Mom tightly closed her eyes and brought the green liquor glass to her mouth.</p>
 
-<p>"Olgak~! Olgak~! Olgak~!"</p>
+<p>"Olgak! Olgak! Olgak!"</p>
 
 <p>Mom was drinking the liquid mixed with Shiwoo's semen in front of Shiwoo and Sehee Nuna.</p>
 
@@ -128,7 +128,7 @@ chapter = 243
 
 <p>Mom drank all the semen and liquor contained in the liquor glass into her throat, then crossed her arms on the desk and buried her face on top of them as if prostrating herself.</p>
 
-<p>"Olgak~! Olgak~! Olgak~!"</p>
+<p>"Olgak! Olgak! Olgak!"</p>
 
 <p>The sound of swallowing semen could be heard from next to Shiwoo's seat as well.</p>
 
@@ -202,7 +202,7 @@ chapter = 243
 
 <p>Shiwoo gently placed his hand, soaked with Sehee Nuna's vaginal fluid, on Mom's head.</p>
 
-<p>"Good girl~ Our Seonmi~! I'll have to give you a lot of rewards tonight."</p>
+<p>"Good girl Our Seonmi! I'll have to give you a lot of rewards tonight."</p>
 
 <p>Shiwoo said, stroking Mom's hair as if he was petting a pet dog.</p>
 

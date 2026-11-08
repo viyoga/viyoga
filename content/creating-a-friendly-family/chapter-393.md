@@ -90,7 +90,7 @@ chapter = 393
 
 <p>Sinbi Nuna's constantly trembling body intermittently bounces and twitches.</p>
 
-<p>"Haaaa~ Haaaa~ Haa~"</p>
+<p>"Haaaa Haaaa Haa"</p>
 
 <p>Shiwoo, lying on top of Sinbi Nuna's body, feels her trembling and convulsions as they are, and pants with his breath reaching his chin.</p>
 

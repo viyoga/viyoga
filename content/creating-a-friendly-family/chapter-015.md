@@ -32,13 +32,13 @@ chapter = 15
 
 <p>Suddenly, when Mom brought up the cigarettes and lighter, Sehee Nuna, genuinely flustered, looked at Mom and her face crumpled into a tearful expression. Then, covering her face with her hands, she began to cry bitterly.</p>
 
-<p>「Hiiiiiing~ Euaaaang~~」</p>
+<p>「Hiiiiiing Euaaaang」</p>
 
 <p>「Sehee, tell me the truth. How long have you been smoking?」</p>
 
 <p>Regardless, Mom pushed Sehee Nuna, questioning her as if interrogating.</p>
 
-<p>「Uh... ugh ugh~ That, a friend just asked me to hold it for them... I was just holding it. I'm not the one smoking it.」</p>
+<p>「Uh... ugh ugh That, a friend just asked me to hold it for them... I was just holding it. I'm not the one smoking it.」</p>
 
 <p>Even while crying, perhaps to save herself, Sehee Nuna was making up a lie.</p>
 
@@ -88,7 +88,7 @@ chapter = 15
 
 <p>Mom, with truly terrifying eyes, was scolding Sehee Nuna.</p>
 
-<p>「Aishiiing~ Mom, seriously~ why are you searching through someone else's bag~?」</p>
+<p>「Aishiiing Mom, seriously why are you searching through someone else's bag?」</p>
 
 <p>Covering the part of her head hit by Mom with both hands, Sehee Nuna made a meaningless last desperate struggle.</p>
 
@@ -96,7 +96,7 @@ chapter = 15
 
 <p>Mom, raising the broom she was holding, hit Nuna's thighs and legs mercilessly.</p>
 
-<p>Tak~! Tak~!</p>
+<p>Tak! Tak!</p>
 
 <p>「Ah! Momma!」</p>
 
@@ -106,7 +106,7 @@ chapter = 15
 
 <p>Sehee Nuna, screaming, desperately clung to Mom.</p>
 
-<p>「Mom, Mom, I was wrong! I was wrong! I won't do it again, ugh ugh ugh~」</p>
+<p>「Mom, Mom, I was wrong! I was wrong! I won't do it again, ugh ugh ugh」</p>
 
 <p>She immediately knelt down and was begging with both hands clasped together.</p>
 
@@ -122,7 +122,7 @@ chapter = 15
 
 <p>「And!?」</p>
 
-<p>「Not cleaning my room, ugh ugh~」</p>
+<p>「Not cleaning my room, ugh ugh」</p>
 
 <p>「And!?」</p>
 
@@ -142,7 +142,7 @@ chapter = 15
 
 <p>Mom, raising her voice slightly, spoke to Nuna as if shouting.</p>
 
-<p>「Uh... wearing provocative clothes and making Shiwoo uncomfortable, Heoeong~~~ Heueong eong eong~」</p>
+<p>「Uh... wearing provocative clothes and making Shiwoo uncomfortable, Heoeong Heueong eong eong」</p>
 
 <p>After answering, Sehee Nuna prostrated herself on the floor and cried bitterly, making mournful sounds.</p>
 
@@ -174,7 +174,7 @@ chapter = 15
 
 <p>Her voice rising again, Mom glared with an angry expression.</p>
 
-<p>「Mom~~ please~」</p>
+<p>「Mom please」</p>
 
 <p>Her face covered in tears and snot, Sehee Nuna was pitifully begging.</p>
 
@@ -182,15 +182,15 @@ chapter = 15
 
 <p>Mom raised the broom again.</p>
 
-<p>「Ah, I get it! I won't do it again! Mom! I get it! Mom, I was wrong~ Ugh ugh ugh~ But I really don't even smoke that much, you know?」</p>
+<p>「Ah, I get it! I won't do it again! Mom! I get it! Mom, I was wrong Ugh ugh ugh But I really don't even smoke that much, you know?」</p>
 
 <p>Desperately clinging to Mom again, Sehee Nuna spoke as if pleading.</p>
 
-<p>「When I'm with my friends, if I'm the only one not smoking, it looks weird, so I just pretend to hold it in my mouth, that's all. And that, it's really something the kids left behind, you know. It's not mine! Euaaang~~~」</p>
+<p>「When I'm with my friends, if I'm the only one not smoking, it looks weird, so I just pretend to hold it in my mouth, that's all. And that, it's really something the kids left behind, you know. It's not mine! Euaaang」</p>
 
 <p>Nuna, as if truly feeling wronged, prostrated herself on the floor again and cried loudly.</p>
 
-<p>「Huk huk, not giving me pocket money, huk huk huk, that's really too much~ huk huk huk huk huk」</p>
+<p>「Huk huk, not giving me pocket money, huk huk huk, that's really too much huk huk huk huk huk」</p>
 
 <p>And then, as if about to lose her breath, she was speaking.</p>
 
@@ -202,7 +202,7 @@ chapter = 15
 
 <p>Sehee Nuna and Shiwoo went up to the second floor.</p>
 
-<p>「Huk huk, you, that I smoked, huk, who told you to tell? Heueung huk, my lie got caught because of you~ huk」</p>
+<p>「Huk huk, you, that I smoked, huk, who told you to tell? Heueung huk, my lie got caught because of you huk」</p>
 
 <p>As soon as they got to the second floor, Sehee Nuna, still gasping for breath, spoke to Shiwoo.</p>
 
@@ -216,7 +216,7 @@ chapter = 15
 
 <p>「Ah, it hurts, it hurts, Nuna!」</p>
 
-<p>「Because of you, if I don't get pocket money, huk, give me half of your pocket money! Understood? Hiiiiiing~」</p>
+<p>「Because of you, if I don't get pocket money, huk, give me half of your pocket money! Understood? Hiiiiiing」</p>
 
 <p>After speaking, Sehee Nuna, covering her face, began to cry bitterly again.</p>
 
@@ -276,11 +276,11 @@ chapter = 15
 
 <p>Nuna suddenly spoke, shedding tears.</p>
 
-<p>「That, I really, Aunt picked it out, so I wore it because it was pretty~ I didn't mean to make Shiwoo uncomfortable~ huk huk.. I thought Mom would say it was pretty too~ That's too much~ Ugh ugh ugh~~」</p>
+<p>「That, I really, Aunt picked it out, so I wore it because it was pretty I didn't mean to make Shiwoo uncomfortable huk huk.. I thought Mom would say it was pretty too That's too much Ugh ugh ugh」</p>
 
 <p>After saying that, Sehee Nuna, unable to control her surging emotions, began to cry bitterly.</p>
 
-<p>「Ehyu~」</p>
+<p>「Ehyu」</p>
 
 <p>Mom, who was watching, perhaps her heart softened, sighed as if feeling pity.</p>
 
@@ -288,13 +288,13 @@ chapter = 15
 
 <p>Mom said that, then, as Sehee Nuna approached, head bowed and crying, she embraced her with both arms and soothed her by stroking her back.</p>
 
-<p>「Alright~ For not understanding Sehee's feelings, Mom is sorry~ Sehee didn't do it with bad intentions, but Mom got angry, so you must have felt very wronged~ Still, clothes like that are not okay, are they? Right?」</p>
+<p>「Alright For not understanding Sehee's feelings, Mom is sorry Sehee didn't do it with bad intentions, but Mom got angry, so you must have felt very wronged Still, clothes like that are not okay, are they? Right?」</p>
 
 <p>「Huk huk huk huk huk huk」</p>
 
 <p>Sehee Nuna, as if feeling very wronged, embraced in Mom's arms, continued to sob and cry.</p>
 
-<p>「Alright, alright. Mom is sorry. That, Mom was wrong~ Instead, Mom will buy Sehee other clothes she wants to wear. Is that enough? Now, don't cry, stop!」</p>
+<p>「Alright, alright. Mom is sorry. That, Mom was wrong Instead, Mom will buy Sehee other clothes she wants to wear. Is that enough? Now, don't cry, stop!」</p>
 
 <p>Mom, seeing Sehee Nuna crying in her arms, perhaps feeling sorry, spoke to Sehee Nuna in a coaxing tone, as if placating a child.</p>
 

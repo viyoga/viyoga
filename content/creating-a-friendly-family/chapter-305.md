@@ -16,7 +16,7 @@ chapter = 305
 
 <p>Seonju Imo wasn't exactly trying to resist, but she was reacting as if she was flustered by Shiwoo's sudden actions.</p>
 
-<p>-Slap~! Slap~! Slap~!</p>
+<p>-Slap! Slap! Slap!</p>
 
 <p>Shiwoo's palm was raised and then relentlessly struck Seonju Imo's buttocks in succession.</p>
 
@@ -78,13 +78,13 @@ chapter = 305
 
 <p>Shiwoo commanded, thrusting his stiffly erect penis at Seonju Imo, who was kneeling.</p>
 
-<p>,Yes...Master-nim~,</p>
+<p>,Yes...Master-nim,</p>
 
 <p>Seonju Imo answered immediately without any hesitation.</p>
 
 <p>Seonju Imo, with eyes glazed over in ecstasy, brought her mouth to Shiwoo's massive penis that was rising in front of her face, as if she would see through everything.</p>
 
-<p>,Chuuup~ Chuuuup! Hoo-ahp~,</p>
+<p>,Chuuup Chuuuup! Hoo-ahp,</p>
 
 <p>Seonju Imo, looking up at the camera lens with a blissfully unfocused gaze, was licking Shiwoo's shaft.</p>
 
@@ -122,7 +122,7 @@ chapter = 305
 
 <p>A burning sensation of pleasure spread tinglingly across the skin of his glans.</p>
 
-<p>,Ah~ Seonju, you fucking bitch~! You dog-like bitch!!,</p>
+<p>,Ah Seonju, you fucking bitch! You dog-like bitch!!,</p>
 
 <p>Shiwoo, matching the vibrations of pleasure that Seonju Imo was creating, spewed out profanities as he pleased.</p>
 
@@ -134,7 +134,7 @@ chapter = 305
 
 <p>Shiwoo, subtly pressing his waist as if to pierce through Seonju Imo's constricted throat, pulled her head towards his body.</p>
 
-<p>,Aook~! Haa-oop haa-ahp!,</p>
+<p>,Aook! Haa-oop haa-ahp!,</p>
 
 <p>Seonju Imo stiffened her body and accepted Shiwoo's penis into her throat as if embracing it.</p>
 
@@ -154,7 +154,7 @@ chapter = 305
 
 <p>Shiwoo's voice was echoing loudly enough to be heard by Seyoung and Sua, beyond the iron gate and walls of Seonju Imo's house.</p>
 
-<p>,Yes~ Master-nim~!,</p>
+<p>,Yes Master-nim!,</p>
 
 <p>Seonju Imo answered Shiwoo's command with a blissful expression and voice.</p>
 
@@ -172,7 +172,7 @@ chapter = 305
 
 <p>Shiwoo issued a command to correct her posture, as if he didn't like the position Seonju Imo was taking.</p>
 
-<p>,I'm sorry, Master-nim, hee-ing~ I'll lift my ass up more, so please forgive me.,</p>
+<p>,I'm sorry, Master-nim, hee-ing I'll lift my ass up more, so please forgive me.,</p>
 
 <p>Seonju Imo answered in a coquettish voice, immediately arching her back downwards and lifting her buttocks high towards Shiwoo's face.</p>
 

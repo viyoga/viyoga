@@ -20,7 +20,7 @@ chapter = 752
 
 <p>Mom answers with a feigned calmness to Shiwoo's playful words, her voice transparently revealing her inner thoughts.</p>
 
-<p>"Really~? You're just going to eat it~?"</p>
+<p>"Really? You're just going to eat it?"</p>
 
 <p>Shiwoo asks back, his face brightening as he speaks in an exaggeratedly excited tone.</p>
 
@@ -28,7 +28,7 @@ chapter = 752
 
 <p>Mom reacts with a flare of temper, her tone flustered as she fails to hide her embarrassment.</p>
 
-<p>"Why~? I was talking about the clam soup too. Was there something else?"</p>
+<p>"Why? I was talking about the clam soup too. Was there something else?"</p>
 
 <p>Shiwoo tilted his head slyly, as if finding Mom's reaction amusing.</p>
 
@@ -36,7 +36,7 @@ chapter = 752
 
 <p>She watches him like that for a moment before finally dropping her gaze in resignation.</p>
 
-<p>"Now that you've gotten a taste for this...! You just can't keep your mouth shut, even in front of all these people... If you were at least bad at talking, I wouldn't find you so detestable... Where did you even learn such strange things... Ugh ~!"</p>
+<p>"Now that you've gotten a taste for this...! You just can't keep your mouth shut, even in front of all these people... If you were at least bad at talking, I wouldn't find you so detestable... Where did you even learn such strange things... Ugh !"</p>
 
 <p>Mom lets out a sigh, muttering a complaint in a voice barely audible to Shiwoo while keeping her head down.</p>
 
@@ -46,7 +46,7 @@ chapter = 752
 
 <p>She picks up the glass and gulps the filled liquor down in one go... Beol-keok .</p>
 
-<p>"Hwaaaa~"</p>
+<p>"Hwaaaa"</p>
 
 <p>After draining the alcohol down her throat, she exhales a long breath as if venting out the rising heat.</p>
 
@@ -66,7 +66,7 @@ chapter = 752
 
 <p>As the neatly prepared dishes were placed on their respective plates, the two seemed to return to a temporary state of everyday lull.</p>
 
-<p>[Mom, eat up! You might get hungry later if you overexert yourself~]</p>
+<p>[Mom, eat up! You might get hungry later if you overexert yourself]</p>
 
 <p>In front of the waitress, Shiwoo addressed her as Mom again, speaking as if he were taking care of her.</p>
 
@@ -96,7 +96,7 @@ chapter = 752
 
 <p>Mom was letting her suppressed shame explode more explicitly over the text, as if dragging out disgraceful memories.</p>
 
-<p>[But we can't do it during the day anymore~ Since I have to turn you back into Mom in the morning after working you as a slave all night lol.]</p>
+<p>[But we can't do it during the day anymore Since I have to turn you back into Mom in the morning after working you as a slave all night lol.]</p>
 
 <p>Shiwoo typed and sent the message right in front of Mom, as if continuing their previous conversation.</p>
 
@@ -118,7 +118,7 @@ chapter = 752
 
 <p>She seemed certain of Shiwoo's lecherous intentions.</p>
 
-<p>[Haha, you knew? And here I was, worried about how much more coercion I'd have to use since you were acting so oblivious~]</p>
+<p>[Haha, you knew? And here I was, worried about how much more coercion I'd have to use since you were acting so oblivious]</p>
 
 <p>Shiwoo poured his explicit obsession onto the screen with a playful air, his desire deepening.</p>
 
@@ -172,7 +172,7 @@ chapter = 752
 
 <p>And yet, she couldn't look Shiwoo straight in the eye, nor did she pull her legs away from his.</p>
 
-<p>"Ah~ I have to eat, I have to eat! It won't taste good if it gets cold!"</p>
+<p>"Ah I have to eat, I have to eat! It won't taste good if it gets cold!"</p>
 
 <p>Shiwoo repeated the same words twice in a cute tone and pulled the dish in front of him closer.</p>
 

@@ -76,7 +76,7 @@ chapter = 623
 
 <p>Was Sejin Nuna someone whose emotions and attitude changed as if they existed in different times after sexual intercourse or play?</p>
 
-<p>"Why~?"</p>
+<p>"Why?"</p>
 
 <p>Shiwoo asked Sejin Nuna playfully, wearing a sly smile.</p>
 
@@ -112,7 +112,7 @@ chapter = 623
 
 <p>Each time the TV screen flickered and changed color, Sejin Nuna's expression subtly changed.</p>
 
-<p>"I sent the video and photos I took of you and me just now to Mom~"</p>
+<p>"I sent the video and photos I took of you and me just now to Mom"</p>
 
 <p>Seeing that, Shiwoo wore a playful smile again and casually tossed out the words.</p>
 
@@ -182,7 +182,7 @@ chapter = 623
 
 <p>Sejin Nuna turned to look at the scene of Shiwoo smearing pre-cum on the pillow and asked in a flustered tone.</p>
 
-<p>"Yeah! Well~ since it's all wet anyway, I wonder if there's any point in washing... but do as you please!"</p>
+<p>"Yeah! Well since it's all wet anyway, I wonder if there's any point in washing... but do as you please!"</p>
 
 <p>"In the bathroom, you'll find the breast milk pad and panties I used. Wear those tonight to sleep!"</p>
 

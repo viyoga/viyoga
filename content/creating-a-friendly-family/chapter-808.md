@@ -102,7 +102,7 @@ chapter = 808
 
 <p>The pleasure surged repeatedly like rough night waves, and her crumbled self-control scattered helplessly as if it had lost its way.</p>
 
-<p>"Ha-ang ha-aa-aa~ ha-eung! Heu-ung!"</p>
+<p>"Ha-ang ha-aa-aa ha-eung! Heu-ung!"</p>
 
 <p>After several rounds of intense convulsions swept through, Mom's eyes drifted in the air, having lost focus.</p>
 
@@ -112,7 +112,7 @@ chapter = 808
 
 <p>The sight of the white lumps of flesh, flushed red from the burning heat and trembling pitifully, with Si-woo's penis buried deep between the mounds below them, was once again frozen in the air without omission.</p>
 
-<p>"See~ you're the one who can't stay still while it's inserted...!"</p>
+<p>"See you're the one who can't stay still while it's inserted...!"</p>
 
 <p>Si-woo spoke as if mocking while looking down at the explicit contraction of her pussy hole that was convulsing and tightening around the shaft of his penis.</p>
 

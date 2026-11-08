@@ -26,7 +26,7 @@ chapter = 253
 
 <p>Seyoung's breath is being exhaled as if it is gradually becoming rapid.</p>
 
-<p>,I'm feeling drowsy and sleepy~ Because Oppa keeps touching me like that~~ Hehe,"</p>
+<p>,I'm feeling drowsy and sleepy Because Oppa keeps touching me like that Hehe,"</p>
 
 <p>Seyoung rubbed her eyes as if she was sleepy and said her impressions of Shiwoo's lewd touch.</p>
 
@@ -58,7 +58,7 @@ chapter = 253
 
 <p>Shiwoo moves his pelvis and starts moving the penis that is stuck inside Mom's vagina again.</p>
 
-<p>-Jjil-geok! Jjil-geok~! Jjil-geok~~!-</p>
+<p>-Jjil-geok! Jjil-geok! Jjil-geok!-</p>
 
 <p>Shiwoo moves his hand, which had stopped, back towards Seyoung's buttocks and shakes his waist.</p>
 
@@ -66,7 +66,7 @@ chapter = 253
 
 <p>Mom is making a small, crying-like moaning sound to Shiwoo's light thrusting.</p>
 
-<p>,We have to stop by Sua's house tomorrow and go to the department store together~ So we have to sleep early~ You said you get sleepy when I touch you, so I'll have to touch you more,"</p>
+<p>,We have to stop by Sua's house tomorrow and go to the department store together So we have to sleep early You said you get sleepy when I touch you, so I'll have to touch you more,"</p>
 
 <p>Shiwoo says to Seyoung, nonchalantly, as if covering up Mom's moaning sound.</p>
 
@@ -90,7 +90,7 @@ chapter = 253
 
 <p>The soft and warm flesh feels pleasantly in Shiwoo's hand.</p>
 
-<p>,Hehe~ It's ticklish~ But it feels good~,"</p>
+<p>,Hehe It's ticklish But it feels good,"</p>
 
 <p>Seyoung was looking at Shiwoo's face and saying her impressions of Shiwoo's caress.</p>
 
@@ -116,19 +116,19 @@ chapter = 253
 
 <p>Not only Shiwoo and Mom, but now Seyoung has also officially joined the family's obscene play.</p>
 
-<p>,I've been sticking together for a while, so I'm sweating now~ Mom's body seems to be getting warmer now too~ Isn't Seyoung hot?,"</p>
+<p>,I've been sticking together for a while, so I'm sweating now Mom's body seems to be getting warmer now too Isn't Seyoung hot?,"</p>
 
 <p>Shiwoo says to Seyoung while fluttering the bottom of Seyoung's one-piece dress as if to let the wind blow under it, then lowering it again.</p>
 
-<p>,Well~? Is it a little hot? Hehe~,"</p>
+<p>,Well? Is it a little hot? Hehe,"</p>
 
 <p>Seyoung answers Shiwoo's words with a coquettish tone.</p>
 
-<p>,You have to sleep, so Seyoung can't sweat~ And now you don't have to wear pajamas when you sleep at our house, so..."</p>
+<p>,You have to sleep, so Seyoung can't sweat And now you don't have to wear pajamas when you sleep at our house, so..."</p>
 
 <p>Shiwoo says, raising the bottom of her one-piece pajama dress above Seyoung's waist, with a low-pitched voice, blurring the end of his words.</p>
 
-<p>,Yeah~ That's right~ Mom also sleeps naked~ I'm going to sleep naked from now on too~,"</p>
+<p>,Yeah That's right Mom also sleeps naked I'm going to sleep naked from now on too,"</p>
 
 <p>Seyoung says, agreeing with Shiwoo's words, and then raises her body and sits on the bed.</p>
 
@@ -166,7 +166,7 @@ chapter = 253
 
 <p>Mom could immediately recognize that the lukewarm liquid was Shiwoo's semen that she had just spilled out with the smell reaching her nose.</p>
 
-<p>,Haaaaaaa~,"</p>
+<p>,Haaaaaaa,"</p>
 
 <p>Mom exhales a low, deep breath once again.</p>
 
@@ -204,7 +204,7 @@ chapter = 253
 
 <p>Seyoung put Mom's nipples in her mouth and sucked on them as if she didn't know anything.</p>
 
-<p>,Chyuup~ Chyuuup~ Chyuap~!"</p>
+<p>,Chyuup Chyuuup Chyuap!"</p>
 
 <p>Seyoung is sucking on Mom's nipples, which have been smeared with Shiwoo's semen, as if tasting them.</p>
 

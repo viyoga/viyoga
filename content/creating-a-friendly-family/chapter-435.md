@@ -136,7 +136,7 @@ chapter = 435
 
 <p>The pharmacist looked at the middle school student who was buying a large quantity of extra-large condoms and vaginal douches with a puzzled look, although he didn't say anything.</p>
 
-<p>"Ah~ I came on an errand. My mom said she's going to use it with her new boyfriend..."</p>
+<p>"Ah I came on an errand. My mom said she's going to use it with her new boyfriend..."</p>
 
 <p>Shiwoo was nonchalantly saying things that the pharmacist hadn't even asked, as if it was nothing.</p>
 
@@ -162,7 +162,7 @@ chapter = 435
 
 <p>Mom returned to being Mom in the 1:1 chat room and asked as if checking if anything had happened at the pharmacy.</p>
 
-<p>[I said I came on an errand for Mom, saying that Mom was going to use it with her new boyfriend, so they didn't say anything about the condoms? I asked how to use the vaginal douche and pregnancy test, so I got an explanation on how to use them hehe There wasn't anything else~]</p>
+<p>[I said I came on an errand for Mom, saying that Mom was going to use it with her new boyfriend, so they didn't say anything about the condoms? I asked how to use the vaginal douche and pregnancy test, so I got an explanation on how to use them hehe There wasn't anything else]</p>
 
 <p>Shiwoo explained to Mom about the things that happened at the pharmacy in as much detail as possible.</p>
 

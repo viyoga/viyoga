@@ -6,7 +6,7 @@ chapter = 455
 +++
 <p>As Mom's piteous breathing sound came through the smartphone's speakerphone, Shiwoo's heart momentarily softened. Although he was the one cornering Mom, he even felt a pang of pity for her predicament.</p>
 
-<p>"Alright~ Then I'll let you wear your panties and bra like you normally do~ If you wear your underwear properly, it doesn't matter if the t-shirt is short, right?"</p>
+<p>"Alright Then I'll let you wear your panties and bra like you normally do If you wear your underwear properly, it doesn't matter if the t-shirt is short, right?"</p>
 
 <p>Breaking the brief silence that followed, Shiwoo spoke to Mom as if doing her a favor.</p>
 
@@ -20,7 +20,7 @@ chapter = 455
 
 <p>Sehee Nuna grimaced, her neck scrunched up, and let out a series of short moaning sounds.</p>
 
-<p>"You have to answer, Seonmi-ya~ Do you want to be naked alone in the house all evening tonight? Should I really make you do that?"</p>
+<p>"You have to answer, Seonmi-ya Do you want to be naked alone in the house all evening tonight? Should I really make you do that?"</p>
 
 <p>After violently pounding Sehee Nuna's face with his penis as if mincing meat, Shiwoo spoke as if pressing Mom for an answer.</p>
 
@@ -52,7 +52,7 @@ chapter = 455
 
 <p>Shiwoo fitted the tip of his glans into Sehee Nuna's slit. Sehee Nuna bit her lip, her body trembling slightly as she maintained her position.</p>
 
-<p>"Why? There's nothing you can't do~ After all, this is all a game I pestered you into starting, isn't it?"</p>
+<p>"Why? There's nothing you can't do After all, this is all a game I pestered you into starting, isn't it?"</p>
 
 <p>Shiwoo spoke in an unnecessarily arrogant tone, as if mocking Mom.</p>
 
@@ -102,7 +102,7 @@ chapter = 455
 
 <p>As Shiwoo stopped his piston thrusts, Sehee Nuna trembled, her body taut with tension, as she answered.</p>
 
-<p>"It's nothing much~ You know that shirt Seonmi was wearing when she went to the supermarket for cigarettes earlier? That was yours, right, Sehee?"</p>
+<p>"It's nothing much You know that shirt Seonmi was wearing when she went to the supermarket for cigarettes earlier? That was yours, right, Sehee?"</p>
 
 <p>Shiwoo brought up the t-shirt of Sehee Nuna that Mom had been wearing.</p>
 

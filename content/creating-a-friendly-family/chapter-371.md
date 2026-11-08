@@ -76,7 +76,7 @@ chapter = 371
 
 <p>As if knowing what Shiwoo wanted, Sua began to suck the mucus smeared on his cock pillar.</p>
 
-<p>"Chuu-up~ Chuu-a-ap! Chuu-lup!"</p>
+<p>"Chuu-up Chuu-a-ap! Chuu-lup!"</p>
 
 <p>The sound of Sua's mouth, clinging to the tip of his cock, echoed loudly as if creating ripples in the quiet air of the room.</p>
 

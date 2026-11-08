@@ -112,23 +112,23 @@ chapter = 66
 
 <p>Sehee Nuna, who was watching the video in Shiwoo's arms, asked Shiwoo because the word that came out in the video was unfamiliar.</p>
 
-<p>"Ah~ it's like a password needed when doing that kind of play~"</p>
+<p>"Ah it's like a password needed when doing that kind of play"</p>
 
 <p>"Password?"</p>
 
-<p>"There are times when you really need to stop, right? They say that when you're doing something like that, the people involved can't even tell whether it's acting or real. So, you decide on a word like that separately and tell the other person~"</p>
+<p>"There are times when you really need to stop, right? They say that when you're doing something like that, the people involved can't even tell whether it's acting or real. So, you decide on a word like that separately and tell the other person"</p>
 
 <p>Shiwoo was giving a clear explanation.</p>
 
-<p>"Is that so~?"</p>
+<p>"Is that so?"</p>
 
 <p>Sehee Nuna raised her eyebrows slightly as if she had learned something good.</p>
 
-<p>"Yeah, if you directly say things like 'raise the level' or 'lower the level' when you're doing a submissive play, it'll ruin the mood, right~? It can be dangerous when you're doing really hard play, so!!"</p>
+<p>"Yeah, if you directly say things like 'raise the level' or 'lower the level' when you're doing a submissive play, it'll ruin the mood, right? It can be dangerous when you're doing really hard play, so!!"</p>
 
 <p>Shiwoo was explaining earnestly, as if telling a fairy tale, to help Sehee Nuna understand.</p>
 
-<p>"Then that's definitely necessary for you, Shiwoo, right~?"</p>
+<p>"Then that's definitely necessary for you, Shiwoo, right?"</p>
 
 <p>Sehee Nuna said to Shiwoo as if she understood.</p>
 
@@ -148,7 +148,7 @@ chapter = 66
 
 <p>And with her fingertips, like she usually touches Shiwoo's head, she 'tapped' Shiwoo's glans.</p>
 
-<p>"Aaaah~! Ah!!!!"</p>
+<p>"Aaaah! Ah!!!!"</p>
 
 <p>A violent twitching to the point where his body shook.</p>
 
@@ -164,7 +164,7 @@ chapter = 66
 
 <p>Shiwoo twitched greatly again.</p>
 
-<p>"A...ah~ Se...Sehee Nuna!! Heo heok... if... if you do that~!!!!"</p>
+<p>"A...ah Se...Sehee Nuna!! Heo heok... if... if you do that!!!!"</p>
 
 <p>Shiwoo's moan, panting roughly and trembling.</p>
 
@@ -210,7 +210,7 @@ chapter = 66
 
 <p>As her head was tilted back, she was desperately trying to grab the body of the opposing actor, who was shaking her waist, with both legs.</p>
 
-<p>"J-just a moment... Heoeong~"</p>
+<p>"J-just a moment... Heoeong"</p>
 
 <p>The 40-year-old female participant was flailing her legs in the air, moving as if struggling.</p>
 
@@ -218,7 +218,7 @@ chapter = 66
 
 <p>The woman was eventually crying out.</p>
 
-<p>"S-stop... Heoeoeong~~~eong eong~ Heoeong~heueueang~aaaak!!"</p>
+<p>"S-stop... Heoeoeongeong eong Heoeongheueueangaaaak!!"</p>
 
 <p>Even though her crying was gradually turning into screams, the safe word 'Save me, please', which had been decided during the initial interview, was never uttered.</p>
 
@@ -236,7 +236,7 @@ chapter = 66
 
 <p>Shiwoo's hands were also moving between Sehee Nuna's breasts, buttocks, and crotch, persistently providing stimulation.</p>
 
-<p>"I-I promised... haa... you really have to keep it~!!! Haa..."</p>
+<p>"I-I promised... haa... you really have to keep it!!! Haa..."</p>
 
 <p>Sehee Nuna was muttering to herself as if speaking to herself with a rough breath.</p>
 

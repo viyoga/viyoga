@@ -182,6 +182,6 @@ chapter = 585
 
 <p>Shiwoo asks Cheoljin, pressing him as if trying to shake off the emotions that remained like suspicions.</p>
 
-<p>"Ah~ Semi and Ms. Yu Yena must have been a little surprised by that. The police station wasn't originally in the plan."</p>
+<p>"Ah Semi and Ms. Yu Yena must have been a little surprised by that. The police station wasn't originally in the plan."</p>
 
 <p>Cheoljin was answering Shiwoo's question with a playful smile.</p>

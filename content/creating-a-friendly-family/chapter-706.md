@@ -6,7 +6,7 @@ chapter = 706
 +++
 <p>She then released her arms, which had been wrapped around Shiwoo's neck, and gently stroked his hair.</p>
 
-<p>"Now I... I'm caught like this by Shiwoo-oppa... Haa ... I can't hide or run away anywhere else~ So just calm down... I'll tell you... ha , everything, one by one... fuuuuu ..."</p>
+<p>"Now I... I'm caught like this by Shiwoo-oppa... Haa ... I can't hide or run away anywhere else So just calm down... I'll tell you... ha , everything, one by one... fuuuuu ..."</p>
 
 <p>Seyoung spoke to Shiwoo as if pouring out her inner thoughts, struggling to steady her feverish breath.</p>
 
@@ -22,7 +22,7 @@ chapter = 706
 
 <p>"It's true that Sua and I... haaaa ... handed the succession rights over to you, Oppa... But if I could have, I probably... would have done it all myself."</p>
 
-<p>"I definitely would have chosen either Shiwoo-oppa or Mom and had them get me pregnant... hauuu ... because I like Shiwoo-oppa just as much as I like Mom~ Hehet !"</p>
+<p>"I definitely would have chosen either Shiwoo-oppa or Mom and had them get me pregnant... hauuu ... because I like Shiwoo-oppa just as much as I like Mom Hehet !"</p>
 
 <p>Seyoung spoke to Shiwoo with a bitter smile mixed with playfulness.</p>
 
@@ -32,7 +32,7 @@ chapter = 706
 
 <p>Shiwoo looked bewildered for a moment, his expression puzzled by Seyoung's words, the context of which he couldn't quite grasp.</p>
 
-<p>"I'm talking about what Dad tried to do to Sejin-eonni... that... if it were me, I definitely would have done it to Shiwoo-oppa or Mom~"</p>
+<p>"I'm talking about what Dad tried to do to Sejin-eonni... that... if it were me, I definitely would have done it to Shiwoo-oppa or Mom"</p>
 
 <p>Seyoung spoke again, this time looking straight into Shiwoo's eyes as if filled with certainty...</p>
 
@@ -68,7 +68,7 @@ chapter = 706
 
 <p>Shiwoo, seemingly startled, released the strength in his waist and hips that had been pressing down.</p>
 
-<p>" Haaaaaaa~ "</p>
+<p>" Haaaaaaa "</p>
 
 <p>As the heavy pressure on her groin was released, a suppressed moan burst from Seyoung's throat like carbonation.</p>
 

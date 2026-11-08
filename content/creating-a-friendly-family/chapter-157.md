@@ -94,7 +94,7 @@ chapter = 157
 
 <p>The clenching, pressure, and trembling of the mucous membranes deep within that cavern created a surging thrill for Shiwoo, as if he was about to erupt.</p>
 
-<p>「Haa-a...Aa-a~」</p>
+<p>「Haa-a...Aa-a」</p>
 
 <p>Sehee-nuna's hand slowly lifted into the air, accompanied by her struggling, broken gasps.</p>
 
@@ -154,7 +154,7 @@ chapter = 157
 
 <p>Shiwoo wrapped his arms tightly around Sehee-nuna's pelvis and breasts, thrusting his hips violently as if storming her.</p>
 
-<p>「Haa-eut! Haa-eut! Haa-aak! Haa-aat! Shi...Shiwoo-ya~!」</p>
+<p>「Haa-eut! Haa-eut! Haa-aak! Haa-aat! Shi...Shiwoo-ya!」</p>
 
 <p>Sehee-nuna moaned as if reaching climax after Shiwoo's prolonged thrusting, calling out Shiwoo's name.</p>
 
@@ -176,7 +176,7 @@ chapter = 157
 
 <p>A brief lull.</p>
 
-<p>「Haa-a...Haa-aa~ Haa-eut...」</p>
+<p>「Haa-a...Haa-aa Haa-eut...」</p>
 
 <p>Breaths and residual tremors, as if releasing the afterglow of climax, emanated from Sehee-nuna.</p>
 
@@ -184,7 +184,7 @@ chapter = 157
 
 <p>Sehee-nuna's hands had fallen from Seonju Imo's bruised buttocks and hung limply towards the floor.</p>
 
-<p>「Haa-eueu...I don't think I can take it anymore! Master-nim~! P-please...please do something for me now~! Please!」</p>
+<p>「Haa-eueu...I don't think I can take it anymore! Master-nim! P-please...please do something for me now! Please!」</p>
 
 <p>Seonju Imo spoke as if begging, twisting her thighs and calves together while holding her buttocks raised.</p>
 

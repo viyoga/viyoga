@@ -12,7 +12,7 @@ chapter = 220
 
 <p>Shiwoo's semen, recovered into Seonju Imo-nim's mouth, was swallowed into her throat without hesitation.</p>
 
-<p>「Olgak~Olgak~」</p>
+<p>「OlgakOlgak」</p>
 
 <p>Again, Seonju Imo-nim was doing something Shiwoo hadn't even ordered, acting on her own accord.</p>
 
@@ -24,7 +24,7 @@ chapter = 220
 
 <p>Her extended tongue wrapped around Mom's nipple.</p>
 
-<p>「Heueungeung~」</p>
+<p>「Heueungeung」</p>
 
 <p>A sweet moan leaked from Mom's mouth as Seonju Imo-nim sucked on her breast.</p>
 
@@ -36,7 +36,7 @@ chapter = 220
 
 <p>Shiwoo was trying to unleash some of the sadistic impulse that had risen due to Seonju Imo-nim onto Mom.</p>
 
-<p>「Haa-eut~! Haaat~! Haaa-aat!」</p>
+<p>「Haa-eut! Haaat! Haaa-aat!」</p>
 
 <p>Mom, having her breasts sucked by Seonju Imo-nim while being pounded by Shiwoo, spat out uncontrollable moans.</p>
 
@@ -60,11 +60,11 @@ chapter = 220
 
 <p>Yet, the hypocritical appearance of Seyoung, who was playing with Shiwoo with a smile as if she knew nothing.</p>
 
-<p>-Peok~! Peok~! Peok~! Peok~! Peok~!</p>
+<p>-Peok! Peok! Peok! Peok! Peok!</p>
 
 <p>Shiwoo was imagining a destructive scene where he would take Mom to the living room right now and violate her in front of Seyoung and Sua, thrusting deeply into Mom's cave.</p>
 
-<p>「Haaat! Haaang~ Haeueuk! Haaat!</p>
+<p>「Haaat! Haaang Haeueuk! Haaat!</p>
 
 <p>His piston action became even more intense and deeper.</p>
 
@@ -82,7 +82,7 @@ chapter = 220
 
 <p>The sound of a puppy's footsteps running from the living room towards the kitchen.</p>
 
-<p>"Ah~ Sae-a-ya~ Where are you going?"</p>
+<p>"Ah Sae-a-ya Where are you going?"</p>
 
 <p>Following that, Seyoung's voice calling for the puppy could also be heard.</p>
 
@@ -108,13 +108,13 @@ chapter = 220
 
 <p>Seyoung's presence could be felt from the direction of the living room behind his back.</p>
 
-<p>"Huh? Mom, why are you taking off your clothes there~?"</p>
+<p>"Huh? Mom, why are you taking off your clothes there?"</p>
 
 <p>Could it be that she hadn't seen the crucial scene where Shiwoo and Mom were joined just now?</p>
 
 <p>Seyoung asked with a questioning tone, looking at Mom who was taking off her clothes.</p>
 
-<p>"Your Mom must be feeling a bit hot from doing the dishes today~ Kikik"</p>
+<p>"Your Mom must be feeling a bit hot from doing the dishes today Kikik"</p>
 
 <p>Seonju Imo-nim was speaking to Seyoung in a nonchalant tone as if it were someone else's business.</p>
 
@@ -124,31 +124,31 @@ chapter = 220
 
 <p>Seyoung hugged the puppy and reacted as if she was suspicious of what Seonju Imo-nim had said while sitting at the table.</p>
 
-<p>"Shiwoo and I helped her from the side~ But was it even harder for you, Unnie? Kikik~! How was it, Unnie~? Would you like to talk about it?"</p>
+<p>"Shiwoo and I helped her from the side But was it even harder for you, Unnie? Kikik! How was it, Unnie? Would you like to talk about it?"</p>
 
 <p>Instead of explaining the situation in detail to Seyoung, Seonju Imo-nim was teasing Mom with a mischievous question.</p>
 
-<p>"Huh? Uh, uh... Oh... The... The weather is very hot today~~ Haa... I... I just moved for a bit, but I... I was sweating so much... Hoo~ I... I was going to take a shower... I... I took them off~ Hoo-ah~ It's hot~"</p>
+<p>"Huh? Uh, uh... Oh... The... The weather is very hot today Haa... I... I just moved for a bit, but I... I was sweating so much... Hoo I... I was going to take a shower... I... I took them off Hoo-ah It's hot"</p>
 
 <p>Mom was speaking to Seyoung with a breathless voice, fanning herself as if she was making excuses.</p>
 
-<p>"Is that so~?"</p>
+<p>"Is that so?"</p>
 
 <p>Seyoung was still looking at Mom as if something was strange.</p>
 
-<p>"Yeah~ Your Mom is thinking of staying in her underwear at home from now on~ She said you guys can wear comfortable clothes from now on too~~"</p>
+<p>"Yeah Your Mom is thinking of staying in her underwear at home from now on She said you guys can wear comfortable clothes from now on too"</p>
 
 <p>Seonju Imo-nim was nonchalantly telling Seyoung something that Mom hadn't said.</p>
 
-<p>"Wow~ Really? Then can we go straight into our rooms after showering without putting on clothes like we used to?"</p>
+<p>"Wow Really? Then can we go straight into our rooms after showering without putting on clothes like we used to?"</p>
 
 <p>Seyoung was asking Mom with a seemingly innocent expression as if she was excited about something.</p>
 
-<p>"Yeah~ Unnie said it's okay~ We're family, so what~ We can show each other our naked bodies and embarrassing appearances~ Isn't that right, Shiwoo-ya? Kikik~~!"</p>
+<p>"Yeah Unnie said it's okay We're family, so what We can show each other our naked bodies and embarrassing appearances Isn't that right, Shiwoo-ya? Kikik!"</p>
 
 <p>Seonju Imo-nim was asking Shiwoo, who was turned around to hide his erection, for his agreement with a playful expression.</p>
 
-<p>"Huh? Uh... Y-yeah... Y-you can do that comfortably from now on, Seyoung-a~ Mom said it's okay too! Right, Mom?"</p>
+<p>"Huh? Uh... Y-yeah... Y-you can do that comfortably from now on, Seyoung-a Mom said it's okay too! Right, Mom?"</p>
 
 <p>Shiwoo was stuttering as if he was flustered by the unexpected situation, but he answered in accordance with Seonju Imo-nim's question and was forcing Mom to confirm at the end.</p>
 
@@ -162,7 +162,7 @@ chapter = 220
 
 <p>Below the white lingerie panties with the crotch split open, Shiwoo could vaguely see the crease of her buttocks and her intimate flesh.</p>
 
-<p>"That's great~ Shiwoo Oppa~ Hehe~"</p>
+<p>"That's great Shiwoo Oppa Hehe"</p>
 
 <p>Seyoung said to Shiwoo as if she was really happy.</p>
 
@@ -174,13 +174,13 @@ chapter = 220
 
 <p>As soon as Shiwoo confirmed that Seyoung had returned to the living room, he lowered his pants as they were.</p>
 
-<p>"Seonju, you fucking bitch! Suck it~!"</p>
+<p>"Seonju, you fucking bitch! Suck it!"</p>
 
 <p>Shiwoo ordered Seonju Imo-nim in a low voice.</p>
 
 <p>Seonju Imo-nim immediately knelt in front of Shiwoo, who was erecting his massive thing, from the dining table chair where she had been sitting.</p>
 
-<p>"Hau-up~!"</p>
+<p>"Hau-up!"</p>
 
 <p>Seonju Imo-nim opened her lips wide and filled her mouth with Shiwoo's thing.</p>
 
@@ -188,11 +188,11 @@ chapter = 220
 
 <p>Shiwoo said angrily, grabbing Seonju Imo-nim's hair.</p>
 
-<p>"Hau-up Chureup Churu-rup Haa-aam~Haeueung~"</p>
+<p>"Hau-up Chureup Churu-rup Haa-aamHaeueung"</p>
 
 <p>Seonju Imo-nim looked at Shiwoo with pitiful eyes as if she was begging for forgiveness for her mistake again.</p>
 
-<p>"Fucking bitch! Suck it properly~!! If you swallow it like that again this time, you should know that you'll have to take off all your underwear and go home!!"</p>
+<p>"Fucking bitch! Suck it properly!! If you swallow it like that again this time, you should know that you'll have to take off all your underwear and go home!!"</p>
 
 <p>Shiwoo warned Seonju Imo-nim and pushed his penis deep into her throat.</p>
 
@@ -216,6 +216,6 @@ chapter = 220
 
 <p>Shiwoo intensely felt the tingling sensation spreading throughout his body as if vibrating and ejaculated his semen into Seonju Imo-nim's mouth as if he was releasing his pent-up desires.</p>
 
-<p>-Pusyuk! Pusyuu-uk~! Pusyuuk~! Pusyuuk~!</p>
+<p>-Pusyuk! Pusyuu-uk! Pusyuuk! Pusyuuk!</p>
 
 <p>Once again, Seonju Imo-nim's mouth was filled with Shiwoo's thick semen.</p>

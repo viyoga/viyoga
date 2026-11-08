@@ -100,7 +100,7 @@ chapter = 51
 
 <p>Mom seemed to be looking at the picture of Sehee Nuna that Shiwoo had sent, taking her time to reply.</p>
 
-<p>'She's pretty~ But isn't Sehee cold like that?'</p>
+<p>'She's pretty But isn't Sehee cold like that?'</p>
 
 <p>Mom only pointed out Sehee Nuna's attire, not knowing if she was turning the subject or hadn't noticed.</p>
 
@@ -118,7 +118,7 @@ chapter = 51
 
 <p>Shiwoo was feeling a sense of superiority or thrill in this kind of conversation with Mom, who didn't know the exact details of the sexual relationship or progress between the siblings.</p>
 
-<p>'Oh dear~ Then you should buy her something to change into~ Sehee will catch a cold!!'</p>
+<p>'Oh dear Then you should buy her something to change into Sehee will catch a cold!!'</p>
 
 <p>Mom was continuing the conversation with her son as a mother would.</p>
 
@@ -126,7 +126,7 @@ chapter = 51
 
 <p>Shiwoo made a request to Mom as if he had seized the opportunity.</p>
 
-<p>'Why are you borrowing money to buy it? It's Sehee's clothes, so I'll buy it with my money~'</p>
+<p>'Why are you borrowing money to buy it? It's Sehee's clothes, so I'll buy it with my money'</p>
 
 <p>Mom was sending a formal message trying to protect her daughter from her son, perhaps as a resistance to alleviate her guilt, just like with Seyoung.</p>
 
@@ -140,7 +140,7 @@ chapter = 51
 
 <p>Shiwoo knew very well that Mom would accept and agree to almost all of the sexual requests that Shiwoo made.</p>
 
-<p>'I think Mom is still bigger than Sehee Nuna~'</p>
+<p>'I think Mom is still bigger than Sehee Nuna'</p>
 
 <p>Shiwoo was urging Mom, who had stopped replying, following up on the previous conversation about how he could tell who was bigger by touching them.</p>
 
@@ -158,6 +158,6 @@ chapter = 51
 
 <p>Then, she suddenly replied with a long message.</p>
 
-<p>'Of course Mom is bigger! Sehee is still a high school student~ You can tell just by looking, why are you comparing them? You're a funny kid, Shiwoo, you know that? You have to pay back all the money I lent you later, I'm going to charge you interest on top of it, whether you're my son or not~"</p>
+<p>'Of course Mom is bigger! Sehee is still a high school student You can tell just by looking, why are you comparing them? You're a funny kid, Shiwoo, you know that? You have to pay back all the money I lent you later, I'm going to charge you interest on top of it, whether you're my son or not"</p>
 
 <p>Mom was showing a cute reaction as if she had forgotten her motherhood, bristling at Shiwoo's words that were fueling the competition between her and Sehee Nuna as women.</p>

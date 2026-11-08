@@ -8,15 +8,15 @@ chapter = 544
 
 <p>Shiwoo asked Seyoung, who seemed to be savoring the aftertaste left in her mouth after swallowing the curry.</p>
 
-<p>,Yeah~ it's delicious~! Hehe~ It seems a bit different from what I usually taste, but it's still delicious~,</p>
+<p>,Yeah it's delicious! Hehe It seems a bit different from what I usually taste, but it's still delicious,</p>
 
 <p>Seyoung closed her mouth, which had been open, in response to Shiwoo's question, and answered Shiwoo with a bright smile.</p>
 
-<p>,Really? I'm glad you say it's delicious~ Seyoung, eat a lot! Tell me if you need more~ There's still a lot left, but if that's not enough, you can talk to Mom and she can make it for you right away, too.,</p>
+<p>,Really? I'm glad you say it's delicious Seyoung, eat a lot! Tell me if you need more There's still a lot left, but if that's not enough, you can talk to Mom and she can make it for you right away, too.,</p>
 
 <p>Shiwoo emphasized to Seyoung that she could eat as much as she wanted of the curry he had made with Mom using a special recipe.</p>
 
-<p>,Okay~ I got it~ I'll tell you if I need more~! Mom! Mom, you should try it quickly too~ You haven't tasted it yet, right?,</p>
+<p>,Okay I got it I'll tell you if I need more! Mom! Mom, you should try it quickly too You haven't tasted it yet, right?,</p>
 
 <p>Seyoung, after answering Shiwoo, turned to her side and urged Mom to try the curry quickly as well.</p>
 
@@ -34,7 +34,7 @@ chapter = 544
 
 <p>Mom answered Seyoung's words, flustered as if rambling.</p>
 
-<p>,Mom, you should try it quickly too~! You have to taste it! The curry that Mom and Shiwoo oppa~ made together.,</p>
+<p>,Mom, you should try it quickly too! You have to taste it! The curry that Mom and Shiwoo oppa made together.,</p>
 
 <p>Seyoung was once again urging Mom to try the curry quickly.</p>
 
@@ -112,7 +112,7 @@ chapter = 544
 
 <p>Immediately picking up the water cup placed on the table and starting to drink.</p>
 
-<p>,Glug glug! Glug! Haaaah~,</p>
+<p>,Glug glug! Glug! Haaaah,</p>
 
 <p>Sehee finished drinking the water that was left in the cup and gasped for breath with her mouth wide open.</p>
 
@@ -128,11 +128,11 @@ chapter = 544
 
 <p>Sehee, who had been opening her mouth after swallowing the curry, closed her mouth and answered Seyoung, seeming embarrassed.</p>
 
-<p>,Right? Our Mom is really amazing at cooking~!,</p>
+<p>,Right? Our Mom is really amazing at cooking!,</p>
 
 <p>Seyoung, stroking Mom's back as if admiring her, was praising her cooking.</p>
 
-<p>,I'm also learning how to cook from Mom, so next time, I'll make it and feed it to you, Sehee Unni~,</p>
+<p>,I'm also learning how to cook from Mom, so next time, I'll make it and feed it to you, Sehee Unni,</p>
 
 <p>Seyoung was telling Sehee that she would make the food and feed it to her next time.</p>
 
@@ -142,13 +142,13 @@ chapter = 544
 
 <p>Sehee, eating the curry containing semen together, answered Seyoung's words that she would make the food next time, seeming awkward.</p>
 
-<p>,Like what Mom did to Mom today, Shiwoo oppa~ will help me then, right?,</p>
+<p>,Like what Mom did to Mom today, Shiwoo oppa will help me then, right?,</p>
 
 <p>Seyoung was now turning to Shiwoo and asking as if confirming.</p>
 
 <p>Seyoung's request was as if she was asking Shiwoo to ejaculate into her mouth next time, just like Mom had received Shiwoo's semen into her mouth today and put it into the curry, so that she could complete the dish with Shiwoo's semen.</p>
 
-<p>,Of course~! But maybe Sehee can help us with our cooking later, too?,</p>
+<p>,Of course! But maybe Sehee can help us with our cooking later, too?,</p>
 
 <p>Shiwoo said, imagining Sehee receiving oral sex from him as soon as he woke up in the morning and ejaculating into her mouth.</p>
 
@@ -162,7 +162,7 @@ chapter = 544
 
 <p>In Shiwoo's mind, perverted scenes that seemed like they would happen in the future were constantly popping up.</p>
 
-<p>,Sehee Unni too? I like it~ Let's make food together later, Sehee Unni~,</p>
+<p>,Sehee Unni too? I like it Let's make food together later, Sehee Unni,</p>
 
 <p>Seyoung accepted Shiwoo's words and said as if including Sehee.</p>
 
@@ -172,11 +172,11 @@ chapter = 544
 
 <p>In an instant, the dish that Seyoung would make next time suddenly came to Shiwoo's mind.</p>
 
-<p>,That's right! It would be nice if we could make tonkatsu next time~!,</p>
+<p>,That's right! It would be nice if we could make tonkatsu next time!,</p>
 
 <p>Shiwoo told Seyoung the menu he wanted, as if materializing the imagination in his head.</p>
 
-<p>,Yes~! I know how to make tonkatsu! I learned it from Mom~! I hope we can all make it together later, even Sejin Unni. Hehe~,</p>
+<p>,Yes! I know how to make tonkatsu! I learned it from Mom! I hope we can all make it together later, even Sejin Unni. Hehe,</p>
 
 <p>Seyoung responded to Shiwoo's words with a bright smile, whether she knew the lewd scene Shiwoo was imagining or not.</p>
 

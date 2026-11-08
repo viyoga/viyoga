@@ -94,7 +94,7 @@ chapter = 187
 
 <p>Sehee Nuna soon put on her underwear and came out of the restroom.</p>
 
-<p>"I'm done~ Let's go now!"</p>
+<p>"I'm done Let's go now!"</p>
 
 <p>Sehee Nuna said, lightly tapping Shiwoo's head with her fingertip.</p>
 
@@ -126,7 +126,7 @@ chapter = 187
 
 <p>Sehee Nuna asked curiously, sniffing next to Shiwoo.</p>
 
-<p>"Ah~ It's perfume Seyoung and Sua gave me as a gift."</p>
+<p>"Ah It's perfume Seyoung and Sua gave me as a gift."</p>
 
 <p>Shiwoo simply answered Sehee Nuna, who was curious about the perfume.</p>
 
@@ -134,11 +134,11 @@ chapter = 187
 
 <p>Sehee Nuna asked, as if surprised.</p>
 
-<p>"Yeah~ They gave it to me yesterday when they came to visit with Seonju Imo~ They said they made it themselves and told me to spray it every three hours."</p>
+<p>"Yeah They gave it to me yesterday when they came to visit with Seonju Imo They said they made it themselves and told me to spray it every three hours."</p>
 
 <p>Shiwoo explained the detailed circumstances of the perfume to Sehee Nuna.</p>
 
-<p>"Really? The scent is so good~! I'll have to ask them to teach me how to make it later."</p>
+<p>"Really? The scent is so good! I'll have to ask them to teach me how to make it later."</p>
 
 <p>Sehee Nuna seemed to really like the scent, as she pressed her body even closer to Shiwoo.</p>
 
@@ -168,7 +168,7 @@ chapter = 187
 
 <p>A fragrant shampoo scent emanated from Sehee Nuna's hair, and Shiwoo's 'thing,' standing stiffly, twitched, repeatedly lifting and lowering his navy suit jacket.</p>
 
-<p>"Haaah~"</p>
+<p>"Haaah"</p>
 
 <p>Sehee Nuna, who was watching Shiwoo's appearance, let out a sigh-filled, hollow laugh.</p>
 
@@ -222,7 +222,7 @@ chapter = 187
 
 <p>Saerom Nuna greeted Shiwoo.</p>
 
-<p>"Hello, Shiwoo-ya~"</p>
+<p>"Hello, Shiwoo-ya"</p>
 
 <p>And next to her, Sehee Nuna, in her familiar attire, greeted Shiwoo as if he were a long-lost friend.</p>
 
@@ -234,11 +234,11 @@ chapter = 187
 
 <p>Sora Nuna stared intently at the awkwardly approaching Shiwoo and spoke as if explaining the situation.</p>
 
-<p>"Uh?...Yeah, that's right, I've seen them all once~"</p>
+<p>"Uh?...Yeah, that's right, I've seen them all once"</p>
 
 <p>Shiwoo reacted to Sora Nuna's words, looking around the situation with a somewhat reluctant expression.</p>
 
-<p>"Sit here~ Shiwoo, you haven't met any of the guys who came today except Cheoljin, right?"</p>
+<p>"Sit here Shiwoo, you haven't met any of the guys who came today except Cheoljin, right?"</p>
 
 <p>Saerom Nuna, wearing a flowing chiffon yellow floral dress and red flat shoes, spoke to Shiwoo as if directing traffic, assigning him a seat.</p>
 

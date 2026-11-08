@@ -24,7 +24,7 @@ chapter = 685
 
 <p>In Shiwoo's center, which had been subsiding after venting all his lust into Aunt Seonju, an intense heat began to flare up once again.</p>
 
-<p>"There~ all done! Originally, you're supposed to wait two or three days until the treated area heals before having sex because of friction or infection! You know that, right?"</p>
+<p>"There all done! Originally, you're supposed to wait two or three days until the treated area heals before having sex because of friction or infection! You know that, right?"</p>
 
 <p>The tattoo shop owner's explanation seemed directed at someone beyond the smartphone camera...</p>
 
@@ -54,7 +54,7 @@ chapter = 685
 
 <p>Even though she clearly knew that the scene of her being trained by a tattoo shop owner she was meeting for the first time had been captured in photos and videos and sent to Shiwoo...</p>
 
-<p>[That's unusual~? Mom is actually taking a taxi? Usually, no matter how much luggage you had, you only took the subway or the bus. What's gotten into our Seonmi-ssi today?]</p>
+<p>[That's unusual? Mom is actually taking a taxi? Usually, no matter how much luggage you had, you only took the subway or the bus. What's gotten into our Seonmi-ssi today?]</p>
 
 <p>As if matching Mom's brazenness, Shiwoo sent back an everyday joke via text, just as he usually did.</p>
 
@@ -72,7 +72,7 @@ chapter = 685
 
 <p>Shiwoo watched her reaction with interest for a moment before sending another text.</p>
 
-<p>[Right~ take them often! There's no one to nag you anymore~ It's fine to walk around like that with Sehee once in a while for a change of pace~]</p>
+<p>[Right take them often! There's no one to nag you anymore It's fine to walk around like that with Sehee once in a while for a change of pace]</p>
 
 <p>Shiwoo replied as if lightly agreeing with her words.</p>
 
@@ -80,7 +80,7 @@ chapter = 685
 
 <p>After checking the dinner photos Shiwoo had sent, Mom spoke in a complaining tone.</p>
 
-<p>[The kitchen is mostly all cleaned up. While I was in the room with Seonju, Seyoung cleaned it all up~ Seonju is currently passed out on the bed in Sejin's room, and Seyoung has gone into the shower room to wash Sua! I think we really raised our youngest daughter incredibly well, don't you~?]</p>
+<p>[The kitchen is mostly all cleaned up. While I was in the room with Seonju, Seyoung cleaned it all up Seonju is currently passed out on the bed in Sejin's room, and Seyoung has gone into the shower room to wash Sua! I think we really raised our youngest daughter incredibly well, don't you?]</p>
 
 <p>In response to Mom's complaints and questions, Shiwoo explained the situation in the house in detail, then praised Seyoung, soothing and reassuring her gently.</p>
 
@@ -88,7 +88,7 @@ chapter = 685
 
 <p>Mom asked Shiwoo, sounding a bit flustered.</p>
 
-<p>[Yeah~ I moved a bit violently, and she just passed out right on the bed...?]</p>
+<p>[Yeah I moved a bit violently, and she just passed out right on the bed...?]</p>
 
 <p>Shiwoo spoke to Mom as if he were proud, playing it up.</p>
 
@@ -96,7 +96,7 @@ chapter = 685
 
 <p>Mom scolded Shiwoo, sounding exasperated yet worried.</p>
 
-<p>[Haha, I guess I got excited and couldn't control myself well~ Should I have taken some breaks in between?]</p>
+<p>[Haha, I guess I got excited and couldn't control myself well Should I have taken some breaks in between?]</p>
 
 <p>Shiwoo felt satisfied with Mom's reaction, but on the other hand, he answered feeling slightly bashful.</p>
 
@@ -142,7 +142,7 @@ chapter = 685
 
 <p>There were disinfectants and ointments at home, but they would likely be far from enough to treat all the areas he had seen in the photos.</p>
 
-<p>[Okay~ get here safely! See you in a bit!]</p>
+<p>[Okay get here safely! See you in a bit!]</p>
 
 <p>Shiwoo bid farewell to Mom, telling her to come safely.</p>
 

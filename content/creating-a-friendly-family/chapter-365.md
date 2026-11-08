@@ -28,7 +28,7 @@ chapter = 365
 
 <p>He was thinking of fixing the smartphone camera, which was filming, somewhere so that it wouldn't interfere with the actions of the two siblings and two mothers and daughters.</p>
 
-<p>"Okay~! I'll do whatever Oppa wants~ Hehe~"</p>
+<p>"Okay! I'll do whatever Oppa wants Hehe"</p>
 
 <p>Seyoung quickly relaxes her expression and approaches Shiwoo, smiling as she hands over the smartphone, which is still recording.</p>
 
@@ -126,7 +126,7 @@ chapter = 365
 
 <p>Seonju Imo-nim's face, distorted with excitement/arousal.</p>
 
-<p>"Haeueueup~ Heueup Heuaeup!"</p>
+<p>"Haeueueup Heueup Heuaeup!"</p>
 
 <p>Moaning sounds responding to his younger sisters' caresses also flowed from Seonju Imo-nim.</p>
 

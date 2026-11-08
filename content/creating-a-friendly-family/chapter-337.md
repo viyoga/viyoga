@@ -126,7 +126,7 @@ chapter = 337
 
 <p>Seyoung, as if understanding Shiwoo's words as an order, immediately reached for the mini fan around her neck and turned it on.</p>
 
-<p>"Wiiiiiiing~"</p>
+<p>"Wiiiiiiing"</p>
 
 <p>The motor of the fan around her neck began to spin, creating an awkward harmony with the buzzing sound emanating from Seyoung's crotch.</p>
 
@@ -172,7 +172,7 @@ chapter = 337
 
 <p>Inside the basket, the loud buzzing and motor sounds continued to echo.</p>
 
-<p>"Haeuk! Haaang...haaeeut~"</p>
+<p>"Haeuk! Haaang...haaeeut"</p>
 
 <p>At some point, Seyoung was writhing and moaning, as if reaching climax.</p>
 

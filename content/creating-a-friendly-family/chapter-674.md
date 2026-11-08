@@ -158,13 +158,13 @@ chapter = 674
 
 <p>Her breasts, drenched in wet saliva and shining under the overhead light, felt much more erotic than when they were simply bare before.</p>
 
-<p>"Ha-uk, ha-at... haaa... haaaaaaa~~"</p>
+<p>"Ha-uk, ha-at... haaa... haaaaaaa"</p>
 
 <p>Sua began to tremble, enveloped in an unbearable emotion, letting out low, sobbing groans.</p>
 
 <p>Soon, her entire body shook like a quiet despair.</p>
 
-<p>"Hau-uu... haaaaa~ hau-um... hau~"</p>
+<p>"Hau-uu... haaaaa hau-um... hau"</p>
 
 <p>With a feeling as if something inside had snapped, her groans suddenly shifted into something like a beast's howling.</p>
 
@@ -194,7 +194,7 @@ chapter = 674
 
 <p>Through breaths that seemed forcibly suppressed, the spirit of the alcohol made its way down her throat.</p>
 
-<p>"Huaaaaaaaaa~"</p>
+<p>"Huaaaaaaaaa"</p>
 
 <p>Sua finally gasped for the breath she had been holding.</p>
 

@@ -36,7 +36,7 @@ chapter = 618
 
 <p>Shiwoo, as if startled, tensed his waist and tried to raise his upper body.</p>
 
-<p>「It's a joke, just a joke~! You're cute~ Our Shiwoo~ Ku-kuk...」</p>
+<p>「It's a joke, just a joke! You're cute Our Shiwoo Ku-kuk...」</p>
 
 <p>To prevent Shiwoo from getting up, Sejin Nuna pressed down on his chest as she spoke.</p>
 
@@ -68,7 +68,7 @@ chapter = 618
 
 <p>She released Shiwoo's testicles she had been sucking on in her mouth, and quietly observed Shiwoo's state for a moment.</p>
 
-<p>「Hu-uu-uu~! Hu-uu-uu~! 」</p>
+<p>「Hu-uu-uu! Hu-uu-uu! 」</p>
 
 <p>A moment later, Sejin Nuna pursed her lips slightly and blew air onto Shiwoo's penis shaft.</p>
 
@@ -116,7 +116,7 @@ chapter = 618
 
 <p>「Fortunately, it seems you and Mom are well-suited in temperament and compatibility, so you probably don't need to worry about that... but...」</p>
 
-<p>「If you want to reclaim what's already gone, you'd better get Mom or Seyoung pregnant quickly~? Hu-hut!」</p>
+<p>「If you want to reclaim what's already gone, you'd better get Mom or Seyoung pregnant quickly? Hu-hut!」</p>
 
 <p>Sejin Nuna spoke to Shiwoo with a tone and expression that made it impossible to tell if she was joking or serious.</p>
 
@@ -128,7 +128,7 @@ chapter = 618
 
 <p>Through the smile still playing on her lips, it was clear that she was acting.</p>
 
-<p>「You should have checked properly before coming, shouldn't you~! Though that's so like you, Shiwoo... Hu-hut!」</p>
+<p>「You should have checked properly before coming, shouldn't you! Though that's so like you, Shiwoo... Hu-hut!」</p>
 
 <p>Sejin Nuna said that, and as if she wouldn't say anything more, took the glans of Shiwoo's penis into her mouth.</p>
 
@@ -152,7 +152,7 @@ chapter = 618
 
 <p>Sejin Nuna extended her tongue downwards and licked the pre-cum smeared on Shiwoo's shaft.</p>
 
-<p>「Ha-um ha-am su-uu-up ha-um~」</p>
+<p>「Ha-um ha-am su-uu-up ha-um」</p>
 
 <p>Sejin Nuna's tongue and lips were licking Shiwoo's penis as if to devour it.</p>
 
@@ -208,7 +208,7 @@ chapter = 618
 
 <p>Sejin Nuna took the glans, which had been fully in her mouth, out.</p>
 
-<p>「Alright~! What! You want to cum on Nuna's face, right?」</p>
+<p>「Alright! What! You want to cum on Nuna's face, right?」</p>
 
 <p>Sejin Nuna brought the glans, which had just been in her mouth, in front of her own face.</p>
 

@@ -38,7 +38,7 @@ chapter = 409
 
 <p>Mom was speaking as if expressing dissatisfaction with Shiwoo's overflowing lust and perverse womanizing.</p>
 
-<p>"It's not just anyone, you know? I have to be aroused~! I only feel like doing it if they're pretty and have good bodies, like Mom or Gyuri Ajumma! It's not just anyone!"</p>
+<p>"It's not just anyone, you know? I have to be aroused! I only feel like doing it if they're pretty and have good bodies, like Mom or Gyuri Ajumma! It's not just anyone!"</p>
 
 <p>Shiwoo replied as if protesting Mom's words, which were slightly different from the truth.</p>
 
@@ -48,7 +48,7 @@ chapter = 409
 
 <p>Mom was talking while glancing at Shiwoo, who was stroking his penis while conversing with her.</p>
 
-<p>"That's something I don't know~ It's not like I can do everything I want, and first, she'd have to want it too, wouldn't she?"</p>
+<p>"That's something I don't know It's not like I can do everything I want, and first, she'd have to want it too, wouldn't she?"</p>
 
 <p>Shiwoo replied, feeling a strange sensation at Mom's talk of a daughter he had never even thought about.</p>
 
@@ -72,7 +72,7 @@ chapter = 409
 
 <p>Mom seemed to have decided to stop averting her eyes from Shiwoo's penis, and spoke while staring directly at his penis, which seemed to be throbbing towards climax.</p>
 
-<p>"If you're worried about it splashing on your clothes, then Mom, you can just take it in your mouth~ Here!"</p>
+<p>"If you're worried about it splashing on your clothes, then Mom, you can just take it in your mouth Here!"</p>
 
 <p>Shiwoo slightly thrust his pelvis forward, mimicking putting his penis into Mom's mouth, and spoke.</p>
 
@@ -84,7 +84,7 @@ chapter = 409
 
 <p>Shiwoo asked, shaking his penis up and down, as if he didn't understand Mom's absurd question and the flow of the conversation.</p>
 
-<p>"Ehyuuu~~~!"</p>
+<p>"Ehyuuu!"</p>
 
 <p>Seeing Shiwoo's penis constantly twitching and shaking, Mom's face flushed as she let out another deep sigh.</p>
 

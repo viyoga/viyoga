@@ -160,6 +160,6 @@ chapter = 807
 
 <p>"Se-hee and Mom just came to get normal initial tattoos, and after it was over, you just picked out a few tools and bought them..."</p>
 
-<p>"I'll be the main one talking with the owner after we go down... Mom, you match the pace by my side... got it~?"</p>
+<p>"I'll be the main one talking with the owner after we go down... Mom, you match the pace by my side... got it?"</p>
 
 <p>Si-woo continued his secret commands while breathing out breath that was hot enough to burn, his face deeply buried in the back of Mom's neck.</p>

@@ -36,7 +36,7 @@ chapter = 647
 
 <p>She pursed her lips tightly around the shaft and sucked up the semen clinging to Siwoo's penis.</p>
 
-<p>"Sluuuuuurp~"</p>
+<p>"Sluuuuuurp"</p>
 
 <p>The sound of the fluid stuck to the skin of the shaft being sucked up along with the meat was heavy and wet.</p>
 
@@ -148,7 +148,7 @@ chapter = 647
 
 <p>Seyeong brought her lips to Siwoo's ear and whispered.</p>
 
-<p>"There's CCTV here~ They were probably watching everything from above."</p>
+<p>"There's CCTV here They were probably watching everything from above."</p>
 
 <p>Like a playful joke, as if casually dropping a dark secret in a whisper...</p>
 
@@ -180,7 +180,7 @@ chapter = 647
 
 <p>Right then, a clerk arrived with the take-out ice cream right on time...</p>
 
-<p>"The family-sized strawberry ice cream for take-out is ready~"</p>
+<p>"The family-sized strawberry ice cream for take-out is ready"</p>
 
 <p>She called out lightly in a clear, energetic voice.</p>
 
@@ -190,9 +190,9 @@ chapter = 647
 
 <p>Flustered, Siwoo took the ice cream that had been placed on the table.</p>
 
-<p>"It's packed with a cold pack, so it'll be fine for about 3 hours, but please make sure to store it in the freezer within that time~"</p>
+<p>"It's packed with a cold pack, so it'll be fine for about 3 hours, but please make sure to store it in the freezer within that time"</p>
 
-<p>"I've also included wet wipes, spoons, napkins, and a small free gift~ Would you like to check it?"</p>
+<p>"I've also included wet wipes, spoons, napkins, and a small free gift Would you like to check it?"</p>
 
 <p>The clerk was speaking to Siwoo with a bright smile.</p>
 
@@ -220,7 +220,7 @@ chapter = 647
 
 <p>Siwoo answered without being able to meet her eyes.</p>
 
-<p>"Then, please enjoy~"</p>
+<p>"Then, please enjoy"</p>
 
 <p>The female clerk turned away quickly, leaving behind a fresh smile and a greeting.</p>
 

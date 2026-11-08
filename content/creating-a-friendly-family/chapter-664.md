@@ -54,7 +54,7 @@ chapter = 664
 
 <p>With her buttocks thrust back, Seyoung took Shiwoo's pounding. Then, just as suddenly, Shiwoo pulled his penis out again. Seyoung stood frozen, seemingly bewildered by the repeated entry and exit.</p>
 
-<p>"Now, go on~!"</p>
+<p>"Now, go on!"</p>
 
 <p>After withdrawing his penis, Shiwoo spoke to Seyoung in a tender voice, as if nothing had happened.</p>
 

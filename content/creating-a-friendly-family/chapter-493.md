@@ -4,7 +4,7 @@ weight = 493
 [extra]
 chapter = 493
 +++
-<p>,Alright~ Should I tell Seonmi to use honorifics with me when she's awake? Would that be okay?"</p>
+<p>,Alright Should I tell Seonmi to use honorifics with me when she's awake? Would that be okay?"</p>
 
 <p>Seyoung speaks, returning Mom's hand, which had fallen onto the bed mattress, to her own breasts that were beginning to swell.</p>
 
@@ -52,7 +52,7 @@ chapter = 493
 
 <p>She pulls her waist back and tries to prevent the area where she and Shiwoo are joined from being seen by Seyoung, tightening her lower thighs as much as possible.</p>
 
-<p>,Heee~ Huhuut~!"</p>
+<p>,Heee Huhuut!"</p>
 
 <p>However, an exaggerated exclamation and laughter, as if mockingly ridiculing Mom's efforts, are heard from Seyoung's mouth.</p>
 
@@ -120,7 +120,7 @@ chapter = 493
 
 <p>Hearing Shiwoo's words, Mom lets out a deep moaning sound again and shakes her body.</p>
 
-<p>,Alright~ Wait a moment, Shiwoo Oppa!"</p>
+<p>,Alright Wait a moment, Shiwoo Oppa!"</p>
 
 <p>Seyoung, with Mom's breast in her mouth, slightly shifts her posture, extends her arm, and finds Shiwoo's smartphone on the nightstand.</p>
 
@@ -132,13 +132,13 @@ chapter = 493
 
 <p>Seyoung confirms that Mom's face, wearing an eye patch and sucking on her breast, is captured on the smartphone screen, and presses the camera video recording button.</p>
 
-<p>,Ttiring~!"</p>
+<p>,Ttiring!"</p>
 
 <p>The video recording signal sound of Shiwoo's smartphone camera app rings, and recording begins.</p>
 
 <p>Seyoung wraps her arm around Mom's head with her arm that had been supporting Mom's head.</p>
 
-<p>,I'm filming now, Seonmi-ya! You have to suck on my breast~ Why did you stop?!"</p>
+<p>,I'm filming now, Seonmi-ya! You have to suck on my breast Why did you stop?!"</p>
 
 <p>Seyoung strokes Mom's cheek and speaks in a small voice that would not be picked up by the smartphone camera's microphone, as if whispering.</p>
 

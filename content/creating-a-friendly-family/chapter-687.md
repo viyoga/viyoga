@@ -12,7 +12,7 @@ chapter = 687
 
 <p>He added the command for her to bring her own collar as well...</p>
 
-<p>"Um... uum~!"</p>
+<p>"Um... uum!"</p>
 
 <p>With Shiwoo's penis filling her mouth, Seyoung blinked as if she understood, making muffled sounds.</p>
 
@@ -76,11 +76,11 @@ chapter = 687
 
 <p>Seyoung pulled her head back completely, releasing Shiwoo's penis from her mouth.</p>
 
-<p>"Hehe! Yu Yena Teacher negotiated separately with the sponsors~"</p>
+<p>"Hehe! Yu Yena Teacher negotiated separately with the sponsors"</p>
 
 <p>"By using the sponsors' secrets or weaknesses..."</p>
 
-<p>"Well~ it's Yu Yena Teacher's role to mediate within the established regulations at her discretion. Hehehe~ Our Aunt... isn't she quite reliable?"</p>
+<p>"Well it's Yu Yena Teacher's role to mediate within the established regulations at her discretion. Hehehe Our Aunt... isn't she quite reliable?"</p>
 
 <p>As if answering the complaints Shiwoo had muttered to himself, Seyoung began to reveal the story related to the sacrifice.</p>
 
@@ -88,9 +88,9 @@ chapter = 687
 
 <p>At that single title, Shiwoo felt a tingling sensation pierce through his waist.</p>
 
-<p>"Shiwoo Oppa can just choose whatever he wants to do... because if you think about it, there are plenty of ways to avoid it or means to turn it back~"</p>
+<p>"Shiwoo Oppa can just choose whatever he wants to do... because if you think about it, there are plenty of ways to avoid it or means to turn it back"</p>
 
-<p>"And since the sacrifice was one of the proposed conditions of the negotiation, it might even be possible to refuse? Though it feels like something really big would happen if you did that now~ Hehe~!"</p>
+<p>"And since the sacrifice was one of the proposed conditions of the negotiation, it might even be possible to refuse? Though it feels like something really big would happen if you did that now Hehe!"</p>
 
 <p>Seyoung spoke to Shiwoo with a mischievous smile.</p>
 
@@ -98,9 +98,9 @@ chapter = 687
 
 <p>Shiwoo's waist flinched as he grabbed Seyoung's head, snapping at her words.</p>
 
-<p>"Un-huh...! What Dad tried to do to Sejin Eonni... it seems Seonmi really, really, really didn't like it, though~ Heh~"</p>
+<p>"Un-huh...! What Dad tried to do to Sejin Eonni... it seems Seonmi really, really, really didn't like it, though Heh"</p>
 
-<p>"Even for me, if I thought I had to be like Sejin Eonni, I think it would be so, so, so hard... but well~ if the partner is Shiwoo Oppa, maybe it's okay~? Hehehe~"</p>
+<p>"Even for me, if I thought I had to be like Sejin Eonni, I think it would be so, so, so hard... but well if the partner is Shiwoo Oppa, maybe it's okay? Hehehe"</p>
 
 <p>Seyoung's face and expression were annoyingly bright.</p>
 
@@ -126,7 +126,7 @@ chapter = 687
 
 <p>Then they turned toward the courtyard where the sound came from.</p>
 
-<p>"Hehe~ Seonmi and Sehee Eonni must be back~ I'll go get the leashes to put on Mom and Eonni then~"</p>
+<p>"Hehe Seonmi and Sehee Eonni must be back I'll go get the leashes to put on Mom and Eonni then"</p>
 
 <p>Seyoung said as she pushed off Shiwoo's knees and stood up.</p>
 
@@ -194,7 +194,7 @@ chapter = 687
 
 <p>[I already knew from the sound of the gate! Didn't you make it louder than usual on purpose so we'd hear?]</p>
 
-<p>[I sent Seyoung up to the second floor to find something anyway, so I'm alone in the living room! If you're coming in, come in now~!]</p>
+<p>[I sent Seyoung up to the second floor to find something anyway, so I'm alone in the living room! If you're coming in, come in now!]</p>
 
 <p>Shiwoo smiled quietly, finding it cute how Mom was acting tough to hide her embarrassment.</p>
 
@@ -202,6 +202,6 @@ chapter = 687
 
 <p>Mom asked as if checking on Seonju Imo and Sua's situation as well.</p>
 
-<p>[Yeah~ Seonju and Sua are both in Sejin's room. They'll probably sleep there until morning.]</p>
+<p>[Yeah Seonju and Sua are both in Sejin's room. They'll probably sleep there until morning.]</p>
 
 <p>Shiwoo replied casually, tossing the text out as if it were no big deal.</p>

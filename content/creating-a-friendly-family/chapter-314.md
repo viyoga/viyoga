@@ -4,7 +4,7 @@ weight = 314
 [extra]
 chapter = 314
 +++
-<p>,Okay, then we can just head straight to the subway station like this~,</p>
+<p>,Okay, then we can just head straight to the subway station like this,</p>
 
 <p>Shiwoo said to his younger sisters, who seemed to be calming down, after roughly fixing their clothes.</p>
 
@@ -20,7 +20,7 @@ chapter = 314
 
 <p>As Shiwoo's palms touched between their buttocks again, he could feel their bodies tense up.</p>
 
-<p>,Yeah, let's go... Shiwoo Oppa~,</p>
+<p>,Yeah, let's go... Shiwoo Oppa,</p>
 
 <p>As if they had made a promise, the sisters immediately stepped into Shiwoo's embrace, leaning against his body as they answered.</p>
 
@@ -124,7 +124,7 @@ chapter = 314
 
 <p>Shiwoo was talking about putting collars on his sisters as if it were a natural thing, and calling Seonju Imo and Sehee Nuna's names carelessly, as if they were the names of dogs he was raising.</p>
 
-<p>,Yeah~ I think that'll work~~,</p>
+<p>,Yeah I think that'll work,</p>
 
 <p>Seyoung quickly accepted Shiwoo's words and answered.</p>
 
@@ -138,7 +138,7 @@ chapter = 314
 
 <p>Now, Shiwoo was almost chattering away like a chatterbox in front of his sisters.</p>
 
-<p>,If we're going to buy that, I think we should go today, take a look, and tell them to deliver it to the house~! We have some food left over from what we brought from Sua's house, so we can order it online next time~! Hehe,</p>
+<p>,If we're going to buy that, I think we should go today, take a look, and tell them to deliver it to the house! We have some food left over from what we brought from Sua's house, so we can order it online next time! Hehe,</p>
 
 <p>Seyoung was answering each of Shiwoo's words in a kind tone.</p>
 
@@ -146,7 +146,7 @@ chapter = 314
 
 <p>Shiwoo asked Seyoung lightly, as if questioning her.</p>
 
-<p>,Uhm... We also need a potty pad and a potty tray! We need food bowls and water bowls, and a brush and nail clippers too! I'm also going to buy a dog carrier bag that I can wear in front. There's quite a lot to buy besides food and a cage~! ,</p>
+<p>,Uhm... We also need a potty pad and a potty tray! We need food bowls and water bowls, and a brush and nail clippers too! I'm also going to buy a dog carrier bag that I can wear in front. There's quite a lot to buy besides food and a cage! ,</p>
 
 <p>Seyoung answered as if she had all the things to buy already decided in her head.</p>
 
@@ -154,16 +154,16 @@ chapter = 314
 
 <p>In an instant, a dizzying rush of pleasure surged up like a reverse flow, choking Shiwoo.</p>
 
-<p>,We can use the potty tray and pads together... Would just four food bowls and water bowls be enough? Ah~ If we include Seonju's house, do we need to buy two potty trays? Then we need six bowls?,</p>
+<p>,We can use the potty tray and pads together... Would just four food bowls and water bowls be enough? Ah If we include Seonju's house, do we need to buy two potty trays? Then we need six bowls?,</p>
 
 <p>Shiwoo was speaking as if he was determined and counting the number of tools needed for the play he had planned.</p>
 
-<p>,One potty tray is enough~ If it's urgent, we can have them use the house bathroom! Seonju's house has a tray and pads too, so there's no need to buy two~! ,</p>
+<p>,One potty tray is enough If it's urgent, we can have them use the house bathroom! Seonju's house has a tray and pads too, so there's no need to buy two! ,</p>
 
 <p>Seyoung, as if she understood Shiwoo's words, was speaking as if adjusting the number of tools needed for the play.</p>
 
 <p>And following Shiwoo, she was omitting the title Imo when referring to Seonju Imo...</p>
 
-<p>,Ah, is that so? Then we can just buy the potty tray and pads for our house~,</p>
+<p>,Ah, is that so? Then we can just buy the potty tray and pads for our house,</p>
 
 <p>With a sensation as if it wasn't real, Shiwoo continued to converse with Seyoung, as if consulting with her about the lewd play with his family that he would be doing in the future.</p>

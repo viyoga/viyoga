@@ -30,7 +30,7 @@ chapter = 550
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo Oppa! I have something I'm curious about regarding Oppa~"</p>
+<p>"Shiwoo Oppa! I have something I'm curious about regarding Oppa"</p>
 
 <p>As she is about to finish her meal, Seyoung calls out to Shiwoo, saying that she has something she is curious about, as if testing the waters.</p>
 
@@ -94,7 +94,7 @@ chapter = 550
 
 <p>If they continue to have conversations on such topics, they will inevitably touch on the master-slave relationship or marital relationship she has with Shiwoo, and the sexual acts related to them.</p>
 
-<p>"Sehee Unni and I were both listening to Mom calling Shiwoo Oppa 'Honey' all night from the next room, you know~"</p>
+<p>"Sehee Unni and I were both listening to Mom calling Shiwoo Oppa 'Honey' all night from the next room, you know"</p>
 
 <p>"At that rate, Shiwoo Oppa won't think that he's taking Dad's place when he's having a marital relationship with Mom, right?"</p>
 
@@ -126,7 +126,7 @@ chapter = 550
 
 <p>Mom was making a confused expression as if her thoughts had stopped for a moment.</p>
 
-<p>"That's right~? What does returning to being Mom in the morning have to do with acting like you haven't had sex with Shiwoo? We all know already... Seriously, it's weird!"</p>
+<p>"That's right? What does returning to being Mom in the morning have to do with acting like you haven't had sex with Shiwoo? We all know already... Seriously, it's weird!"</p>
 
 <p>Sehee Nuna is adding to the conversation as if helping Seyoung, after listening to Shiwoo's reaction and Seyoung's story.</p>
 

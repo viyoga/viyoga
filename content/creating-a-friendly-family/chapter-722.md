@@ -22,7 +22,7 @@ chapter = 722
 
 <p>Shiwoo walked slower than usual to the academy, trying to calm his erect penis. When Shiwoo arrived at the academy building, the bell was just ringing to signal the end of the second period. Shiwoo used the timing of the break, when no teacher was present, to enter the classroom. During the break, the children were gathered in small groups, creating a floating buzz within the classroom.</p>
 
-<p>「Yo~ You're here? Brother?」</p>
+<p>「Yo You're here? Brother?」</p>
 
 <p>Cheoljin, who had been diligently attending the academy and chatting with friends, caught sight of Shiwoo and offered a greeting in an exaggerated tone mixed with a dialect.</p>
 
@@ -30,7 +30,7 @@ chapter = 722
 
 <p>Shiwoo replied to Cheoljin with a slightly bitter expression.</p>
 
-<p>「If we're at the point where we share his woman's breasts and even unspeakable secrets, then that's what brothers are~ What else would a brother be?」</p>
+<p>「If we're at the point where we share his woman's breasts and even unspeakable secrets, then that's what brothers are What else would a brother be?」</p>
 
 <p>Cheoljin spoke to Shiwoo boastfully, in a theatrical tone.</p>
 
@@ -38,7 +38,7 @@ chapter = 722
 
 <p>Shiwoo's expression hardened at Cheoljin's words, unable to tell if it was a joke or the truth.</p>
 
-<p>「Isn't it about time we settled the deal between us? If you're too stingy to give up Shinbi, I'm fine with another girl~ Coincidentally, there are plenty of women looking for you desperately here and there today, too.」</p>
+<p>「Isn't it about time we settled the deal between us? If you're too stingy to give up Shinbi, I'm fine with another girl Coincidentally, there are plenty of women looking for you desperately here and there today, too.」</p>
 
 <p>Cheoljin continued to tease Shiwoo with a sly expression and a playful tone.</p>
 
@@ -46,7 +46,7 @@ chapter = 722
 
 <p>Shiwoo spoke as if taking offense, conscious of the gazes of the friends around them. The surrounding girls sent looks of contempt after hearing the conversation between Shiwoo and Cheoljin...</p>
 
-<p>「 Puhit! It's a joke, a joke. I just said it~ No need to get all worked up...」</p>
+<p>「 Puhit! It's a joke, a joke. I just said it No need to get all worked up...」</p>
 
 <p>Seeing Shiwoo's stern reaction, Cheoljin burst into a playful laugh, satisfied, and smoothed over his joke.</p>
 
@@ -54,7 +54,7 @@ chapter = 722
 
 <p>Shiwoo approached Cheoljin and spoke seriously in a low voice.</p>
 
-<p>「Alright, alright~ I'll stop... Puhaha ~ Well~ the part about women looking for you since this morning wasn't a joke, though~」</p>
+<p>「Alright, alright I'll stop... Puhaha Well the part about women looking for you since this morning wasn't a joke, though」</p>
 
 <p>Cheoljin continued to speak teasingly, his true intentions unreadable.</p>
 
@@ -70,7 +70,7 @@ chapter = 722
 
 <p>Shiwoo asked, glancing at the clock on the classroom wall upon hearing that the teacher was looking for him.</p>
 
-<p>「How should I know? It's not like there's only one or two things I can guess! Ah~ and Seulgi came by looking for you too~ Said she had something to talk about for a moment.」</p>
+<p>「How should I know? It's not like there's only one or two things I can guess! Ah and Seulgi came by looking for you too Said she had something to talk about for a moment.」</p>
 
 <p>Cheoljin added that Seulgi had also been looking for Shiwoo.</p>
 
@@ -82,11 +82,11 @@ chapter = 722
 
 <p>Cheoljin spoke to Shiwoo with a smirk and a meaningful look in his eyes. Shiwoo stared silently at Cheoljin with an expressionless, stern face.</p>
 
-<p>「Go see Seulgi later, too~ And let me know what she says~」</p>
+<p>「Go see Seulgi later, too And let me know what she says」</p>
 
 <p>Cheoljin tried to keep joking but, seeing Shiwoo's expression, he shrugged as if the mood was ruined.</p>
 
-<p>「Alright, I'll... go find her later~」</p>
+<p>「Alright, I'll... go find her later」</p>
 
 <p>Shiwoo answered evasively as he turned toward his desk. Was Seulgi trying to talk to him about what happened at the cafe yesterday? Now that he had grasped the secrets of the Magic Academy and the gatherings to some extent, the thought of seeing her face made him strangely tense, his breath trembling slightly.</p>
 
@@ -94,7 +94,7 @@ chapter = 722
 
 <p>Cheoljin asked Shiwoo, who was putting his bag down at his desk. There was still some time before the next class started. Shiwoo rummaged through his bag to check if there was anything he couldn't afford to lose. Since there was nothing other than the perfume he had brought, Shiwoo zipped the bag and hung it on the hook beside the desk.</p>
 
-<p>「Yeah, I should go~ I don't know what it's about, but if I'm going to get a lecture anyway, it's better to get it over with during the break.」</p>
+<p>「Yeah, I should go I don't know what it's about, but if I'm going to get a lecture anyway, it's better to get it over with during the break.」</p>
 
 <p>Shiwoo answered Cheoljin lightly, took a breath to compose himself, and headed straight for the gyomushil .</p>
 

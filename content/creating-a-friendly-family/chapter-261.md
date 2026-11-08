@@ -6,7 +6,7 @@ chapter = 261
 +++
 <p>Mom, her eyes covered by an eye mask and wearing a dog collar. Mom's body was thoroughly drenched with saliva, sweat, and vaginal fluid.</p>
 
-<p>"I'll be right back~"</p>
+<p>"I'll be right back"</p>
 
 <p>Shiwoo says, looking down at Mom, who was lying naked and alone on the bed.</p>
 
@@ -54,14 +54,14 @@ chapter = 261
 
 <p>Shiwoo's penis was pressed against Seyoung's body, extending from her crack, through her panties, up to her belly and solar plexus area, as if piercing through. A current of ecstatic pleasure seemed to spread from his penis throughout Shiwoo's entire body.</p>
 
-<p>"Oh, right~ I have something to apologize to Seyoung about~"</p>
+<p>"Oh, right I have something to apologize to Seyoung about"</p>
 
 <p>Shiwoo said to Seyoung as if remembering, while climbing the stairs to Sehee 누나's room.</p>
 
-<p>"You know that perfume Seyoung gave me? I took it out yesterday and accidentally broke it~ Sorry~!"</p>
+<p>"You know that perfume Seyoung gave me? I took it out yesterday and accidentally broke it Sorry!"</p>
 
 <p>His cock pillar pressed against Seyoung's wet, sensitive inner flesh inside her panties, in an embrace. Although he couldn't tell if she was still asleep or awake, Shiwoo was talking as usual, as if to an awake Seyoung.</p>
 
-<p>"Ah~ Tomorrow, I wonder if I can have breakfast made by Seyoung after a long time~? Do you like aquariums, Seyoung? Sehee and I were supposed to go but couldn't, so I hope I can go with Seyoung and Sua tomorrow~"</p>
+<p>"Ah Tomorrow, I wonder if I can have breakfast made by Seyoung after a long time? Do you like aquariums, Seyoung? Sehee and I were supposed to go but couldn't, so I hope I can go with Seyoung and Sua tomorrow"</p>
 
 <p>Shiwoo kept changing topics, rambling out sounds that were neither monologue nor conversation. Throughout his everyday chatter with Seyoung while climbing the stairs, Shiwoo's cock was wildly gushing pre-cum and twitching.</p>

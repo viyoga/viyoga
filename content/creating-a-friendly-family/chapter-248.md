@@ -12,7 +12,7 @@ chapter = 248
 
 <p>'I'm going to be inside your body all night tonight! You can't faint today! Understood?'</p>
 
-<p>'If you faint again today, Mom, I might just force it into Seyoung in the meantime~'</p>
+<p>'If you faint again today, Mom, I might just force it into Seyoung in the meantime'</p>
 
 <p>Not long after Shiwoo had established the rules of their lewd game with Mom,</p>
 
@@ -24,7 +24,7 @@ chapter = 248
 
 <p>Mom's angry emoticon.</p>
 
-<p>'Hehehehehe~'</p>
+<p>'Hehehehehe'</p>
 
 <p>An awkward laugh sent to Mom.</p>
 
@@ -42,11 +42,11 @@ chapter = 248
 
 <p>The numbers next to the picture uploaded to the chat window had all disappeared.</p>
 
-<p>'Oh my~ Unnie, you're so lucky~~ kekeke Thanks to Master-nim, our Unnie is going to have a luxurious night all night long~~~?'</p>
+<p>'Oh my Unnie, you're so lucky kekeke Thanks to Master-nim, our Unnie is going to have a luxurious night all night long?'</p>
 
 <p>Seonju Imo watched the situation unfold, then, as if to egg them on, she joined Shiwoo in speaking obscenely to Mom.</p>
 
-<p>'Aren't you going to have another sibling for Seyoung soon~? This is why you really need to have a son, you know~'</p>
+<p>'Aren't you going to have another sibling for Seyoung soon? This is why you really need to have a son, you know'</p>
 
 <p>Seonju Imo continued to tease and provoke Mom, as if to further stimulate her sense of shame.</p>
 
@@ -68,7 +68,7 @@ chapter = 248
 
 <p>Mom spoke to Shiwoo abruptly, as if feeling unfairly treated.</p>
 
-<p>'What~~? Hehehe~'</p>
+<p>'What? Hehehe'</p>
 
 <p>Shiwoo asked playfully, feigning ignorance of what she was talking about.</p>
 
@@ -78,23 +78,23 @@ chapter = 248
 
 <p>And then, as if to continue the conversation, the picture and message sent to the group chat made Mom react with considerable embarrassment and resentment.</p>
 
-<p>'I was going to set a time and clearly distinguish them so Mom wouldn't have a hard time~! But Mom was the one who proposed those conditions first, wasn't she~? I did everything Mom wanted, so why?! Hehehe~'</p>
+<p>'I was going to set a time and clearly distinguish them so Mom wouldn't have a hard time! But Mom was the one who proposed those conditions first, wasn't she? I did everything Mom wanted, so why?! Hehehe'</p>
 
 <p>Shiwoo spoke slyly, as if to toy with Mom.</p>
 
-<p>'Honestly~! What do you mean you did everything Mom wanted? What son sends pictures like that to his Mom!?'</p>
+<p>'Honestly! What do you mean you did everything Mom wanted? What son sends pictures like that to his Mom!?'</p>
 
 <p>Mom retorted indignantly, as if scolding Shiwoo.</p>
 
-<p>'You've seen it before, so why the sudden fuss? And anyway, I'm definitely treating you like Mom here~! I'm not swearing or calling you Seonmi~ hehehe'</p>
+<p>'You've seen it before, so why the sudden fuss? And anyway, I'm definitely treating you like Mom here! I'm not swearing or calling you Seonmi hehehe'</p>
 
 <p>Shiwoo emphasized that the rules they had just set between Mom and him were still being followed, and spoke as if teasing her.</p>
 
-<p>'Ugh~! Seriously~! I don't know what I'm doing, texting with my son like this~!'</p>
+<p>'Ugh! Seriously! I don't know what I'm doing, texting with my son like this!'</p>
 
 <p>Mom spoke as if complaining to Shiwoo, as if she had come to her senses.</p>
 
-<p>'Rules are rules~! Mom has to follow them too, right~? Hehehe~'</p>
+<p>'Rules are rules! Mom has to follow them too, right? Hehehe'</p>
 
 <p>Shiwoo demanded that Mom also properly follow the rules they had set together.</p>
 
@@ -120,25 +120,25 @@ chapter = 248
 
 <p>Mom was formally using the honorific 'Master-nim' and respectful speech, which was no different from making a public declaration of obedience.</p>
 
-<p>'Oh my~~ Unnie~! Am I really going to see another nephew now?'</p>
+<p>'Oh my Unnie! Am I really going to see another nephew now?'</p>
 
 <p>Seonju Imo was the first to respond with lewd words, as if in agreement.</p>
 
 <p>Sehee Nuna seemed to have checked the messages in the chat room, but perhaps not yet accustomed to this atmosphere, she remained silent.</p>
 
-<p>'Ugh~! Seonju, are you going to say strange things? I'm using contraception! It won't go that far!'</p>
+<p>'Ugh! Seonju, are you going to say strange things? I'm using contraception! It won't go that far!'</p>
 
 <p>Mom retorted indignantly, speaking to Seonju Imo in the group chat.</p>
 
-<p>'It'll be soon enough if you keep going like this~ Why don't you stop pretending to be innocent and just act like yourself, Unnie~?'</p>
+<p>'It'll be soon enough if you keep going like this Why don't you stop pretending to be innocent and just act like yourself, Unnie?'</p>
 
 <p>Seonju Imo spoke, teasing and provoking Mom.</p>
 
-<p>'What are you talking about again~! Seonju, I told you not to say absurd things!'</p>
+<p>'What are you talking about again! Seonju, I told you not to say absurd things!'</p>
 
 <p>Mom, as usual, was easily provoked and excited by Seonju Imo's taunts.</p>
 
-<p>'Why~? Master-nim would like that too~ You taught me all this, Unnie, didn't you~? Kekekekeke~'</p>
+<p>'Why? Master-nim would like that too You taught me all this, Unnie, didn't you? Kekekekeke'</p>
 
 <p>Seonju Imo added words that seemed to be aimed at Shiwoo.</p>
 
@@ -146,7 +146,7 @@ chapter = 248
 
 <p>Mom spoke as if she was truly flustered and troubled by Seonju Imo.</p>
 
-<p>'Unnie, you're so funny~~~! Doing everything and still saying things like that~~~ Isn't that right, Sehee-ya? Kekeke~'</p>
+<p>'Unnie, you're so funny! Doing everything and still saying things like that Isn't that right, Sehee-ya? Kekeke'</p>
 
 <p>Seonju Imo's dialogue continued, as if mocking Mom and dragging Sehee Nuna into it.</p>
 
@@ -154,7 +154,7 @@ chapter = 248
 
 <p>As if to put an end to Mom and Seonju Imo's chaotic conversation, Shiwoo cursed and commanded all three women in the group chat.</p>
 
-<p>'Hee-ing~ Just a moment, Master-nim~'</p>
+<p>'Hee-ing Just a moment, Master-nim'</p>
 
 <p>Seonju Imo was the first to reply and send a picture.</p>
 

@@ -8,7 +8,7 @@ chapter = 490
 
 <p>Shiwoo confessed the truth, explaining the changed relationship and situation with Mom to Seyoung, as if going through each point one by one.</p>
 
-<p>"Yeah, you did~ You said it was similar to me sucking Mom's breasts~ Awoom~!"</p>
+<p>"Yeah, you did You said it was similar to me sucking Mom's breasts Awoom!"</p>
 
 <p>Seyoung replied brightly to Shiwoo's words, and immediately bit Mom's breast largely with her lips.</p>
 
@@ -30,7 +30,7 @@ chapter = 490
 
 <p>Mom's hand placed on Seyoung's breast, and Mom's pussy hole surrounding Shiwoo's penis, trembled as if resonating with Seyoung's vibration.</p>
 
-<p>"Ah~ Only when putting Seyoung to sleep at night, or when we're lying down like this! If we keep doing that even during the day, we won't be able to live our lives, right? Someone might come looking for us..."</p>
+<p>"Ah Only when putting Seyoung to sleep at night, or when we're lying down like this! If we keep doing that even during the day, we won't be able to live our lives, right? Someone might come looking for us..."</p>
 
 <p>Shiwoo added explanations to help Seyoung understand, and spoke step by step.</p>
 
@@ -38,7 +38,7 @@ chapter = 490
 
 <p>Seyoung put Mom's breast in her mouth again and mumbled to herself.</p>
 
-<p>"Yeah~ And besides Mom using respectful speech to me, there's something else I need to tell Seyoung..."</p>
+<p>"Yeah And besides Mom using respectful speech to me, there's something else I need to tell Seyoung..."</p>
 
 <p>Shiwoo gently moved his waist and continued to speak, in order to explain about making a marriage contract with Mom.</p>
 
@@ -46,19 +46,19 @@ chapter = 490
 
 <p>Seyoung looked up at Shiwoo with sparkling eyes and an expression full of anticipation, as if she was ready to react immediately to the new information.</p>
 
-<p>"I was going to wait for Seyoung to come on time, and tell you that first~ But because you came so suddenly, I missed the timing~"</p>
+<p>"I was going to wait for Seyoung to come on time, and tell you that first But because you came so suddenly, I missed the timing"</p>
 
 <p>Shiwoo took a moment to catch his breath and continued to explain to Seyoung as if he was holding back.</p>
 
-<p>"Should I have come a little later~? But I wanted to see Mom quickly~ Hiiing~"</p>
+<p>"Should I have come a little later? But I wanted to see Mom quickly Hiiing"</p>
 
 <p>Seyoung buried her face in Mom's breast and spoke as if complaining.</p>
 
-<p>"I know~ I know~ That's why I'm trying to tell you now~"</p>
+<p>"I know I know That's why I'm trying to tell you now"</p>
 
 <p>Shiwoo was laying down an atmosphere of confession, not a confession, to Seyoung, as if trying to manage and organize the situations that were happening now.</p>
 
-<p>"Yeah, then tell me quickly~ What are you talking about?"</p>
+<p>"Yeah, then tell me quickly What are you talking about?"</p>
 
 <p>Seyoung looked up at Shiwoo as if her curiosity had been piqued, and spoke with a cute, pleading tone and expression.</p>
 
@@ -82,13 +82,13 @@ chapter = 490
 
 <p>"We're already married. I can't report it to the district office or anything like that..."</p>
 
-<p>"To be honest, I even had her sign a marriage contract before Seyoung came~"</p>
+<p>"To be honest, I even had her sign a marriage contract before Seyoung came"</p>
 
 <p>"The signed marriage contract is placed on the nightstand, do you want to read it once?"</p>
 
 <p>Shiwoo pointed to the marriage contract on the nightstand with a calm expression, as if trying to confirm the truth.</p>
 
-<p>"Yeah~ I want to read it!"</p>
+<p>"Yeah I want to read it!"</p>
 
 <p>Seyoung turned her body towards the nightstand and stretched out her arm as it was, picking up the marriage contract placed on the nightstand.</p>
 
@@ -156,23 +156,23 @@ chapter = 490
 
 <p>Mom added a long excuse as if she was very flustered by Seyoung's question and the following words, asking if she had really married Oppa.</p>
 
-<p>"I was going to marry Mom first~ Hiiing~ I got robbed by Oppa~"</p>
+<p>"I was going to marry Mom first Hiiing I got robbed by Oppa"</p>
 
 <p>Seyoung hugged Mom's body tightly and spoke as if she was regretful and disappointed.</p>
 
 <p>Mom's face, covered with an eye patch, was already dyed red, and that red energy was spreading to her neck and below her collarbone.</p>
 
-<p>"I want to marry Seonmi too~! I'll just call her name like Oppa does~ Hehe~"</p>
+<p>"I want to marry Seonmi too! I'll just call her name like Oppa does Hehe"</p>
 
 <p>Seyoung hugged Mom tightly and rubbed her face wildly against her breasts as if acting spoiled.</p>
 
 <p>Seyoung just called Mom by her name and spoke in a sweet voice.</p>
 
-<p>"I'm already married to her, so you can't~ Instead, I'll let Seyoung and Mom have an affair~!"</p>
+<p>"I'm already married to her, so you can't Instead, I'll let Seyoung and Mom have an affair!"</p>
 
 <p>Shiwoo was making a suggestive joke to Seyoung like a comedy routine.</p>
 
-<p>"You'll let me have an affair? Then I'll have an affair with Mom right now~ Hehe~! Chuu-oop Chuu-oop!"</p>
+<p>"You'll let me have an affair? Then I'll have an affair with Mom right now Hehe! Chuu-oop Chuu-oop!"</p>
 
 <p>Seyoung lightly answered, accepting Shiwoo's joke, and immediately brought her lips to Mom's breast and sucked it violently.</p>
 

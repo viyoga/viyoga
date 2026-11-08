@@ -152,7 +152,7 @@ chapter = 144
 
 <p>Shiwoo sends a text message to Seonju Imo.</p>
 
-<p>'Yeah~ Honey! I'm leaving now after finishing my date with Sehee. I'm going to stop by the restaurant and buy some chicken porridge and then go in now~'</p>
+<p>'Yeah Honey! I'm leaving now after finishing my date with Sehee. I'm going to stop by the restaurant and buy some chicken porridge and then go in now'</p>
 
 <p>Seonju Imo's answer comes back right away.</p>
 
@@ -160,7 +160,7 @@ chapter = 144
 
 <p>Shiwoo confirms about the morning-after pill.</p>
 
-<p>'Yeah~ It's resolved well. You don't have to worry now!'</p>
+<p>'Yeah It's resolved well. You don't have to worry now!'</p>
 
 <p>Seonju Imo answers Shiwoo's question, mixing informal and formal speech.</p>
 
@@ -174,7 +174,7 @@ chapter = 144
 
 <p>Shiwoo sends a text message to Seonju Imo as if asking her.</p>
 
-<p>'Okay~ Honey. I'll take good care of Sehee~ Don't worry!'</p>
+<p>'Okay Honey. I'll take good care of Sehee Don't worry!'</p>
 
 <p>Seonju Imo answers as if responding to Shiwoo's request.</p>
 
@@ -186,25 +186,25 @@ chapter = 144
 
 <p>Shiwoo reacts as if flustered.</p>
 
-<p>'Before, they would bicker all day long if you left them alone~ I'm getting a little jealous~?'</p>
+<p>'Before, they would bicker all day long if you left them alone I'm getting a little jealous?'</p>
 
 <p>Seonju Imo's text messages keep coming in playfully.</p>
 
-<p>'No, it's not that! I'm just sorry because I overworked Sehee all night last night~! How can you be jealous there?!'</p>
+<p>'No, it's not that! I'm just sorry because I overworked Sehee all night last night! How can you be jealous there?!'</p>
 
 <p>Shiwoo answered, explaining as if he was a little nervous about Seonju Imo's seemingly sulky reaction.</p>
 
 <p>Seonju Imo's text message comes back after a short pause.</p>
 
-<p>'Kkeuk kkeuk kkeuk kkeuk~ Ah~ That's funny! I was just joking~ Why would I be jealous of Sehee, who is my sister's son?! Kkeuk kkeuk kkeuk kkeuk'</p>
+<p>'Kkeuk kkeuk kkeuk kkeuk Ah That's funny! I was just joking Why would I be jealous of Sehee, who is my sister's son?! Kkeuk kkeuk kkeuk kkeuk'</p>
 
 <p>Seonju Imo's playful text message is sent with a laughter mark.</p>
 
-<p>'Ah, damn~ What is it?!'</p>
+<p>'Ah, damn What is it?!'</p>
 
 <p>Shiwoo feels a little upset because he feels like he's being teased by Imo.</p>
 
-<p>'Sehee is my niece before she's your Lover kkeuk kkeuk I'll take care of her even if you don't tell me to~ Did you really think I would be jealous of Sehee?'</p>
+<p>'Sehee is my niece before she's your Lover kkeuk kkeuk I'll take care of her even if you don't tell me to Did you really think I would be jealous of Sehee?'</p>
 
 <p>Seonju Imo's tone, while mixing polite speech with Shiwoo, is subtly treating him like a child.</p>
 
@@ -212,7 +212,7 @@ chapter = 144
 
 <p>Shiwoo gets angry.</p>
 
-<p>'Hehehit~ Okay~ Honey, I won't joke anymore~'</p>
+<p>'Hehehit Okay Honey, I won't joke anymore'</p>
 
 <p>Seonju Imo answers playfully, changing her Address.</p>
 
@@ -222,7 +222,7 @@ chapter = 144
 
 <p>'Okay, then come carefully with Sehee!'</p>
 
-<p>'Yes, see you later~'</p>
+<p>'Yes, see you later'</p>
 
 <p>Shiwoo ends the text message with Seonju Imo, exchanging such trivial jokes.</p>
 
@@ -236,7 +236,7 @@ chapter = 144
 
 <p>Shiwoo's text message, sent without omitting the title Imo, arrives at Seonju Imo.</p>
 
-<p>'Of course~ Shiwoo, is there anything you're curious about Imo?'</p>
+<p>'Of course Shiwoo, is there anything you're curious about Imo?'</p>
 
 <p>Seonju Imo's text message comes back without any playfulness, sensing Shiwoo's cautious atmosphere.</p>
 

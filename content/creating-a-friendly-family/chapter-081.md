@@ -4,7 +4,7 @@ weight = 81
 [extra]
 chapter = 81
 +++
-<p>「Wow~ it really was good that I came. It was amazing, wasn't it? Did you see the crystal ball? It looked like the latest equipment, didn't it?」</p>
+<p>「Wow it really was good that I came. It was amazing, wasn't it? Did you see the crystal ball? It looked like the latest equipment, didn't it?」</p>
 
 <p>After finishing the academy visit, Cheoljin said on the way back home, outside the building.</p>
 
@@ -12,7 +12,7 @@ chapter = 81
 
 <p>Shiwoo asked Cheoljin, as if curious.</p>
 
-<p>「Ah~ I was really surprised. It seemed like she already knew everything I was going to ask.」</p>
+<p>「Ah I was really surprised. It seemed like she already knew everything I was going to ask.」</p>
 
 <p>「What did you ask?」</p>
 
@@ -26,11 +26,11 @@ chapter = 81
 
 <p>Shiwoo said to Cheoljin, as if truly surprised.</p>
 
-<p>「You wouldn't know~ normally...」</p>
+<p>「You wouldn't know normally...」</p>
 
 <p>Cheoljin replied, agreeing with him.</p>
 
-<p>「Extrasensory perception, you say... Haah~」</p>
+<p>「Extrasensory perception, you say... Haah」</p>
 
 <p>Shiwoo said, exhaling deeply as if all his energy was drained.</p>
 
@@ -48,7 +48,7 @@ chapter = 81
 
 <p>「Huh? Cheoljin, weren't you just saying it was amazing a moment ago?」</p>
 
-<p>「W-wait a minute~ Are you... are you saying that now, thinking that's real extrasensory perception?」</p>
+<p>「W-wait a minute Are you... are you saying that now, thinking that's real extrasensory perception?」</p>
 
 <p>Cheoljin said, as if dumbfounded.</p>
 
@@ -58,7 +58,7 @@ chapter = 81
 
 <p>Cheoljin stared at Shiwoo for a while, as if dumbfounded, then soon began to laugh loudly.</p>
 
-<p>「Puhaha~Puhahaha~」</p>
+<p>「PuhahaPuhahaha」</p>
 
 <p>Cheoljin's laughter grew louder and louder.</p>
 
@@ -66,7 +66,7 @@ chapter = 81
 
 <p>Shiwoo snapped, as if annoyed by Cheoljin's ridicule.</p>
 
-<p>「Sorry, sorry... but~ kekek, did you really think it was extrasensory perception? There's no way something like that is real~?!」</p>
+<p>「Sorry, sorry... but kekek, did you really think it was extrasensory perception? There's no way something like that is real?!」</p>
 
 <p>Cheoljin talked to Shiwoo, barely suppressing his laughter.</p>
 
@@ -78,7 +78,7 @@ chapter = 81
 
 <p>「What?」</p>
 
-<p>「Kekekek, oh my stomach~ kekek~ Magic starts even before you get on stage! They probably got information about us from Seyoung and Sua beforehand~ and even assigned them the role of hyping things up~ Didn't you see them sticking close and guiding us like assistants?」</p>
+<p>「Kekekek, oh my stomach kekek Magic starts even before you get on stage! They probably got information about us from Seyoung and Sua beforehand and even assigned them the role of hyping things up Didn't you see them sticking close and guiding us like assistants?」</p>
 
 <p>Cheoljin was explaining to Shiwoo, suppressing his laughter internally.</p>
 
@@ -88,7 +88,7 @@ chapter = 81
 
 <p>Shiwoo spoke, stammering as if he couldn't believe it.</p>
 
-<p>「Even so, how could I not be surprised to see that they had even investigated me, who decided to go suddenly? That's what's amazing~」</p>
+<p>「Even so, how could I not be surprised to see that they had even investigated me, who decided to go suddenly? That's what's amazing」</p>
 
 <p>Cheoljin continued to explain to Shiwoo why he was surprised.</p>
 
@@ -96,7 +96,7 @@ chapter = 81
 
 <p>Shiwoo spoke as if it was unfair that he seemed to be the only one being fooled.</p>
 
-<p>「Well, it's fun to talk that way~」</p>
+<p>「Well, it's fun to talk that way」</p>
 
 <p>It was like when he secretly took pictures of Sehee Nuna before, but once again, Cheoljin explained his own incomprehensible behavior pattern too simply for Shiwoo.</p>
 
@@ -104,11 +104,11 @@ chapter = 81
 
 <p>Shiwoo resisted to the end, as if he couldn't believe Cheoljin's words.</p>
 
-<p>「Ah~ so that's what real skill is! Fortune-telling is originally like that~ They probably gathered all the information they could from people around them beforehand, right? And think about it carefully~ Isn't the 'only you would know' part something you could figure out with a little thought?」</p>
+<p>「Ah so that's what real skill is! Fortune-telling is originally like that They probably gathered all the information they could from people around them beforehand, right? And think about it carefully Isn't the 'only you would know' part something you could figure out with a little thought?」</p>
 
 <p>「Even so, would an academy really invite parents for a consultation and then deceive people like this?」</p>
 
-<p>「Kekekek~ Are you really an idiot? They wouldn't expect you to be completely fooled, they'd just be putting on a magic event!!!」</p>
+<p>「Kekekek Are you really an idiot? They wouldn't expect you to be completely fooled, they'd just be putting on a magic event!!!」</p>
 
 <p>Hearing Cheoljin's words, Shiwoo felt as if he had been hit hard on the head.</p>
 
@@ -176,7 +176,7 @@ chapter = 81
 
 <p>「What about dinner?」</p>
 
-<p>「I'll eat out, so you don't have to worry~」</p>
+<p>「I'll eat out, so you don't have to worry」</p>
 
 <p>「Isn't that too late?」</p>
 
@@ -258,9 +258,9 @@ chapter = 81
 
 <p>「Shiwoo, what are you doing? Were you sleeping?」</p>
 
-<p>「Ah~ I think I dozed off for a bit. What's up?」</p>
+<p>「Ah I think I dozed off for a bit. What's up?」</p>
 
-<p>「What's up, you ask? I'm just going to drop by for a bit to see your face, Shiwoo~ You're home, right?」</p>
+<p>「What's up, you ask? I'm just going to drop by for a bit to see your face, Shiwoo You're home, right?」</p>
 
 <p>「Uh... I am, but...?」</p>
 
@@ -268,7 +268,7 @@ chapter = 81
 
 <p>「Not yet.」</p>
 
-<p>「Good~ I'm nearby, so I'll arrive soon~ See you in a bit!!!」</p>
+<p>「Good I'm nearby, so I'll arrive soon See you in a bit!!!」</p>
 
 <p>With that, Seonju Imo hung up the phone.</p>
 

@@ -4,7 +4,7 @@ weight = 772
 [extra]
 chapter = 772
 +++
-<p>"Is that so? As I thought~ You're in the middle of doing it with Mom? Did you call because you wanted me to hear Mom's moaning sounds?"</p>
+<p>"Is that so? As I thought You're in the middle of doing it with Mom? Did you call because you wanted me to hear Mom's moaning sounds?"</p>
 
 <p>As if she were watching the two of them right next to the bed, she spoke in a voice thick with a languid smile, as if to incite the lust of Shiwoo and Mom.</p>
 
@@ -14,7 +14,7 @@ chapter = 772
 
 <p>Shiwoo spoke to Sejin Nuna in a low tone, setting the mood as if sharing a deep, dark secret.</p>
 
-<p>"Really? What is it~? I'm curious~ What kind of story is it that you'd call me separately in the middle of having sex with Mom just to tell me before Sehee and Seyoung~?"</p>
+<p>"Really? What is it? I'm curious What kind of story is it that you'd call me separately in the middle of having sex with Mom just to tell me before Sehee and Seyoung?"</p>
 
 <p>Sejin Nuna spoke with a voice full of excitement, as if encouraging Shiwoo's bold revelation.</p>
 
@@ -22,7 +22,7 @@ chapter = 772
 
 <p>Shiwoo spoke to Sejin Nuna as if confessing a perfectly natural and calm truth.</p>
 
-<p>"You're not having sex as master and servant or mother and son? Then~?"</p>
+<p>"You're not having sex as master and servant or mother and son? Then?"</p>
 
 <p>Sejin Nuna was repeating Shiwoo's words back to him, as if providing a rhythmic accompaniment to his speech.</p>
 
@@ -32,7 +32,7 @@ chapter = 772
 
 <p>Shiwoo pushed his waist all the way up as if to declare it, imprinting his very existence into the deepest parts of Mom's body.</p>
 
-<p>"Really~? Mom is your wife now, Shiwoo?"</p>
+<p>"Really? Mom is your wife now, Shiwoo?"</p>
 
 <p>Sejin Nuna asked as if to confirm, drawing in a breath with exaggerated surprise.</p>
 
@@ -62,7 +62,7 @@ chapter = 772
 
 <p>Shiwoo's lips, curled into a mischievous smirk, softly yet persistently swept over Mom's face, which was a mess from taking in her son's massive cock.</p>
 
-<p>"Hauuuuu~ ha-eung haaaa..."</p>
+<p>"Hauuuuu ha-eung haaaa..."</p>
 
 <p>As if her mind had gone blank at Shiwoo's words, Mom heaved her breasts that were pinned under Shiwoo and exhaled hot breaths several times.</p>
 
@@ -90,7 +90,7 @@ chapter = 772
 
 <p>Or had she reached a state where she couldn't even think of blocking the sounds escaping her throat unconsciously?</p>
 
-<p>"It's okay~! Go ahead and talk~! I'm ready to listen~"</p>
+<p>"It's okay! Go ahead and talk! I'm ready to listen"</p>
 
 <p>Sejin Nuna whispered in a sweet yet erotic tone, as if further inciting Mom's forbidden desires.</p>
 
@@ -98,11 +98,11 @@ chapter = 772
 
 <p>Mom let out explicit moans, as if her will to hide her abnormal arousal had completely hit rock bottom.</p>
 
-<p>"You're being pounded by Shiwoo's cock, right~? Haaa... Not Dad's... but by your new, real husband...?"</p>
+<p>"You're being pounded by Shiwoo's cock, right? Haaa... Not Dad's... but by your new, real husband...?"</p>
 
 <p>Sejin Nuna was speaking while breathing heavily in time with the sounds coming through the smartphone.</p>
 
-<p>"Huuuu.. uuuuk.. eeeung... heuuuuung... eung...! Ah... hng... what do I do... Sejin-ah... heuuung... Mom is~~!"</p>
+<p>"Huuuu.. uuuuk.. eeeung... heuuuuung... eung...! Ah... hng... what do I do... Sejin-ah... heuuung... Mom is!"</p>
 
 <p>Mom let out moans with a mangled voice in time with Shiwoo's thrusting.</p>
 
@@ -144,7 +144,7 @@ chapter = 772
 
 <p>In the place where the wet friction sounds and scream-like moans had vanished, only Mom's precarious breathing remained, thin and pitiful.</p>
 
-<p>"Honey~ you have to talk...!"</p>
+<p>"Honey you have to talk...!"</p>
 
 <p>Shiwoo blew a hot, sweet breath into her ear, as if urging Mom for an answer.</p>
 

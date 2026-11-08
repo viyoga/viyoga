@@ -98,7 +98,7 @@ chapter = 518
 
 <p>Mom suppressed the moaning sound that was trying to burst out of her throat, bracing herself as much as possible on all fours to maintain her balance and prevent herself from being pushed forward by Shiwoo's fucking.</p>
 
-<p>"Is it because you're uncomfortable showing Sehee and Seyoung what's happening? What's the big deal? They're both in a relationship where they can suck your breasts and vagina hole, and can drop the honorifics at any time, right? Besides, they'll pretend they don't know anything in the morning anyway, so what~"</p>
+<p>"Is it because you're uncomfortable showing Sehee and Seyoung what's happening? What's the big deal? They're both in a relationship where they can suck your breasts and vagina hole, and can drop the honorifics at any time, right? Besides, they'll pretend they don't know anything in the morning anyway, so what"</p>
 
 <p>Shiwoo pulled back on Mom's collar, teasing her as if to mock her, in a voice loud enough to be heard inside the room.</p>
 
@@ -116,7 +116,7 @@ chapter = 518
 
 <p>Mom was in a position with her face buried in her arms propped on the floor and her buttocks raised.</p>
 
-<p>"Are you going to keep doing this all night here? I don't really care~"</p>
+<p>"Are you going to keep doing this all night here? I don't really care"</p>
 
 <p>Shiwoo spoke to Mom, who was collapsed forward, as if teasing her.</p>
 

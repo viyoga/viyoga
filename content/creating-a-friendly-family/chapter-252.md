@@ -6,9 +6,9 @@ chapter = 252
 +++
 <p>Shiwoo grabs Mom's breasts as if kneading them with his hands and carefully thrusts his penis into her vagina hole.</p>
 
-<p>-Sigeok! Sigeok! Sigeok! Sigeok~!</p>
+<p>-Sigeok! Sigeok! Sigeok! Sigeok!</p>
 
-<p>"Chyuwap~ Chyuup~ Chyuuup~!"</p>
+<p>"Chyuwap Chyuup Chyuuup!"</p>
 
 <p>Seyoung was still biting Mom's nipples, diligently sucking on breasts that weren't even producing milk.</p>
 
@@ -24,7 +24,7 @@ chapter = 252
 
 <p>Shiwoo inserts Mom's firmly erect nipple between his middle and ring fingers and squeezes it with all his might.</p>
 
-<p>"Heeueup~"</p>
+<p>"Heeueup"</p>
 
 <p>A pained gasp, as if caught off guard, burst from Mom's lips.</p>
 
@@ -34,7 +34,7 @@ chapter = 252
 
 <p>Shiwoo asks, a pleased expression on his face, watching Seyoung suck on Mom's nipple, her mouth covered in drool.</p>
 
-<p>"Yes~! Mom's milk is delicious~ hehehe~"</p>
+<p>"Yes! Mom's milk is delicious hehehe"</p>
 
 <p>Seyoung answers with a bright smile, her mouth still on Mom's nipple, which couldn't possibly taste like anything since no milk was coming out.</p>
 
@@ -60,11 +60,11 @@ chapter = 252
 
 <p>The vaginal fluid from Shiwoo's hand coats Mom's nipple as if being painted on.</p>
 
-<p>"But Seyoung-ah, if you keep sucking so hard on just one side, our Seonmi's breast shape will get ruined and unbalanced~ hehe."</p>
+<p>"But Seyoung-ah, if you keep sucking so hard on just one side, our Seonmi's breast shape will get ruined and unbalanced hehe."</p>
 
 <p>Shiwoo speaks playfully, deliberately using Mom's name as if to flaunt his relationship with her to Seyoung.</p>
 
-<p>"Now~! Try sucking on this side too~"</p>
+<p>"Now! Try sucking on this side too"</p>
 
 <p>Shiwoo squeezes Mom's breast in his hand, making the nipple protrude, and brings it towards Seyoung's mouth.</p>
 
@@ -80,7 +80,7 @@ chapter = 252
 
 <p>Seyoung licks Mom's breast without any particular reaction, as if the taste of the vaginal fluid on Mom's nipple meant nothing to her.</p>
 
-<p>"Chyurup~ Chyuuup~ Chyuuuuup~!!"</p>
+<p>"Chyurup Chyuuup Chyuuuuup!!"</p>
 
 <p>Seyoung creates a vacuum in her mouth, sucking Mom's nipple into her mouth with strong suction.</p>
 
@@ -94,7 +94,7 @@ chapter = 252
 
 <p>An unbearable urge to cum tingles and surges from the tip of Shiwoo's cock.</p>
 
-<p>'Sukeok~! Sukeok~! Sukeok~!'</p>
+<p>'Sukeok! Sukeok! Sukeok!'</p>
 
 <p>Shiwoo's penis, swollen as if about to burst, filling Mom's cavern, relentlessly scraping against the folds of her vaginal walls.</p>
 
@@ -124,7 +124,7 @@ chapter = 252
 
 <p>After adopting a posture as if embracing both mother and daughter simultaneously by pulling his arms tightly, Shiwoo increases the speed of his hip movements.</p>
 
-<p>-Subeok~! Subeok~! Supeok~!!</p>
+<p>-Subeok! Subeok! Supeok!!</p>
 
 <p>Shiwoo's enraged cock shaft was carefully pounding deep inside Mom's vagina hole, at her cervix.</p>
 
@@ -156,11 +156,11 @@ chapter = 252
 
 <p>And he whispers into Mom's ear, as if announcing his impending ejaculation.</p>
 
-<p>"Seonmi-yah! I'm going to cum now~!"</p>
+<p>"Seonmi-yah! I'm going to cum now!"</p>
 
 <p>A whisper soft enough not to be heard by Seyoung.</p>
 
-<p>"Ha-eut~!!"</p>
+<p>"Ha-eut!!"</p>
 
 <p>A suppressed moan escaped Mom's lips, as if in a panic.</p>
 
@@ -172,7 +172,7 @@ chapter = 252
 
 <p>The dynamic movements of her vaginal muscles, clenching as if swallowing his cock.</p>
 
-<p>-Pusyuk~! Pusyuk!! Pusyuk~!</p>
+<p>-Pusyuk! Pusyuk!! Pusyuk!</p>
 
 <p>Shiwoo unleashes a violent explosion inside Mom's body, coinciding with her climax.</p>
 
@@ -210,7 +210,7 @@ chapter = 252
 
 <p>Thus, Shiwoo repeats piston strokes a couple of times inside Mom's vagina hole immediately after cumming.</p>
 
-<p>"Haaaaaaa~~"</p>
+<p>"Haaaaaaa"</p>
 
 <p>Mom lets out a long breath.</p>
 

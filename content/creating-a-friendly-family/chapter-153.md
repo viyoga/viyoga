@@ -14,7 +14,7 @@ chapter = 153
 
 <p>Shiwoo pulled his hips back for a moment, allowing Seonju Imo to breathe.</p>
 
-<p>"Ol-gak Ol-gak Ol-gak~"</p>
+<p>"Ol-gak Ol-gak Ol-gak"</p>
 
 <p>Seonju Imo gathered the filth in her mouth and swallowed it down her throat.</p>
 
@@ -36,7 +36,7 @@ chapter = 153
 
 <p>For a while, Shiwoo kept his rigidly erect cock shoved deep inside Seonju Imo's throat.</p>
 
-<p>"Kooub! Koo-eueu~ Keu-eueueu.."</p>
+<p>"Kooub! Koo-eueu Keu-eueueu.."</p>
 
 <p>After some time, Seonju Imo seemed to reach her limit, trembling violently and letting out pained moans.</p>
 
@@ -56,7 +56,7 @@ chapter = 153
 
 <p>Seonju Imo's body, with her hands tied behind her back, swayed violently forward as if pulled by Shiwoo's cock.</p>
 
-<p>"Woo-keo-eok! Wooub~! Hoo-ak! Woouk~! Haa~"</p>
+<p>"Woo-keo-eok! Wooub! Hoo-ak! Woouk! Haa"</p>
 
 <p>As Shiwoo's cock was pulled out, Seonju Imo gagged and gasped for breath.</p>
 
@@ -90,7 +90,7 @@ chapter = 153
 
 <p>Shiwoo raised his voice, as if Seonju Imo's opinion or judgment didn't matter, and forced an immediate answer from her.</p>
 
-<p>"Heuut! Yes... Master-nim... Haa~ haa... From now on, I'll... I'll take good care of Se... Sehee-nim... Heuu~"</p>
+<p>"Heuut! Yes... Master-nim... Haa haa... From now on, I'll... I'll take good care of Se... Sehee-nim... Heuu"</p>
 
 <p>Seonju Imo, sounding a little exhausted, answered Shiwoo's words in a submissive tone, attaching the honorific -nim to Sehee-nuna's name.</p>
 
@@ -122,7 +122,7 @@ chapter = 153
 
 <p>Shiwoo tapped the white flesh peeking out from the bottom of her breasts with his fingertips, from bottom to top, making a 'tak' sound.</p>
 
-<p>"Ha-at~!"</p>
+<p>"Ha-at!"</p>
 
 <p>Seonju Imo let out a clear, sharp moan and flinched.</p>
 
@@ -136,7 +136,7 @@ chapter = 153
 
 <p>Shiwoo spoke to Seonju Imo in a coercive and rough tone, as if giving a warning.</p>
 
-<p>"Yes... I'll be careful, Master-nim~!"</p>
+<p>"Yes... I'll be careful, Master-nim!"</p>
 
 <p>Seonju Imo's answer came with a slight tremor, as if she was a little excited.</p>
 

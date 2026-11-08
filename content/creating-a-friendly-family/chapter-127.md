@@ -114,7 +114,7 @@ chapter = 127
 
 <p>-Jjigeok Jjigeok Jjigeok Shiwoo's finger alone moved noisily, scraping as if digging into her vaginal walls, without answering.</p>
 
-<p>"Heeueut~ Bu...but Ch...Cheoljin... didn't really like this pose... uh... said he couldn't see my face well... Hmm... You liked this kind of thing, didn't you? Right? Haaaeuk"</p>
+<p>"Heeueut Bu...but Ch...Cheoljin... didn't really like this pose... uh... said he couldn't see my face well... Hmm... You liked this kind of thing, didn't you? Right? Haaaeuk"</p>
 
 <p>Gyuri Ajumma suddenly made a shocking confession, as if casually passing it along.</p>
 

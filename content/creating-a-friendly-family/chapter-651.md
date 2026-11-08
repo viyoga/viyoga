@@ -34,7 +34,7 @@ chapter = 651
 
 <p>Shiwoo asked Seyoung, sounding subtly worried that something suspicious might have occurred.</p>
 
-<p>"Nope~ Nothing happened~ If I had to say something happened, it was probably just what happened at home before going to the academy? Ah~ and I think something happened at the cafe just now too... but I'm not really sure~ Hehe."</p>
+<p>"Nope Nothing happened If I had to say something happened, it was probably just what happened at home before going to the academy? Ah and I think something happened at the cafe just now too... but I'm not really sure Hehe."</p>
 
 <p>As if she knew what was on Shiwoo's mind, Seyoung answered with a playful tone and a sly smile. A strange energy that flickered through Seyoung's voice awkwardly brushed against a part of Shiwoo's heart that had returned to its everyday senses.</p>
 
@@ -46,7 +46,7 @@ chapter = 651
 
 <p>Sua hesitated for a moment before nodding quietly and answering.</p>
 
-<p>"You don't have to worry, Oppa~ We'll take care of it... Hehe."</p>
+<p>"You don't have to worry, Oppa We'll take care of it... Hehe."</p>
 
 <p>Seyoung approached and linked her arm with Shiwoo's, the one holding the ice cream. Soon, Sua also approached shyly and clung to Shiwoo's other arm. While linked to Shiwoo's arm, Seyoung slyly reached one hand forward and slid it into the gap between the bag he was wearing and his groin.</p>
 
@@ -66,7 +66,7 @@ chapter = 651
 
 <p>Seyoung watched the two of them with a satisfied look while twisting Shiwoo's shaft from side to side. The intense pleasure flooding his penis caused Shiwoo's hand to tighten. As Sua's breast was squeezed firmly, Sua's hand gripping Shiwoo's testicles also tightened. The sensory reactions and the pressure from their fingertips seemed to flow through each other's bodies in a chain reaction.</p>
 
-<p>"Shiwoo Oppa~ As soon as we get home, I'm going to go shower first~ So Oppa, you and Sua should rest in my room or the living room for a bit! Hihit."</p>
+<p>"Shiwoo Oppa As soon as we get home, I'm going to go shower first So Oppa, you and Sua should rest in my room or the living room for a bit! Hihit."</p>
 
 <p>Seyoung let out a playful laugh at the end of her sentence, speaking as if she were trying to give Shiwoo and Sua some private time together.</p>
 

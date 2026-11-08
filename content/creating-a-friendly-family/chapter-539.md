@@ -18,13 +18,13 @@ chapter = 539
 
 <p>Shiwoo ignored Mom's curt reaction and wrote a text message in a friendly tone, as if to provoke her sense of shame.</p>
 
-<p>[I'm curious what happened in the kitchen while I was in the master bedroom for a moment~ When Seyoung was writing something like that, did you just let her do it, Mom?]</p>
+<p>[I'm curious what happened in the kitchen while I was in the master bedroom for a moment When Seyoung was writing something like that, did you just let her do it, Mom?]</p>
 
 <p>Mom, while seeming slightly uncomfortable, was still answering Shiwoo's question properly.</p>
 
 <p>[As soon as you went into the master bedroom, Seyoung told me to stay still and did that, what could Mom do?]</p>
 
-<p>[Still, for a daughter to write 'public slut' on Mom's buttocks, isn't that a bit much? You should have stopped her from doing something like that~! Haha]</p>
+<p>[Still, for a daughter to write 'public slut' on Mom's buttocks, isn't that a bit much? You should have stopped her from doing something like that! Haha]</p>
 
 <p>Shiwoo mentioned the phrase written on Mom's buttocks, speaking playfully as if teasing and tormenting her.</p>
 
@@ -56,7 +56,7 @@ chapter = 539
 
 <p>Mom sends Shiwoo a text message in an annoyed tone.</p>
 
-<p>[What~? Haha]</p>
+<p>[What? Haha]</p>
 
 <p>Shiwoo replied slyly, teasing Mom as if he had no idea what she was talking about.</p>
 
@@ -68,7 +68,7 @@ chapter = 539
 
 <p>Mom was genuinely questioning Shiwoo, as if appealing to him with her embarrassment and unfairness.</p>
 
-<p>[Haha, I didn't intend to do this from the beginning... but Seyoung seemed to really want to be active... But I also didn't know Seyoung would go that far right away? I thought she'd only do that secretly and separately when she was alone with Mom~ And earlier this morning, I clearly told you to definitely treat her as Mom...]</p>
+<p>[Haha, I didn't intend to do this from the beginning... but Seyoung seemed to really want to be active... But I also didn't know Seyoung would go that far right away? I thought she'd only do that secretly and separately when she was alone with Mom And earlier this morning, I clearly told you to definitely treat her as Mom...]</p>
 
 <p>To Mom's appeal, which was close to a complaint, Shiwoo replied to her, awkwardly changing his attitude.</p>
 
@@ -88,7 +88,7 @@ chapter = 539
 
 <p>Mom finally sent Shiwoo a text message, begging and pleading to be saved.</p>
 
-<p>[Alright, alright~ I'll tell Sehee and Seyoung properly again~ To definitely treat you as Mom in the morning~]</p>
+<p>[Alright, alright I'll tell Sehee and Seyoung properly again To definitely treat you as Mom in the morning]</p>
 
 <p>Shiwoo replies as if granting the plea of Mom, who was cornered psychologically.</p>
 
@@ -142,7 +142,7 @@ chapter = 539
 
 <p>However, Shiwoo and Sehee Nuna were now acting as if they had just woken up in the morning and were seeing each other for the first time, exchanging words.</p>
 
-<p>"Sehee Eonni seems to have slept well and refreshed~! Even though I woke her up, she kept lying down, so I simply washed her body and dressed her, and brought her down! I did well, didn't I?"</p>
+<p>"Sehee Eonni seems to have slept well and refreshed! Even though I woke her up, she kept lying down, so I simply washed her body and dressed her, and brought her down! I did well, didn't I?"</p>
 
 <p>Seyoung, holding Sehee Nuna's hand and leading her forward, approached Shiwoo and proudly told him what had happened on the second floor.</p>
 

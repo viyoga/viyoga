@@ -10,7 +10,7 @@ chapter = 628
 
 <p>The tattoo of Shiwoo's initials on the inside of her thigh was like proof that she had fulfilled her duty and devotion to her master...</p>
 
-<p>「Alright~ I know, I know~! But I don't go as hard here as I do in other chatrooms or at home at night, right? Don't I?」</p>
+<p>「Alright I know, I know! But I don't go as hard here as I do in other chatrooms or at home at night, right? Don't I?」</p>
 
 <p>Shiwoo, as if subdued by Mom's momentum, yet still acting nonchalant, deflected Mom's words with a tone that was moderately appeasing.</p>
 
@@ -84,7 +84,7 @@ chapter = 628
 
 <p>「Do you even know how embarrassing and shameful it is to have handprints on my buttocks showing?」</p>
 
-<p>「Ugh~ I don't know what I'm doing coming out with my daughter because of what my son is saying at this age!」</p>
+<p>「Ugh I don't know what I'm doing coming out with my daughter because of what my son is saying at this age!」</p>
 
 <p>Mom put her emotions of injustice and shame into her sentences, as if trying to deflect Shiwoo's questioning.</p>
 
@@ -144,7 +144,7 @@ chapter = 628
 
 <p>Mom sent a reply to Shiwoo's question as if hesitating.</p>
 
-<p>「Adult toys~?」</p>
+<p>「Adult toys?」</p>
 
 <p>Shiwoo asked Mom with a tone that seemed to mix playfulness and curiosity.</p>
 
@@ -186,7 +186,7 @@ chapter = 628
 
 <p>Shiwoo said, playfully laughing as if testing Mom's inner thoughts.</p>
 
-<p>「Ugh~ seriously! How did I end up giving birth to an enemy!」</p>
+<p>「Ugh seriously! How did I end up giving birth to an enemy!」</p>
 
 <p>Mom sent a text as if Shiwoo was very hateful, with a tone that was hard to tell if it was a scolding or a complaint.</p>
 

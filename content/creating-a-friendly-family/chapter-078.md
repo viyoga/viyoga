@@ -6,13 +6,13 @@ chapter = 78
 +++
 <p>Yu Yena Teacher was briefly introducing Shiwoo and Cheoljin to the academy's educational policies, curriculum, and schedule.</p>
 
-<p>「The rental fees for costumes and tools used during performances or practice are all included in the tuition, so there will be no additional costs. Participation fees might be incurred separately for summer or winter break training camps, but they are not mandatory~」</p>
+<p>「The rental fees for costumes and tools used during performances or practice are all included in the tuition, so there will be no additional costs. Participation fees might be incurred separately for summer or winter break training camps, but they are not mandatory」</p>
 
 <p>Yu Yena Teacher continued her explanation clearly and slowly, in a captivating, gentle voice that was easy to understand.</p>
 
 <p>Fortunately, it didn't feel like a strange religious cult or a scam.</p>
 
-<p>「Ah...yes, I see~」</p>
+<p>「Ah...yes, I see」</p>
 
 <p>Shiwoo and Cheoljin diligently interjected, responding to Yu Yena Teacher's words.</p>
 
@@ -22,7 +22,7 @@ chapter = 78
 
 <p>Yu Yena Teacher finished her prepared explanation and was asking Shiwoo and Cheoljin if they had any questions.</p>
 
-<p>「Me!! Me!! I have something I'm curious about~ Teacher!!」</p>
+<p>「Me!! Me!! I have something I'm curious about Teacher!!」</p>
 
 <p>Cheoljin raised his hand high as if he'd been waiting and spoke.</p>
 
@@ -36,7 +36,7 @@ chapter = 78
 
 <p>「Which countries?」</p>
 
-<p>「India, Netherlands, Canada, Egypt, South Sudan, Thailand...well...I traveled around quite a bit~」</p>
+<p>「India, Netherlands, Canada, Egypt, South Sudan, Thailand...well...I traveled around quite a bit」</p>
 
 <p>「Did you major in magic?」</p>
 
@@ -44,11 +44,11 @@ chapter = 78
 
 <p>「Is Seulgi your niece, Teacher?」</p>
 
-<p>「You could say that~!?」</p>
+<p>「You could say that!?」</p>
 
 <p>「How old are you?」</p>
 
-<p>「That's a secret~」</p>
+<p>「That's a secret」</p>
 
 <p>Yu Yena Teacher answered with a wink.</p>
 
@@ -60,7 +60,7 @@ chapter = 78
 
 <p>「Boyfriend?」</p>
 
-<p>「Well~?... Maybe soon?」</p>
+<p>「Well?... Maybe soon?」</p>
 
 <p>Yu Yena Teacher tilted her head and, as if flirting, looked into Cheoljin's eyes and asked back.</p>
 
@@ -84,11 +84,11 @@ chapter = 78
 
 <p>Shiwoo had wanted to confirm it earlier but was cautious about appearing rude, so he decided to bravely ask that question.</p>
 
-<p>「Um... Yu Yena Teacher~ Your face is so familiar, have we met somewhere before?」</p>
+<p>「Um... Yu Yena Teacher Your face is so familiar, have we met somewhere before?」</p>
 
 <p>Yu Yena Teacher smiled faintly, looked at Shiwoo silently, then opened her mouth.</p>
 
-<p>「Oh my~ Is that perhaps a pick-up line popular among students these days?」</p>
+<p>「Oh my Is that perhaps a pick-up line popular among students these days?」</p>
 
 <p>Yu Yena Teacher said, lightly touching her palms together with a sly expression, as if surprised.</p>
 
@@ -96,11 +96,11 @@ chapter = 78
 
 <p>Shiwoo, suddenly flustered, his face burning.</p>
 
-<p>「Hehe, just kidding~ kidding~ I also feel like Shiwoo and Cheoljin aren't unfamiliar to me~ I'm also a teacher at Seyoung's academy after-school class, so maybe we've run into each other once or twice?」</p>
+<p>「Hehe, just kidding kidding I also feel like Shiwoo and Cheoljin aren't unfamiliar to me I'm also a teacher at Seyoung's academy after-school class, so maybe we've run into each other once or twice?」</p>
 
 <p>Yu Yena Teacher, who had somehow started speaking informally as if teasing.</p>
 
-<p>「Ah... that could be~」</p>
+<p>「Ah... that could be」</p>
 
 <p>Although he said that, bowing his head in embarrassment, he couldn't fully agree in his heart because Yu Yena Teacher was a beauty impossible to forget after seeing her once.</p>
 
@@ -112,7 +112,7 @@ chapter = 78
 
 <p>Cheoljin, asking with eyes full of curiosity.</p>
 
-<p>「Yes~ Since people tend to have expectations when it comes to magic, I've prepared it as a simple event... How about it? Want to try?」</p>
+<p>「Yes Since people tend to have expectations when it comes to magic, I've prepared it as a simple event... How about it? Want to try?」</p>
 
 <p>Yu Yena Teacher, speaking with a bright and elegant smile.</p>
 
@@ -154,7 +154,7 @@ chapter = 78
 
 <p>Yu Yena Teacher, holding the survey, asked Seyoung in a gentle voice.</p>
 
-<p>「Yes~ Teacher!! Oppa, come here! Hehe~」</p>
+<p>「Yes Teacher!! Oppa, come here! Hehe」</p>
 
 <p>Seyoung answered as if she had been waiting.</p>
 
@@ -166,15 +166,15 @@ chapter = 78
 
 <p>On the surface of the glass door, the moon and constellations were drawn like decorations.</p>
 
-<p>「Here it is, Oppa! You don't have to be nervous, so just relax and come out, okay? Hehe~」</p>
+<p>「Here it is, Oppa! You don't have to be nervous, so just relax and come out, okay? Hehe」</p>
 
 <p>Seyoung said, as if trying to reassure Shiwoo.</p>
 
-<p>「Yeah, I got it~ I just go in for a bit and then come out, right?」</p>
+<p>「Yeah, I got it I just go in for a bit and then come out, right?」</p>
 
 <p>Shiwoo spoke, looking at Seyoung with satisfaction.</p>
 
-<p>「Yes~ Shiwoo Oppa! Hehet~!」</p>
+<p>「Yes Shiwoo Oppa! Hehet!」</p>
 
 <p>Seyoung, answering cheerfully.</p>
 
@@ -186,7 +186,7 @@ chapter = 78
 
 <p>Shiwoo looked at Seyoung, wondering what was happening.</p>
 
-<p>「Oppa, thank you for coming today! I have to go to class now, so I won't be able to see you go home~」</p>
+<p>「Oppa, thank you for coming today! I have to go to class now, so I won't be able to see you go home」</p>
 
 <p>Seyoung was saying goodbye to Shiwoo.</p>
 
@@ -206,11 +206,11 @@ chapter = 78
 
 <p>Seyoung remained still, embraced in Shiwoo's arms.</p>
 
-<p>「Okay... have a good class and be careful going home~ But won't it be dangerous at night?」</p>
+<p>「Okay... have a good class and be careful going home But won't it be dangerous at night?」</p>
 
 <p>Shiwoo tried to speak to Seyoung as if nothing was happening.</p>
 
-<p>「Yeah~ I'll be with Sua, so it should be fine, hehe~」</p>
+<p>「Yeah I'll be with Sua, so it should be fine, hehe」</p>
 
 <p>Seyoung, still embraced by Shiwoo, looked up at him with her usual expression and spoke.</p>
 
@@ -222,11 +222,11 @@ chapter = 78
 
 <p>Shiwoo's dick surged with blood in an instant.</p>
 
-<p>「Shiwoo Oppa, don't forget you promised to buy me ice cream at the cafe here next time~ Okay?」</p>
+<p>「Shiwoo Oppa, don't forget you promised to buy me ice cream at the cafe here next time Okay?」</p>
 
 <p>Seyoung spoke naturally, as if she had no aversion to Shiwoo's action of patting her buttocks.</p>
 
-<p>「Okay~ with Sua!!」</p>
+<p>「Okay with Sua!!」</p>
 
 <p>Shiwoo gently placed his patting hand on Seyoung's buttocks, as if resting it there, and answered cautiously.</p>
 

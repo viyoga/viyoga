@@ -28,7 +28,7 @@ chapter = 729
 
 <p>Seulgi leaned forward slightly, slowly bringing her head toward Shiwoo.</p>
 
-<p>「I'm asking if you've decided~ who among your family members it will be... the sacrifice...」</p>
+<p>「I'm asking if you've decided who among your family members it will be... the sacrifice...」</p>
 
 <p>They were at a distance so close that her breath brushed against his cheek and ear...</p>
 
@@ -78,7 +78,7 @@ chapter = 729
 
 <p>Shiwoo pressed his penis firmly against his stomach with one hand and walked with his head down, as if avoiding the students passing by.</p>
 
-<p>「Class is starting now, what are you planning to do~?」</p>
+<p>「Class is starting now, what are you planning to do?」</p>
 
 <p>When they reached the iron gate leading to the rooftop, Seulgi, who had been pulled along by her wrist without a word, asked Shiwoo.</p>
 
@@ -86,7 +86,7 @@ chapter = 729
 
 <p>Shiwoo answered Seulgi curtly as he threw open the iron gate leading to the rooftop.</p>
 
-<p>「What do you mean it'll only take a moment!? I said class is starting now~!?」</p>
+<p>「What do you mean it'll only take a moment!? I said class is starting now!?」</p>
 
 <p>Seulgi spoke while applying strength as if resisting, pulling her arm back slightly from Shiwoo's grasp.</p>
 
@@ -102,7 +102,7 @@ chapter = 729
 
 <p>Shiwoo gripped Seulgi's wrist tightly and spoke as he dragged her toward a corner of the rooftop, out of sight.</p>
 
-<p>「Ha~ seriously! Do you think I'd say something like that in front of the teacher and the kids...!」</p>
+<p>「Ha seriously! Do you think I'd say something like that in front of the teacher and the kids...!」</p>
 
 <p>Seulgi let out a hollow laugh as if it were absurd and grumbled quietly, eventually relaxing the strength in her resisting arm and being led by Shiwoo.</p>
 

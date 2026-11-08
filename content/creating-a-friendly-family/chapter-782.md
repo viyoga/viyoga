@@ -42,7 +42,7 @@ chapter = 782
 
 <p>Her eyes rolled back, and the whites began to show. The terrible friction and tightening of the mucous membranes pressing against the shaft of his cock became a spine-chilling pleasure, intensely stimulating Shiwoo's brain. Shiwoo sensed so clearly and vividly that the boundary between life and death conveyed by that distant silence had already reached its final critical point. It was the moment his destructive possessiveness reached its peak. Chulleo-eo-eo-eok! Shiwoo quickly pulled back his hips and withdrew his cock from her throat and mouth.</p>
 
-<p>"Kuaaa... kul-leok, keo-heok, kul-leok. Ha-euk, heu-eu... keu-euk! Huaaaa~! Kul-leok, kul-leok! Heu-eu-eu-eu... ha-ak! Heu-eu-eu-ng... kol-lok, ko-heut... heu-eu-eu... keu-eut... huaaaaa~!"</p>
+<p>"Kuaaa... kul-leok, keo-heok, kul-leok. Ha-euk, heu-eu... keu-euk! Huaaaa! Kul-leok, kul-leok! Heu-eu-eu-eu... ha-ak! Heu-eu-eu-ng... kol-lok, ko-heut... heu-eu-eu... keu-eut... huaaaaa!"</p>
 
 <p>Mom leaned her upper body forward as if collapsing and coughed violently. Her chest, which had been in a vacuum, heaved convulsively every time oxygen rushed in, and a desperate flush spread once more over her pale face. Desperately inhaling the air rushing into her burning lungs, she poured out tears and snot without ceasing. The transparent mucus hanging long from her mouth to the floor explicitly painted the afterimage of the terrible state of being possessed that she had endured.</p>
 

@@ -72,7 +72,7 @@ chapter = 532
 
 <p>As if thinking about something, Shiwoo asked Seyoung about the remaining shower time it would take to wash her hair.</p>
 
-<p>"Yes! It'll probably take more than 20 minutes to dry my hair and everything~"</p>
+<p>"Yes! It'll probably take more than 20 minutes to dry my hair and everything"</p>
 
 <p>As if roughly anticipating what Shiwoo would do to Mom in the kitchen, Seyoung spoke to Shiwoo as if allocating him enough time.</p>
 
@@ -80,7 +80,7 @@ chapter = 532
 
 <p>As if giving a hint about the act he would do in the kitchen, Shiwoo grabbed his penis, which was still covered in Seyoung's saliva, and shook it as he spoke.</p>
 
-<p>"Yes, I think I'll be fine~ I'm looking forward to what it will taste like, hehe~"</p>
+<p>"Yes, I think I'll be fine I'm looking forward to what it will taste like, hehe"</p>
 
 <p>Seyoung smiled shyly as if she understood Shiwoo's words.</p>
 

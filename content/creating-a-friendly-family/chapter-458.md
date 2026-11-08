@@ -76,7 +76,7 @@ chapter = 458
 
 <p>Did the conversation at the coin karaoke or the play they had while coming home influence Mom's attitude?</p>
 
-<p>[Okay, don't worry~! Even if I show it to someone else, I'll at least put a mosaic over your face]</p>
+<p>[Okay, don't worry! Even if I show it to someone else, I'll at least put a mosaic over your face]</p>
 
 <p>Shiwoo was enjoying himself, continuing to tease Mom until the end.</p>
 
@@ -84,7 +84,7 @@ chapter = 458
 
 <p>Mom's exclamation, as if she's pissed off...</p>
 
-<p>[Just kidding, just kidding~ Hehe, oh right. I need to change the sheets on Sehee's bed, what should I do? Seyoung is here, so it's a bit much for Mom to come up to the second floor with the sheets, right?]</p>
+<p>[Just kidding, just kidding Hehe, oh right. I need to change the sheets on Sehee's bed, what should I do? Seyoung is here, so it's a bit much for Mom to come up to the second floor with the sheets, right?]</p>
 
 <p>Shiwoo quickly changes the subject, probing her as if he wants Mom to come up to the second floor and change the sheets for him, with a hopeful heart.</p>
 
@@ -112,7 +112,7 @@ chapter = 458
 
 <p>Even though the situation has already become one where there's no reason for the family to exist only as a family...</p>
 
-<p>[Do that then~! But will there be time after Seyoung falls asleep? Tonight is our first night as newlyweds, right? I'll probably be putting it in, up or down, all night long, hehe]</p>
+<p>[Do that then! But will there be time after Seyoung falls asleep? Tonight is our first night as newlyweds, right? I'll probably be putting it in, up or down, all night long, hehe]</p>
 
 <p>Shiwoo, as if mocking Mom's deception and contradiction, threw a mischievous joke at her, foreshadowing the many things that would happen in front of Seyoung during the night.</p>
 

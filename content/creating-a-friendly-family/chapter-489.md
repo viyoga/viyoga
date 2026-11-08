@@ -8,13 +8,13 @@ chapter = 489
 
 <p>Seyoung asked Shiwoo, making an expression of wonder as if hearing it for the first time, as if confirming with him.</p>
 
-<p>"Yeah~ Really! Taking off everything, even your underwear. Just wearing the necklace and leash I bought you today! Seonmi also agreed to do that earlier, right?"</p>
+<p>"Yeah Really! Taking off everything, even your underwear. Just wearing the necklace and leash I bought you today! Seonmi also agreed to do that earlier, right?"</p>
 
 <p>"From now on, when coming up to the 2nd floor, you have to get permission from Sehee and me via text, and then take off all the clothes you were wearing on the 1st floor before coming up!"</p>
 
 <p>Shiwoo explained the newly created rules of the house in detail and kindly.</p>
 
-<p>"Wow~ Mom too~?"</p>
+<p>"Wow Mom too?"</p>
 
 <p>Seyoung looked up at Mom and said, adding an interjection to Shiwoo's words.</p>
 
@@ -34,7 +34,7 @@ chapter = 489
 
 <p>Shiwoo was asking Seyoung as if formally confirming whether she would follow the newly established rules or not.</p>
 
-<p>"Yeah~ I only need to take off one pajama, right? Mom said she would do that too, so I don't mind~ Hehe~"</p>
+<p>"Yeah I only need to take off one pajama, right? Mom said she would do that too, so I don't mind Hehe"</p>
 
 <p>Seyoung answered Shiwoo's question cheerfully.</p>
 
@@ -44,7 +44,7 @@ chapter = 489
 
 <p>As if reacting to Shiwoo's words, which seemed to be subtly rebuking her, Mom's vagina hole tightened around Shiwoo's penis, which was deeply thrust inside her.</p>
 
-<p>"Yeah, that's right~ I won't sneak into Oppa and Unni's rooms and rummage through things~!"</p>
+<p>"Yeah, that's right I won't sneak into Oppa and Unni's rooms and rummage through things!"</p>
 
 <p>Seyoung smiled contentedly as if she had received a special benefit and praise from Shiwoo.</p>
 
@@ -52,7 +52,7 @@ chapter = 489
 
 <p>Shiwoo tried to confirm Seyoung's intentions once again for sure.</p>
 
-<p>"Ung~"</p>
+<p>"Ung"</p>
 
 <p>Seyoung, with Mom's breast full in her mouth, nodded her head greatly as she made eye contact with Shiwoo, giving a long answer.</p>
 
@@ -74,19 +74,19 @@ chapter = 489
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo Oppa~ But why is Mom still covering her eyes with her arm? It seems like the bedroom lights have been on for quite a while~? Is she still not used to it?"</p>
+<p>"Shiwoo Oppa But why is Mom still covering her eyes with her arm? It seems like the bedroom lights have been on for quite a while? Is she still not used to it?"</p>
 
 <p>Seyoung, who had been sucking on Mom's breasts for a long time, took her mouth off Mom's breasts and asked Shiwoo, as if something was strange, in a playful tone.</p>
 
 <p>Caressing the hand she had placed on the side of Mom's breasts, in a mischievous tone as if teasing Mom...</p>
 
-<p>"Maybe her eyes are still a bit dazzled~ And she must be tired too~ Seonmi-ya, are you okay? Are your eyes still very dazzled?"</p>
+<p>"Maybe her eyes are still a bit dazzled And she must be tired too Seonmi-ya, are you okay? Are your eyes still very dazzled?"</p>
 
 <p>Shiwoo slowed down the movement of his waist slightly and answered Seyoung's question.</p>
 
 <p>Hearing Shiwoo's answer, Seyoung carefully looked at Mom's condition as if examining her, and then put her breast in her mouth again.</p>
 
-<p>"Geueonga~?"</p>
+<p>"Geueonga?"</p>
 
 <p>Seyoung said mumbling, with Mom's breast full in her mouth.</p>
 
@@ -126,7 +126,7 @@ chapter = 489
 
 <p>Shiwoo loosened Seyoung's legs, which had been tightening around his knees, and said.</p>
 
-<p>"Okay~ I got it, Oppa~"</p>
+<p>"Okay I got it, Oppa"</p>
 
 <p>Seyoung took her legs out from between Shiwoo and Mom's crotch, turned her body, and opened the drawer of the nightstand behind her.</p>
 
@@ -142,7 +142,7 @@ chapter = 489
 
 <p>Seyoung was acting as if emphasizing the fact that Shiwoo had the control here in front of Mom.</p>
 
-<p>"Okay, thank you~ Seyoung-ah"</p>
+<p>"Okay, thank you Seyoung-ah"</p>
 
 <p>Shiwoo thanked Seyoung and received Mom's eye patch from Seyoung.</p>
 

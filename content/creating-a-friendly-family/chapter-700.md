@@ -212,7 +212,7 @@ chapter = 700
 
 <p>Dropping her head to the floor again, Sehee-nuna collapsed forward with her buttocks thrust up.</p>
 
-<p>「Hauuung, haaaa, haaaaaat~!」</p>
+<p>「Hauuung, haaaa, haaaaaat!」</p>
 
 <p>In the midst of tension and confusion, Sehee-nuna sobbed like a moan, gasping for breath.</p>
 

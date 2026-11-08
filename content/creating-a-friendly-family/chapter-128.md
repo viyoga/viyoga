@@ -28,7 +28,7 @@ chapter = 128
 
 <p>Shiwoo's palm-slapping sounds burst forth without fail.</p>
 
-<p>"Haat haat!~"</p>
+<p>"Haat haat!"</p>
 
 <p>Gyuri Ajumma's moaning sound seemed a little exaggerated.</p>
 
@@ -82,7 +82,7 @@ chapter = 128
 
 <p>Shiwoo threatened and scolded Gyuri Ajumma once more.</p>
 
-<p>"I-I was going to say something... really...! Heu-eung... But I thought you might get un-uncomfortable like last time... so I tied myself up again, heueut... and then I t-told you, didn't I~ Ha-eu... Ha-eung."</p>
+<p>"I-I was going to say something... really...! Heu-eung... But I thought you might get un-uncomfortable like last time... so I tied myself up again, heueut... and then I t-told you, didn't I Ha-eu... Ha-eung."</p>
 
 <p>Gyuri Ajumma's words barely strung together, broken by her moans.</p>
 
@@ -146,7 +146,7 @@ chapter = 128
 
 <p>Shiwoo asked Gyuri Ajumma, maintaining his hip movements.</p>
 
-<p>"I'm hungry~ Heueu... I didn't even eat breakfast properly~ I was making food, and then Cheoljin, haat... just out of nowhere... made me like this, you know? Heueu-eung..."</p>
+<p>"I'm hungry Heueu... I didn't even eat breakfast properly I was making food, and then Cheoljin, haat... just out of nowhere... made me like this, you know? Heueu-eung..."</p>
 
 <p>Gyuri Ajumma spoke as if complaining and appealing to Shiwoo.</p>
 
@@ -154,7 +154,7 @@ chapter = 128
 
 <p>Shiwoo gently stroked Gyuri Ajumma's back, asking as if feeling sorry for her.</p>
 
-<p>"Yes, I'll eat~ B-but how? I'm tied up like this, you know? Sh-Shiwoo, will you feed me? Ha-eu..."</p>
+<p>"Yes, I'll eat B-but how? I'm tied up like this, you know? Sh-Shiwoo, will you feed me? Ha-eu..."</p>
 
 <p>It would have been simpler to ask Shiwoo to untie the handcuffs and ropes, but Gyuri Ajumma spoke with seductive moans, as if that were something not allowed by some unspoken providence or rule.</p>
 
@@ -164,7 +164,7 @@ chapter = 128
 
 <p>As Shiwoo turned his body and tried to lift the plastic bag, Shiwoo's penis twisted and throbbed inside Gyuri Ajumma's body.</p>
 
-<p>"Ha-eu-at~ Ha-ang... Heu-heu-heu-heung... Heu-eung... Haa-at!"</p>
+<p>"Ha-eu-at Ha-ang... Heu-heu-heu-heung... Heu-eung... Haa-at!"</p>
 
 <p>Gyuri Ajumma continuously let out suppressed screams, as if in pain from Shiwoo's cock, which, like a lever, pressed against her vaginal walls at an impossibly strange angle within her vagina hole, uncontrollable in her prone position.</p>
 

@@ -58,7 +58,7 @@ chapter = 367
 
 <p class="scene-break">· · ·</p>
 
-<p>"Haa-eung haa-aaa-ap! Hau-uup hau-uuuu~haup haa-ap!"</p>
+<p>"Haa-eung haa-aaa-ap! Hau-uup hau-uuuuhaup haa-ap!"</p>
 
 <p>Seonju Imo-nim was moaning, trembling almost to the point of fainting.</p>
 
@@ -120,7 +120,7 @@ chapter = 367
 
 <p>Then, with the pleasure that surged back, Seonju Imo-nim's vaginal muscles reflexively contracted, arching her back and strongly tightening around Shiwoo's penis pillar.</p>
 
-<p>"Hau-uuu-uuu-uup!!~!!"</p>
+<p>"Hau-uuu-uuu-uup!!!!"</p>
 
 <p>Seonju Imo-nim's moans, continuing as if in agony and distress.</p>
 

@@ -120,17 +120,17 @@ chapter = 106
 
 <p>Sehee Nuna paused for a moment with a slightly flustered expression, as if she could feel the scent of Shiwoo's semen and the sensual heat emanating from the kitchen.</p>
 
-<p>"Yeah... I've taken out everything I could~"</p>
+<p>"Yeah... I've taken out everything I could"</p>
 
 <p>Shiwoo answered nonchalantly, pretending that nothing had happened.</p>
 
-<p>"...Okay... I'll do the rest, so you go wash up quickly~"</p>
+<p>"...Okay... I'll do the rest, so you go wash up quickly"</p>
 
 <p>Sehee Nuna's breath became rough.</p>
 
 <p>Sehee Nuna was talking as she approached the table, unable to make eye contact with Shiwoo.</p>
 
-<p>"I'll wash up quickly~ If you're hungry, Nuna, grill the meat and eat it first~!"</p>
+<p>"I'll wash up quickly If you're hungry, Nuna, grill the meat and eat it first!"</p>
 
 <p>Shiwoo slowly walked towards the shower room, showing Sehee Nuna his penis, which was erect as if it would burst, as if showing off.</p>
 
@@ -212,7 +212,7 @@ chapter = 106
 
 <p>Shiwoo spoke jokingly, pointing out that Sehee Nuna had been drinking his semen without any revulsion since their first sexual relationship.</p>
 
-<p>"Haa~ I washed it all off with water before you came, so don't think strange things!!"</p>
+<p>"Haa I washed it all off with water before you came, so don't think strange things!!"</p>
 
 <p>Sehee Nuna said, letting out a big sigh as if she couldn't help it.</p>
 
@@ -226,7 +226,7 @@ chapter = 106
 
 <p>Shiwoo smiled contentedly as he looked at Sehee Nuna.</p>
 
-<p>"Don't smile!! Grill it quickly~!!"</p>
+<p>"Don't smile!! Grill it quickly!!"</p>
 
 <p>Sehee Nuna said that and emptied a can of beer into her throat until it was completely empty.</p>
 

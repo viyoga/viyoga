@@ -78,7 +78,7 @@ chapter = 264
 
 <p>The vaginal fluid that was leaking out from the crack in her flesh was wetting her crotch, buttocks, and thighs.</p>
 
-<p>,It's a mess up and down~!, Shiwoo playfully muttered as if exclaiming, so that Sehee Nuna could hear.</p>
+<p>,It's a mess up and down!, Shiwoo playfully muttered as if exclaiming, so that Sehee Nuna could hear.</p>
 
 <p>,Heueu-eut...heut..., A sobbing sound filled with shame was heard from Sehee Nuna's mouth.</p>
 
@@ -134,7 +134,7 @@ chapter = 264
 
 <p>Sehee Nuna twisted her body as if not knowing what to do, as she was being simultaneously teased in two sensitive erogenous zones, Seyoung's lips and Shiwoo's finger.</p>
 
-<p>,Haeueut... Haa-at!... Haaaa~... Heut!,</p>
+<p>,Haeueut... Haa-at!... Haaaa... Heut!,</p>
 
 <p>Then, Sehee Nuna reached her climax.</p>
 

@@ -22,7 +22,7 @@ chapter = 75
 
 <p>-It seemed Cheoljin also called Seonju Imo 'Seonju Imo' just like Shiwoo-</p>
 
-<p>"Yeah~ She's there for a bit because of work. Seyoung will probably be staying there for a while too."</p>
+<p>"Yeah She's there for a bit because of work. Seyoung will probably be staying there for a while too."</p>
 
 <p>Shiwoo kindly explained the situation to Cheoljin.</p>
 
@@ -30,7 +30,7 @@ chapter = 75
 
 <p>Cheoljin suddenly asked a question that made Shiwoo flinch...</p>
 
-<p>"What's going on? Mom's just there for a bit to prepare for a new job she's starting~!!"</p>
+<p>"What's going on? Mom's just there for a bit to prepare for a new job she's starting!!"</p>
 
 <p>Shiwoo was a little taken aback by Cheoljin's question, but he thought there was no way Cheoljin could know what had happened between Mom and Shiwoo.</p>
 
@@ -40,11 +40,11 @@ chapter = 75
 
 <p>Shiwoo frantically threw out questions that came to mind, so that Cheoljin wouldn't suspect anything about his relationship with Mom.</p>
 
-<p>"Ah, I've just had a lot of things to check out lately~"</p>
+<p>"Ah, I've just had a lot of things to check out lately"</p>
 
 <p>"Really? What things?"</p>
 
-<p>"My dad, you know~!? It seems like he was having an affair~!"</p>
+<p>"My dad, you know!? It seems like he was having an affair!"</p>
 
 <p>Cheoljin casually revealed his family affairs.</p>
 
@@ -52,7 +52,7 @@ chapter = 75
 
 <p>Shiwoo asked back, startled.</p>
 
-<p>"Yeah~ It seems like he was running another household... I think he wrapped it up this time and came back~"</p>
+<p>"Yeah It seems like he was running another household... I think he wrapped it up this time and came back"</p>
 
 <p>Cheoljin was telling Shiwoo about the shocking content with an extremely calm and relaxed attitude.</p>
 
@@ -62,7 +62,7 @@ chapter = 75
 
 <p>Shiwoo asked with a worried expression.</p>
 
-<p>"Yeah~ Well... roughly~!"</p>
+<p>"Yeah Well... roughly!"</p>
 
 <p>Cheoljin answered as if he didn't care that Gyuri Ajumma knew.</p>
 
@@ -74,7 +74,7 @@ chapter = 75
 
 <p>Shiwoo suspected that Cheoljin might have some emotional problems.</p>
 
-<p>"Shiwoo, what if~!? You discovered your dad's affair, but it turned out that the affair partner was the real wife, and your mom was actually the affair partner? How would you feel?"</p>
+<p>"Shiwoo, what if!? You discovered your dad's affair, but it turned out that the affair partner was the real wife, and your mom was actually the affair partner? How would you feel?"</p>
 
 <p>Cheoljin seemed to be thinking about something for a moment, then asked Shiwoo a question instead of answering.</p>
 
@@ -82,7 +82,7 @@ chapter = 75
 
 <p>Shiwoo felt like something amazing and shocking had just come out of Cheoljin's mouth, but he couldn't process the words all at once, so he asked again.</p>
 
-<p>"Well~ I'm still looking into it, so I'll let you know when it becomes more certain~"</p>
+<p>"Well I'm still looking into it, so I'll let you know when it becomes more certain"</p>
 
 <p>Cheoljin was giving Shiwoo a pitiful look that didn't suit him.</p>
 
@@ -114,7 +114,7 @@ chapter = 75
 
 <p>Shiwoo asked, seemingly quite concerned about Cheoljin's reaction.</p>
 
-<p>"Wait and see~!!"</p>
+<p>"Wait and see!!"</p>
 
 <p>Cheoljin said triumphantly, fiddling with his smartphone.</p>
 
@@ -156,7 +156,7 @@ chapter = 75
 
 <p>Cheoljin turned to Gyuri Ajumma and called her.</p>
 
-<p>"Mom~"</p>
+<p>"Mom"</p>
 
 <p>Gyuri Ajumma continued to do the dishes without answering.</p>
 
@@ -232,7 +232,7 @@ chapter = 75
 
 <p>That's how the video ended.</p>
 
-<p>"Did you see that? This is what she's like when Dad's not here?! Mom can't say anything anymore~!"</p>
+<p>"Did you see that? This is what she's like when Dad's not here?! Mom can't say anything anymore!"</p>
 
 <p>Cheoljin was saying to Shiwoo, holding his chin up triumphantly with that satisfied smile from the video.</p>
 

@@ -132,15 +132,15 @@ chapter = 555
 
 <p>Shiwoo says in a firm tone, explaining and organizing the title and relationship between husband and wife to Seyoung.</p>
 
-<p>"Piiii~ What's that~! Poor Seonju~! Then now, no one but Seonmi can call Master-nim that?"</p>
+<p>"Piiii What's that! Poor Seonju! Then now, no one but Seonmi can call Master-nim that?"</p>
 
 <p>Seyoung asks, making a slightly sulky sound, as if she is very disappointed.</p>
 
-<p>"It's only natural that you can't call me that if you're not married~! Why? Are you interested in that too, Seyoung?"</p>
+<p>"It's only natural that you can't call me that if you're not married! Why? Are you interested in that too, Seyoung?"</p>
 
 <p>Shiwoo says, looking down at Seyoung with a playful smile, as if testing her intentions.</p>
 
-<p>"I like both Seonmi and Shiwoo oppa~! Mom is being taken away by oppa, and oppa is about to be taken away by Sejin Nuna's daughter!"</p>
+<p>"I like both Seonmi and Shiwoo oppa! Mom is being taken away by oppa, and oppa is about to be taken away by Sejin Nuna's daughter!"</p>
 
 <p>Seyoung says in a gloomy yet slightly provocative tone, as if she knows in detail about the marriage contract that Sejin Nuna sent.</p>
 
@@ -152,7 +152,7 @@ chapter = 555
 
 <p>But when he actually heard that story through Seyoung's mouth, Shiwoo was feeling very awkward.</p>
 
-<p>"Interest or whatever~ I was originally going to marry Seonmi first~! Seriously! And then marry oppa and connect Seonmi and oppa~! But oppa just took Seonmi first on his own~ Hiiiing!"</p>
+<p>"Interest or whatever I was originally going to marry Seonmi first! Seriously! And then marry oppa and connect Seonmi and oppa! But oppa just took Seonmi first on his own Hiiiing!"</p>
 
 <p>Seyoung confesses her absurd plan, which had gone awry without anyone knowing, to Shiwoo, and says as if she is feeling unfairly sad.</p>
 
@@ -166,7 +166,7 @@ chapter = 555
 
 <p>Shiwoo's penis spreads Seyoung's vagina hole, which is painfully tightening, and is pushed deep inside again.</p>
 
-<p>"Haeuuht... Haa-aht haeu-wuhht... I-is that so? Haaht~ Then can I call oppa 'Honey'?"</p>
+<p>"Haeuuht... Haa-aht haeu-wuhht... I-is that so? Haaht Then can I call oppa 'Honey'?"</p>
 
 <p>Seyoung was talking while looking at Shiwoo's eyes, even as her vagina hole was being stabbed by Shiwoo.</p>
 

@@ -86,7 +86,7 @@ chapter = 439
 
 <p>Fortunately, the middle-aged woman who was organizing the trash didn't seem to be looking at Mom or Shiwoo strangely.</p>
 
-<p>"Oh, I see~. Then have a delicious dinner~"</p>
+<p>"Oh, I see. Then have a delicious dinner"</p>
 
 <p>The neighboring woman doesn't say anything more or approach, and after finishing organizing the trash, she says goodbye and quickly disappears into the house.</p>
 
@@ -158,7 +158,7 @@ chapter = 439
 
 <p>Mom answered as if she understood Shiwoo's words.</p>
 
-<p>"But even though it's like this, Sehee and her friends are being very mischievous, even making Seonmi you run errands for cigarettes~!"</p>
+<p>"But even though it's like this, Sehee and her friends are being very mischievous, even making Seonmi you run errands for cigarettes!"</p>
 
 <p>"I'll make sure to set things straight with Sehee's friends later! Don't worry about that either!"</p>
 

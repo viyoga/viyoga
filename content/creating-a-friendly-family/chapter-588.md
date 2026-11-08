@@ -70,7 +70,7 @@ chapter = 588
 
 <p>Was Mom fantasizing about her own image of being tormented all day while switching out vibrators?</p>
 
-<p>「Well, Sehee will take care of adjusting it today~ Since I've left it to Sehee...」</p>
+<p>「Well, Sehee will take care of adjusting it today Since I've left it to Sehee...」</p>
 
 <p>「Ah, but isn't it a bit much if you're going out with Sehee and only Mom is wearing her panties lowered? Should I tell Sehee to wear hers lowered while walking around the department store too?」</p>
 
@@ -96,7 +96,7 @@ chapter = 588
 
 <p>Mom was answering Shiwoo's words as if she couldn't help it.</p>
 
-<p>「Okay, then get ready and have a safe trip~ I'll have a good time meeting Sejin Nuna too...」</p>
+<p>「Okay, then get ready and have a safe trip I'll have a good time meeting Sejin Nuna too...」</p>
 
 <p>After confirming Mom's plan, determination, and submissive attitude in her annoyed tone, Shiwoo spoke to Mom as if urging her to have a safe trip.</p>
 
@@ -154,7 +154,7 @@ chapter = 588
 
 <p>Mom quickly wrote a text as if embarrassed, speaking as if trying to fix her slip of the tongue.</p>
 
-<p>「Okay, if I have sex with Sejin today, I'll try to be as gentle as possible... I'll also tell her that Mom told me to be gentle~ I don't know if it'll work though hehe」</p>
+<p>「Okay, if I have sex with Sejin today, I'll try to be as gentle as possible... I'll also tell her that Mom told me to be gentle I don't know if it'll work though hehe」</p>
 
 <p>Shiwoo was still joking and teasing Mom.</p>
 
@@ -170,7 +170,7 @@ chapter = 588
 
 <p>Reading the texts with Mom over and over again, Shiwoo was leaving the school gate.</p>
 
-<p>"Yo~ Shiwoo, are you leaving already?"</p>
+<p>"Yo Shiwoo, are you leaving already?"</p>
 
 <p>Cheoljin, who had followed Shiwoo from behind at some point, was approaching while talking to him...</p>
 
@@ -182,7 +182,7 @@ chapter = 588
 
 <p>At the same time, Shiwoo hid his smartphone as if concealing it behind his back.</p>
 
-<p>"What is it? A new girlfriend? I was going to go somewhere with the classmates for the first time in a while~"</p>
+<p>"What is it? A new girlfriend? I was going to go somewhere with the classmates for the first time in a while"</p>
 
 <p>Cheoljin looked at Shiwoo and said with a playful expression.</p>
 
@@ -190,7 +190,7 @@ chapter = 588
 
 <p>Shiwoo said to Cheoljin as if explaining his innocence in front of his friends, as if he was dumbfounded.</p>
 
-<p>"Well... I thought you were going to meet Yu Yena or Sejin~ Even if you meet another girl, contact Gyuri once in a while~ She seems to be subtly waiting for your call since that day? It seems like she has something to say too..."</p>
+<p>"Well... I thought you were going to meet Yu Yena or Sejin Even if you meet another girl, contact Gyuri once in a while She seems to be subtly waiting for your call since that day? It seems like she has something to say too..."</p>
 
 <p>Cheoljin mentioned Yu Yena Teacher, Shiwoo's Nuna, and his own Mom's names in front of his friends, as if talking about someone else, teasing Shiwoo.</p>
 
@@ -204,7 +204,7 @@ chapter = 588
 
 <p>Shiwoo asked, recalling that Gyuri Ajumma was working at the dark cafe in the basement of the academy, using an expression that only Cheoljin could understand.</p>
 
-<p>"Ah~ It seems like she finished her part-time job recently~ If you call her around this time, she'll probably answer right away?"</p>
+<p>"Ah It seems like she finished her part-time job recently If you call her around this time, she'll probably answer right away?"</p>
 
 <p>Cheoljin told Shiwoo that Gyuri Ajumma had finished what she was doing today, as if he understood exactly what Shiwoo was saying.</p>
 
@@ -214,6 +214,6 @@ chapter = 588
 
 <p>Now that he was thinking about calling Gyuri Ajumma, Shiwoo was worried about what to say first...</p>
 
-<p>"Then we'll go first, so take care of your business~"</p>
+<p>"Then we'll go first, so take care of your business"</p>
 
 <p>While Shiwoo was worrying inwardly, Cheoljin spoke while passing Shiwoo with his classmates.</p>

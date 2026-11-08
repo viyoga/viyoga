@@ -80,7 +80,7 @@ chapter = 562
 
 <p>Sehee Nuna watches Mom like that for a moment.</p>
 
-<p>「Aigoo~ It's okay, it's okay~ Don't cry~」</p>
+<p>「Aigoo It's okay, it's okay Don't cry」</p>
 
 <p>Sehee Nuna sighs as if she can't help it and soothes Mom as she sees her crying.</p>
 
@@ -130,7 +130,7 @@ chapter = 562
 
 <p>A small object is inserted between the mattress and Mom's pelvis, vibrating as if riding a rhythm.</p>
 
-<p>Jiiiing...jiiiiiiing...jiiiing...jiiiiiiing~</p>
+<p>Jiiiing...jiiiiiiing...jiiiing...jiiiiiiing</p>
 
 <p>A familiar vibration sound was ringing from Mom's crotch.</p>
 
@@ -258,7 +258,7 @@ chapter = 562
 
 <p>Sehee Nuna seems to have thrown the recording smartphone camera onto the bed and is taking some action.</p>
 
-<p>「Okay, okay~ I'll wait until Mom is ready... Master will probably understand too... I'll help you, so don't worry~!」</p>
+<p>「Okay, okay I'll wait until Mom is ready... Master will probably understand too... I'll help you, so don't worry!」</p>
 
 <p>Sehee Nuna's gentle voice is heard from the black screen, comforting Mom.</p>
 

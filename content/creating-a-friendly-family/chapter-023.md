@@ -164,7 +164,7 @@ chapter = 23
 
 <p>Shiwoo was now genuinely thinking of Mom as cute as a woman.</p>
 
-<p>'Sigh~~ Where on earth did you learn such things?'</p>
+<p>'Sigh Where on earth did you learn such things?'</p>
 
 <p>Mom sent Shiwoo a message as if complaining.</p>
 
@@ -250,7 +250,7 @@ chapter = 23
 
 <p>Seyoung was excitedly telling Shiwoo about the magic academy she had gone to with her aunt and Sua yesterday.</p>
 
-<p>"I liked the astrology magic and hypnosis magic! Sua likes illusion magic~ hehe."</p>
+<p>"I liked the astrology magic and hypnosis magic! Sua likes illusion magic hehe."</p>
 
 <p>Listening to Seyoung, it seemed that magic was quite subdivided by type.</p>
 
@@ -270,7 +270,7 @@ chapter = 23
 
 <p>If Seyoung and Sua were dreaming of becoming magical girls, Shiwoo could sincerely support and cheer them on.</p>
 
-<p>"Yu Yena Teacher was there too~ hehehe"</p>
+<p>"Yu Yena Teacher was there too hehehe"</p>
 
 <p>A magic class had been newly established as one of the after-school classes at Seyoung's academy since last spring.</p>
 

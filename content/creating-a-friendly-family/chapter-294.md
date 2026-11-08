@@ -142,7 +142,7 @@ chapter = 294
 
 <p>Mom's face turned bright red as she answered, as if she wasn't used to Shiwoo's lewd jokes yet.</p>
 
-<p>"Good girl~ Mom can keep this as a souvenir."</p>
+<p>"Good girl Mom can keep this as a souvenir."</p>
 
 <p>Shiwoo says, placing Seyoung's panties that he took from the changing room on the sink.</p>
 
@@ -208,11 +208,11 @@ chapter = 294
 
 <p>Shiwoo didn't like Mom's answer, so he takes his hand off her buttocks and raises it into the air again.</p>
 
-<p>-Paaang~!!</p>
+<p>-Paaang!!</p>
 
 <p>Once again, the sound of Mom's buttocks bursting echoes throughout the living room.</p>
 
-<p>"Heueuk~!"</p>
+<p>"Heueuk!"</p>
 
 <p>Mom's moaning sound, almost sobbing, is released.</p>
 

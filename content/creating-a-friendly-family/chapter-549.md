@@ -30,11 +30,11 @@ chapter = 549
 
 <p>Shiwoo asks Seyoung for no reason, as if he were doing the worrying that Mom would normally do.</p>
 
-<p>,Yeah~ I'm okay, Shiwoo oppa~! The weather's all warmed up now anyway! Even after showering in the evening, it was fine to walk around with all my clothes off, so it's the same in the morning~,</p>
+<p>,Yeah I'm okay, Shiwoo oppa! The weather's all warmed up now anyway! Even after showering in the evening, it was fine to walk around with all my clothes off, so it's the same in the morning,</p>
 
 <p>Seyoung answers Shiwoo with a bright smile.</p>
 
-<p>,True~ The weather's gotten a lot warmer~ It's kind of funny to say it's okay to walk around naked in the evening but then say it's not okay in the morning because you'll catch a cold, right?,</p>
+<p>,True The weather's gotten a lot warmer It's kind of funny to say it's okay to walk around naked in the evening but then say it's not okay in the morning because you'll catch a cold, right?,</p>
 
 <p>Shiwoo says, echoing Seyoung's words, emphasizing that there's no reason not to walk around naked in the morning, at least not for reasons of cold or health.</p>
 
@@ -44,17 +44,17 @@ chapter = 549
 
 <p>Although she twitched her body slightly, unlike her legs, which were urgently squeezing Shiwoo's foot, Mom above the table still maintained a calm appearance, feigning normalcy.</p>
 
-<p>,Yeah, that's right~! Besides, when I was staying at Mom and Seonju Imo's house, I kept taking off my clothes and living like that even when it was colder than it is now~,</p>
+<p>,Yeah, that's right! Besides, when I was staying at Mom and Seonju Imo's house, I kept taking off my clothes and living like that even when it was colder than it is now,</p>
 
 <p>Seyoung says to Shiwoo, as if recalling the memories of freely walking around in her underwear while staying at Seonju Imo's house.</p>
 
-<p>,Really~? You were taking off your clothes at Seonju's house too? Even before the weather warmed up like it is now?,</p>
+<p>,Really? You were taking off your clothes at Seonju's house too? Even before the weather warmed up like it is now?,</p>
 
 <p>Shiwoo, as if Seyoung's story was new to him, deliberately repeats her words, questioning her.</p>
 
 <p>Shiwoo mentioned Seonju Imo in casual speech, omitting the honorific title of Imo.</p>
 
-<p>,Yeah~ Seonju and Sua's house is originally where we live wearing only underwear~ Sometimes Seonju even takes a shower and then spends the whole day without even wearing underwear~,</p>
+<p>,Yeah Seonju and Sua's house is originally where we live wearing only underwear Sometimes Seonju even takes a shower and then spends the whole day without even wearing underwear,</p>
 
 <p>Seyoung is saying, as if happily exposing Seonju Imo's daily life.</p>
 
@@ -84,7 +84,7 @@ chapter = 549
 
 <p>Mom said, with a voice mixed with annoyance and trembling, as if Shiwoo's question, which repeatedly demanded the same answer, was annoying.</p>
 
-<p>,Oh, did you? Sorry! I was paying attention to other things, so I must have missed what Mom said for a moment~ Anyway, it's okay to be like that during the day now, right?,</p>
+<p>,Oh, did you? Sorry! I was paying attention to other things, so I must have missed what Mom said for a moment Anyway, it's okay to be like that during the day now, right?,</p>
 
 <p>Shiwoo asks Mom, who is annoyed, with a playful attitude and a smile on his face.</p>
 
@@ -92,11 +92,11 @@ chapter = 549
 
 <p>Mom, unable to bear it any longer, showed a hysterical reaction as if she was losing her temper, and sharply snapped at Shiwoo.</p>
 
-<p>,Okay, okay~ I got it, I got it~ Sorry, I know it's okay, so I won't ask anymore... Hehe,\,</p>
+<p>,Okay, okay I got it, I got it Sorry, I know it's okay, so I won't ask anymore... Hehe,\,</p>
 
 <p>Shiwoo releases the strength in his toes and was awkwardly appeasing Mom, who was almost crying and losing her temper.</p>
 
-<p>,Shiwoo oppa, Mom has been saying it's okay since a while ago~! Now, anyone who wants to take off their clothes at home can just take them off!\,</p>
+<p>,Shiwoo oppa, Mom has been saying it's okay since a while ago! Now, anyone who wants to take off their clothes at home can just take them off!\,</p>
 
 <p>Seyoung adds, as if scolding and rebuking Shiwoo, and states the newly established lower rule in front of the family.</p>
 
@@ -114,7 +114,7 @@ chapter = 549
 
 <p>With her knees and calves twisted, Mom was barely holding on to her panties, which were about to be taken off by Shiwoo.</p>
 
-<p>,Well~ you still have to wear underwear, right? Mom said it's okay because she's wearing panties, so,\,</p>
+<p>,Well you still have to wear underwear, right? Mom said it's okay because she's wearing panties, so,\,</p>
 
 <p>Shiwoo says, as if talking to himself in a nonchalant manner, while putting strength into his toes.</p>
 
@@ -124,7 +124,7 @@ chapter = 549
 
 <p>Shiwoo listens to Mom's voice and releases the elastic band of the panties caught on his toes, as if flicking it.</p>
 
-<p>Tting~!</p>
+<p>Tting!</p>
 
 <p>The sound of the panties' waist elastic band snapping was heard from under the table.</p>
 

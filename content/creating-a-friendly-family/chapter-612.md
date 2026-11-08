@@ -74,7 +74,7 @@ chapter = 612
 
 <p>As if slightly worried about his first time having sex with a pregnant woman, Shiwoo asked her as if confirming.</p>
 
-<p>"Eung~ Haaaa... the hospital said it's a stable period, so this much is okay. If you want, Shiwoo... a little more... rough is okay too..."</p>
+<p>"Eung Haaaa... the hospital said it's a stable period, so this much is okay. If you want, Shiwoo... a little more... rough is okay too..."</p>
 
 <p>Sejin Nuna spoke as if reassuring Shiwoo, as if she knew what he was worried about.</p>
 
@@ -170,7 +170,7 @@ chapter = 612
 
 <p>Shiwoo moved his waist back and forth quickly, thrusting as if shaking off the vagina flesh of Sejin Nuna that was squeezing and holding onto his penis.</p>
 
-<p>"Haaht, haaa... heueung... eueueung... that's right... haaaaa~ haaat..."</p>
+<p>"Haaht, haaa... heueung... eueueung... that's right... haaaaa haaat..."</p>
 
 <p>Sejin Nuna nodded her head while being thrust by Shiwoo.</p>
 

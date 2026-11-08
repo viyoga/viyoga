@@ -6,7 +6,7 @@ chapter = 699
 +++
 <p>Shiwoo shakes his head as if to brush off the goosebumps crawling over him at Seyoung's whisper tickling his spine.</p>
 
-<p>"Really? I'll take care of Seonmi, so now, Oppa, go deal with Sehee Nuna~!"</p>
+<p>"Really? I'll take care of Seonmi, so now, Oppa, go deal with Sehee Nuna!"</p>
 
 <p>As Seyoung says this, she takes Mom's leash, which was held in Shiwoo's hand.</p>
 
@@ -38,7 +38,7 @@ chapter = 699
 
 <p>This pillar, already tempered through the embrace of several beloved women, remained untiring, revealing its majesty like a rock unweathered by wind and rain.</p>
 
-<p>"Before that! I have to check~!"</p>
+<p>"Before that! I have to check!"</p>
 
 <p>Seyoung crawls forward toward Shiwoo, bringing her face close to his penis as she speaks.</p>
 
@@ -74,7 +74,7 @@ chapter = 699
 
 <p>When Seyoung's oral, which he thought would last a long time, ended so quickly, Shiwoo looks at the smiling Seyoung with a puzzled expression.</p>
 
-<p>"I guess you really were holding back? I thought you might have cum inside her at least once or twice while Seonmi went over the edge several times... Hehe~"</p>
+<p>"I guess you really were holding back? I thought you might have cum inside her at least once or twice while Seonmi went over the edge several times... Hehe"</p>
 
 <p>Licking Mom's love juice from her lips with her tongue, Seyoung speaks as if playfully confirming the fact that Shiwoo did not reach ejaculation inside Mom's vagina.</p>
 

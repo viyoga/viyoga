@@ -28,7 +28,7 @@ chapter = 307
 
 <p>A strangely tense, wet friction sound was heard loudly from inside Seonju Imo's vagina hole.</p>
 
-<p>,Haaaeuung~ Haaaeuuueuseu~ Haaaaa....Haaaeuung~,</p>
+<p>,Haaaeuung Haaaeuuueuseu Haaaaa....Haaaeuung,</p>
 
 <p>Seonju Imo is letting out moaning sounds that seem to be filled with lust, like the howling or crying of an animal with its throat pressed.</p>
 
@@ -56,7 +56,7 @@ chapter = 307
 
 <p>Shiwoo fixes Seonju Imo's pelvis with his fingers and shoves his cock in all the way to the root.</p>
 
-<p>,Haaat! Haeueuk! Haaaaak! Haeuhreung~! Heueueuk! Heueueuseut! Haaheueueuk! Heueueung~ Master~!\,</p>
+<p>,Haaat! Haeueuk! Haaaaak! Haeuhreung! Heueueuk! Heueueuseut! Haaheueueuk! Heueueung Master!\,</p>
 
 <p>Seonju Imo is screaming, burying her head on the ground, with helpless and pitiful cries.</p>
 
@@ -78,7 +78,7 @@ chapter = 307
 
 <p>The imprints of pleasure and submission are constantly engraved in Seonju Imo's womb in each section leading from climax to climax.</p>
 
-<p>,Haeueuk~ Haeueueuk~Master, I...I think I'm going to die now~ Heegeugeuk Hageuk,</p>
+<p>,Haeueuk HaeueueukMaster, I...I think I'm going to die now Heegeugeuk Hageuk,</p>
 
 <p>Seonju Imo, now making sounds as if she is about to run out of breath, begs Shiwoo.</p>
 
@@ -88,11 +88,11 @@ chapter = 307
 
 <p>Shiwoo pounds his waist much more violently than before, as if he doesn't care at all about Seonju Imo's state of orgasm and convulsion.</p>
 
-<p>-Ssu-puck~! Ssu-puck~! Sseu-cook~! Sseu-cook~! Ssu-puck! Ssu-puck~!</p>
+<p>-Ssu-puck! Ssu-puck! Sseu-cook! Sseu-cook! Ssu-puck! Ssu-puck!</p>
 
 <p>Shiwoo's penis roughly scrapes the mucous membrane inside Seonju Imo's vagina hole and is shoved deeply with the momentum to rupture her uterus and internal organs.</p>
 
-<p>,Haaaang! Haaaeuang~! Master! Haaang! I was wrong~! Haaaeuang Haaaeuang! I'll listen to you from now on~ Heueung~ I'll listen well, so please forgive me just once! Haeueuk! Heuk! Haaaang~!,</p>
+<p>,Haaaang! Haaaeuang! Master! Haaang! I was wrong! Haaaeuang Haaaeuang! I'll listen to you from now on Heueung I'll listen well, so please forgive me just once! Haeueuk! Heuk! Haaaang!,</p>
 
 <p>Seonju Imo is now begging Shiwoo to stop, crying and begging for forgiveness.</p>
 
@@ -106,17 +106,17 @@ chapter = 307
 
 <p>Shiwoo is going to almost kill Seonju Imo, continuously and brutally shoving his huge penis into her hole.</p>
 
-<p>,Haeueung! Haeueueung~! T...this kind of thing....I can't anymore, Haaak... M...무리...니까..., Shiwoo...ya...Haeueung...Master...please~~!,</p>
+<p>,Haeueung! Haeueueung! T...this kind of thing....I can't anymore, Haaak... M...무리...니까..., Shiwoo...ya...Haeueung...Master...please!,</p>
 
 <p>Seonju Imo is almost out of her mind, making sounds as if she is about to run out of breath.</p>
 
-<p>,Heeeeeik~ Heuk...Haaaaak~ Heuheukheuk....I...I think I'm going to die~ Heueueung~! W...what...am I going to do now~! Haeueuk!,</p>
+<p>,Heeeeeik Heuk...Haaaaak Heuheukheuk....I...I think I'm going to die Heueueung! W...what...am I going to do now! Haeueuk!,</p>
 
 <p>Seonju Imo is speaking in a desperate voice as if she is really in a serious situation.</p>
 
 <p>Shiwoo simultaneously puts strength into his thumb, which is stuck in Seonju Imo's anus, and the remaining four fingers that were naturally wrapping around her buttocks, strongly twisting her pelvis and sacrum as if to break them.</p>
 
-<p>,Heegeuk!! Haeueuk...Haaak!! ~Heuaaaaang~!Heueuk! Haaaaaang! Master! Master~!Heueueueueung~!,</p>
+<p>,Heegeuk!! Haeueuk...Haaak!! Heuaaaaang!Heueuk! Haaaaaang! Master! Master!Heueueueueung!,</p>
 
 <p>In the end, Seonju Imo, unable to bear it, grabs Shiwoo's wrist and bursts into tears.</p>
 
@@ -128,7 +128,7 @@ chapter = 307
 
 <p>Only after seeing that scene does Shiwoo stop his waist movements.</p>
 
-<p>,Haeueu~ Haaa~ Haeueueueu~ Heueueueue,</p>
+<p>,Haeueu Haaa Haeueueueu Heueueueue,</p>
 
 <p>Seonju Imo, urinating while combined with Shiwoo, was making moaning sounds like a dirge, as if both her body and soul had been completely털렸.</p>
 
@@ -138,7 +138,7 @@ chapter = 307
 
 <p>Shiwoo pulls his thumb out of Seonju Imo's anus.</p>
 
-<p>-Ppong~!</p>
+<p>-Ppong!</p>
 
 <p>A cheerful sound like opening a bottle cap was heard from between Seonju Imo's anus hole, from which the finger was pulled out.</p>
 

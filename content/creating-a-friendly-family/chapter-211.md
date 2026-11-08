@@ -64,15 +64,15 @@ chapter = 211
 
 <p>Shiwoo's penis, aroused by complex emotions, was wriggling as if it would burst out of his clothes.</p>
 
-<p>,You've been listening well, haven't you?!... I should give our Seonmi~ a reward tonight too~!"</p>
+<p>,You've been listening well, haven't you?!... I should give our Seonmi a reward tonight too!"</p>
 
 <p>Shiwoo spoke, calling Mom's name casually as if just passing by.</p>
 
-<p>-Tok! Tok! Tok~!</p>
+<p>-Tok! Tok! Tok!</p>
 
 <p>Shiwoo gently patted Mom's buttocks with his palm.</p>
 
-<p>,Haaa-aaaa~"</p>
+<p>,Haaa-aaaa"</p>
 
 <p>Mom's body trembled as she sighed...</p>
 
@@ -80,11 +80,11 @@ chapter = 211
 
 <p>As if seizing the opportunity, he spread his legs, making it seem as if he was embracing Mom's legs between his thighs.</p>
 
-<p>,Don't scold Sehee too much~! Sehee only followed what I told her to do~!"</p>
+<p>,Don't scold Sehee too much! Sehee only followed what I told her to do!"</p>
 
 <p>Shiwoo mentioned Sehee, speaking to Mom as if giving her a warning.</p>
 
-<p>,Yesterday, when I went to the motel with Sehee and had sex, I thought a lot about Mom and Seyoung~?"</p>
+<p>,Yesterday, when I went to the motel with Sehee and had sex, I thought a lot about Mom and Seyoung?"</p>
 
 <p>Shiwoo covered Mom's buttocks with his palm and rubbed them, trying to bring up the things that had happened when he went to the motel with Sehee yesterday.</p>
 
@@ -96,7 +96,7 @@ chapter = 211
 
 <p>Shiwoo stopped speaking at Mom's urgent voice, paused for a moment, and looked at Mom.</p>
 
-<p>,I...I think I'm done disinfecting everything... Th...there are... Seonju and the ch...children here right now... Mom will go out first~ C...come out when you're done... Okay~?"</p>
+<p>,I...I think I'm done disinfecting everything... Th...there are... Seonju and the ch...children here right now... Mom will go out first C...come out when you're done... Okay?"</p>
 
 <p>Mom awkwardly stammered, speaking to Shiwoo as if acting like her usual self.</p>
 
@@ -158,7 +158,7 @@ chapter = 211
 
 <p>He grabbed his massive penis, which had precum flowing from it, with one hand.</p>
 
-<p>-Tak~! Tak~! Tak~! Tak~! Tak~!</p>
+<p>-Tak! Tak! Tak! Tak! Tak!</p>
 
 <p>Shiwoo began to stroke his penis up and down as it was.</p>
 
@@ -208,7 +208,7 @@ chapter = 211
 
 <p>,Eueueut!"</p>
 
-<p>-Pusyut~! Pusyuk! Pusyuk~!</p>
+<p>-Pusyut! Pusyuk! Pusyuk!</p>
 
 <p>Semen gushed out violently from the tip of Shiwoo's glans, which was thickly engorged with blood.</p>
 

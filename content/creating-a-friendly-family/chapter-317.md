@@ -102,7 +102,7 @@ chapter = 317
 
 <p>Shiwoo alternately looks at his younger sisters' eyes, which are shy but filled with lust.</p>
 
-<p>-Pusyuk~! Pusyuk~! Pusyuuuk~! Pusyuuuuuk!!</p>
+<p>-Pusyuk! Pusyuk! Pusyuuuk! Pusyuuuuuk!!</p>
 
 <p>Shiwoo ejaculates his semen into Sua's bag while making eye contact with his younger sisters.</p>
 

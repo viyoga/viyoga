@@ -68,7 +68,7 @@ chapter = 342
 
 <p>Shiwoo pressured Seyoung, pushing his finger in to the very limit before the loss of her virginity.</p>
 
-<p>"Shi...Shiwoo oppa-ang~"</p>
+<p>"Shi...Shiwoo oppa-ang"</p>
 
 <p>Seyoung's voice, calling Shiwoo urgently as if flustered, could be heard.</p>
 
@@ -192,7 +192,7 @@ chapter = 342
 
 <p>Only after taking the pictures did Shiwoo pull his hips back and take his penis out of Sua's mouth.</p>
 
-<p>"Kollok! Kulleok! Huaaa~ Kulleok! Heueueueu~ Uk!"</p>
+<p>"Kollok! Kulleok! Huaaa Kulleok! Heueueueu Uk!"</p>
 
 <p>Sua was making a series of sounds, roughly inhaling air along with coughs close to vomiting.</p>
 

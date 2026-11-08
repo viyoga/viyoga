@@ -12,7 +12,7 @@ chapter = 822
 
 <p>Siu could only watch her for a while, chewing over the words Shin Yu-na had just uttered.</p>
 
-<p>"Now, let me play the video for you~"</p>
+<p>"Now, let me play the video for you"</p>
 
 <p>She said, lightly tapping the screen of the smartphone in her hand.</p>
 
@@ -44,7 +44,7 @@ chapter = 822
 
 <p>There wasn't a shred of hesitation in the play of her fingers pressing his penis or her movements stroking his skin.</p>
 
-<p>"To be honest, I've never worked dressed like this before, but it definitely seems to be effective~ I think doing it this way is quite nice..."</p>
+<p>"To be honest, I've never worked dressed like this before, but it definitely seems to be effective I think doing it this way is quite nice..."</p>
 
 <p>Shin Yu-na chuckled softly, adding a playful monologue.</p>
 

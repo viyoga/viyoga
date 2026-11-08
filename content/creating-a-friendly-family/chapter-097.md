@@ -8,7 +8,7 @@ chapter = 97
 
 <p>Shiwoo grasped Sehee Nuna's slippery breasts from behind, then pushed them forward as if milking them. He pulled her nipples forward with his thumb and forefinger, while his remaining palm and fingers squeezed the fleshy mounds of her breasts as if wringing them. And simultaneously, with his other hand, he sought out Sehee Nuna's clitoris, pinching, crushing, and twisting it.</p>
 
-<p>「Heueut~」</p>
+<p>「Heueut」</p>
 
 <p>A moaning sound escaped Sehee Nuna's lips, like a sob, from the stimulating pleasure mingled with pain. As if to humiliate Sehee Nuna, Shiwoo relentlessly repeated the motion several times, pushing Sehee Nuna hard against the tiled wall of the shower room.</p>
 
@@ -24,7 +24,7 @@ chapter = 97
 
 <p>Shiwoo raised his voice, pressing down hard on Sehee Nuna's body.</p>
 
-<p>「I already did it for you this morning~」</p>
+<p>「I already did it for you this morning」</p>
 
 <p>Sehee Nuna said to Shiwoo, as if she didn't understand.</p>
 
@@ -44,7 +44,7 @@ chapter = 97
 
 <p>Shiwoo continued to speak, as if interrogating Sehee Nuna.</p>
 
-<p>「Haaah~」</p>
+<p>「Haaah」</p>
 
 <p>Sehee Nuna sighed, as if Shiwoo's persistent interrogation was tormenting her.</p>
 
@@ -56,7 +56,7 @@ chapter = 97
 
 <p>Shiwoo spoke as if pleading, with the desperate feeling that this might be his last chance to change Sehee Nuna's mind before her blind date. Another brief moment of silence returned. Shiwoo, pressing Sehee Nuna against the wall, stopped moving and waited for her answer.</p>
 
-<p>「That's why it can't happen... you idiot~」</p>
+<p>「That's why it can't happen... you idiot」</p>
 
 <p>Sehee Nuna, with her body pressed down by Shiwoo, answered with difficulty, almost to herself. That's why it can't happen... Sehee Nuna's answer was utterly incomprehensible. Shiwoo felt both despair and powerlessness at Sehee Nuna's reply.</p>
 
@@ -68,7 +68,7 @@ chapter = 97
 
 <p>Sehee Nuna's slippery hand.</p>
 
-<p>「Aheut~」</p>
+<p>「Aheut」</p>
 
 <p>Shiwoo gasped at Sehee Nuna's sudden counterattack.</p>
 
@@ -78,7 +78,7 @@ chapter = 97
 
 <p>-Tak! Tak! Tak! Tak!! Tak!!</p>
 
-<p>「Haaeut~ Haat Haak W-wait!」</p>
+<p>「Haaeut Haat Haak W-wait!」</p>
 
 <p>A sudden, intense stimulation overwhelmed him. Perhaps due to the masturbation he had just performed after watching the video, Shiwoo was experiencing an unusually early and intense climax. Seeing Shiwoo's contorted expression, Sehee Nuna stopped her hand and turned on the shower, beginning to wash around Shiwoo's groin. Sehee Nuna spread her palm, rubbed the glans and the base of the shaft, then gently took his testicles and washed them as if kneading. Shiwoo felt a strange sense of relief from Sehee Nuna's warm touch, which gently enveloped his testicles.</p>
 
@@ -88,15 +88,15 @@ chapter = 97
 
 <p>Sehee Nuna brought her lips to his glans, kissing it. A tingling current seemed to flow up Shiwoo's back to his brain. Sehee Nuna rolled the tip of her tongue, descending from the glans to the root, as if tickling him. When she reached the base of the shaft, Sehee Nuna flattened her tongue and strongly licked the entire shaft upwards, as if sweeping it. The fierce stimulation of her tongue clung to the flesh of Shiwoo's penis, transmitting its sensation.</p>
 
-<p>「Haaaat~~ Sehee Nuna!!」</p>
+<p>「Haaaat Sehee Nuna!!」</p>
 
 <p>Sehee Nuna repeated those motions, licking Shiwoo's cock up and down several times as if to melt it. Moving a little further down, Sehee Nuna began to lick Shiwoo's testicles. Sehee Nuna licked between the folds of his scrotal sac, as if tickling him, smearing saliva. Then, she sucked both of Shiwoo's testicles into her mouth at once. The damp, warm sensation of Sehee Nuna's mouth felt like it was covering his wrinkled flesh. As if taking revenge for Shiwoo's aggressive actions when they entered the shower room, Sehee Nuna mumbled and rolled Shiwoo's balls in her mouth.</p>
 
-<p>「Heoeot~ N-Nuna.... Nuna!!」</p>
+<p>「Heoeot N-Nuna.... Nuna!!」</p>
 
 <p>Shiwoo was on the verge of ejaculation from a new pain and stimulation he had never felt before. Shiwoo urgently grabbed Sehee Nuna's head with both hands and pushed her away. Shiwoo's scrotal skin, which had been in Sehee Nuna's mouth, was strongly pulled and stretched as if it would be torn off.</p>
 
-<p>「Aaaah~!!」</p>
+<p>「Aaaah!!」</p>
 
 <p>Shiwoo barely held back his ejaculation, letting out a moan. Sehee Nuna looked up at Shiwoo, seemingly amused, then licked Shiwoo's shaft again, moving upwards. Shiwoo's hands were now resting on Sehee Nuna's wet head, as if fixed there. Sehee Nuna swallowed Shiwoo's glans.</p>
 
@@ -122,7 +122,7 @@ chapter = 97
 
 <p>If I just do a little more, wouldn't I be able to make Sehee Nuna completely my own possession? With a desperate heart, Shiwoo shoved his 'thing' into Sehee Nuna's throat to its limit. Shiwoo's climax surged to an extreme amidst superstitious delusions and confusion. Sehee Nuna's eyeballs rolled back as she looked at Shiwoo, revealing the whites of her eyes. Feeling a sudden chill, Shiwoo pulled his penis out of Sehee Nuna's mouth.</p>
 
-<p>「Huaaaak!!! Haaah~ Koolleok Haak Haaaat~ Koolleok!!!」</p>
+<p>「Huaaaak!!! Haaah Koolleok Haak Haaaat Koolleok!!!」</p>
 
 <p>The moment his penis was pulled from her throat, Sehee Nuna collapsed onto the shower room floor, gasping for breath and coughing as if she were dying. A thick, vomit-like fluid oozed and clung around Sehee Nuna's face and mouth. The ecstasy of climax enveloped Shiwoo's body.</p>
 

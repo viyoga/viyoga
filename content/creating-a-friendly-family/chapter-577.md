@@ -78,7 +78,7 @@ chapter = 577
 
 <p class="scene-break">· · ·</p>
 
-<p>「Okay, okay~ Calm down a bit... I'll explain from now on.」</p>
+<p>「Okay, okay Calm down a bit... I'll explain from now on.」</p>
 
 <p>Cheoljin continued, speaking softly as if trying to quell the sharp curiosity pouring out of Shiwoo's eyes.</p>
 

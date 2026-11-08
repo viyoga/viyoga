@@ -48,7 +48,7 @@ chapter = 740
 
 <p>Shiwoo stood in front of the booth's display case for a while, scanning the rings while imagining a ring placed on Mom's finger. The small, delicately crafted designs of the rings seemed to make Shiwoo's heart flutter secretly.</p>
 
-<p>"Hello~ Is there a design you're interested in?"</p>
+<p>"Hello Is there a design you're interested in?"</p>
 
 <p>A female employee approached Shiwoo with a polite tone and expression and spoke to him.</p>
 
@@ -56,7 +56,7 @@ chapter = 740
 
 <p>Shiwoo spoke with a slightly nervous expression, looking at the female employee.</p>
 
-<p>"Ah~ Are you looking for a couple's ring to match with your girlfriend?"</p>
+<p>"Ah Are you looking for a couple's ring to match with your girlfriend?"</p>
 
 <p>The female employee continued to maintain her smile while asking Shiwoo.</p>
 
@@ -72,7 +72,7 @@ chapter = 740
 
 <p>Shiwoo answered with a flustered expression.</p>
 
-<p>"It's okay~ Since the size can be adjusted later anyway... There are many cases where people buy the size as is and then come back to adjust it after trying it on. Is your girlfriend very thin by any chance?"</p>
+<p>"It's okay Since the size can be adjusted later anyway... There are many cases where people buy the size as is and then come back to adjust it after trying it on. Is your girlfriend very thin by any chance?"</p>
 
 <p>The employee nodded kindly and added a natural question so that Shiwoo could answer comfortably.</p>
 
@@ -130,7 +130,7 @@ chapter = 740
 
 <p>It seemed Mom was contacting him after receiving the card usage details via text.</p>
 
-<p>[It's just a new set of clothes. I was in my academy uniform because I came straight from the academy~ I can't walk around in an academy uniform on my first date with Mom.]</p>
+<p>[It's just a new set of clothes. I was in my academy uniform because I came straight from the academy I can't walk around in an academy uniform on my first date with Mom.]</p>
 
 <p>Shiwoo spoke as if making an excuse to Mom, who was about to start nagging via text.</p>
 

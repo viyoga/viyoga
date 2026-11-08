@@ -16,7 +16,7 @@ chapter = 174
 
 <p>The wet friction sound of a huge lump of meat echoed from inside Seonju Imo's mouth.</p>
 
-<p>"Ulgeok! Uueut~ Heueuk~"</p>
+<p>"Ulgeok! Uueut Heueuk"</p>
 
 <p>Seonju Imo pushed away Shiwoo's thighs with her palms, making a retching sound again.</p>
 
@@ -34,7 +34,7 @@ chapter = 174
 
 <p>Shiwoo raised his voice as if threatening Seonju Imo.</p>
 
-<p>"Uueup~ Uuuueuk. Heueup!"</p>
+<p>"Uueup Uuuueuk. Heueup!"</p>
 
 <p>Seonju Imo continued to gag.</p>
 
@@ -102,7 +102,7 @@ chapter = 174
 
 <p>Only then did Shiwoo, as if feeling sorry, release the strength in his arm that had been restraining Seonju Imo's head, and pulled the thick, long flesh out of her mouth.</p>
 
-<p>"Kulleok! Kulleok!! Kahheut~!! Heueueueut~"</p>
+<p>"Kulleok! Kulleok!! Kahheut!! Heueueueut"</p>
 
 <p>Seonju Imo coughed and exhaled rough breaths.</p>
 
@@ -164,7 +164,7 @@ chapter = 174
 
 <p>Shiwoo began to piston violently, ignoring Seonju Imo's situation.</p>
 
-<p>"Haeue...Haeueueeut...! Haaaa~eup"</p>
+<p>"Haeue...Haeueueeut...! Haaaaeup"</p>
 
 <p>Seonju Imo let out a faint moaning sound at Shiwoo's bold pistoning, and then covered her mouth with her hand as if embarrassed.</p>
 
@@ -206,7 +206,7 @@ chapter = 174
 
 <p>Shiwoo began to shake his hips even more boldly.</p>
 
-<p>"Haeuep! Haaaheut! Haap! Haeueueue~"</p>
+<p>"Haeuep! Haaaheut! Haap! Haeueueue"</p>
 
 <p>A sobbing moaning sound leaked out from Seonju Imo's mouth, which was covered with her hand.</p>
 

@@ -70,7 +70,7 @@ chapter = 175
 
 <p>Shiwoo's lips touch the area near Seonju Imo's neck.</p>
 
-<p>"Haa-euu-ss~"</p>
+<p>"Haa-euu-ss"</p>
 
 <p>Shiwoo strokes the back of Seonju Imo's neck with his lips and tongue, watching her reaction.</p>
 
@@ -96,7 +96,7 @@ chapter = 175
 
 <p>Seonju Imo's head is lifted from the floor, and her waist and head are bent backward.</p>
 
-<p>"Haak~ Haa-euk! Heuk!"</p>
+<p>"Haak Haa-euk! Heuk!"</p>
 
 <p>Seonju Imo moans, as if distressed by being choked.</p>
 
@@ -106,7 +106,7 @@ chapter = 175
 
 <p>Shiwoo commands her, turning Seonju Imo's face towards the side where the smartphone is placed.</p>
 
-<p>"Huu-euk~!"</p>
+<p>"Huu-euk!"</p>
 
 <p>Seonju Imo, whose neck is being choked, is letting out a labored breath instead of answering.</p>
 
@@ -120,7 +120,7 @@ chapter = 175
 
 <p>Shiwoo's penis is strongly pushing and stirring, as if it will tear through the mucous membranes at the entrance of Seonju Imo's uterus.</p>
 
-<p>"Haa-eu-ss! Haa-eut! Haaa-aass~! Haa-eu...Haa-eut..."</p>
+<p>"Haa-eu-ss! Haa-eut! Haaa-aass! Haa-eu...Haa-eut..."</p>
 
 <p>Seonju Imo's moaning sound, barely audible, is leaking out.</p>
 
@@ -128,7 +128,7 @@ chapter = 175
 
 <p>And he immediately stops moving his hips as well.</p>
 
-<p>"Haa-euu-eung~"</p>
+<p>"Haa-euu-eung"</p>
 
 <p>Seonju Imo is making a regretful, whining sound as soon as Shiwoo's hips stop moving.</p>
 
@@ -148,7 +148,7 @@ chapter = 175
 
 <p>Shiwoo starts choking Seonju Imo's neck again and moving his hips in time with the vibration sound of the smartphone.</p>
 
-<p>"Haa-eut! Haa-aht! Haa-eung~!"</p>
+<p>"Haa-eut! Haa-aht! Haa-eung!"</p>
 
 <p>Seonju Imo's moaning sound was getting louder and louder, as if filled with joy.</p>
 
@@ -162,7 +162,7 @@ chapter = 175
 
 <p>Seonju Imo is horrified and surprised, and takes her finger off the screen from the smartphone and urgently grabs Shiwoo's arm.</p>
 
-<p>"Haak~ Heuek! Haa-euk~!"</p>
+<p>"Haak Heuek! Haa-euk!"</p>
 
 <p>A sharp breathing sound leaks from Seonju Imo's choked throat.</p>
 

@@ -38,7 +38,7 @@ chapter = 372
 
 <p>Shiwoo gently strokes Sua's head with the hand he had placed on the back of her head.</p>
 
-<p>"Uuu-uut hu-aaaaaa~"</p>
+<p>"Uuu-uut hu-aaaaaa"</p>
 
 <p>Sua swallows all the filth in her mouth down her throat, then exhales a large breath she had been holding back.</p>
 

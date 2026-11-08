@@ -140,7 +140,7 @@ chapter = 429
 
 <p class="scene-break">· · ·</p>
 
-<p>"You'll have to get a Brazilian wax later~!"</p>
+<p>"You'll have to get a Brazilian wax later!"</p>
 
 <p>As soon as he entered the room, seeing the hair protruding from outside her red micro bikini swimsuit, below Mom's lower abdomen, where she sat in the corner, Shiwoo spoke in a casual, passing tone.</p>
 

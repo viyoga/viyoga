@@ -22,7 +22,7 @@ chapter = 254
 
 <p class="scene-break">· · ·</p>
 
-<p>,Then, wouldn't we not need this anymore~?,</p>
+<p>,Then, wouldn't we not need this anymore?,</p>
 
 <p>Shiwoo moved his hand, which had been on Seyoung, to the blanket covering Mom's pelvis, grabbed it, and fluttered it slightly as if creating a breeze, and spoke.</p>
 
@@ -34,23 +34,23 @@ chapter = 254
 
 <p>A slight tremor was transmitted from Mom's hand, which was clutching the blanket.</p>
 
-<p>,Huh? What did you say just now~? I don't know who you're talking to~? Is it just a soliloquy~?,</p>
+<p>,Huh? What did you say just now? I don't know who you're talking to? Is it just a soliloquy?,</p>
 
 <p>Shiwoo pulled the blanket down while acting nonchalant, bringing his lips to Mom's neck and whispering.</p>
 
 <p>At the same time, Shiwoo began to move his massive penis, which was embedded in Mom's body, back and forth.</p>
 
-<p>-Jjigeok~! Jjigeok~! Jjigeok~!</p>
+<p>-Jjigeok! Jjigeok! Jjigeok!</p>
 
 <p>Sweat had already formed on Mom's face, which was frowning as if in pain.</p>
 
-<p>,If you don't say it properly, I won't know who you're talking to, Seonmi-ya~!</p>
+<p>,If you don't say it properly, I won't know who you're talking to, Seonmi-ya!</p>
 
 <p>Shiwoo said in a low voice, pressing his lips to Mom's neck.</p>
 
 <p>Shiwoo put strength into his hand and pulled the blanket down even more strongly.</p>
 
-<p>,P-Please~,</p>
+<p>,P-Please,</p>
 
 <p>Mom squeezed out a deflated sound as if she was in a hurry.</p>
 
@@ -68,7 +68,7 @@ chapter = 254
 
 <p>Once again, a strong current of pleasure swept through Shiwoo's spine.</p>
 
-<p>,Okay~~ Then I'll have to do this next time~ Hehe~~!,</p>
+<p>,Okay Then I'll have to do this next time Hehe!,</p>
 
 <p>Shiwoo took his hand off the blanket he had been pulling down and stroked Mom's head, saying.</p>
 
@@ -126,19 +126,19 @@ chapter = 254
 
 <p>A blissful sensation was felt tingling through Shiwoo's back of the hand.</p>
 
-<p>,Shall we go to the department store tomorrow and pick out a few other necklaces~?,</p>
+<p>,Shall we go to the department store tomorrow and pick out a few other necklaces?,</p>
 
 <p>Shiwoo carefully stroked Seyoung's nipples with the back of his hand and spoke as if checking Seyoung's condition.</p>
 
-<p>,Necklace~?,</p>
+<p>,Necklace?,</p>
 
 <p>Seyoung asked, reacting as if she didn't care about her brother's actions of stroking her nipples with the back of his hand.</p>
 
-<p>,Yeah~ The one Seonmi is wearing now~ Seyoung doesn't know what will happen in the future either~,</p>
+<p>,Yeah The one Seonmi is wearing now Seyoung doesn't know what will happen in the future either,</p>
 
 <p>Shiwoo pointed to the red dog collar around Mom's neck with his eyes and answered Seyoung.</p>
 
-<p>,The dog collar that Mom is wearing~? Hehe~ I like anything Oppa gives me~!,</p>
+<p>,The dog collar that Mom is wearing? Hehe I like anything Oppa gives me!,</p>
 
 <p>Seyoung was caressing the dog collar around Mom's neck and speaking.</p>
 
@@ -152,17 +152,17 @@ chapter = 254
 
 <p>Seyoung tightly closed her eyes and buried her face in Mom's chest.</p>
 
-<p>,I hope we have a daughter who looks like Seyoung later~,</p>
+<p>,I hope we have a daughter who looks like Seyoung later,</p>
 
 <p>Shiwoo spoke as if talking to himself, whispering to Mom.</p>
 
 <p>Mom's body was trembling.</p>
 
-<p>-Ssubeok~! Ssubeok~! Ssubeok~!</p>
+<p>-Ssubeok! Ssubeok! Ssubeok!</p>
 
 <p>Shiwoo moved his penis, which was filled inside Mom's cave, greatly back and forth, stabbing and thrusting.</p>
 
-<p>,Would it be faster to do it directly with Seyoung~?,</p>
+<p>,Would it be faster to do it directly with Seyoung?,</p>
 
 <p>Shiwoo moved his waist and whispered again, speaking to Mom's ear in a small voice.</p>
 
@@ -172,7 +172,7 @@ chapter = 254
 
 <p class="scene-break">· · ·</p>
 
-<p>-Ssukeok~! Ssukeok~! Ssukeok~!</p>
+<p>-Ssukeok! Ssukeok! Ssukeok!</p>
 
 <p>,Haeueueu... Haa.... Haeueung...,</p>
 
@@ -184,7 +184,7 @@ chapter = 254
 
 <p>It was the scene Shiwoo had seen when he came down to pick up Seyoung before.</p>
 
-<p>,Is Seyoung asleep~?,</p>
+<p>,Is Seyoung asleep?,</p>
 
 <p>Shiwoo stopped his waist and spoke to Seyoung in a small voice.</p>
 

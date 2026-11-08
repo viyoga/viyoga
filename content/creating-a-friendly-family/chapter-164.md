@@ -30,7 +30,7 @@ chapter = 164
 
 <p>Mom was asking earnestly, appealing to Shiwoo as his mother.</p>
 
-<p>'Yes~ Do it!!'</p>
+<p>'Yes Do it!!'</p>
 
 <p>Shiwoo commanded Mom without an ounce of hesitation, firmly, as both her son and her master.</p>
 
@@ -70,7 +70,7 @@ chapter = 164
 
 <p>Sehee-nuna seemed to be exchanging texts with someone, then placed her smartphone on the bedside table.</p>
 
-<p>"Ah... I was just talking to Mom via text~ Here, water!"</p>
+<p>"Ah... I was just talking to Mom via text Here, water!"</p>
 
 <p>Shiwoo honestly recounted what had happened in the kitchen and handed Sehee-nuna a cup of water.</p>
 
@@ -138,7 +138,7 @@ chapter = 164
 
 <p>Shiwoo's cock was smoothly inserting into Sehee-nuna's body.</p>
 
-<p>"Heuut~!"</p>
+<p>"Heuut!"</p>
 
 <p>Sehee-nuna embraced Shiwoo's cock within her body as if she had been ready, letting out a delicate moaning sound.</p>
 
@@ -152,7 +152,7 @@ chapter = 164
 
 <p>Shiwoo asked Sehee-nuna, his cock still filling her vagina.</p>
 
-<p>"...Why are you curious about that? ... Haa... It's... it's none of your business~!"</p>
+<p>"...Why are you curious about that? ... Haa... It's... it's none of your business!"</p>
 
 <p>Sehee-nuna replied curtly to Shiwoo's question, mixing in a faintly trembling moaning sound.</p>
 
@@ -164,7 +164,7 @@ chapter = 164
 
 <p>Sehee-nuna grumbled at Shiwoo as if complaining.</p>
 
-<p>"I told you before~! Mom is Mom and you are you, nuna!"</p>
+<p>"I told you before! Mom is Mom and you are you, nuna!"</p>
 
 <p>-Su-keong!-</p>
 
@@ -178,7 +178,7 @@ chapter = 164
 
 <p>-As if Seyoung-yi sought comfort by suckling at Mom's breast...-</p>
 
-<p>"Haa-eut~"</p>
+<p>"Haa-eut"</p>
 
 <p>Seonju Imo flinched, letting out a gasping sound as if air was escaping, under the strong pressure of Sehee-nuna's gripping hand.</p>
 
@@ -198,11 +198,11 @@ chapter = 164
 
 <p>Sehee-nuna looked at the smartphone screen Shiwoo held out, her eyes half-lidded for a moment.</p>
 
-<p>"I don't know! You figure it out~ I'm going to sleep now."</p>
+<p>"I don't know! You figure it out I'm going to sleep now."</p>
 
 <p>Sehee-nuna closed her eyes tightly as if bothered, burying her face in Seonju Imo's chest.</p>
 
-<p>"You have to tell me the password for me to check it, don't you~"</p>
+<p>"You have to tell me the password for me to check it, don't you"</p>
 
 <p>Shiwoo whined at Sehee-nuna as if dumbfounded.</p>
 
@@ -214,7 +214,7 @@ chapter = 164
 
 <p>Sehee-nuna covered and enveloped Seonju Imo's nipple with her lips.</p>
 
-<p>"Jjok... Jjok... Chywuap~"</p>
+<p>"Jjok... Jjok... Chywuap"</p>
 
 <p>Sehee-nuna was obscenely making wet mouth sounds, suckling at Seonju Imo's breast with small, chewing motions.</p>
 

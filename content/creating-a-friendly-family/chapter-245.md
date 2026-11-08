@@ -4,7 +4,7 @@ weight = 245
 [extra]
 chapter = 245
 +++
-<p>"Ah, right~ Sehee Nuna~! It's getting late, so you know you don't have to bother putting on clothes after you shower, right? We've decided to be comfortable at home now~!"</p>
+<p>"Ah, right Sehee Nuna! It's getting late, so you know you don't have to bother putting on clothes after you shower, right? We've decided to be comfortable at home now!"</p>
 
 <p>Shiwoo was indirectly ordering Sehee Nuna not to wear clothes after showering.</p>
 
@@ -12,7 +12,7 @@ chapter = 245
 
 <p>Sehee Nuna answered as if she understood Shiwoo's command.</p>
 
-<p>"Then I'll go upstairs first~"</p>
+<p>"Then I'll go upstairs first"</p>
 
 <p>Shiwoo was saying, placing the handle of Mom's dog collar he was holding in Mom's hand.</p>
 
@@ -74,7 +74,7 @@ chapter = 245
 
 <p>Before long, a reply came from Seonju Imo.</p>
 
-<p>'Yes, Master~ I've already come more than five times while Sua is sucking my clitoris~'</p>
+<p>'Yes, Master I've already come more than five times while Sua is sucking my clitoris'</p>
 
 <p>Seonju Imo was explaining the situation in detail to Shiwoo as if reporting to him.</p>
 
@@ -82,11 +82,11 @@ chapter = 245
 
 <p>Seonju Imo, who was boldly asking Shiwoo while shaking his penis and getting excited for a moment.</p>
 
-<p>'Ah~ I was receiving it until just now~ It was time for Seyoung to come out of the room, so I came up in the middle!'</p>
+<p>'Ah I was receiving it until just now It was time for Seyoung to come out of the room, so I came up in the middle!'</p>
 
 <p>Shiwoo answered Seonju Imo's question and continued to shake his thing.</p>
 
-<p>'Oh my, so you couldn't cum to Seonmi Unnie because Seyoung might come out? That's too bad~! If I were Unnie, I would have educated Seyoung first~ hahaha'</p>
+<p>'Oh my, so you couldn't cum to Seonmi Unnie because Seyoung might come out? That's too bad! If I were Unnie, I would have educated Seyoung first hahaha'</p>
 
 <p>Seonju Imo was speaking as if provoking Mom using Seyoung as the subject.</p>
 
@@ -100,7 +100,7 @@ chapter = 245
 
 <p>Shiwoo ordered Seonju Imo to film Sua's cunnilingus scene and send it, intending to show it to Mom and Sehee Nuna.</p>
 
-<p>'Yes~ I'll film it and send it now~ Just a moment, Master~'</p>
+<p>'Yes I'll film it and send it now Just a moment, Master'</p>
 
 <p>Seonju Imo, who answered coolly, became silent for a while again.</p>
 
@@ -112,11 +112,11 @@ chapter = 245
 
 <p>Shiwoo immediately played the video that Seonju Imo had uploaded.</p>
 
-<p>"Chureup~ Chuuuup~ Huaap~! Chueup~"</p>
+<p>"Chureup Chuuuup Huaap! Chueup"</p>
 
 <p>The screen showed Sua burying her face between Seonju Imo's legs and licking the gaps in Seonju Imo's flesh with her tongue.</p>
 
-<p>"Haa-euuung~ S-Sua-yang~ Master will be watching this, so heuuut~ y-you have to suck while looking at the camera~! Haaa-aaaa~ A-and can you suck a little s-softer~? Mom... haa-euung~ I'm going crazy~!"</p>
+<p>"Haa-euuung S-Sua-yang Master will be watching this, so heuuut y-you have to suck while looking at the camera! Haaa-aaaa A-and can you suck a little s-softer? Mom... haa-euung I'm going crazy!"</p>
 
 <p>Seonju Imo, whose face was not visible in the video, was speaking to Sua in a pleading tone as she was getting her pussy sucked by Sua.</p>
 
@@ -128,11 +128,11 @@ chapter = 245
 
 <p>It was a completely different appearance from the shy and introverted Sua he usually knew.</p>
 
-<p>"Chuaap~ Chuuuup~ Sureup~ Sureup~!"</p>
+<p>"Chuaap Chuuuup Sureup Sureup!"</p>
 
 <p>The lewd sounds created by Seonju Imo's crevices and Sua's mouth continued inside the video.</p>
 
-<p>"Haaa-aaaa~ Haa-euung Su...Sua-ya~ Please~ Haa-euung Aat~ Haat~! M...Master~~!"</p>
+<p>"Haaa-aaaa Haa-euung Su...Sua-ya Please Haa-euung Aat Haat! M...Master!"</p>
 
 <p>Seonju Imo's seductive moaning sound, not knowing whether she was calling Sua or Shiwoo.</p>
 
@@ -148,7 +148,7 @@ chapter = 245
 
 <p>Shiwoo stopped the video and switched the screen to the chat window, asking Seonju Imo as if confirming.</p>
 
-<p>'Yes~ I came again just now~ But Sua isn't letting me go because it's Master's order now~ Hiiing~~'</p>
+<p>'Yes I came again just now But Sua isn't letting me go because it's Master's order now Hiiing'</p>
 
 <p>Seonju Imo was writing and sending a text message to Shiwoo as if complaining to him in a tearful tone.</p>
 
@@ -156,7 +156,7 @@ chapter = 245
 
 <p>Shiwoo ordered Seonju Imo to temporarily stop the mother and daughter's play.</p>
 
-<p>'Yes, Master~! Thank you~ I thought I was really going to die because of Sua~ Hiiiing~'</p>
+<p>'Yes, Master! Thank you I thought I was really going to die because of Sua Hiiiing'</p>
 
 <p>Seonju Imo was continuing to talk to Shiwoo, crying as if she was still crying.</p>
 
@@ -192,7 +192,7 @@ chapter = 245
 
 <p>Shiwoo was ordering, imagining the image of Seonju Imo being disciplined while holding her daughter's leash.</p>
 
-<p>'How can I do that? I have to scold her if she doesn't listen~'</p>
+<p>'How can I do that? I have to scold her if she doesn't listen'</p>
 
 <p>Seonju Imo was retorting as if she was disobeying Shiwoo's command.</p>
 
@@ -200,6 +200,6 @@ chapter = 245
 
 <p>Shiwoo swore and spoke to Seonju Imo in a scolding tone, as if he was scolding her.</p>
 
-<p>'Sua is my daughter, so how am I supposed to raise her at home now? Hiiiing~ ㅠ ㅠ'</p>
+<p>'Sua is my daughter, so how am I supposed to raise her at home now? Hiiiing ㅠ ㅠ'</p>
 
 <p>Seonju Imo sent a text message and emoticons as if she was genuinely complaining.</p>

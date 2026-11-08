@@ -192,7 +192,7 @@ chapter = 140
 
 <p>Gyuri Ajumma's face and both breasts were smeared with Shiwoo's semen.</p>
 
-<p>"Haa! Haa! Haeueut! Haaaa~"</p>
+<p>"Haa! Haa! Haeueut! Haaaa"</p>
 
 <p>Gyuri Ajumma, barely able to breathe by opening her mouth.</p>
 

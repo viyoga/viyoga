@@ -58,7 +58,7 @@ chapter = 486
 
 <p>A moaning sound that Mom had been suppressing burst out from her mouth.</p>
 
-<p>"What is it~? Shiwoo Oppa was here too? What are you doing with Mom with the lights off?"</p>
+<p>"What is it? Shiwoo Oppa was here too? What are you doing with Mom with the lights off?"</p>
 
 <p>Seyoung asked Shiwoo with a curious voice.</p>
 
@@ -72,7 +72,7 @@ chapter = 486
 
 <p>Mom covered her mouth with her freed hand, making groaning sounds.</p>
 
-<p>"Yeah~ I was here~ I'm giving Seonmi a massage right now~ She said her back was really stiff~"</p>
+<p>"Yeah I was here I'm giving Seonmi a massage right now She said her back was really stiff"</p>
 
 <p>Shiwoo answered Seyoung, teasing Mom as he thrust his penis into her vagina hole.</p>
 
@@ -86,11 +86,11 @@ chapter = 486
 
 <p>Seyoung didn't seem to care much about the sound of skin colliding loudly and Mom's moaning state.</p>
 
-<p>"Ah~ I told Mom to close her eyes while I was massaging her, because she seemed a bit tired from being harassed all day today."</p>
+<p>"Ah I told Mom to close her eyes while I was massaging her, because she seemed a bit tired from being harassed all day today."</p>
 
 <p>Shiwoo answered Seyoung's question, improvising a plausible excuse as if piecing it together.</p>
 
-<p>"I guess I came too early~ Mom, you should rest well while getting a massage from Oppa... right? Should I come back later?"</p>
+<p>"I guess I came too early Mom, you should rest well while getting a massage from Oppa... right? Should I come back later?"</p>
 
 <p>Seyoung was speaking as if joking, mixing a subtle tone into her innocent voice.</p>
 
@@ -98,7 +98,7 @@ chapter = 486
 
 <p>In a difficult situation, being pierced from behind by Shiwoo, Mom quickly retorted as if hearing welcome news.</p>
 
-<p>"No~ It's almost over anyway~ There's no need to keep coming and going back and forth two or three times since you're coming back anyway, right?"</p>
+<p>"No It's almost over anyway There's no need to keep coming and going back and forth two or three times since you're coming back anyway, right?"</p>
 
 <p>Before Seyoung could answer, Shiwoo cut off her words, blocking Mom's futile hope.</p>
 
@@ -110,7 +110,7 @@ chapter = 486
 
 <p>Mom tensed her body as she was lying face down, roughly and fiercely contracting the vagina hole that was surrounding Shiwoo's penis.</p>
 
-<p>"Then, Shiwoo Oppa, can I turn on the light? I can't see anything because it's too dark~"</p>
+<p>"Then, Shiwoo Oppa, can I turn on the light? I can't see anything because it's too dark"</p>
 
 <p>Seyoung was now asking Shiwoo for permission as if ignoring Mom.</p>
 
@@ -126,7 +126,7 @@ chapter = 486
 
 <p>This time as well, Mom trembled, defenselessly bursting out a moan.</p>
 
-<p>"No~ Wait a little longer! It seems like Seonmi hasn't gotten used to it yet."</p>
+<p>"No Wait a little longer! It seems like Seonmi hasn't gotten used to it yet."</p>
 
 <p>Shiwoo checked Mom's reaction and answered Seyoung a beat later.</p>
 

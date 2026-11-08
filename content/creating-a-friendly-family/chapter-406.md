@@ -72,7 +72,7 @@ chapter = 406
 
 <p>Shiwoo was asking Seonju Imo about buying items from an adult toy site.</p>
 
-<p>[Master-nim, do you need anything? If you tell me, I can buy it all for you~]</p>
+<p>[Master-nim, do you need anything? If you tell me, I can buy it all for you]</p>
 
 <p>Seonju Imo's friendly reply came back immediately.</p>
 
@@ -80,7 +80,7 @@ chapter = 406
 
 <p>Shiwoo revealed the reason for asking Seonju Imo about the adult shopping mall site.</p>
 
-<p>[Oh my~ Then I'll tell you the ID and password. Would you like to pick them out and put them in your cart? I'll order them to Master-nim's house!]</p>
+<p>[Oh my Then I'll tell you the ID and password. Would you like to pick them out and put them in your cart? I'll order them to Master-nim's house!]</p>
 
 <p>Seonju Imo, as if immediately understanding what Shiwoo wanted, suggested it to him in an affectionate tone.</p>
 
@@ -88,7 +88,7 @@ chapter = 406
 
 <p>Shiwoo spoke to Seonju Imo, seemingly pleased with how smoothly the conversation was going.</p>
 
-<p>[No~ We can talk about that with Seonmi Eonni later, so Master-nim, just put the items in your cart~!]</p>
+<p>[No We can talk about that with Seonmi Eonni later, so Master-nim, just put the items in your cart!]</p>
 
 <p>Seonju Imo replied, maintaining an attitude as if she were subordinate to Shiwoo.</p>
 
@@ -144,7 +144,7 @@ chapter = 406
 
 <p>Mom was speaking as if displeased with the content of the conversation Shiwoo had with Seonju Imo in the group chat.</p>
 
-<p>[What's the big deal? It'd go well with the collar as a set~!]</p>
+<p>[What's the big deal? It'd go well with the collar as a set!]</p>
 
 <p>Shiwoo wrote and sent a message, teasing Mom with a lewd tone.</p>
 
@@ -156,7 +156,7 @@ chapter = 406
 
 <p>[What's the big deal, everyone knows anyway? And weren't you comfortable with Sehee while I was gone?]</p>
 
-<p>[Should I arrange a separate 'place' for Seyoung to get close, like with Sehee~?]</p>
+<p>[Should I arrange a separate 'place' for Seyoung to get close, like with Sehee?]</p>
 
 <p>Shiwoo added playful words, as if he couldn't understand why Mom was so embarrassed, given that she had already had a physical relationship with Sehee Nuna, and the family's secret had already been exposed to her younger sisters.</p>
 
@@ -180,7 +180,7 @@ chapter = 406
 
 <p>Even though she couldn't utter a single word when they were alone in the room just moments ago...</p>
 
-<p>[That's because Mom called me out saying she had something to tell me, and then just kept singing alone~]</p>
+<p>[That's because Mom called me out saying she had something to tell me, and then just kept singing alone]</p>
 
 <p>Shiwoo slyly retorted, rationalizing his actions as if adding an interjection to Mom's words.</p>
 

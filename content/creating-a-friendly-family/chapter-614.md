@@ -46,7 +46,7 @@ chapter = 614
 
 <p>Shiwoo's magnificent, hard penis was rapidly plunging into Sejin Nuna's vagina hole.</p>
 
-<p>"Ha-eung ha-aang... Juin-nim~ Haeuk...! Haaaaah..."</p>
+<p>"Ha-eung ha-aang... Juin-nim Haeuk...! Haaaaah..."</p>
 
 <p>Her cries now burst from her mouth without restraint, echoing through the room.</p>
 
@@ -110,7 +110,7 @@ chapter = 614
 
 <p>Shiwoo, as if making a final sprint, plunged his penis all the way to its root into her vagina hole.</p>
 
-<p>"Ha-ang Juin-nim! I, I'm coming! Haaht... Shiwoo-ya! Ha-woo-wooht!! Juin-nim! Haaang~"</p>
+<p>"Ha-ang Juin-nim! I, I'm coming! Haaht... Shiwoo-ya! Ha-woo-wooht!! Juin-nim! Haaang"</p>
 
 <p>Sejin Nuna, calling Shiwoo both 'Juin-nim' and by his name simultaneously, declared as if confessing that she had reached climax.</p>
 
@@ -118,7 +118,7 @@ chapter = 614
 
 <p>Sejin Nuna breathed out moaning sounds as if she would break.</p>
 
-<p>"Aah! Sejin Nuna! Heu-eu... Sejin-a~!"</p>
+<p>"Aah! Sejin Nuna! Heu-eu... Sejin-a!"</p>
 
 <p>Shiwoo, also seemingly reaching climax, strongly pulled Sejin Nuna's arms, calling her both 'Nuna' and by her name simultaneously.</p>
 

@@ -10,7 +10,7 @@ chapter = 643
 
 <p>In front of Sua and Seyoung, Shiwoo intentionally referred to his mother and Sehee-noona by their names instead of their titles.</p>
 
-<p>"I know~ Seonmi contacted me earlier~!"</p>
+<p>"I know Seonmi contacted me earlier!"</p>
 
 <p>Following Shiwoo's lead, Seyoung also casually tossed out their mother's name as if she were an inferior.</p>
 
@@ -18,7 +18,7 @@ chapter = 643
 
 <p>Shiwoo reacted with slight surprise, questioning Seyoung.</p>
 
-<p>"Yeah, I got a KakaoTalk message from her during class~ She asked if it was okay? I told her I didn't mind~ Hehe~"</p>
+<p>"Yeah, I got a KakaoTalk message from her during class She asked if it was okay? I told her I didn't mind Hehe"</p>
 
 <p>Seyoung answered with a nonchalant face, beaming a smile at Shiwoo. Shiwoo imagined the image of his mother contacting her youngest daughter to 'report' in, just like she was about to enter a motel with a strange man. That scene felt bizarre and awkward in some inexplicable way. Since Mom and Sehee-noona would be coming home late, the time Shiwoo and Seyoung would spend alone at night would naturally be extended.</p>
 
@@ -34,7 +34,7 @@ chapter = 643
 
 <p>Shiwoo asked lightly, wearing a relaxed smile.</p>
 
-<p>"Pizza or pork? Or maybe pasta~?"</p>
+<p>"Pizza or pork? Or maybe pasta?"</p>
 
 <p>Seyoung replied with the innocent and bright expression of a young academy student.</p>
 
@@ -42,7 +42,7 @@ chapter = 643
 
 <p>Shiwoo spoke in a tone that seemed to be testing Seyoung slightly.</p>
 
-<p>"It's fine for just one day, isn't it~? We can just tell Seonmi that you fed me a proper meal~ Hihihit!"</p>
+<p>"It's fine for just one day, isn't it? We can just tell Seonmi that you fed me a proper meal Hihihit!"</p>
 
 <p>Seyoung spoke mischievously, the corners of her mouth curling up in a way that was unlike her usual self...</p>
 
@@ -50,7 +50,7 @@ chapter = 643
 
 <p>At Seyoung's words encouraging a lie, Shiwoo asked as if to confirm, feeling a bit suspicious.</p>
 
-<p>"We're~ going to eat ice cream at the cafe before we go, right?"</p>
+<p>"We're going to eat ice cream at the cafe before we go, right?"</p>
 
 <p>From across the table, Seyoung looked up at Shiwoo with sparkling eyes, acting cute like a kitten.</p>
 
@@ -88,7 +88,7 @@ chapter = 643
 
 <p>Shiwoo asked cautiously, checking for any potential issues.</p>
 
-<p>[No~ We order in most of the time anyway. It was nice when Seonmi-eonni was at our place, though~ Have a pleasant dinner with Seyoung and Sua today.] [I'll just have to lonely order dinner for myself and eat alone... Hee-ing~]</p>
+<p>[No We order in most of the time anyway. It was nice when Seonmi-eonni was at our place, though Have a pleasant dinner with Seyoung and Sua today.] [I'll just have to lonely order dinner for myself and eat alone... Hee-ing]</p>
 
 <p>The title 'Master' and the polite, formal speech that was full of aegyo as if she were acting spoiled... Whether it was in the group chat, a 1:1 chat, or when they met in person, Aunt Seonju was using a polite attitude and honorifics toward Shiwoo. Even though he had warned her not to use the title 'Master' or formal speech toward him without permission back when the Master-slave relationship was just beginning to form... Did Aunt Seonju have no intention of ever returning to being an 'Aunt' in front of Shiwoo again?</p>
 
@@ -100,7 +100,7 @@ chapter = 643
 
 <p>Shiwoo suggested that Aunt Seonju join them for dinner as well. Explicitly attaching the title 'Aunt'...</p>
 
-<p>[Really? I'll get ready and head out right away! Master~ where should I go?]</p>
+<p>[Really? I'll get ready and head out right away! Master where should I go?]</p>
 
 <p>Aunt Seonju replied to Shiwoo as if she had been waiting for it, her tone sounding truly excited.</p>
 
@@ -132,7 +132,7 @@ chapter = 643
 
 <p>Shiwoo answered shortly.</p>
 
-<p>[I understand~ Master! I'll set my mind as an 'Aunt' today and head out~]</p>
+<p>[I understand Master! I'll set my mind as an 'Aunt' today and head out]</p>
 
 <p>It was an answer from Aunt Seonju that suggested she had vaguely realized the meaning of the order Shiwoo was giving.</p>
 
@@ -142,11 +142,11 @@ chapter = 643
 
 <p>Shiwoo conveyed the matters decided through the conversation he just had with Aunt Seonju to Seyoung and Sua.</p>
 
-<p>"Really? 'Seonju' is coming too? That's great~ Hehehe~"</p>
+<p>"Really? 'Seonju' is coming too? That's great Hehehe"</p>
 
 <p>Seyoung spoke with a bright smile, looking pleased at Shiwoo's words. Just as she had called their mother by her name, Seyoung emphasized the change by calling Aunt Seonju by her name, 'Seonju,' as if intentionally wanting Sua to hear...</p>
 
-<p>"Now then, let's go pick out the ice cream~ You have to go see the ice cream in person to choose~"</p>
+<p>"Now then, let's go pick out the ice cream You have to go see the ice cream in person to choose"</p>
 
 <p>Seyoung spoke as she stood up excitedly and pulled on Shiwoo's arm.</p>
 

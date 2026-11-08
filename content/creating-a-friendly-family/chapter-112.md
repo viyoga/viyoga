@@ -28,7 +28,7 @@ chapter = 112
 
 <p>Sehee Nuna, with Shiwoo's slightly limp cock in her mouth, met Shiwoo's eyes.</p>
 
-<p>-Jjik! Jjuik~!!</p>
+<p>-Jjik! Jjuik!!</p>
 
 <p>At that moment, Shiwoo's residual urine was squirted into Sehee Nuna's mouth, little by little.</p>
 
@@ -122,13 +122,13 @@ chapter = 112
 
 <p>Shiwoo's penis was filling Sehee Nuna's insides.</p>
 
-<p>"Haaaat~!!"</p>
+<p>"Haaaat!!"</p>
 
 <p>Even after Shiwoo's thing was fully filled inside Sehee Nuna's body, Shiwoo's upward movement did not stop.</p>
 
 <p>Shiwoo's penis, touching her uterus, was slowly pushing Sehee Nuna's body into the air.</p>
 
-<p>"Aaaaat~!! Haeueut!!"</p>
+<p>"Aaaaat!! Haeueut!!"</p>
 
 <p>Sehee Nuna barely managed to grab onto Shiwoo's neck and balance herself while standing on tiptoes.</p>
 
@@ -164,15 +164,15 @@ chapter = 112
 
 <p>Sehee Nuna, feeling a great stimulation, hugged Shiwoo's waist tightly and stopped moving.</p>
 
-<p>"If we go jogging in the future, we can wash like this together, right? No need to decide on a separate shower order for the two of us~"</p>
+<p>"If we go jogging in the future, we can wash like this together, right? No need to decide on a separate shower order for the two of us"</p>
 
 <p>Shiwoo said, straightening his knees and slightly lifting Sehee Nuna up again.</p>
 
-<p>"Heueeung~"</p>
+<p>"Heueeung"</p>
 
 <p>Sehee Nuna moaned.</p>
 
-<p>"When I'm jogging, I always look at your ass and run~ I can't help but get turned on when I see your waist, butt, and thighs! If I come out early, I think we can secretly finish before Mom and Seyoung get up, what do you think?"</p>
+<p>"When I'm jogging, I always look at your ass and run I can't help but get turned on when I see your waist, butt, and thighs! If I come out early, I think we can secretly finish before Mom and Seyoung get up, what do you think?"</p>
 
 <p>Shiwoo fully straightened his knees and made Sehee Nuna stand on tiptoes again.</p>
 
@@ -188,7 +188,7 @@ chapter = 112
 
 <p>Sehee Nuna, with her body pierced through the center of her body like a chunk of meat skewered on a skewer, was barely standing.</p>
 
-<p>"Plea...please~"</p>
+<p>"Plea...please"</p>
 
 <p>Sehee Nuna was now almost collapsing, leaning her body against Shiwoo's chest as if her legs had lost strength.</p>
 
@@ -204,25 +204,25 @@ chapter = 112
 
 <p>Shiwoo was firmly telling Sehee Nuna.</p>
 
-<p>"Haeueueut~~Ye...Yes~!!"</p>
+<p>"HaeueueutYe...Yes!!"</p>
 
 <p>Sehee Nuna's moans and answers.</p>
 
 <p>Sehee Nuna was trying to endure by putting strength into her body.</p>
 
-<p>"Plea...please, Master~!"</p>
+<p>"Plea...please, Master!"</p>
 
 <p>Sehee Nuna was soon trembling again and begging Shiwoo.</p>
 
-<p>"What is it~? You were so cocky when we were jogging this morning, but you can't even handle this much?!"</p>
+<p>"What is it? You were so cocky when we were jogging this morning, but you can't even handle this much?!"</p>
 
 <p>Shiwoo said to Sehee Nuna as if taking revenge for the humiliation he felt this morning when he was compared to the older guys he didn't know.</p>
 
-<p>"Heueueeung~"</p>
+<p>"Heueueeung"</p>
 
 <p>Sehee Nuna was making a crying sound.</p>
 
-<p>"Now I'll wash the other side too~"</p>
+<p>"Now I'll wash the other side too"</p>
 
 <p>Shiwoo pushed Sehee Nuna against the wall and then lifted one leg and put it over his shoulder.</p>
 
@@ -252,7 +252,7 @@ chapter = 112
 
 <p>-Thwack! Thwack!! Thwack!! Thwack!! Thwack!! Thwack!! Thwack!!</p>
 
-<p>"Haeuk! Haeueuk Haeut Hat!! Haaaang~"</p>
+<p>"Haeuk! Haeueuk Haeut Hat!! Haaaang"</p>
 
 <p>This time, a powerful pounding continued for quite a long time.</p>
 
@@ -264,7 +264,7 @@ chapter = 112
 
 <p>Shiwoo said to Sehee Nuna's ear, who was limp as if she was exhausted.</p>
 
-<p>"Eueueu~ Heueueeut~"</p>
+<p>"Eueueu Heueueeut"</p>
 
 <p>Unable to answer because she was out of her mind, Sehee Nuna was only making moaning sounds as if she was crying.</p>
 
@@ -272,7 +272,7 @@ chapter = 112
 
 <p>Shiwoo mercilessly slapped the butt of the leg that was raised over his shoulder with his palm.</p>
 
-<p>"Heheuheu~ I...I'll tell her~"</p>
+<p>"Heheuheu I...I'll tell her"</p>
 
 <p>Sehee Nuna was answering Shiwoo's instructions as a slave.</p>
 
@@ -280,7 +280,7 @@ chapter = 112
 
 <p>Shiwoo was adjusting the position of his thing that was fitted into Sehee Nuna's cave by tightening and loosening her body.</p>
 
-<p>"Hwaaang~Haaaang~"</p>
+<p>"HwaaangHaaaang"</p>
 
 <p>Sehee Nuna's seductive moans.</p>
 
@@ -300,6 +300,6 @@ chapter = 112
 
 <p>-Thwack! Thwack! Thwack! Thwack! Thwack!! Thwack!!</p>
 
-<p>"Haat Haaaat Haaaak Hwaaaaang~!! Haaaaaaa~~~ak!!"</p>
+<p>"Haat Haaaat Haaaak Hwaaaaang!! Haaaaaaaak!!"</p>
 
 <p>Sehee Nuna's screams, as if she was about to faint, were filling the shower room as she was being crushed by Shiwoo's body and having her pussy rammed.</p>

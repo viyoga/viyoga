@@ -4,7 +4,7 @@ weight = 737
 [extra]
 chapter = 737
 +++
-<p>「It's not like it's impossible now~ But wouldn't it be a bit awkward between us later if you do that before even trying to call me Gomo?」</p>
+<p>「It's not like it's impossible now But wouldn't it be a bit awkward between us later if you do that before even trying to call me Gomo?」</p>
 
 <p>Yu Yena-seonsaengnim was sending texts to Shiwoo in a playful tone, as if she were now openly revealing her true identity.</p>
 
@@ -22,7 +22,7 @@ chapter = 737
 
 <p>Shiwoo spoke as if scanning Yu Yena-seonsaengnim's reaction across the chat window on his smartphone screen, his expression strangely tense.</p>
 
-<p>「Well~ I suppose so~ Hut! Then do as you please, Shiwoo. Like I said, I didn't mind from the start...」</p>
+<p>「Well I suppose so Hut! Then do as you please, Shiwoo. Like I said, I didn't mind from the start...」</p>
 
 <p>Yu Yena-seonsaengnim spoke as if formally granting permission for the titles or tone Shiwoo used to address her. Her message seemed to transmit a throbbing heat to Shiwoo's penis.</p>
 
@@ -46,7 +46,7 @@ chapter = 737
 
 <p>Shiwoo answers as if readily agreeing to Yu Yena-seonsaengnim's warning.</p>
 
-<p>「Yes, that's a relief... Thank you for understanding~」</p>
+<p>「Yes, that's a relief... Thank you for understanding」</p>
 
 <p>Yu Yena-seonsaengnim felt relieved at Shiwoo's answer and expressed her gratitude in a calm tone. Her submissive attitude seemed to acknowledge Shiwoo's authority no matter how one looked at it...</p>
 

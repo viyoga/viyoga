@@ -8,7 +8,7 @@ chapter = 22
 
 <p>Sehee Nuna and Mom were sitting at the dining table, eating strawberries from a plate.</p>
 
-<p>"Welcome, Shiwoo-ya, eat some strawberries. They're so sweet, you don't even need sugar~"</p>
+<p>"Welcome, Shiwoo-ya, eat some strawberries. They're so sweet, you don't even need sugar"</p>
 
 <p>Mom said, smiling as she saw Shiwoo coming down the stairs.</p>
 
@@ -34,7 +34,7 @@ chapter = 22
 
 <p>"Yeah."</p>
 
-<p>"They said it would help if she did something she enjoys as a hobby... Seyoung has liked magic and stuff since she was little~! Seonju said she knows a magic academy, so I told her to take Sua and Seyoung there together."</p>
+<p>"They said it would help if she did something she enjoys as a hobby... Seyoung has liked magic and stuff since she was little! Seonju said she knows a magic academy, so I told her to take Sua and Seyoung there together."</p>
 
 <p>After saying that, Mom suddenly seemed to remember something else.</p>
 
@@ -52,7 +52,7 @@ chapter = 22
 
 <p>Mom proposed a schedule for tomorrow.</p>
 
-<p>"I'd love that, Mom~!!"</p>
+<p>"I'd love that, Mom!!"</p>
 
 <p>Sehee Nuna answered, excitedly.</p>
 
@@ -212,7 +212,7 @@ chapter = 22
 
 <p>However, despite such a transcendental effort, like hanging her body on the edge of her mind, a tremor from deep inside her uterus gradually spread throughout her body, shaking Mom's body like an earthquake.</p>
 
-<p>"Eueueueuk haaaaak heuaaaaak~!"</p>
+<p>"Eueueueuk haaaaak heuaaaaak!"</p>
 
 <p>-Something that didn't exist in her previous life-</p>
 
@@ -242,7 +242,7 @@ chapter = 22
 
 <p>Soon, the time for ejaculation approached.</p>
 
-<p>"Ah~ Mom, I'm gonna cum~~~"</p>
+<p>"Ah Mom, I'm gonna cum"</p>
 
 <p>It was his third ejaculation today, but there was still enough to fill Mom's mouth.</p>
 
@@ -284,7 +284,7 @@ chapter = 22
 
 <p>But at that moment, Mom couldn't take it anymore and swallowed Shiwoo's semen.</p>
 
-<p>"Gulp gulp ueuk heuk~~kehk kehk!"</p>
+<p>"Gulp gulp ueuk heukkehk kehk!"</p>
 
 <p>She swallowed the semen down her throat and started gagging, coughing spasmodically as if she had choked.</p>
 

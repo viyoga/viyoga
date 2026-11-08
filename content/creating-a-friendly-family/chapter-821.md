@@ -146,7 +146,7 @@ chapter = 821
 
 <p>Her expression seemed to waver minutely for an instant, but she quickly regained her composure as if nothing had happened.</p>
 
-<p>"I guess we've been caught by Siu-nim~? Our relationship~!"</p>
+<p>"I guess we've been caught by Siu-nim? Our relationship!"</p>
 
 <p>Shin Yu-na shrugged playfully as if enjoying the situation instead, looking back toward Mother.</p>
 

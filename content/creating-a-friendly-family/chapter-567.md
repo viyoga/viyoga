@@ -30,7 +30,7 @@ chapter = 567
 
 <p>Imagining Mom's appearance, holding semen in her mouth, her panties pulled down to mid-thigh, sending a text message as if nagging Shiwoo, Shiwoo's penis bulged once again in his pants.</p>
 
-<p>「Ah~ I'm going now... I don't think I'll be late, don't worry~!」</p>
+<p>「Ah I'm going now... I don't think I'll be late, don't worry!」</p>
 
 <p>Shiwoo replied, pulling the corners of his mouth, which were already turned up, even higher at Mom's nagging that wasn't really nagging.</p>
 
@@ -38,7 +38,7 @@ chapter = 567
 
 <p>Mom, perhaps embarrassed to continue the conversation as mother and son with Shiwoo, who knew her attire and state, tried to quickly end the conversation.</p>
 
-<p>「Got it~ I'll go without being late, so Mom, you do your business~ hehe.」</p>
+<p>「Got it I'll go without being late, so Mom, you do your business hehe.」</p>
 
 <p>Shiwoo sent a text message to the embarrassed Mom in a playful tone, feeling an inexplicable sense of victory and reacting triumphantly.</p>
 
@@ -74,7 +74,7 @@ chapter = 567
 
 <p>Mom seemed to hesitate for a moment, then asked the reason after following Shiwoo's command.</p>
 
-<p>「Now? Do you feel the taste a bit~?」</p>
+<p>「Now? Do you feel the taste a bit?」</p>
 
 <p>Shiwoo asked playfully, as if concerned about Mom's sense of taste.</p>
 

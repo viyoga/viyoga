@@ -206,7 +206,7 @@ chapter = 678
 
 <p>Siwoo spoke to Seyeong, pointing at Sua's anus.</p>
 
-<p>"Okay! Got it~"</p>
+<p>"Okay! Got it"</p>
 
 <p>Seyeong answered with a nod and immediately approached Sua's crotch.</p>
 

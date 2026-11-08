@@ -74,7 +74,7 @@ chapter = 519
 
 <p>When Shiwoo stopped thrusting, Seyoung naturally feigned a peaceful expression again, as if she were asleep.</p>
 
-<p>"As expected, Seyoung is the best behaved~ Just like Seonmi said, she's the most obedient among the family members~ Tomorrow, when magic academy finishes, I'll pick her up and let her choose all the ice cream she wants~"</p>
+<p>"As expected, Seyoung is the best behaved Just like Seonmi said, she's the most obedient among the family members Tomorrow, when magic academy finishes, I'll pick her up and let her choose all the ice cream she wants"</p>
 
 <p>Shiwoo stroked Seyoung's head as if she were admirable, talking about the next day's reward.</p>
 

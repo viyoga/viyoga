@@ -80,7 +80,7 @@ chapter = 819
 
 <p>Leaving the bound woman lying on the floor and Mother straddled over her face, Shin Yu-na approached the work bed.</p>
 
-<p>"Shall we get started as well? You can just get up on the bed and lie down comfortably~"</p>
+<p>"Shall we get started as well? You can just get up on the bed and lie down comfortably"</p>
 
 <p>She spoke to Siu in an inviting, sweet voice that was completely different from the attitude she had shown to the other women just moments ago.</p>
 
@@ -118,7 +118,7 @@ chapter = 819
 
 <p>The rod of flesh exuded a terrifying majesty, as if it had absorbed the forbidden heat inside the tattoo shop.</p>
 
-<p>"I'll play a video on the monitor in front of you, so you can watch it to maintain or adjust your mood~"</p>
+<p>"I'll play a video on the monitor in front of you, so you can watch it to maintain or adjust your mood"</p>
 
 <p>"Well, in your current state, you might not even need a video, but there's something I'd like you to watch and check at least once..."</p>
 

@@ -40,7 +40,7 @@ chapter = 77
 
 <p class="scene-break">· · ·</p>
 
-<p>,Oppa~ look over there~!!,</p>
+<p>,Oppa look over there!!,</p>
 
 <p>As soon as they entered the lobby on the first floor of the building through the entrance,</p>
 
@@ -52,7 +52,7 @@ chapter = 77
 
 <p>-It seems like they sell drinks and snacks and tell fortunes with tarot cards-</p>
 
-<p>,The academy runs it~! Seonju Imo bought me an ice cream cake there last week~! Hehe,</p>
+<p>,The academy runs it! Seonju Imo bought me an ice cream cake there last week! Hehe,</p>
 
 <p>Seyoung was smiling brightly and telling Shiwoo about her visit to the cafe with Seonju Imo before, as if boasting.</p>
 
@@ -60,13 +60,13 @@ chapter = 77
 
 <p>The inside of the cafe seemed to be decorated in a plausible medieval European style.</p>
 
-<p>,Ah~ really? Then shall we go eat together with Oppa next time? Oppa will buy you anything you want to eat, Seyoung-ah~!!,</p>
+<p>,Ah really? Then shall we go eat together with Oppa next time? Oppa will buy you anything you want to eat, Seyoung-ah!!,</p>
 
-<p>,Yes!! Sua too~! I think they also tell fortunes with tarot cards at the cafe. Like love compatibility or future spouse~,</p>
+<p>,Yes!! Sua too! I think they also tell fortunes with tarot cards at the cafe. Like love compatibility or future spouse,</p>
 
 <p>Seyoung, taking care of Sua next to her, was answering innocently...</p>
 
-<p>,Okay~! Good~! Sua too!!,</p>
+<p>,Okay! Good! Sua too!!,</p>
 
 <p>-I also have the card I received from Mom...-</p>
 
@@ -82,7 +82,7 @@ chapter = 77
 
 <p>He took the elevator and pressed the button.</p>
 
-<p>3rd floor~</p>
+<p>3rd floor</p>
 
 <p>'Empirical Sensory Training Research Center'</p>
 
@@ -90,7 +90,7 @@ chapter = 77
 
 <p>A bizarre and complicated name that seemed to be severely lacking in social skills for a magic academy targeting children and parents.</p>
 
-<p>,It wasn't extrasensory perception~?,</p>
+<p>,It wasn't extrasensory perception?,</p>
 
 <p>Cheoljin was constantly spitting out words like exclamations, as if he was surprised by something.</p>
 
@@ -132,15 +132,15 @@ chapter = 77
 
 <p>The elevator arrived on the 3rd floor, and a loud arrival notification sound rang inside the elevator.</p>
 
-<p>Soon, the elevator doors opened with a whoosh~.</p>
+<p>Soon, the elevator doors opened with a whoosh.</p>
 
 <p>As soon as they got off, a semi-transparent double glass door with the name of the academy written on it was visible at a glance a few meters ahead...</p>
 
-<p>Shiwoo approached and pushed open the glass door, and the chime rang 'Chiring~' with a cheerful sound.</p>
+<p>Shiwoo approached and pushed open the glass door, and the chime rang 'Chiring' with a cheerful sound.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>,Welcome~!,</p>
+<p>,Welcome!,</p>
 
 <p>A familiar female voice was heard.</p>
 
@@ -166,7 +166,7 @@ chapter = 77
 
 <p>-150 years old, a friend of Shiwoo's who attends the same intermediate academy, Shinbi Nuna's younger sister-</p>
 
-<p>,Lower your voice!! I'm in class~! And why are you so surprised? It's a part-time job, a part-time job!! Have you never seen me working before?,</p>
+<p>,Lower your voice!! I'm in class! And why are you so surprised? It's a part-time job, a part-time job!! Have you never seen me working before?,</p>
 
 <p>Seulgi scolded Shiwoo and Cheoljin, who were surprised, as if she was deliberately raising her voice.</p>
 
@@ -176,19 +176,19 @@ chapter = 77
 
 <p>-Cheoljin and Seulgi always bicker, but anyway, they were friends who got along well, especially when it came to certain topics-</p>
 
-<p>,Why would I bother to tell you that? Anyway, I'm keeping it a secret at school~! I'm doing a work-study job at the academy to help my auntie~!,</p>
+<p>,Why would I bother to tell you that? Anyway, I'm keeping it a secret at school! I'm doing a work-study job at the academy to help my auntie!,</p>
 
 <p>Seulgi was roughly explaining her situation to Shiwoo and Cheoljin.</p>
 
 <p>Just as Shiwoo was about to react to the word 'auntie' and ask a question, Seyoung and Sua, who had been next to Shiwoo, suddenly ran forward.</p>
 
-<p>,Seulgi Unnie~ we're here too~!,</p>
+<p>,Seulgi Unnie we're here too!,</p>
 
 <p>Seyoung and Sua hugged Seulgi as if burrowing into her arms and greeted her happily.</p>
 
 <p>Seulgi hugged Seyoung and Sua, who were hugging her, with both hands and patted their buttocks.</p>
 
-<p>,Our kittens are here~?,</p>
+<p>,Our kittens are here?,</p>
 
 <p>The scene of Seulgi and the younger sisters looking so friendly.</p>
 
@@ -196,7 +196,7 @@ chapter = 77
 
 <p>Shiwoo was a little surprised by the friendly appearance of his younger sisters and Seulgi.</p>
 
-<p>,Hehe~ I like Seulgi Unnie so much~!,</p>
+<p>,Hehe I like Seulgi Unnie so much!,</p>
 
 <p>Seyoung looked back at Shiwoo while still hugged by Seulgi and said with a bright smile.</p>
 
@@ -218,7 +218,7 @@ chapter = 77
 
 <p>Shiwoo thought that the two's banter, which he often saw at school, was about to start again.</p>
 
-<p>,Ta...tagging along~ who!! I...I also came to the academy for a formal consultation~!,</p>
+<p>,Ta...tagging along who!! I...I also came to the academy for a formal consultation!,</p>
 
 <p>Cheoljin was stammering and making excuses, perhaps embarrassed that he had been caught secretly spying.</p>
 
@@ -226,7 +226,7 @@ chapter = 77
 
 <p>Seulgi looked at Cheoljin silently, laughing as if he was pathetic for a moment.</p>
 
-<p>,Well~ anyway, since you came, make sure to check everything you're curious about and go~!,</p>
+<p>,Well anyway, since you came, make sure to check everything you're curious about and go!,</p>
 
 <p>Seulgi stood up from her seat and said, changing her expression brightly.</p>
 
@@ -250,13 +250,13 @@ chapter = 77
 
 <p>She looked familiar somehow, but she was definitely not someone Shiwoo knew.</p>
 
-<p>,I've been waiting for you~ I'm Head Teacher Yu Yena,</p>
+<p>,I've been waiting for you I'm Head Teacher Yu Yena,</p>
 
 <p>Yu Yena Teacher greeted Shiwoo and Cheoljin with a welcoming smile.</p>
 
 <p>A clear, beautiful, and voluminous voice.</p>
 
-<p>,Ah... yes~ hello. I'm Yu Shiwoo, Seyoung's older brother,</p>
+<p>,Ah... yes hello. I'm Yu Shiwoo, Seyoung's older brother,</p>
 
 <p>Shiwoo greeted her with a slightly dazed feeling.</p>
 

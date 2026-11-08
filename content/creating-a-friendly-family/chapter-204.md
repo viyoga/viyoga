@@ -92,7 +92,7 @@ chapter = 204
 
 <p>Shiwoo inserts the glans of his penis into Sehee Nuna's mouth and begins to shake the penis pillar, which is coming out of her mouth, with his hand.</p>
 
-<p>"Chyu-rup~ Hoo-up~ Hheu-eup~ Ha-ap"</p>
+<p>"Chyu-rup Hoo-up Hheu-eup Ha-ap"</p>
 
 <p>Sehee Nuna is sucking and sucking on the glans of Shiwoo's huge cock, filling her mouth.</p>
 
@@ -180,7 +180,7 @@ chapter = 204
 
 <p>As he imagined Mom confirming that scene now, Shiwoo's 'thing' rose again, throbbing and swelling.</p>
 
-<p>"Haaaaaa~"</p>
+<p>"Haaaaaa"</p>
 
 <p>Sehee Nuna's eyes widened as she saw Shiwoo's 'thing' rising again, throbbing, and a low, long sigh was being breathed out.</p>
 

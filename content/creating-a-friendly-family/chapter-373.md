@@ -94,7 +94,7 @@ chapter = 373
 
 <p>Seyoung is curiously looking around at what happened in the room while he was out for a moment.</p>
 
-<p>,It's going to be quite a big deal to clean up. Seonju Imo-nim and Sua too~ Hehe~"</p>
+<p>,It's going to be quite a big deal to clean up. Seonju Imo-nim and Sua too Hehe"</p>
 
 <p>Seyoung said, as if giving a short review of what Shiwoo had done in Seonju Imo-nim's room.</p>
 
@@ -132,7 +132,7 @@ chapter = 373
 
 <p>Seyoung looks back and forth at Seonju Imo-nim and Sua's appearance and condition again for a moment, as if checking.</p>
 
-<p>,Okay, I understand, since Shiwoo Oppa says so~ Then I'll drink~ Hehe."</p>
+<p>,Okay, I understand, since Shiwoo Oppa says so Then I'll drink Hehe."</p>
 
 <p>Seyoung smiles innocently and drinks the water as if she understands the situation.</p>
 

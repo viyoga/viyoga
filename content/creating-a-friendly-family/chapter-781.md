@@ -16,7 +16,7 @@ chapter = 781
 
 <p>Mom's facial expression was soaked in a mad ecstasy, completely unconcerned by the gazes of her son and daughter. It was like that of a beast, with morality and ethics completely castrated.</p>
 
-<p>"Cu-cum for me... Honey... no... Shiwoo-ya... hng! Pl-please spray plenty of your semen all over Mom's face~"</p>
+<p>"Cu-cum for me... Honey... no... Shiwoo-ya... hng! Pl-please spray plenty of your semen all over Mom's face"</p>
 
 <p>Within those twisted titles—calling herself 'wife' one moment and 'Mom' the next—Shiwoo's desire for conquest was driven to the brink of explosion.</p>
 

@@ -48,7 +48,7 @@ chapter = 3
 
 <p>"Hey, if our Mom ever heard about this, I might get beaten to death."</p>
 
-<p>"Ah, you chicken-shit bastard~! I told you it's fine, didn't I? Didn't you see what happened earlier? Ugh~ You pathetic bastard."</p>
+<p>"Ah, you chicken-shit bastard! I told you it's fine, didn't I? Didn't you see what happened earlier? Ugh You pathetic bastard."</p>
 
 <p>In the end, Shiwoo couldn't do anything.</p>
 
@@ -112,7 +112,7 @@ chapter = 3
 
 <p>After a long time of violating Mom as a conqueror, Shiwoo finally reached the peak of pleasure, ejaculating everything into Mom's womb from behind.</p>
 
-<p>"Ah... Mom... Seonmi~"</p>
+<p>"Ah... Mom... Seonmi"</p>
 
 <p>Shiwoo's enormous amount of semen splattered everywhere, on the monitor, the keyboard, the desk, without distinction.</p>
 
@@ -156,11 +156,11 @@ chapter = 3
 
 <p>At his sister's sudden question about what he was doing in his room, Shiwoo recalled his earlier masturbation and felt embarrassed.</p>
 
-<p>"Oh my~ It seems our Sehee has grown up~ So, have you finished cleaning your room?"</p>
+<p>"Oh my It seems our Sehee has grown up So, have you finished cleaning your room?"</p>
 
 <p>Mom, as if saying, 'Here we go again,' interrupted his sister before Shiwoo could answer.</p>
 
-<p>"Oh, come on! I'm doing that slowly~ And I always help out a lot with housework, you know. I'm saying this because Shiwoo is always holed up in his room doing weird things and not doing anything, so why do you only talk to me like that, Mom~ Hmph."</p>
+<p>"Oh, come on! I'm doing that slowly And I always help out a lot with housework, you know. I'm saying this because Shiwoo is always holed up in his room doing weird things and not doing anything, so why do you only talk to me like that, Mom Hmph."</p>
 
 <p>Sehee-nuna was whining to Mom, as if feeling hurt.</p>
 
@@ -176,7 +176,7 @@ chapter = 3
 
 <p>His penis was now erect because of that feeling.</p>
 
-<p>"The dinner side dish is sausage, big brother, your favorite! I made it earlier~ because I like it too."</p>
+<p>"The dinner side dish is sausage, big brother, your favorite! I made it earlier because I like it too."</p>
 
 <p>While he was feeling awkward with his erection, Seyoung spoke to him.</p>
 

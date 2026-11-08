@@ -48,7 +48,7 @@ chapter = 572
 
 <p>Mom replies to Shiwoo, sounding slightly annoyed.</p>
 
-<p>「Ah~ You've been wearing it the whole time? I was just wondering, but you really were doing that? Hehehe」</p>
+<p>「Ah You've been wearing it the whole time? I was just wondering, but you really were doing that? Hehehe」</p>
 
 <p>Shiwoo answers nonchalantly, as if glossing over his mistake of forgetting about Mom's situation.</p>
 
@@ -80,11 +80,11 @@ chapter = 572
 
 <p>At that moment, a subtle smile appeared on his lips, and a feeling of ease and relief seemed to permeate deep into Shiwoo's body.</p>
 
-<p>"Ah~ Cheoljin, can you go ahead first? I think I need to stop by the bathroom first..."</p>
+<p>"Ah Cheoljin, can you go ahead first? I think I need to stop by the bathroom first..."</p>
 
 <p>Shiwoo said, imitating Cheoljin's swaggering tone.</p>
 
-<p>"Oh... will you? Then I'll go ahead? Come down later~"</p>
+<p>"Oh... will you? Then I'll go ahead? Come down later"</p>
 
 <p>Cheoljin reacted awkwardly to Shiwoo's words and answered.</p>
 
@@ -128,7 +128,7 @@ chapter = 572
 
 <p>Mom was still answering Shiwoo with a text message that seemed to be mixed with annoyance and resentment.</p>
 
-<p>[But you still haven't drunk the water? Amazing~ You didn't even send the video in advance. Didn't you say you were thirsty earlier~?]</p>
+<p>[But you still haven't drunk the water? Amazing You didn't even send the video in advance. Didn't you say you were thirsty earlier?]</p>
 
 <p>Shiwoo teases Mom's situation lightly, sending a reply with a playful attitude.</p>
 
@@ -136,7 +136,7 @@ chapter = 572
 
 <p>Mom seems to be irritated by Shiwoo's playful teasing.</p>
 
-<p>[It's not like you can't check it during class~ You can hide it under your desk and secretly look at the screen, and listen to the sound with earphones~ hehe]</p>
+<p>[It's not like you can't check it during class You can hide it under your desk and secretly look at the screen, and listen to the sound with earphones hehe]</p>
 
 <p>Shiwoo continued to tease and provoke Mom.</p>
 
@@ -144,11 +144,11 @@ chapter = 572
 
 <p>Mom's emoticon looks like she's making a serious face and getting angry.</p>
 
-<p>[Okay~ Okay~ I was honestly just spacing out~ I forgot that Mom was feeling thirsty and couldn't drink water, and I was just thinking about other things during class... Sorry!]</p>
+<p>[Okay Okay I was honestly just spacing out I forgot that Mom was feeling thirsty and couldn't drink water, and I was just thinking about other things during class... Sorry!]</p>
 
 <p>Shiwoo honestly admits his mistake, as if revealing his true feelings, and sincerely apologizes to Mom for forgetting about her situation.</p>
 
-<p>[That's just like you, Shiwoo~! You call me your official wife or whatever, but you don't care about Mom's feelings at all, do you? When I saw you ordering me to do that kind of thing during break time earlier, I honestly didn't expect anything!]</p>
+<p>[That's just like you, Shiwoo! You call me your official wife or whatever, but you don't care about Mom's feelings at all, do you? When I saw you ordering me to do that kind of thing during break time earlier, I honestly didn't expect anything!]</p>
 
 <p>Mom says in a cynical and sarcastic tone, as if Shiwoo's mistake was within the expected range.</p>
 
@@ -162,9 +162,9 @@ chapter = 572
 
 <p>Unlike her dissatisfied and annoyed tone, Mom's passive attitude seems to be absolutely obedient to Shiwoo's words.</p>
 
-<p>[I'm in the bathroom right now! You can check the video right away now~ hehe By the way, our Seonmi listens to me so well~]</p>
+<p>[I'm in the bathroom right now! You can check the video right away now hehe By the way, our Seonmi listens to me so well]</p>
 
-<p>[You must have been really thirsty, but you kept waiting to follow my orders, right? I'm going to give you a lot of rewards when I get home today~ Should I put it in as soon as we eat dinner today? How about it? hehehe]</p>
+<p>[You must have been really thirsty, but you kept waiting to follow my orders, right? I'm going to give you a lot of rewards when I get home today Should I put it in as soon as we eat dinner today? How about it? hehehe]</p>
 
 <p>Shiwoo went on to praise Mom as if he was impressed and added a mischievous preview of what would happen after dinner.</p>
 

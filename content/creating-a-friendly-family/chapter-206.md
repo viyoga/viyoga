@@ -188,7 +188,7 @@ chapter = 206
 
 <p>Shiwoo's semen soaked into Seyoung Nuna's pink dress as if seeping in.</p>
 
-<p>"Haa~! Haa~! Haaaa~~!"</p>
+<p>"Haa! Haa! Haaaa!"</p>
 
 <p>His breath came in violent gasps from masturbating alone.</p>
 

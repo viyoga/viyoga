@@ -4,13 +4,13 @@ weight = 181
 [extra]
 chapter = 181
 +++
-<p>,It's just a puppy's name~! I hope Oppa gives it to me~hehe,"</p>
+<p>,It's just a puppy's name! I hope Oppa gives it to mehehe,"</p>
 
 <p>Seyoung was asking Shiwoo in a tone that seemed to be acting cute.</p>
 
-<p>,Well~ Since Seyoung is asking me so nicely, should I give it a try?"</p>
+<p>,Well Since Seyoung is asking me so nicely, should I give it a try?"</p>
 
-<p>,Yes~! Any name Oppa gives me is good~!"</p>
+<p>,Yes! Any name Oppa gives me is good!"</p>
 
 <p>Seyoung looks up at Shiwoo with sparkling eyes, as if expecting it.</p>
 
@@ -18,7 +18,7 @@ chapter = 181
 
 <p>Shiwoo first checks the puppy's gender before naming it.</p>
 
-<p>,It's a girl~!"</p>
+<p>,It's a girl!"</p>
 
 <p>Seyoung answers in a stern tone, frowning as if warning her Oppa.</p>
 
@@ -32,7 +32,7 @@ chapter = 181
 
 <p>Shiwoo stares blankly at Seonju Imo's still voluptuous and desirable body.</p>
 
-<p>,Ah, right! There's something we need to decide before naming it! Hehe~!"</p>
+<p>,Ah, right! There's something we need to decide before naming it! Hehe!"</p>
 
 <p>Seyoung said to Shiwoo as if trying to turn Shiwoo's attention away, glancing at Seonju Imo.</p>
 
@@ -40,7 +40,7 @@ chapter = 181
 
 <p>Shiwoo looks at Seyoung and stutters, asking as if a little nervous.</p>
 
-<p>,Seonju Imo said that all the puppies born at Seonju Imo's house are like Seonju Imo's children~"</p>
+<p>,Seonju Imo said that all the puppies born at Seonju Imo's house are like Seonju Imo's children"</p>
 
 <p>Seyoung was still looking at Shiwoo with a smiling face.</p>
 
@@ -54,7 +54,7 @@ chapter = 181
 
 <p>Shiwoo listens to Seyoung's incomprehensible words without saying a word.</p>
 
-<p>,This baby is Seonju Imo's daughter, right~?! So I want to bring her to our house as a younger sister, what do you think, Shiwoo Oppa?"</p>
+<p>,This baby is Seonju Imo's daughter, right?! So I want to bring her to our house as a younger sister, what do you think, Shiwoo Oppa?"</p>
 
 <p>Seyoung asks Shiwoo with a tone full of anticipation.</p>
 
@@ -72,11 +72,11 @@ chapter = 181
 
 <p>Seyoung tiptoes and brings her plump, glossy lips to Shiwoo's ear.</p>
 
-<p>,Do you like... daughters~?... Or do you like younger sisters~?"</p>
+<p>,Do you like... daughters?... Or do you like younger sisters?"</p>
 
 <p>Seyoung's whisper is lewd.</p>
 
-<p>,But honestly, I don't care if it's both~"</p>
+<p>,But honestly, I don't care if it's both"</p>
 
 <p>Seyoung's tone is provocative but soft.</p>
 
@@ -102,7 +102,7 @@ chapter = 181
 
 <p>Shiwoo twitches his body and takes his ear away from Seyoung.</p>
 
-<p>,If you don't know right now, think about it until Mom comes, Shiwoo Oppa~ Along with the baby's name~! I'll tell Mom~hehe"</p>
+<p>,If you don't know right now, think about it until Mom comes, Shiwoo Oppa Along with the baby's name! I'll tell Momhehe"</p>
 
 <p>Seyoung, seeing Shiwoo slightly embarrassed and stepping back, is still smiling innocently.</p>
 
@@ -218,7 +218,7 @@ chapter = 181
 
 <p>Shiwoo quickly takes his hand off Sua's thigh and turns to the dressing room.</p>
 
-<p>,Ah, that's refreshing~! What are you guys talking about?"</p>
+<p>,Ah, that's refreshing! What are you guys talking about?"</p>
 
 <p>Seonju Imo, stretching as if yawning, is coming out of the dressing room.</p>
 
@@ -230,11 +230,11 @@ chapter = 181
 
 <p>The wet stains can be seen on Seonju Imo's underwear.</p>
 
-<p>,It's so hot today~? Shiwoo seems to be trying to wear comfortable clothes at home without worrying about his younger sisters now?!"</p>
+<p>,It's so hot today? Shiwoo seems to be trying to wear comfortable clothes at home without worrying about his younger sisters now?!"</p>
 
 <p>Seonju Imo, receiving Shiwoo's gaze, approaches the table where Shiwoo and his younger sisters are and speaks in a sly and exaggerated tone.</p>
 
-<p>,Seonju Imo~ We were taking out ice cream cake to eat together~hehe"</p>
+<p>,Seonju Imo We were taking out ice cream cake to eat togetherhehe"</p>
 
 <p>Seyoung speaks as if she is used to Seonju Imo's underwear.</p>
 

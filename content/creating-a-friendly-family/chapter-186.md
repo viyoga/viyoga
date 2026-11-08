@@ -14,7 +14,7 @@ chapter = 186
 
 <p>Shiwoo asked, as if confirming the recent status of Gyuri Ajumma, which Cheoljin had casually mentioned in class.</p>
 
-<p>"Well~ maybe Dad started another household, and she's bored being home alone? Puhi-hit!"</p>
+<p>"Well maybe Dad started another household, and she's bored being home alone? Puhi-hit!"</p>
 
 <p>Cheoljin spoke of his precarious family matters to Shiwoo as if they were someone else's business, completely unfazed. -It wasn't surprising anymore, though- Shiwoo wondered inwardly if it might be related to the tenant in Gyuri Ajumma's newly renewed slave contract.</p>
 
@@ -22,17 +22,17 @@ chapter = 186
 
 <p>A familiar girl's voice was heard from behind. Shiwoo, startled, instantly turned around. The owner of the voice from behind was none other than Sin Seulgi.</p>
 
-<p>"Yo~ Seulgi, you here? I see you here often these days too, huh?"</p>
+<p>"Yo Seulgi, you here? I see you here often these days too, huh?"</p>
 
 <p>Cheoljin greeted Seulgi as if pleased to see her.</p>
 
-<p>"I came to see Shiwoo~"</p>
+<p>"I came to see Shiwoo"</p>
 
 <p>Seulgi specifically pointed out Shiwoo. Shiwoo, feeling a pang, turned back. Seulgi, who had borrowed money from Shiwoo a few days ago with a threatening vibe. Seulgi approached Shiwoo and Cheoljin with a friendly smile.</p>
 
 <p>"Wh-what do you need?" Shiwoo asked, looking at Seulgi with renewed caution.</p>
 
-<p>"To pay back the money I borrowed last time~ I used it well! Here!" Seulgi said, handing the money to Shiwoo.</p>
+<p>"To pay back the money I borrowed last time I used it well! Here!" Seulgi said, handing the money to Shiwoo.</p>
 
 <p>"Oh? Uh... okay..."</p>
 
@@ -46,7 +46,7 @@ chapter = 186
 
 <p>Shiwoo was participating in the blind date today as Sinbi Nuna's partner. Shiwoo might even have a sexual relationship with Sinbi Nuna at today's blind date. It might even be natural for Shiwoo to feel uncomfortable around Seulgi, Sinbi Nuna's younger sister.</p>
 
-<p>"Have a good time! Please take good care of my older sister~"</p>
+<p>"Have a good time! Please take good care of my older sister"</p>
 
 <p>Seulgi abruptly asked Shiwoo to take care of her older sister.</p>
 
@@ -102,7 +102,7 @@ chapter = 186
 
 <p>Shiwoo and Sehee Nuna arrived home.</p>
 
-<p>"I'll go wash up first. You get ready too~"</p>
+<p>"I'll go wash up first. You get ready too"</p>
 
 <p>As soon as Sehee Nuna entered the house, she comfortably took off her uniform right in front of Shiwoo and went into the dressing room. Sehee Nuna's luscious breasts and firm buttocks, encased in her underwear, were revealed before Shiwoo's eyes. Her captivating breasts and sleek pelvis, inherited from Mom's genes, were growing larger day by day. Sehee Nuna's unfamiliar long, wavy hair swayed, brushing against her bare skin back.</p>
 
@@ -116,7 +116,7 @@ chapter = 186
 
 <p>Pushuk! Shiwoo's thick, white secretions sprayed again onto Sehee Nuna's underwear inside the drawer. Shiwoo's semen was once again thoroughly drenching Sehee Nuna's underwear.</p>
 
-<p>"Haaah~ Haaahhh~ Haaah~"</p>
+<p>"Haaah Haaahhh Haaah"</p>
 
 <p>Shiwoo lay sprawled forward, gasping for breath, feeling the afterglow of ejaculation. Shiwoo picked up his smartphone. And he captured the result he had created with a photo. Shiwoo hesitated, pondering whether to send the photo, then, feeling defiant, sent the photo to Sehee Nuna's smartphone.</p>
 

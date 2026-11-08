@@ -36,7 +36,7 @@ chapter = 387
 
 <p>Only then does Shiwoo belatedly realize that Seyoung is standing right next to him, and he snaps back to his senses.</p>
 
-<p>"Oppa, the vibrator you told me to charge earlier, I plugged in the charging cable and put it on my desk in my room, so check it out later~ We need to use it when Mom comes home tonight, right~"</p>
+<p>"Oppa, the vibrator you told me to charge earlier, I plugged in the charging cable and put it on my desk in my room, so check it out later We need to use it when Mom comes home tonight, right"</p>
 
 <p>Seyoung speaks as if trying to lighten the mood, reporting on the progress of the task Shiwoo had ordered her to do earlier.</p>
 
@@ -46,7 +46,7 @@ chapter = 387
 
 <p>Shiwoo barely manages to calm his agitated mind and replies to Seyoung.</p>
 
-<p>"Mom must have gone to the mart up ahead to do some grocery shopping! We're having beef short ribs for dinner tonight~ Hehe~!"</p>
+<p>"Mom must have gone to the mart up ahead to do some grocery shopping! We're having beef short ribs for dinner tonight Hehe!"</p>
 
 <p>Seyoung says, confidently showing Shiwoo the screen of her smartphone.</p>
 
@@ -64,9 +64,9 @@ chapter = 387
 
 <p>Shiwoo asks Seyoung, as if confirming the contents of the text message after skimming through the chat window.</p>
 
-<p>"Yeah~ The mart next to the bank~! I should prepare some of the ingredients before Mom comes home~ Hehe~!"</p>
+<p>"Yeah The mart next to the bank! I should prepare some of the ingredients before Mom comes home Hehe!"</p>
 
-<p>"I'm going into the shower room to wash up, so Oppa, finish talking with the Unnis and come on up~"</p>
+<p>"I'm going into the shower room to wash up, so Oppa, finish talking with the Unnis and come on up"</p>
 
 <p>Seyoung says, giving Shiwoo a reassuring look.</p>
 

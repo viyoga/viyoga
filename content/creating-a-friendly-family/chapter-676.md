@@ -122,6 +122,6 @@ chapter = 676
 
 <p>When she faced the sight of herself seriously indulging in such an absurd delusion, even for a moment, a startling sense of bewilderment, self-reproach, and shame flowed down her spine like a cold chill. Seonju-imo was trembling at the embarrassment and disgrace that seeped into her very bones like a thrill. At the same time, the maternal pleasure and sense of relief seeping from the depths of her brain intertwined, and she unconsciously reached for the climax along with an exploding thrill.</p>
 
-<p>"Haaaaaaaang! Haaauuu~uung-ung! Haaaaaaaa~ haaaaat!"</p>
+<p>"Haaaaaaaang! Haaauuuuung-ung! Haaaaaaaa haaaaat!"</p>
 
 <p>As if swept away by a tsunami of emotion, driven to the edge of the cliff of climax, Seonju-imo was falling endlessly.</p>

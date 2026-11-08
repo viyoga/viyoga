@@ -120,31 +120,31 @@ chapter = 227
 
 <p>Instead of sending a text message to Cheoljin, Shiwoo decided to open the chat window with Sehee Nuna and talk to her.</p>
 
-<p>'Sehee-ya~ Are you feeling a little better~?'</p>
+<p>'Sehee-ya Are you feeling a little better?'</p>
 
 <p>Shiwoo, who was now sending text messages, calling her name without the title of Nuna as if it were natural.</p>
 
-<p>'Yeah~ I feel better after sleeping. How about you, Shiwoo? Does the place where you got hurt still hurt a lot?'</p>
+<p>'Yeah I feel better after sleeping. How about you, Shiwoo? Does the place where you got hurt still hurt a lot?'</p>
 
 <p>Sehee Nuna didn't seem to care about Shiwoo's title anymore and was answering.</p>
 
 <p>Rather, Sehee Nuna was worrying about Shiwoo, asking about his body.</p>
 
-<p>'No~ It doesn't hurt much~'</p>
+<p>'No It doesn't hurt much'</p>
 
 <p>Shiwoo said to reassure Sehee Nuna.</p>
 
-<p>'What if it leaves a scar? I'm sorry because of me~'</p>
+<p>'What if it leaves a scar? I'm sorry because of me'</p>
 
 <p>Sehee Nuna seemed to think that Shiwoo was hurt because of her.</p>
 
 <p>Sehee Nuna, who was worrying about Shiwoo with a delicate concern and kindness that the previous Sehee Nuna could never have imagined.</p>
 
-<p>'It'll heal soon, so don't worry~! Did Mom say anything about it?'</p>
+<p>'It'll heal soon, so don't worry! Did Mom say anything about it?'</p>
 
 <p>Shiwoo asked as if to check if Mom had said anything to Sehee Nuna about that issue.</p>
 
-<p>'No~ She doesn't say anything... Mom is just the same as usual~ Rather, it seems like Mom is deliberately avoiding it when your name comes up...'</p>
+<p>'No She doesn't say anything... Mom is just the same as usual Rather, it seems like Mom is deliberately avoiding it when your name comes up...'</p>
 
 <p>Sehee Nuna, who didn't finish her sentence, was carefully informing him about Mom's situation.</p>
 
@@ -152,11 +152,11 @@ chapter = 227
 
 <p>Rather, judging from Sehee Nuna's text message, it seemed that Mom was faithfully carrying out the role-playing of the hierarchy that she had agreed to do with Shiwoo.</p>
 
-<p>'Really? That's a relief~ Anyway, it's not because of Nuna that I got hurt, so if Mom says anything next time, be sure to tell me! Okay!!'</p>
+<p>'Really? That's a relief Anyway, it's not because of Nuna that I got hurt, so if Mom says anything next time, be sure to tell me! Okay!!'</p>
 
 <p>Shiwoo said confidently, as if to confirm to Sehee Nuna that he was superior to Mom.</p>
 
-<p>'Okay~! I will~!'</p>
+<p>'Okay! I will!'</p>
 
 <p>Sehee Nuna, who answered concisely without hesitation.</p>
 
@@ -168,7 +168,7 @@ chapter = 227
 
 <p>Shiwoo asked Sehee Nuna as if trying to confirm a fact he already knew.</p>
 
-<p>'Yeah~ Mom woke me up earlier and I came down~'</p>
+<p>'Yeah Mom woke me up earlier and I came down'</p>
 
 <p>Sehee Nuna, who answered immediately.</p>
 
@@ -176,7 +176,7 @@ chapter = 227
 
 <p>Shiwoo asked to get a more accurate picture of the situation downstairs.</p>
 
-<p>'Yeah, Seyoung is there too~ I think she's going to start preparing dinner now~'</p>
+<p>'Yeah, Seyoung is there too I think she's going to start preparing dinner now'</p>
 
 <p>Sehee Nuna was faithfully answering Shiwoo's questions.</p>
 

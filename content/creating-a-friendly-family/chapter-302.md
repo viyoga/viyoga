@@ -22,7 +22,7 @@ chapter = 302
 
 <p>Mom makes a moaning sound as if in pain, moving her tongue in sync with Sehee Nuna's tongue movements.</p>
 
-<p>,Chuu-ap~ Haeum~! Chuu-reup!...Seonmi-ya... haa-am.. Chuu-eup,\</p>
+<p>,Chuu-ap Haeum! Chuu-reup!...Seonmi-ya... haa-am.. Chuu-eup,\</p>
 
 <p>Sehee Nuna calls Mom's name without hesitation, continuing the depraved kiss that destroys relationships and morality.</p>
 
@@ -58,7 +58,7 @@ chapter = 302
 
 <p>Sehee Nuna makes a sound as if sternly warning Mom, as Mom's hands, which had been clasped and attached to the back of her neck, were about to fall.</p>
 
-<p>-Jji-geok~! Jji-geok~ Chil-geok!</p>
+<p>-Jji-geok! Jji-geok Chil-geok!</p>
 
 <p>A different kind of wet friction sound than before is heard as if leaking out from the black screen.</p>
 
@@ -114,7 +114,7 @@ chapter = 302
 
 <p>The sound of licking the wet flesh between her spread legs begins to be heard.</p>
 
-<p>,Haa-eueu... Haa-at... Haeung... Haa... Haa-eueum~~,\</p>
+<p>,Haa-eueu... Haa-at... Haeung... Haa... Haa-eueum,\</p>
 
 <p>Mom's sweet moaning sound, as if the boundary between mother and daughter has collapsed.</p>
 
@@ -124,7 +124,7 @@ chapter = 302
 
 <p>Lewd and stimulating sounds continue noisily for a long time.</p>
 
-<p>,Master~! Master~! Haa-ak! Haa-eueuk! Heueueut! Haa-aaa~~at!\,</p>
+<p>,Master! Master! Haa-ak! Haa-eueuk! Heueueut! Haa-aaaat!\,</p>
 
 <p>The wet friction sounds and mouth sounds become increasingly violent, and before long, Mom's intense moaning sound bursts out, shouting the title of master, as if reaching climax.</p>
 
@@ -212,7 +212,7 @@ chapter = 302
 
 <p>Sua, who had been chatting and talking with Seyoung, turns her head as if reacting to Shiwoo's voice.</p>
 
-<p>,Oh? Shiwoo Oppa~ Hello~\,</p>
+<p>,Oh? Shiwoo Oppa Hello\,</p>
 
 <p>Sua greets Shiwoo brightly as she turns to look at him.</p>
 

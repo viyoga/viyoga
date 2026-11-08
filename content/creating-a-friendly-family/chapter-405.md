@@ -162,7 +162,7 @@ chapter = 405
 
 <p>[Earlier, when I told everyone to send pictures of their breasts and pussies, everyone else sent them, but Mom, you were the only one who didn't, right?]</p>
 
-<p>[Uploading it isn't hard, so if it's a hassle, I can just upload it right now~!]</p>
+<p>[Uploading it isn't hard, so if it's a hassle, I can just upload it right now!]</p>
 
 <p>Shiwoo typed a message into the chat window with Mom, intending to make the silent Mom say something.</p>
 

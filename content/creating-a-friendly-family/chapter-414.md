@@ -158,7 +158,7 @@ chapter = 414
 
 <p>Even after confirming the text Shiwoo sent, Mom was unable to answer easily.</p>
 
-<p>[Mom, are you okay? Did someone catch you already? I think I saw some female academy students passing by earlier~?]</p>
+<p>[Mom, are you okay? Did someone catch you already? I think I saw some female academy students passing by earlier?]</p>
 
 <p>Shiwoo was worried about Mom, who was naked in the room, and checked on her condition as if asking about her daily life.</p>
 

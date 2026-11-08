@@ -8,7 +8,7 @@ chapter = 108
 
 <p>While Sehee Nuna was in the bathroom, Shiwoo texted Mom, asking.</p>
 
-<p>「Of course~ If Mom isn't here, Seyoung has a hard time at night, you know.」</p>
+<p>「Of course If Mom isn't here, Seyoung has a hard time at night, you know.」</p>
 
 <p>Mom's expected answer.</p>
 
@@ -16,7 +16,7 @@ chapter = 108
 
 <p>Shiwoo asked, as if pointlessly inquiring about something obvious.</p>
 
-<p>「I told you~ Seyoung can't sleep well at night without Mom... Shiwoo, you know it too, why are you asking~?」</p>
+<p>「I told you Seyoung can't sleep well at night without Mom... Shiwoo, you know it too, why are you asking?」</p>
 
 <p>Mom questioned Shiwoo back, as if his query was odd.</p>
 
@@ -28,13 +28,13 @@ chapter = 108
 
 <p>Mom reacted with a touch of surprise.</p>
 
-<p>「Yeah, Seonju Imo and I are close~ Yesterday, Seonju Imo slept with Seyoung, I heard?」</p>
+<p>「Yeah, Seonju Imo and I are close Yesterday, Seonju Imo slept with Seyoung, I heard?」</p>
 
 <p>Shiwoo spoke as if subtly flaunting his closeness with Seonju Imo.</p>
 
-<p>「Ah... yeah~ Yesterday, Seonju slept with Seyoung~ You two seem to talk a lot, don't you?」</p>
+<p>「Ah... yeah Yesterday, Seonju slept with Seyoung You two seem to talk a lot, don't you?」</p>
 
-<p>「I told you I'm super close with Imo~ Haha But Mom! I have something I'm curious about~」</p>
+<p>「I told you I'm super close with Imo Haha But Mom! I have something I'm curious about」</p>
 
 <p>「What?」</p>
 
@@ -44,17 +44,17 @@ chapter = 108
 
 <p>「So, if that's the case, I was wondering if Sehee Nuna or Sejin Nuna could also put Seyoung to sleep with their breasts, haha.」</p>
 
-<p>「Oh, for heaven's sake~! What was that all about~ Would that even be possible?!」</p>
+<p>「Oh, for heaven's sake! What was that all about Would that even be possible?!」</p>
 
 <p>Mom spoke, utterly dumbfounded.</p>
 
-<p>「Just ask Seyoung once~ if she can sleep with Sehee Nuna's breast instead of Mom's or Imo's breast~!」</p>
+<p>「Just ask Seyoung once if she can sleep with Sehee Nuna's breast instead of Mom's or Imo's breast!」</p>
 
 <p>「Ask what?! If Seyoung says she sleeps with Sehee's breast, Sehee would gladly say yes to that!」</p>
 
 <p>Mom spoke, utterly bewildered by Shiwoo's words.</p>
 
-<p>「That, you don't know~ Frankly, who knew that Mom and I would have sex and become this kind of relationship, haha.」</p>
+<p>「That, you don't know Frankly, who knew that Mom and I would have sex and become this kind of relationship, haha.」</p>
 
 <p>Shiwoo teased Mom.</p>
 
@@ -70,13 +70,13 @@ chapter = 108
 
 <p>Mom spoke as if troubled.</p>
 
-<p>「Like, Mom is having a hard time, so help her~ Seyoung also follows Sehee Nuna well~ Sucking a breast isn't strange either~」</p>
+<p>「Like, Mom is having a hard time, so help her Seyoung also follows Sehee Nuna well Sucking a breast isn't strange either」</p>
 
 <p>Shiwoo spoke with a shameless, insistent tone, as if forcing his point.</p>
 
-<p>「It's strange!! What's not strange about a 5th grader sucking Mom's breast every day to sleep?~」</p>
+<p>「It's strange!! What's not strange about a 5th grader sucking Mom's breast every day to sleep?」</p>
 
-<p>「Haha, there's also a Mom who passed out after having sex with her 2nd-year middle school son, so what~」</p>
+<p>「Haha, there's also a Mom who passed out after having sex with her 2nd-year middle school son, so what」</p>
 
 <p>Shiwoo teased Mom again.</p>
 
@@ -84,45 +84,45 @@ chapter = 108
 
 <p>Mom's emoticon, which he hadn't seen in a while.</p>
 
-<p>「Our Seonmi is cute~? What's the big deal? They're both women~! And Mom, you're my slave now!! Show some respect to your Master~!」</p>
+<p>「Our Seonmi is cute? What's the big deal? They're both women! And Mom, you're my slave now!! Show some respect to your Master!」</p>
 
 <p>After saying this, Shiwoo dragged the screenshot Mom had sent into the chat window and sent it to her again. And along with it, the photo previously taken after Mom had passed out, with a full load of semen sprayed all over her face...</p>
 
 <p>The screenshot of the phone number in the address book named 'Master(SY)' and the photo of Mom's unconscious face were prominently displayed on the chat screen.</p>
 
-<p>「Sigh~ Mom seems to have made a mistake~ Even if it's just a game, I shouldn't have done something like this with my son~」</p>
+<p>「Sigh Mom seems to have made a mistake Even if it's just a game, I shouldn't have done something like this with my son」</p>
 
 <p>Mom, showing belated embarrassment, complained as if lamenting her fate.</p>
 
-<p>「What can you do about something that's already done? Haha And you shouldn't say such things after saying you'd do it~ I'll have to punish Mom again!!」</p>
+<p>「What can you do about something that's already done? Haha And you shouldn't say such things after saying you'd do it I'll have to punish Mom again!!」</p>
 
 <p>Shiwoo shamelessly deflected.</p>
 
-<p>「Are you going to keep making Mom do strange things?~!!」</p>
+<p>「Are you going to keep making Mom do strange things?!!」</p>
 
 <p>Mom snapped.</p>
 
-<p>「Anyway, while Mom is at Imo's house, you're just getting off with chat, right~ Haha.」</p>
+<p>「Anyway, while Mom is at Imo's house, you're just getting off with chat, right Haha.」</p>
 
-<p>「Sigh~ If you're making Seyoung and Sehee do something, it's not a problem that ends with chat, you know? You're trying to drag Seyoung and Sehee into this to make Mom troubled, aren't you?! Do you think Mom doesn't know?!」</p>
+<p>「Sigh If you're making Seyoung and Sehee do something, it's not a problem that ends with chat, you know? You're trying to drag Seyoung and Sehee into this to make Mom troubled, aren't you?! Do you think Mom doesn't know?!」</p>
 
 <p>Mom was using a mix of respectful speech, which she usually employed when teasing Shiwoo. But this time, her tone conveyed a different feeling to Shiwoo than usual.</p>
 
 <p>Shiwoo's penis rapidly gained strength and expanded.</p>
 
-<p>「I told you! If it was something Mom would hate, I wouldn't have made you do this from the beginning~ Now Mom knows that well, doesn't she?」</p>
+<p>「I told you! If it was something Mom would hate, I wouldn't have made you do this from the beginning Now Mom knows that well, doesn't she?」</p>
 
 <p>Shiwoo tried to appease Mom.</p>
 
-<p>「Even so, Mom doesn't think she can do that~! Even doing this with you now, I'm so anxious about Sehee and Seyoung finding out~」</p>
+<p>「Even so, Mom doesn't think she can do that! Even doing this with you now, I'm so anxious about Sehee and Seyoung finding out」</p>
 
 <p>Mom expressed her anxious feelings.</p>
 
-<p>「Alright~ Then instead, I can make Seonmi do things by herself, right?」</p>
+<p>「Alright Then instead, I can make Seonmi do things by herself, right?」</p>
 
 <p>Shiwoo asked, boldly calling Mom by her name as if he had gained the upper hand.</p>
 
-<p>「Okay~ If it's something I can do by myself and finish, then it's fine~」</p>
+<p>「Okay If it's something I can do by myself and finish, then it's fine」</p>
 
 <p>Mom replied as if she had given up in the face of Shiwoo's audacity. Mom, too, seemed to be slowly adapting to the game of Shiwoo's commands and her own submission.</p>
 
@@ -148,7 +148,7 @@ chapter = 108
 
 <p>Shiwoo's persistent, humiliating command continued.</p>
 
-<p>「Even so~ Seyoung is sleeping next to me?」</p>
+<p>「Even so Seyoung is sleeping next to me?」</p>
 
 <p>Mom made an excuse about Seyoung, as if genuinely troubled.</p>
 
@@ -168,7 +168,7 @@ chapter = 108
 
 <p>Mom replied to Shiwoo's call as if nothing had happened.</p>
 
-<p>「Seonmi-ya~?」</p>
+<p>「Seonmi-ya?」</p>
 
 <p>Shiwoo, taking it a step further, called Mom by her name as if testing the waters.</p>
 
@@ -180,7 +180,7 @@ chapter = 108
 
 <p>Shiwoo asked Mom, as if gauging her mood.</p>
 
-<p>「I'm not angry~」</p>
+<p>「I'm not angry」</p>
 
 <p>Mom's reply, as if nothing was wrong.</p>
 
@@ -202,7 +202,7 @@ chapter = 108
 
 <p>Mom's silence and hesitation grew longer again.</p>
 
-<p>「Sigh~ Do whatever you want!! Anyway, Shiwoo, you're going to do everything you want, aren't you!! But keep your promise!! Only in chat...」</p>
+<p>「Sigh Do whatever you want!! Anyway, Shiwoo, you're going to do everything you want, aren't you!! But keep your promise!! Only in chat...」</p>
 
 <p>Mom's reply finally came, laced with resignation.</p>
 
@@ -224,15 +224,15 @@ chapter = 108
 
 <p>Shiwoo got up, fully erect, and headed towards the bathroom. Then, as if remembering something, Shiwoo stopped and looked back at Sehee Nuna. Sehee Nuna's skin, visible beneath her mesh top. The voluptuous curve of her body. It was enough allure to fully stimulate Shiwoo's impulses.</p>
 
-<p>「Sehee Nuna, take off your panties~!」</p>
+<p>「Sehee Nuna, take off your panties!」</p>
 
 <p>Shiwoo, in a drunken mood, was openly demanding Sehee Nuna to take off her panties. Sehee Nuna looked at Shiwoo, slightly surprised.</p>
 
-<p>「No~! I'll do it! Just stay still!!」</p>
+<p>「No! I'll do it! Just stay still!!」</p>
 
 <p>Shiwoo said that, then approached Sehee Nuna. Shiwoo knelt on the floor near the chair where Sehee Nuna was sitting. Shiwoo slid his hand deep into Sehee Nuna's skirt, tracing her thigh. Sehee Nuna blushed, surprised by Shiwoo's sudden action. Sehee Nuna, unable to react immediately, watched Shiwoo's actions with wide eyes. Sehee Nuna's crimson, patterned panties soon began to be peeled off. Sehee Nuna's completely soaked panties were grasped in Shiwoo's hand.</p>
 
-<p>「I'll be right out after I'm done~」</p>
+<p>「I'll be right out after I'm done」</p>
 
 <p>Shiwoo headed to the changing room with a satisfied expression. Shiwoo needed to urinate, but his strongly erect penis made it seem impossible to do so immediately. Shiwoo, having entered the changing room, pulled down his pants and panties to his knees at once. Shiwoo's enormous penis, springing out elastically from his clothes. Shiwoo wrapped his taut, erect penis with Sehee Nuna's wet panties. Shiwoo, fully coating his shaft with Sehee Nuna's vaginal fluid, began to thrust.</p>
 

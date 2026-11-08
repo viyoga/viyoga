@@ -124,19 +124,19 @@ chapter = 87
 
 <p>Shiwoo said this loud enough for Seonju Imo to hear, then arbitrarily pressed the call button on the smartphone screen and answered the phone.</p>
 
-<p>「Hello~ Mom?」</p>
+<p>「Hello Mom?」</p>
 
 <p>「Huh? Wh-what? Is that Shiwoo?」</p>
 
 <p>When Mom heard Shiwoo's voice from Seonju Imo's smartphone, she seemed a little flustered.</p>
 
-<p>「Yeah~ it's me~ Seonju Imo is a bit busy right now, so I answered for her~」</p>
+<p>「Yeah it's me Seonju Imo is a bit busy right now, so I answered for her」</p>
 
 <p>Shiwoo answered naturally.</p>
 
 <p>「Really? What's Seonju doing right now?」</p>
 
-<p>「She's just doing this and that, seems like she needs more hands~ She's right next to me, want me to pass it over?」</p>
+<p>「She's just doing this and that, seems like she needs more hands She's right next to me, want me to pass it over?」</p>
 
 <p>Shiwoo said this, strongly grasping Seonju Imo's breast as if sending her a signal.</p>
 
@@ -144,7 +144,7 @@ chapter = 87
 
 <p>「Yeah... if she's next to you, can you pass it over?」</p>
 
-<p>「Alright, I'll pass it over~ Seonju Imo? Mom wants to talk to you!!」</p>
+<p>「Alright, I'll pass it over Seonju Imo? Mom wants to talk to you!!」</p>
 
 <p>Hearing Mom's words, Shiwoo brought the smartphone, connected to Mom's call, to Seonju Imo's ear.</p>
 
@@ -164,7 +164,7 @@ chapter = 87
 
 <p>The aggressive sound of his dick-pumping, loud enough to echo in the living room, was threateningly audible to Seonju Imo's ears.</p>
 
-<p>「Haaah~」</p>
+<p>「Haaah」</p>
 
 <p>At the sounds she heard, Seonju Imo let out a deep, hot breath, as if feeling regretful.</p>
 
@@ -174,7 +174,7 @@ chapter = 87
 
 <p>Shiwoo bent down and bit Seonju Imo's nipple into his mouth.</p>
 
-<p>「Mmm... I have to take care of the kids... Ugh... Mmm~ I'll go quickly... Uh...」</p>
+<p>「Mmm... I have to take care of the kids... Ugh... Mmm I'll go quickly... Uh...」</p>
 
 <p>Seonju Imo groaned as if in pain intermittently while talking to Mom.</p>
 
@@ -198,7 +198,7 @@ chapter = 87
 
 <p>Seonju Imo's words quickened as she became slightly impatient and irritable.</p>
 
-<p>「I said fine... You don't have to worry~ Hmph... Hang up!!」</p>
+<p>「I said fine... You don't have to worry Hmph... Hang up!!」</p>
 
 <p>Her voice rose slightly at the end, and the call ended.</p>
 
@@ -216,7 +216,7 @@ chapter = 87
 
 <p>Shiwoo sided with Seonju Imo, expressing his dissatisfaction with Mom.</p>
 
-<p>「Kikik, I know~ Your Mom is really funny if you pick apart every little thing like that~ right?」</p>
+<p>「Kikik, I know Your Mom is really funny if you pick apart every little thing like that right?」</p>
 
 <p>Seonju Imo responded to Shiwoo's words, playfully badmouthing her older sister.</p>
 
@@ -250,7 +250,7 @@ chapter = 87
 
 <p>Clearly, Seonju Imo also seemed to be anticipating a second sexual encounter with Shiwoo.</p>
 
-<p>「Alright~ But this time, don't fall asleep!! I'm going to do it while looking straight into Seonju Imo's face! Understand?!」</p>
+<p>「Alright But this time, don't fall asleep!! I'm going to do it while looking straight into Seonju Imo's face! Understand?!」</p>
 
 <p>Before she knew it, Shiwoo was climbing onto Seonju Imo's body, speaking in a coercive tone.</p>
 

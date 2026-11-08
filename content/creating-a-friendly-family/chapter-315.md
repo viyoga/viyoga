@@ -126,25 +126,25 @@ chapter = 315
 
 <p>Seyoung asks Shiwoo, as if not understanding why he wants to do that.</p>
 
-<p>"We can put it in a locker~! Instead of rushing to buy things after playing, I think it would be better to do the shopping first and then relax and play!"</p>
+<p>"We can put it in a locker! Instead of rushing to buy things after playing, I think it would be better to do the shopping first and then relax and play!"</p>
 
 <p>Shiwoo says in a firm tone, as if strongly pushing his opinion, tightly grabbing his sisters' buttocks.</p>
 
-<p>"It would be good to quickly buy pretty necklaces for you guys too~ We have to let Seonmi and Seonju know too..."</p>
+<p>"It would be good to quickly buy pretty necklaces for you guys too We have to let Seonmi and Seonju know too..."</p>
 
 <p>And then, Shiwoo adds, mentioning his mothers' names.</p>
 
 <p>While he's talking, Shiwoo's penis writhes greatly once again, and the bag that had been covering his penis is pushing against his sisters' bodies.</p>
 
-<p>"Ah ah~ Hmm... Yeah...? That might be better. I don't mind, so do whatever Oppa~ wants~~"</p>
+<p>"Ah ah Hmm... Yeah...? That might be better. I don't mind, so do whatever Oppa wants"</p>
 
 <p>Seyoung makes a sound as if feeling a slight pain, answering as if agreeing with Shiwoo's opinion.</p>
 
-<p>"Then let's go get the necklaces after we eat~"</p>
+<p>"Then let's go get the necklaces after we eat"</p>
 
 <p>As if the priorities have been reversed, Shiwoo is now saying that his purpose is to put dog collars on his sisters, rather than buying dog supplies.</p>
 
-<p>"Yeah... Let's go right after we eat... Hehe~"</p>
+<p>"Yeah... Let's go right after we eat... Hehe"</p>
 
 <p>Seyoung says, looking down at the bag that's pushing against her stomach.</p>
 

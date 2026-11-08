@@ -10,7 +10,7 @@ chapter = 754
 
 <p>Shiwoo caught his breath and typed out a message as if it were the most natural thing in the world.</p>
 
-<p>[Buy some cigarettes and a lighter... and if there's anything else you think we might need, pick it up yourself, Sweetheart~]</p>
+<p>[Buy some cigarettes and a lighter... and if there's anything else you think we might need, pick it up yourself, Sweetheart]</p>
 
 <p>Shiwoo casually demanded the cigarettes and lighter.</p>
 
@@ -110,7 +110,7 @@ chapter = 754
 
 <p>Shiwoo sent a text, checking Mom's situation and status.</p>
 
-<p>[Yeah, I'm paying now~ Just hurry up!]</p>
+<p>[Yeah, I'm paying now Just hurry up!]</p>
 
 <p>She answered with a sense of barely pulling together her scattered dignity.</p>
 
@@ -132,7 +132,7 @@ chapter = 754
 
 <p>Mom seemed to be at a loss for words at Shiwoo's absurd logic; she didn't say anything for a while even after checking the message he sent in the secret chat.</p>
 
-<p>[So, I'm asking if you bought the panty liners at the convenience store! You can tell me here, can't you~?]</p>
+<p>[So, I'm asking if you bought the panty liners at the convenience store! You can tell me here, can't you?]</p>
 
 <p>Shiwoo continued his mischievous interrogation, giving her no room to avoid the answer.</p>
 
@@ -140,9 +140,9 @@ chapter = 754
 
 <p>Mom snapped back as if it were absurd, sending a text in a firm tone as if trying to regain her dignity and face in the secret chat room.</p>
 
-<p>[If I have a wife like Seonmi, I would~! You're beautiful, you have a great body, and you swallow my cum so well, don't you?]</p>
+<p>[If I have a wife like Seonmi, I would! You're beautiful, you have a great body, and you swallow my cum so well, don't you?]</p>
 
-<p>[Even if you nag a lot, you eventually do everything I tell you~ That's my ideal type... lol]</p>
+<p>[Even if you nag a lot, you eventually do everything I tell you That's my ideal type... lol]</p>
 
 <p>[Should I just end it by only marrying Seonmi? Now that I think about it, I don't think I'd mind only living with Seonmi?]</p>
 
@@ -154,23 +154,23 @@ chapter = 754
 
 <p>She kept firing off irritable texts, but she was busy changing the subject, unable to come up with a proper rebuttal to Shiwoo's shocking jokes.</p>
 
-<p>[But I didn't ask for that much, did I~? Just gum, mouthwash, cigarettes, and a few panty liners for your sake, Seonmi~]</p>
+<p>[But I didn't ask for that much, did I? Just gum, mouthwash, cigarettes, and a few panty liners for your sake, Seonmi]</p>
 
 <p>Shiwoo was sending back sly replies, continuing to tease Mom.</p>
 
 <p>In reality, Shiwoo had only given a few instructions, but Mom seemed to be losing her mind over the subtle titles, instructions, and attitudes Shiwoo used while switching chat windows.</p>
 
-<p>[I said I'd handle it myself~! Shiwoo, why are you such a persistent child? Are you going to be like this even if you get a real girlfriend later?!]</p>
+<p>[I said I'd handle it myself! Shiwoo, why are you such a persistent child? Are you going to be like this even if you get a real girlfriend later?!]</p>
 
 <p>Mom was responding to Shiwoo's words as if to brush off her irritation, using formal speech playfully.</p>
 
-<p>[Alright~ Alright~ I won't say anymore since you said you'd handle it~ lol. Instead, buy an ice cream~ One for you too, Seonmi! So we can eat together as soon as I arrive! A cone ice cream!]</p>
+<p>[Alright Alright I won't say anymore since you said you'd handle it lol. Instead, buy an ice cream One for you too, Seonmi! So we can eat together as soon as I arrive! A cone ice cream!]</p>
 
 <p>Shiwoo gave a perfunctory answer to Mom, as if to wrap up the situation.</p>
 
 <p>Then, as if to confirm each other's position and presence until the very end, he addressed Mom by her name and instructed her to buy ice cream.</p>
 
-<p>[Fine! I'll buy it, so just hurry up~ And stop talking to me, I have to pay!]</p>
+<p>[Fine! I'll buy it, so just hurry up And stop talking to me, I have to pay!]</p>
 
 <p>Mom answered, still showing her disapproval.</p>
 

@@ -64,7 +64,7 @@ chapter = 318
 
 <p>It was a different side of Sua that Shiwoo couldn't usually see.</p>
 
-<p>,Olgak~! Olgak~! Olgak~!,</p>
+<p>,Olgak! Olgak! Olgak!,</p>
 
 <p>Sua swallowed Shiwoo's semen, along with the saliva pooling in her mouth, while maintaining eye contact with Shiwoo.</p>
 

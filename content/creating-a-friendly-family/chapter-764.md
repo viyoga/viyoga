@@ -14,7 +14,7 @@ chapter = 764
 
 <p>She then whispers in an agonizing voice, rubbing her thighs back and forth.</p>
 
-<p>"Ah! That place I mentioned in the text earlier~?"</p>
+<p>"Ah! That place I mentioned in the text earlier?"</p>
 
 <p>Shiwoo asks her again, his voice laced with a mischievous playfulness as if trying to force a definitive confirmation.</p>
 
@@ -80,7 +80,7 @@ chapter = 764
 
 <p>A tremor, whether from urgency or fear, was clearly embedded in the end of the syllables Mom spat out.</p>
 
-<p>"I don't know? Maybe about 20 minutes on foot? It's a place I just happened to stop by once at night with Sehee, so I think I'll have to search for it to find it accurately~"</p>
+<p>"I don't know? Maybe about 20 minutes on foot? It's a place I just happened to stop by once at night with Sehee, so I think I'll have to search for it to find it accurately"</p>
 
 <p>Shiwoo answers Mom's question while fumbling through a navigation app on his smartphone with a deliberately relaxed attitude.</p>
 
@@ -124,13 +124,13 @@ chapter = 764
 
 <p>It was a sight that seemed to prove how rapidly her inner self was collapsing...</p>
 
-<p>"I don't really care~ Shall we do that then~?"</p>
+<p>"I don't really care Shall we do that then?"</p>
 
 <p>Shiwoo stares intently at Mom with eyes full of mischief, shrugging his shoulders as if giving in.</p>
 
 <p>Mom avoids Shiwoo's blatant gaze and, as if trying not to get caught in her impatience, firmly shuts her lips and tries to catch her breath calmly.</p>
 
-<p>"Found it. It was here~? But it's actually really close. It's only about the base fare distance."</p>
+<p>"Found it. It was here? But it's actually really close. It's only about the base fare distance."</p>
 
 <p>Shiwoo speaks while tapping the smartphone screen, as if he finished the search.</p>
 

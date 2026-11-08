@@ -4,7 +4,7 @@ weight = 202
 [extra]
 chapter = 202
 +++
-<p>"I...I acted disrespectfully~ to Master-nim... Heeuk..."</p>
+<p>"I...I acted disrespectfully to Master-nim... Heeuk..."</p>
 
 <p>Sehee Nuna seemed to be spewing out whatever came to her mind haphazardly, desperate to avoid being hit by Shiwoo.</p>
 
@@ -20,17 +20,17 @@ chapter = 202
 
 <p>And he moved his penis slowly back and forth.</p>
 
-<p>-Jjigeok~! Jjigeok~! Jjigeok~!</p>
+<p>-Jjigeok! Jjigeok! Jjigeok!</p>
 
 <p>Shiwoo's massive slab of flesh was moving back and forth, gently sweeping up Sehee Nuna's wet inner flesh.</p>
 
-<p>"Haa-euh~....Aaa-ang~...Heu-euh-euh~"</p>
+<p>"Haa-euh....Aaa-ang...Heu-euh-euh"</p>
 
 <p>Seductive moaning sounds escaped from Sehee Nuna's parted lips.</p>
 
 <p>-As if responding happily to Shiwoo's small reward...-</p>
 
-<p>"I'm sorry for embarrassing you and being snippy in front of my friends for the first time... Heu-eut... Back then, I didn't know it would come to this, and I was truly thoughtless. Master-nim~!"</p>
+<p>"I'm sorry for embarrassing you and being snippy in front of my friends for the first time... Heu-eut... Back then, I didn't know it would come to this, and I was truly thoughtless. Master-nim!"</p>
 
 <p>Sehee Nuna seemed to be recalling and speaking about the incident when Shiwoo first met her friends in the park.</p>
 
@@ -40,11 +40,11 @@ chapter = 202
 
 <p>Even though Shiwoo was no longer pressing for an answer, Sehee Nuna was pouring out her story smoothly, as if desiring the reward of pleasure Shiwoo was giving her.</p>
 
-<p>-Jjugeo-eok~! Jjugeo-eok~! Jjugeo-eok!</p>
+<p>-Jjugeo-eok! Jjugeo-eok! Jjugeo-eok!</p>
 
 <p>Shiwoo, as if drawing a violin bow broadly, moved his rod inside Sehee Nuna's body like a bow, creating vibrations and friction that resonated against her vaginal mucous membrane.</p>
 
-<p>"Haa-euh-euh-euh-eut~~"</p>
+<p>"Haa-euh-euh-euh-eut"</p>
 
 <p>Sehee Nuna, matching the movement of Shiwoo's penis subtly scraping the inner walls of her vagina hole, was emitting long, seductive moaning sounds like an instrument.</p>
 
@@ -52,7 +52,7 @@ chapter = 202
 
 <p>Shiwoo said, bestowing the second reward of pleasure upon Sehee Nuna.</p>
 
-<p>"I wore provocative clothes and aroused Master-nim, causing trouble... I was wrong~"</p>
+<p>"I wore provocative clothes and aroused Master-nim, causing trouble... I was wrong"</p>
 
 <p>Sehee Nuna immediately continued, confessing and apologizing for her past wrongdoings towards Shiwoo.</p>
 
@@ -104,11 +104,11 @@ chapter = 202
 
 <p>Shiwoo's fierce palm, lashing down onto Sehee Nuna's buttocks like a whip.</p>
 
-<p>"Haeuk~! Haeut~! ...Haa-euh-eut~!"</p>
+<p>"Haeuk! Haeut! ...Haa-euh-eut!"</p>
 
 <p>Sehee Nuna was emitting intense moaning sounds, bouncing her body as if timing it to the impact of Shiwoo's palm falling on her buttocks.</p>
 
-<p>"...I was wrong... Hii-ing... I must not have been in my right mind back then~ I won't do it again~! Please forgive me. Master-nim~ Heu-heu-heuk"</p>
+<p>"...I was wrong... Hii-ing... I must not have been in my right mind back then I won't do it again! Please forgive me. Master-nim Heu-heu-heuk"</p>
 
 <p>Sehee Nuna was making all sorts of crying sounds, begging Shiwoo for forgiveness.</p>
 
@@ -116,11 +116,11 @@ chapter = 202
 
 <p>Shiwoo asked, as if trying to get a firm promise from her.</p>
 
-<p>"Haaaa-aaaah~~ Yes... I won't meet them now. Heuk-heuk~"</p>
+<p>"Haaaa-aaaah Yes... I won't meet them now. Heuk-heuk"</p>
 
 <p>Sehee Nuna let out a long, regretful sigh and answered Shiwoo as if crying.</p>
 
-<p>-Ssi-geok~! Ssi-geok~! Ssi-geok~!</p>
+<p>-Ssi-geok! Ssi-geok! Ssi-geok!</p>
 
 <p>Shiwoo, as if starting an engine, was moving his penis again, rubbing it against Sehee Nuna's vagina hole.</p>
 
@@ -128,7 +128,7 @@ chapter = 202
 
 <p>Shiwoo, about to speak of how he would treat Sehee Nuna from now on.</p>
 
-<p>"Heueuk~ Haeut~ Heut~! Yes ...Haa-eung~!"</p>
+<p>"Heueuk Haeut Heut! Yes ...Haa-eung!"</p>
 
 <p>Her moans, mixed with crying sounds, escaping.</p>
 
@@ -136,7 +136,7 @@ chapter = 202
 
 <p>Shiwoo explained, as if trying to make her understand about the humiliating situations that would unfold in the future.</p>
 
-<p>"Yes... yes~ Heu-euh-euh-euh~"</p>
+<p>"Yes... yes Heu-euh-euh-euh"</p>
 
 <p>Sehee Nuna answered, sobbing sorrowfully, as if realizing her fallen status.</p>
 
@@ -146,7 +146,7 @@ chapter = 202
 
 <p>Shiwoo commanded Sehee Nuna.</p>
 
-<p>"Yes....Heu-eut~! B...but even in front of Seyoung?"</p>
+<p>"Yes....Heu-eut! B...but even in front of Seyoung?"</p>
 
 <p>Sehee Nuna asked, seemingly worried about the awkward situation of having to call Shiwoo Master-nim in front of Seyoung, who still knew nothing.</p>
 
@@ -164,13 +164,13 @@ chapter = 202
 
 <p>Shiwoo asked Sehee Nuna, as if testing her, moving his hips a little faster than before.</p>
 
-<p>"Haa-heu-euh-euh~ No, Master-nim~ I have no complaints now."</p>
+<p>"Haa-heu-euh-euh No, Master-nim I have no complaints now."</p>
 
 <p>Her vaginal muscles continuously trembling, she spoke.</p>
 
 <p>"Then, when Mom returns, can I have sex with Mom in front of you, Sehee?"</p>
 
-<p>"Yes~ Master-nim, do as you wish~ Heu-eut~!"</p>
+<p>"Yes Master-nim, do as you wish Heu-eut!"</p>
 
 <p>Sehee Nuna, as if giving Shiwoo the answer he wanted to hear, seemed to be feeling ecstasy.</p>
 
@@ -178,7 +178,7 @@ chapter = 202
 
 <p>Shiwoo asked again, teasingly, as if cross-examining her about something Sehee Nuna should admit and apologize for.</p>
 
-<p>"Heu-eung... Back then, I thought that was the right thing to do~ Mom must have felt the same way I did... I think I interfered. Heu-eut~!! I'm sorry for trying to put Mom and Master-nim back into your original relationship~ I was truly wrong. Master-nim~ Master-nim~ Heeuk... heeuk..."</p>
+<p>"Heu-eung... Back then, I thought that was the right thing to do Mom must have felt the same way I did... I think I interfered. Heu-eut!! I'm sorry for trying to put Mom and Master-nim back into your original relationship I was truly wrong. Master-nim Master-nim Heeuk... heeuk..."</p>
 
 <p>Sehee Nuna, her pussy flesh and vaginal muscles trembling violently, was reciting a long apology as if confessing.</p>
 
@@ -188,7 +188,7 @@ chapter = 202
 
 <p>Shiwoo moved his hips rapidly, as if scraping out all the juices from Sehee Nuna's hardened inner flesh.</p>
 
-<p>"Ha-eung~ Ha-ang~ Haa-ang~ Haa-at! ~~!!"</p>
+<p>"Ha-eung Ha-ang Haa-ang Haa-at! !!"</p>
 
 <p>Sehee Nuna's seductive moaning sounds filled the motel room.</p>
 
@@ -196,7 +196,7 @@ chapter = 202
 
 <p>Finally losing her balance on the arms she had been bracing herself with, Sehee Nuna toppled forward.</p>
 
-<p>"Haa-euh-eung~! Haa-euh-euk~! Master-nim~~~~!!"</p>
+<p>"Haa-euh-eung! Haa-euh-euk! Master-nim!!"</p>
 
 <p>While sprawled face down, Sehee Nuna experienced her third orgasm.</p>
 

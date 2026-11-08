@@ -4,17 +4,17 @@ weight = 720
 [extra]
 chapter = 720
 +++
-<p>[He-he, it seemed like Seonju-imo was being a bit too much with Mom lately... Even so, she's still my Mom~]</p>
+<p>[He-he, it seemed like Seonju-imo was being a bit too much with Mom lately... Even so, she's still my Mom]</p>
 
 <p>[If Seonju-imo seems to cross the line again in the future, tell me everything! I'll take care of it and scold her right away!]</p>
 
 <p>Shiwoo lets out a bashful laugh, replying to Mom in a half-joking tone.</p>
 
-<p>[My goodness~ Look at this filial son! A filial son indeed! If you care about your Mom that much, why do you only pick the most difficult things to make me do?]</p>
+<p>[My goodness Look at this filial son! A filial son indeed! If you care about your Mom that much, why do you only pick the most difficult things to make me do?]</p>
 
 <p>Mom chided Shiwoo, but her reply carried a strangely relaxed lingering feeling between the sentences.</p>
 
-<p>[Huh? Difficult things? What difficult things~?]</p>
+<p>[Huh? Difficult things? What difficult things?]</p>
 
 <p>Shiwoo continued his sly tone, teasing her by deliberately feigning ignorance.</p>
 
@@ -22,17 +22,17 @@ chapter = 720
 
 <p>Mom answered in a dismissive way, her tone a mix of annoyance and embarrassment.</p>
 
-<p>[Ah~ You mean when I told you not to wear underwear at home and only wear skirts? Or when I told you to sleep completely naked in your room?]</p>
+<p>[Ah You mean when I told you not to wear underwear at home and only wear skirts? Or when I told you to sleep completely naked in your room?]</p>
 
 <p>[Or was it that time I told you to wake me up with oral every morning? If not that, was it telling me to call you 'Yeobo' in front of Sehee-noona and Seyoung-yang, as if you were my husband?]</p>
 
 <p>Shiwoo brought up everything, mixing memory and imagination, speaking playfully as if mocking Mom.</p>
 
-<p>[When did I ever do all those things for you? You're always just joking around! Ugh~! I shouldn't have even brought it up~!]</p>
+<p>[When did I ever do all those things for you? You're always just joking around! Ugh! I shouldn't have even brought it up!]</p>
 
 <p>Mom continued to text Shiwoo in a grumbling tone, but on the other hand, she was reacting as if she had already half-resigned herself.</p>
 
-<p>[Well~ if we didn't do it before, we can just start doing it now~~! Right?]</p>
+<p>[Well if we didn't do it before, we can just start doing it now! Right?]</p>
 
 <p>Shiwoo spoke as if provoking Mom, full of sly playfulness. Mom seemed momentarily flustered by Shiwoo's words and couldn't easily continue.</p>
 
@@ -40,7 +40,7 @@ chapter = 720
 
 <p>Then, Mom cut Shiwoo off, speaking as if turning the subject back.</p>
 
-<p>[Ah~ I've already talked about that, so don't worry~ When Seonju-imo wakes up, she'll clean it all up herself. He-he. If Seonju-imo grumbles at Mom later, just tell her I made her do it~!]</p>
+<p>[Ah I've already talked about that, so don't worry When Seonju-imo wakes up, she'll clean it all up herself. He-he. If Seonju-imo grumbles at Mom later, just tell her I made her do it!]</p>
 
 <p>Shiwoo wrote the text in a laugh-filled tone, with an air of subtle authority and pride.</p>
 
@@ -56,7 +56,7 @@ chapter = 720
 
 <p>Mom spoke in a tone full of irritation and dissatisfaction, chiding Shiwoo for his irresponsible behavior. In that tone, there was submission mixed within the scolding, and a subtle, blooming sense of pity. Shiwoo felt an inexplicable arousal and a pounding heart at the sight of Mom, who was chiding him in her usual way while casually accepting their Master-servant relationship.</p>
 
-<p>[But Mom~! Are you on the second floor right now?]</p>
+<p>[But Mom! Are you on the second floor right now?]</p>
 
 <p>Shiwoo asked Mom with a heart full of curiosity and expectation, as if suddenly changing the atmosphere.</p>
 
@@ -68,7 +68,7 @@ chapter = 720
 
 <p>Mom continued texting in the chat room with an anxious tone, making excuses even though Shiwoo hadn't asked.</p>
 
-<p>[He-he-he, is that so? But what about the clothes you were wearing? What did you do with them? Are you naked right now~?]</p>
+<p>[He-he-he, is that so? But what about the clothes you were wearing? What did you do with them? Are you naked right now?]</p>
 
 <p>Shiwoo asked Mom with a mischievous smile, filled with expectation and a sarcastic playfulness. Mom delayed her answer for a moment.</p>
 
@@ -76,7 +76,7 @@ chapter = 720
 
 <p>Shiwoo's mischievous words were accepted, but Mom questioned him back with firmness at the end.</p>
 
-<p>[I'm not worried? I just asked because I was curious~? He-he]</p>
+<p>[I'm not worried? I just asked because I was curious? He-he]</p>
 
 <p>Shiwoo spoke as if teasing Mom again.</p>
 
@@ -84,7 +84,7 @@ chapter = 720
 
 <p>Mom didn't back down easily, speaking as if she were flaring up while matching Shiwoo's stubbornness.</p>
 
-<p>[He-he, is that so~? But Mom~ It's good that you stripped before coming up, but you're supposed to get my permission when you go to the second floor, right? Did you forget that rule?]</p>
+<p>[He-he, is that so? But Mom It's good that you stripped before coming up, but you're supposed to get my permission when you go to the second floor, right? Did you forget that rule?]</p>
 
 <p>Shiwoo threw a sharp question in a playful tone, reminding her of the rules just to tease her.</p>
 
@@ -92,7 +92,7 @@ chapter = 720
 
 <p>Mom answered firmly, emphasizing that she had strictly followed the rules. Shiwoo found Mom's appearance—strictly obeying the rules while still acting huffy—to be incredibly cute.</p>
 
-<p>[Is that so~? Good job. I'll have to give you lots of praise later. My Mom~]</p>
+<p>[Is that so? Good job. I'll have to give you lots of praise later. My Mom]</p>
 
 <p>Shiwoo laid out exaggeratedly playful praise, showing his satisfied mood through the text.</p>
 
@@ -100,7 +100,7 @@ chapter = 720
 
 <p>Mom knew what kind of meaning Shiwoo's praise held, but she brushed it off indifferently as if she didn't understand.</p>
 
-<p>[Ah~ I wish the academy was over already~]</p>
+<p>[Ah I wish the academy was over already]</p>
 
 <p>Seeing Mom's reply, Shiwoo sent a text as if he were restlessly excited for no reason.</p>
 
@@ -108,7 +108,7 @@ chapter = 720
 
 <p>Mom retorted, dumbfounded by Shiwoo's pointless joke.</p>
 
-<p>[He-he-he, that way I can see my Mom's pretty face sooner~]</p>
+<p>[He-he-he, that way I can see my Mom's pretty face sooner]</p>
 
 <p>Shiwoo wrote the words as if playfully harassing Mom. Mom didn't reply for a while, as if lost in thought.</p>
 
@@ -116,7 +116,7 @@ chapter = 720
 
 <p>Then she answered as if trying to wrap up the situation quickly.</p>
 
-<p>[I told you earlier. You can just make Seonju-imo do it all~]</p>
+<p>[I told you earlier. You can just make Seonju-imo do it all]</p>
 
 <p>Shiwoo spoke to Mom again, playfully flaunting his authority and power.</p>
 
@@ -124,7 +124,7 @@ chapter = 720
 
 <p>Mom reacted as if scolding Shiwoo, her tone a mix of the fluster and dissatisfaction she had been bottling up.</p>
 
-<p>[Was I a bit too much~? He-he. But she was being so reckless to Mom, so I just lost my temper and couldn't hold back!]</p>
+<p>[Was I a bit too much? He-he. But she was being so reckless to Mom, so I just lost my temper and couldn't hold back!]</p>
 
 <p>Shiwoo spoke again as if playing it off.</p>
 
@@ -132,7 +132,7 @@ chapter = 720
 
 <p>Mom spoke as if venting her dissatisfaction and complaints again, her heart feeling absurd.</p>
 
-<p>[Doing it to Mom is different~ He-he-he. Because I do it with plenty of affection! Besides, Mom likes that kind of thing, don't you~? You'd actually be disappointed if I didn't.]</p>
+<p>[Doing it to Mom is different He-he-he. Because I do it with plenty of affection! Besides, Mom likes that kind of thing, don't you? You'd actually be disappointed if I didn't.]</p>
 
 <p>Shiwoo spoke as if testing Mom with an exaggerated tone mixed with laughter and playfulness.</p>
 
@@ -142,7 +142,7 @@ chapter = 720
 
 <p>Mom sent the text as if scolding Shiwoo, flaring up in annoyance. However, within Mom's scolding text, Shiwoo could clearly feel her embarrassment, fluster, and the surging arousal and tension.</p>
 
-<p>[He-he, okay~ okay~ See you later, Mom~ I love you~]</p>
+<p>[He-he, okay okay See you later, Mom I love you]</p>
 
 <p>Shiwoo spoke to Mom, maintaining his playful mood until the end.</p>
 

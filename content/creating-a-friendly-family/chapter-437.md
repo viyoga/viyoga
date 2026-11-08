@@ -40,7 +40,7 @@ chapter = 437
 
 <p>When Shiwoo finally thinks that the trembling has subsided and Mom's body is completely relaxed, he removes his tongue that had been persistently teasing her clitoris.</p>
 
-<p>"Haa-u-eu-eu-eung~"</p>
+<p>"Haa-u-eu-eu-eung"</p>
 
 <p>As Shiwoo's tongue leaves her clitoris, Mom exhales a long, suppressed breath.</p>
 

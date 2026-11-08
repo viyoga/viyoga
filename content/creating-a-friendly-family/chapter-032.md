@@ -34,13 +34,13 @@ chapter = 32
 
 <p>They ordered cola and cider for drinks, and one can of beer for Mom to drink.</p>
 
-<p>,I think delicious things are delicious no matter how you mix them~,</p>
+<p>,I think delicious things are delicious no matter how you mix them,</p>
 
 <p>Seyoung reveals her opinion on cooking, and then continues to talk about dogs until the food comes out.</p>
 
 <p>,Sua's dog had puppies before, right?</p>
 
-<p>It's been 4 months, and they're looking for a home to adopt them this time, and they've decided to adopt them out for just the vaccination cost~hehe~,</p>
+<p>It's been 4 months, and they're looking for a home to adopt them this time, and they've decided to adopt them out for just the vaccination costhehe,</p>
 
 <p>Seonju Imo was raising a pair of dogs: a male Great Dane, a German breed, and a female Saluki, an Egyptian breed.</p>
 
@@ -88,7 +88,7 @@ chapter = 32
 
 <p>All the family members vaguely felt that something had happened between Mom and Sejin Nuna.</p>
 
-<p>,Okay, Mom! I think I need to see her too, but Sejin Nuna is busy with work, so it's hard to find time~ I really need to go see her by force sometime soon!,</p>
+<p>,Okay, Mom! I think I need to see her too, but Sejin Nuna is busy with work, so it's hard to find time I really need to go see her by force sometime soon!,</p>
 
 <p>Shiwoo answers in a friendly tone to reassure Mom, who is worried about Sejin Nuna. Mom makes eye contact with Shiwoo, but she is still awkward about having eye contact while talking, and her pupils are shaking slightly each time their eyes meet, as if she is being pricked.</p>
 

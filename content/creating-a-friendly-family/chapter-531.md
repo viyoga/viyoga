@@ -10,7 +10,7 @@ chapter = 531
 
 <p>Seyoung leaned her body towards Shiwoo, looking up at him.</p>
 
-<p>,It hurts~! Hying~! But Shiwoo oppa, I'm the one who told you this, right? Since I got hit like this by oppa, when I'm alone with Seonmi, can I hit Seonmi's buttocks instead of oppa?,</p>
+<p>,It hurts! Hying! But Shiwoo oppa, I'm the one who told you this, right? Since I got hit like this by oppa, when I'm alone with Seonmi, can I hit Seonmi's buttocks instead of oppa?,</p>
 
 <p>Seyoung asked Shiwoo, a coquettish smile on her lips, as if suggesting a new game.</p>
 
@@ -24,7 +24,7 @@ chapter = 531
 
 <p>Although he answered indifferently, imagining Seyoung slapping Mom's buttocks made Shiwoo's penis swell with power.</p>
 
-<p>,Really? I can educate Seonmi? Okay~! Hehe~,</p>
+<p>,Really? I can educate Seonmi? Okay! Hehe,</p>
 
 <p>Seyoung replied, seemingly delighted by Shiwoo's answer.</p>
 
@@ -48,7 +48,7 @@ chapter = 531
 
 <p>Shiwoo whispered lowly into her ear as if giving a warning.</p>
 
-<p>,It's a chance to make Seonmi embarrassed! Seonmi also hid my smartphone and pretended not to know~ I have to get revenge this time~! Hit.,</p>
+<p>,It's a chance to make Seonmi embarrassed! Seonmi also hid my smartphone and pretended not to know I have to get revenge this time! Hit.,</p>
 
 <p>Seyoung said, hugging Shiwoo's body, using a tone that Seyoung, as Shiwoo knew her, would not normally use, speaking coquettishly.</p>
 

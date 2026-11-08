@@ -44,7 +44,7 @@ chapter = 88
 
 <p>Shiwoo released the strength from the hand gripping her breast and began to caress Seonju Imo's nipple with the tip of his thumb, as if stroking it.</p>
 
-<p>「Haaah~」</p>
+<p>「Haaah」</p>
 
 <p>Seonju Imo's deep sigh, whether from relief at being freed from his oppressive touch or a reaction to his stimulating fondling, was impossible to tell.</p>
 
@@ -78,7 +78,7 @@ chapter = 88
 
 <p>Seonju Imo's body trembled uncontrollably as she spoke to Shiwoo, seemingly delighted by the new game they had accidentally discovered.</p>
 
-<p>「Then we'll just do it every day like a habit~! Really, the women in this house worry too much about useless things!!」</p>
+<p>「Then we'll just do it every day like a habit! Really, the women in this house worry too much about useless things!!」</p>
 
 <p>Shiwoo pressed his body over Seonju Imo's, then moved down and began to suck her breasts.</p>
 
@@ -94,7 +94,7 @@ chapter = 88
 
 <p>Sua's voice, answering the phone.</p>
 
-<p>「Heeung~ My daughter~ Did you have a good day at school? ...What are you doing now?」</p>
+<p>「Heeung My daughter Did you have a good day at school? ...What are you doing now?」</p>
 
 <p>Seonju Imo, even while having her breasts sucked by Shiwoo, struggled to greet her daughter as usual.</p>
 
@@ -108,7 +108,7 @@ chapter = 88
 
 <p>Seonju Imo, barely enduring Shiwoo's fondling, managed to speak.</p>
 
-<p>「No, nothing special~ Mom, are you still at Shiwoo Oppa's house?」</p>
+<p>「No, nothing special Mom, are you still at Shiwoo Oppa's house?」</p>
 
 <p>Sua's voice, continuing a normal conversation with her mother.</p>
 
@@ -130,7 +130,7 @@ chapter = 88
 
 <p>Sua's voice, suspicious of her mother's tone, seemed to be a great stimulant for Shiwoo.</p>
 
-<p>「Oh~ Mom's getting something nice from Shiwoo Oppa right now? Heut...」</p>
+<p>「Oh Mom's getting something nice from Shiwoo Oppa right now? Heut...」</p>
 
 <p>Seonju Imo answered, receiving Shiwoo's cunnilingus.</p>
 
@@ -138,7 +138,7 @@ chapter = 88
 
 <p>「Something nice?」</p>
 
-<p>「Yeah... a massage...!! Shiwoo Oppa, heu... had promised to give me one before... I told him I was tired from standing all day today... so he said he'd do it... So, haaht~ But... Shiwoo's massage technique is so good... too strong... heoeo... if you do that... eun... Shi... Shiwoo-ya~!!」</p>
+<p>「Yeah... a massage...!! Shiwoo Oppa, heu... had promised to give me one before... I told him I was tired from standing all day today... so he said he'd do it... So, haaht But... Shiwoo's massage technique is so good... too strong... heoeo... if you do that... eun... Shi... Shiwoo-ya!!」</p>
 
 <p>Seonju Imo's body trembled convulsively, reaching climax.</p>
 
@@ -148,7 +148,7 @@ chapter = 88
 
 <p>Sua, speaking as if worried about her mother.</p>
 
-<p>「Eueung... Mom's okay~ Haaah~ Later, Sua, you should also ask Shiwoo Oppa to give you a massage... heu... it feels so good, you know?」</p>
+<p>「Eueung... Mom's okay Haaah Later, Sua, you should also ask Shiwoo Oppa to give you a massage... heu... it feels so good, you know?」</p>
 
 <p>Seonju Imo, with unfocused eyes, looked at Shiwoo and spoke to Sua, her body twitching and shuddering.</p>
 
@@ -158,7 +158,7 @@ chapter = 88
 
 <p>With a satisfied expression, Shiwoo nodded his head.</p>
 
-<p>「Uh... anyway... Mom might be late today, so don't worry and go to sleep quickly~ Understood?」</p>
+<p>「Uh... anyway... Mom might be late today, so don't worry and go to sleep quickly Understood?」</p>
 
 <p>Seonju Imo spoke urgently and quickly hung up the phone before Sua could even answer.</p>
 
@@ -190,7 +190,7 @@ chapter = 88
 
 <p>Seonju Imo wrapped her arms around Shiwoo's back and parted her lips for him.</p>
 
-<p>「Chyuup~ Oop Chyup~」</p>
+<p>「Chyuup Oop Chyup」</p>
 
 <p>The lewd, wet sounds of their lips intertwining filled the living room.</p>
 
@@ -250,7 +250,7 @@ chapter = 88
 
 <p>Just as he was wondering how to clean up the stains on the floor, the front door opened.</p>
 
-<p>「Shiwoo-ya, I'm home~」</p>
+<p>「Shiwoo-ya, I'm home」</p>
 
 <p>Sehee Nuna entered the entryway, her hands full of white plastic bags.</p>
 

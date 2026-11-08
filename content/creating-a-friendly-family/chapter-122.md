@@ -8,7 +8,7 @@ chapter = 122
 
 <p>Shiwoo immediately sent a text to Seonju Imo.</p>
 
-<p>「No. Honey~ I'm awake.」</p>
+<p>「No. Honey I'm awake.」</p>
 
 <p>A reply soon came back from Seonju Imo.</p>
 
@@ -16,11 +16,11 @@ chapter = 122
 
 <p>「Just woke up, got dressed, and was looking at today's schedule.」</p>
 
-<p>「What~! You're dressed? Looks like you got dressed right on time, huh?」</p>
+<p>「What! You're dressed? Looks like you got dressed right on time, huh?」</p>
 
 <p>Shiwoo spoke teasingly, feigning disappointment.</p>
 
-<p>「Why~? You told me to stay naked until 5 AM, didn't you?」</p>
+<p>「Why? You told me to stay naked until 5 AM, didn't you?」</p>
 
 <p>Seonju Imo protested as if wronged.</p>
 
@@ -32,11 +32,11 @@ chapter = 122
 
 <p>Seonju Imo answered obediently, as if she would do anything Shiwoo told her.</p>
 
-<p>「No~ Why would you ask me about something like that, whether to get dressed or undressed? You should have just done as Imo pleased, that's all.」</p>
+<p>「No Why would you ask me about something like that, whether to get dressed or undressed? You should have just done as Imo pleased, that's all.」</p>
 
 <p>Shiwoo replied curtly, in a scolding tone, as if demanding voluntary devotion.</p>
 
-<p>「Hee-ing~ I'll get naked, Honey~ I think it'd be better if I got naked. I didn't know you'd text me like this in the early morning~」</p>
+<p>「Hee-ing I'll get naked, Honey I think it'd be better if I got naked. I didn't know you'd text me like this in the early morning」</p>
 
 <p>Seonju Imo was reacting immediately even to Shiwoo's forced, sarcastic joke, as if declaring absolute submission.</p>
 
@@ -56,7 +56,7 @@ chapter = 122
 
 <p>Shiwoo felt an inexplicable satisfaction with this unusual flow and situation.</p>
 
-<p>「Good girl~ Our Seonju! I'll really have to pamper you a lot later.」</p>
+<p>「Good girl Our Seonju! I'll really have to pamper you a lot later.」</p>
 
 <p>Shiwoo spoke as if commending Seonju Imo's actions, which seemed to prove her voluntary submission.</p>
 
@@ -68,7 +68,7 @@ chapter = 122
 
 <p>Shiwoo gave an ambiguous answer, using Sehee Nuna as an excuse, as if deliberately laying a groundwork.</p>
 
-<p>「What~ Hee-ing~ Are you trying to test me, Honey? What are you going to ask?」</p>
+<p>「What Hee-ing Are you trying to test me, Honey? What are you going to ask?」</p>
 
 <p>Seonju Imo, who seemed to have gotten used to mixing respectful and casual speech with Shiwoo.</p>
 
@@ -90,17 +90,17 @@ chapter = 122
 
 <p>Shiwoo took a moment to catch his breath, then sent a text to Seonju Imo.</p>
 
-<p>「I've taken them to regulate my period~ Most women have probably taken them, right?」</p>
+<p>「I've taken them to regulate my period Most women have probably taken them, right?」</p>
 
 <p>Seonju Imo answered as if it was no big deal.</p>
 
 <p>「Then, do you know about emergency contraception pills, by any chance?」</p>
 
-<p>「Emergency contraception? Of course I know~ I haven't taken them, but why emergency contraception?」</p>
+<p>「Emergency contraception? Of course I know I haven't taken them, but why emergency contraception?」</p>
 
 <p>「No, they said it requires a doctor's prescription, so I was wondering if Seonju Imo knew a way to get them without one.」</p>
 
-<p>「What~? Honey, are you perhaps talking about that now?」</p>
+<p>「What? Honey, are you perhaps talking about that now?」</p>
 
 <p>Seonju Imo asked Shiwoo as if she'd caught on to something.</p>
 
@@ -222,7 +222,7 @@ chapter = 122
 
 <p>Shiwoo stopped his hip movements again, matching Sehee Nuna's conversation.</p>
 
-<p>「Haaaah~ O...okay... Yeah... just now... Haaaah, I understand... I'll switch.」</p>
+<p>「Haaaah O...okay... Yeah... just now... Haaaah, I understand... I'll switch.」</p>
 
 <p>The conversation ended with both of them acquiescing, as if some unknown agreement had been reached.</p>
 
@@ -238,7 +238,7 @@ chapter = 122
 
 <p>「Heard...everything?」</p>
 
-<p>「Yeah, I think I can take care of Sehee's situation. You don't have to worry anymore~」</p>
+<p>「Yeah, I think I can take care of Sehee's situation. You don't have to worry anymore」</p>
 
 <p>「Really?」</p>
 
@@ -248,7 +248,7 @@ chapter = 122
 
 <p>「What?」</p>
 
-<p>「Because Sehee's going to take the birth control pill today~ Until she goes to school, she can get whatever she wants from you, right~ Vaginal. In. Ejaculation.」</p>
+<p>「Because Sehee's going to take the birth control pill today Until she goes to school, she can get whatever she wants from you, right Vaginal. In. Ejaculation.」</p>
 
 <p>Seonju Imo, who could now shamelessly use provocative words and tones with Shiwoo. The last part, 'vaginal in ejaculation,' was spoken syllable by syllable, as if to stimulate Shiwoo.</p>
 
@@ -260,13 +260,13 @@ chapter = 122
 
 <p>「Yeah, I'll pamper you.」</p>
 
-<p>「Kya~ Really?」</p>
+<p>「Kya Really?」</p>
 
 <p>「Instead, you're going to have to be punished quite a bit.」</p>
 
 <p>Shiwoo speaks in a stern voice.</p>
 
-<p>「Why~? Did I do something wrong to you again?」</p>
+<p>「Why? Did I do something wrong to you again?」</p>
 
 <p>Seonju Imo speaks again in a whining tone.</p>
 
@@ -274,11 +274,11 @@ chapter = 122
 
 <p>Shiwoo shouts, raising his voice as if reprimanding her.</p>
 
-<p>「Hee-ing~ I thought you'd like it if I did that~」</p>
+<p>「Hee-ing I thought you'd like it if I did that」</p>
 
 <p>「Let's say that's true! But where does a slave bitch get off giving orders like that to her Master?」</p>
 
-<p>「Hee-gung~ I did wrong~ I thought you told me to do that earlier~」</p>
+<p>「Hee-gung I did wrong I thought you told me to do that earlier」</p>
 
 <p>Seonju Imo makes excuses, acting pitiful and distressed.</p>
 
@@ -298,6 +298,6 @@ chapter = 122
 
 <p>-Peok! Peok! Peok! Peok! Ppeok!-</p>
 
-<p>「Ha-eung! Haaat! Haa-aang~! Master-nim~! Master-nim!!」</p>
+<p>「Ha-eung! Haaat! Haa-aang! Master-nim! Master-nim!!」</p>
 
 <p>Soon, the room began to fill with Sehee Nuna's shrieking cries of pleasure.</p>

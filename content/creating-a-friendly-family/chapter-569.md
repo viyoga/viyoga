@@ -18,7 +18,7 @@ chapter = 569
 
 <p>Shiwoo tried to hide the anxiety and agitation he felt inside, and responded as if matching Cheoljin's swaggering attitude.</p>
 
-<p>「Sweet bean bread and white milk? Is that all I can bring? I'll bring something better, so look forward to it~!ㅋㅋㅋ Anyway, I'm a bit busy right now, so see you later! You don't have to reply!」</p>
+<p>「Sweet bean bread and white milk? Is that all I can bring? I'll bring something better, so look forward to it!ㅋㅋㅋ Anyway, I'm a bit busy right now, so see you later! You don't have to reply!」</p>
 
 <p>Cheoljin didn't care about Shiwoo's provocative response, nonchalantly said what he wanted to say, and ended the conversation as he pleased.</p>
 
@@ -94,7 +94,7 @@ chapter = 569
 
 <p>Mom seemed to be really thirsty, matching Shiwoo's high-handed attitude and responding to it.</p>
 
-<p>「Okay~ I'll let you drink some water! But can you do me a favor?」</p>
+<p>「Okay I'll let you drink some water! But can you do me a favor?」</p>
 
 <p>Shiwoo asks Mom if she can do him a favor in exchange for letting her drink water.</p>
 
@@ -126,7 +126,7 @@ chapter = 569
 
 <p>Mom asks, confirming Shiwoo's command, as if she is ready to accept Shiwoo's unreasonable request.</p>
 
-<p>「Yeah~ But since you're doing it anyway, how about doing it on Seyoung's bed in her room? Put the vibrator back on too...」</p>
+<p>「Yeah But since you're doing it anyway, how about doing it on Seyoung's bed in her room? Put the vibrator back on too...」</p>
 
 <p>Shiwoo spoke as if specifying the location of the masturbation and whether or not to wear the vibrator.</p>
 
@@ -134,7 +134,7 @@ chapter = 569
 
 <p>Mom expresses her annoyed feelings, sending Shiwoo a text message protesting like a cute whine.</p>
 
-<p>「You don't have to clean the sheets in Seyoung's room again today after doing that~ If Seyoung says anything, I'll talk to her, so don't worry!」</p>
+<p>「You don't have to clean the sheets in Seyoung's room again today after doing that If Seyoung says anything, I'll talk to her, so don't worry!」</p>
 
 <p>Shiwoo writes a text message as if relieving Mom's trouble and reassuring her.</p>
 
@@ -158,7 +158,7 @@ chapter = 569
 
 <p>Mom asks, confirming as if roughly summarizing the instructions Shiwoo gave, in order to follow Shiwoo's command accurately.</p>
 
-<p>「Yeah~ That's right! And then send me the video you took! To Seyoung too! After that, do whatever you want, whether you want to drink water or rest!」</p>
+<p>「Yeah That's right! And then send me the video you took! To Seyoung too! After that, do whatever you want, whether you want to drink water or rest!」</p>
 
 <p>Shiwoo looked down at the 1:1 chat window with Mom with a proud expression, issuing her additional instructions.</p>
 

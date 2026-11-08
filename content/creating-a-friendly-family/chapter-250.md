@@ -66,7 +66,7 @@ chapter = 250
 
 <p>Shiwoo gently caresses her, stroking her with the hand placed on Mom's head.</p>
 
-<p>"Mom should sleep comfortably too, so should I put on your eye mask now~?"</p>
+<p>"Mom should sleep comfortably too, so should I put on your eye mask now?"</p>
 
 <p>Shiwoo speaks to Mom in a tone as if he were treating Seyoung or a young sibling.</p>
 
@@ -84,7 +84,7 @@ chapter = 250
 
 <p>Shiwoo picks up Mom's light purple eye mask, which is placed on the bedside table.</p>
 
-<p>"You're going to wear it and sleep well, right? Mom has a hard time without her eye mask~"</p>
+<p>"You're going to wear it and sleep well, right? Mom has a hard time without her eye mask"</p>
 
 <p>Shiwoo brings the eye mask to Mom's head and asks as if confirming Mom's intentions.</p>
 
@@ -122,11 +122,11 @@ chapter = 250
 
 <p>After putting on the eye mask, Mom was keeping her mouth shut as if she and Shiwoo had made such a rule.</p>
 
-<p>"But Oppa~ Why have you been stroking Mom's head like that for a while~?"</p>
+<p>"But Oppa Why have you been stroking Mom's head like that for a while?"</p>
 
 <p>Seyoung, with Mom's breast in her mouth, looks at Shiwoo stroking Mom's head and asks in an innocent tone.</p>
 
-<p>"Ah~ this~?"</p>
+<p>"Ah this?"</p>
 
 <p>Shiwoo responds to Seyoung's question, which innocently points out his actions, by continuing to stroke Mom's head as if it were nothing special.</p>
 
@@ -136,37 +136,37 @@ chapter = 250
 
 <p>Shiwoo asks Seyoung, who is staring at him intently, as if reminding her of the conversations they had during dinner.</p>
 
-<p>"Yeah~ Shiwoo Oppa told me when we were eating earlier~! That the two of you got really close while Mom and I were at Seonju Imo's house~"</p>
+<p>"Yeah Shiwoo Oppa told me when we were eating earlier! That the two of you got really close while Mom and I were at Seonju Imo's house"</p>
 
 <p>Seyoung answers as if she remembers exactly what Shiwoo said while sitting at the dining table earlier.</p>
 
-<p>"I wish I had told Seyoung together earlier~ Actually, I decided to do that with Mom too, without telling the other family members?"</p>
+<p>"I wish I had told Seyoung together earlier Actually, I decided to do that with Mom too, without telling the other family members?"</p>
 
 <p>Shiwoo makes a cautious expression as if confessing a secret he had been hiding and looks down at Seyoung as he speaks.</p>
 
-<p>"What did you decide to do with Mom~?"</p>
+<p>"What did you decide to do with Mom?"</p>
 
 <p>Seyoung asks Shiwoo, raising her eyebrows as if she is really curious.</p>
 
-<p>"What I'm doing with Sehee now~ I decided to call Mom's name comfortably and get along without any formality now~"</p>
+<p>"What I'm doing with Sehee now I decided to call Mom's name comfortably and get along without any formality now"</p>
 
 <p>Shiwoo speaks to Seyoung as if confessing a forbidden relationship with Mom to his younger sister.</p>
 
-<p>"What's that~~?"</p>
+<p>"What's that?"</p>
 
 <p>Seyoung reacts as if sending a playful jeer, thinking that he is teasing her.</p>
 
-<p>"It's true~! Seonmi and I decided to get along like that now~! But if we do that all day long, other people will think it's strange, so only from 9 PM until I go to sleep~! Right, Seonmi?"</p>
+<p>"It's true! Seonmi and I decided to get along like that now! But if we do that all day long, other people will think it's strange, so only from 9 PM until I go to sleep! Right, Seonmi?"</p>
 
 <p>Shiwoo was calling Mom's name and talking as if to confirm the truth of what he was saying to Seyoung.</p>
 
 <p>Even after speaking, Shiwoo continues to stroke Mom's hair and waits for Mom's answer.</p>
 
-<p>"Mom~! Is what Oppa is saying true? Is Oppa doing that to Mom like he is to Sehee Unnie?"</p>
+<p>"Mom! Is what Oppa is saying true? Is Oppa doing that to Mom like he is to Sehee Unnie?"</p>
 
 <p>Seyoung asks Mom as if she can't believe what her brother is saying.</p>
 
-<p>"Seonmi-ya~ You have to answer Seyoung~?!"</p>
+<p>"Seonmi-ya You have to answer Seyoung?!"</p>
 
 <p>Shiwoo demands an answer from Mom as if coaxing a young child.</p>
 
@@ -176,7 +176,7 @@ chapter = 250
 
 <p>-While emphasizing the fact that they only decided to do that at night...-</p>
 
-<p>"See~? It's not a lie, right~?"</p>
+<p>"See? It's not a lie, right?"</p>
 
 <p>Shiwoo says to Seyoung triumphantly as if boasting.</p>
 
@@ -184,11 +184,11 @@ chapter = 250
 
 <p>Seyoung watches the abnormal interaction between mother and son that Shiwoo and Mom are engaging in.</p>
 
-<p>"Oppa and Mom are both weird~! Hehe~"</p>
+<p>"Oppa and Mom are both weird! Hehe"</p>
 
 <p>Seyoung speaks with a bright smile, expressing her impressions of the interaction between mother and son that she has been watching for a while.</p>
 
-<p>"Seyoung also sucks on Mom's breast and sleeps at a set time, right~? It's similar to that! Mom is acting spoiled right now too~"</p>
+<p>"Seyoung also sucks on Mom's breast and sleeps at a set time, right? It's similar to that! Mom is acting spoiled right now too"</p>
 
 <p>Shiwoo was speaking as if comparing Seyoung's situation of sucking on Mom's breast and sleeping to explain it to Seyoung.</p>
 
@@ -200,15 +200,15 @@ chapter = 250
 
 <p>Shiwoo explains to Seyoung about the role he is currently playing.</p>
 
-<p>"Ah~ Taking Dad's place?"</p>
+<p>"Ah Taking Dad's place?"</p>
 
 <p>Seyoung answers Shiwoo as if she now understands the context of the interaction between Shiwoo and Mom to some extent.</p>
 
-<p>"Yeah~ Taking Dad's place! Anyway, we should only know about this kind of thing among our family members, so you can't tell anyone else! Got it?"</p>
+<p>"Yeah Taking Dad's place! Anyway, we should only know about this kind of thing among our family members, so you can't tell anyone else! Got it?"</p>
 
 <p>Shiwoo seemed to be trying to formally silence her immediately after revealing the secret with Mom to his younger sister.</p>
 
-<p>"Okay~! I won't tell anyone~! Because it's a secret that only our family knows~ Hehe~"</p>
+<p>"Okay! I won't tell anyone! Because it's a secret that only our family knows Hehe"</p>
 
 <p>Seyoung answers Shiwoo immediately as if making a promise.</p>
 

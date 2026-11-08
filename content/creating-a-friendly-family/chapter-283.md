@@ -132,7 +132,7 @@ chapter = 283
 
 <p>-Even the bra that Mom was wearing...-</p>
 
-<p>"Mom~! I brought the new clothes you're going to change into~! Just wear this on the table today~! Got it?"</p>
+<p>"Mom! I brought the new clothes you're going to change into! Just wear this on the table today! Got it?"</p>
 
 <p>Shiwoo commanded Mom, who was washing in the shower room.</p>
 
@@ -142,7 +142,7 @@ chapter = 283
 
 <p>Mom answered her son in a trembling voice.</p>
 
-<p>"Then I'm going to go upstairs to wake Sehee Nuna now~"</p>
+<p>"Then I'm going to go upstairs to wake Sehee Nuna now"</p>
 
 <p>Shiwoo spoke to Mom as if reporting the sex he would have with Sehee Nuna in a little while.</p>
 

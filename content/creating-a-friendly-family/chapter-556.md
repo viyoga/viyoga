@@ -30,7 +30,7 @@ chapter = 556
 
 <p>Seyoung's face, pierced by his penis, was also shaking as if cornered in the smartphone screen.</p>
 
-<p>"I... I want to marry... haa-eung... Seonmi-rang after marrying Master-nim... haat... Please, you'll allow our marriage, right? Hieu-eung~"</p>
+<p>"I... I want to marry... haa-eung... Seonmi-rang after marrying Master-nim... haat... Please, you'll allow our marriage, right? Hieu-eung"</p>
 
 <p>In the midst of that, Seyoung looks at the lens of the smartphone camera that Shiwoo is holding with bewitching eyes, and spits out the sentence that Shiwoo wants in words.</p>
 
@@ -90,7 +90,7 @@ chapter = 556
 
 <p>The impact of the penis, as if pressing down, is transmitted directly to Seyoung's body, where the cushioning effect of the mattress behind her buttocks has disappeared.</p>
 
-<p>"Haak haa-at hieu-eung haa-a-a-ang~Master-nim! Master-nim!"</p>
+<p>"Haak haa-at hieu-eung haa-a-a-angMaster-nim! Master-nim!"</p>
 
 <p>Seyoung now lets out a moaning sound as if she is about to faint, and calls out to Shiwoo as if pleading, embracing Shiwoo as if tightening her womb.</p>
 
@@ -102,7 +102,7 @@ chapter = 556
 
 <p>Due to Shiwoo's continued pounding, Seyoung's body, which had been tense, was trembling as if convulsing.</p>
 
-<p>"Hieu-eung haa-a-ang haa-a-a-ang~haa-a-a-ang!"</p>
+<p>"Hieu-eung haa-a-ang haa-a-a-anghaa-a-a-ang!"</p>
 
 <p>Seyoung was moaning with all her might, as if she was holding onto Shiwoo's body and waiting for a helping hand on top of an abyss where the bottom could not be seen.</p>
 

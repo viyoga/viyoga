@@ -32,7 +32,7 @@ chapter = 789
 
 <p>Mom panted with breaths soaked in shame, spitting out a confession that seemed to admit to an irresistible pleasure.</p>
 
-<p>"Is that so~?"</p>
+<p>"Is that so?"</p>
 
 <p>Shiwoo slowly caressed Mom's ass, whispering as if he were accepting everything about her.</p>
 
@@ -40,7 +40,7 @@ chapter = 789
 
 <p>Mom's frail voice trembled as if soaked in a raw, unfamiliar pleasure.</p>
 
-<p>"It was hard~? Because I'm too big? Because I pushed you so hard without even resting?"</p>
+<p>"It was hard? Because I'm too big? Because I pushed you so hard without even resting?"</p>
 
 <p>Shiwoo moved his hand from stroking Mom's ass to her back, hugging her as if to soothe her while he asked. Mom's shoulders shook slightly as she shook her head...</p>
 

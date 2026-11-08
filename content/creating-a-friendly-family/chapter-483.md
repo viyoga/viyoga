@@ -66,7 +66,7 @@ chapter = 483
 
 <p>Even though almost nothing could be seen in the room now, Mom wrapped her arms around Shiwoo's back and head and pressed her face against her son's face, as if trying not to let Shiwoo see her shameful climax expression.</p>
 
-<p>,Yeobo... Haaaaak yeobo! Yeobo~~! Haaaaaang~"</p>
+<p>,Yeobo... Haaaaak yeobo! Yeobo! Haaaaaang"</p>
 
 <p>Mom, as if forgetting for a moment that Seyoung could enter the room at any time, clung to Shiwoo and called out to Shiwoo as if begging for the moment of climax.</p>
 
@@ -78,7 +78,7 @@ chapter = 483
 
 <p>Mom was firmly tightened in Shiwoo's arms, as if she had been bound by the diagonally connected arm ring.</p>
 
-<p>,Haaaaak...Yeo...Yeobo...Hhhhh...Wh...What do I do now...What am I really going to do in the future?! Haaaaht! Haaht! .Haaaaaaht~!"</p>
+<p>,Haaaaak...Yeo...Yeobo...Hhhhh...Wh...What do I do now...What am I really going to do in the future?! Haaaaht! Haaht! .Haaaaaaht!"</p>
 
 <p>Mom, as if complaining to Shiwoo, who had become her husband, was spewing a sweet and tingling voice and moans into Shiwoo's ear.</p>
 
@@ -128,7 +128,7 @@ chapter = 483
 
 <p>Then, as if swept away by a rushing torrent, Mom began to shake her body violently.</p>
 
-<p>,Haaaaht! Master~! Haaaaht Yeobo! Haaang I...I'm going..! Haaaaht haaa...Haaaaaang~!"</p>
+<p>,Haaaaht! Master! Haaaaht Yeobo! Haaang I...I'm going..! Haaaaht haaa...Haaaaaang!"</p>
 
 <p>In the chaotic boundary where destruction, madness, and pleasure intersect, Mom convulsed, bursting into a scream-filled moan.</p>
 

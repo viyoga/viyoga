@@ -80,7 +80,7 @@ chapter = 559
 
 <p>Sehee Nuna watches Mom like that for a moment.</p>
 
-<p>"Aigoo~ It's okay, it's okay~ Don't cry~"</p>
+<p>"Aigoo It's okay, it's okay Don't cry"</p>
 
 <p>Sehee Nuna sighs as if she can't help it, watching Mom shed tears, and soothes her.</p>
 
@@ -130,7 +130,7 @@ chapter = 559
 
 <p>A small object is inserted between the bed mattress and Mom's pelvis, vibrating as if riding the rhythm.</p>
 
-<p>Jiiing....jiiiiiiing...jiiing....jiiiiiiing~</p>
+<p>Jiiing....jiiiiiiing...jiiing....jiiiiiiing</p>
 
 <p>A familiar vibration sound was ringing from Mom's crotch.</p>
 

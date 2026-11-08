@@ -196,7 +196,7 @@ chapter = 467
 
 <p>The floor beneath the area where Mom and Shiwoo were joined was already soaked and pooled with her fluids.</p>
 
-<p>"Shiwoo-ya...Sehee-ya...P-please...haa-eung haa-aang haa-aang~!"</p>
+<p>"Shiwoo-ya...Sehee-ya...P-please...haa-eung haa-aang haa-aang!"</p>
 
 <p>Mom's moaning sound, pleadingly calling out her son's and daughter's names in succession, then letting out a seductive shriek.</p>
 

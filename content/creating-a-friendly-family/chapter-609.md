@@ -56,13 +56,13 @@ chapter = 609
 
 <p>As if dumbfounded, Sejin Nuna lets out a hollow laugh.</p>
 
-<p>"Shiwoo, if you force it, you could, I guess~ But at this size, even an adult would struggle to take it! It's as big as Seyoung's forearm! She'd have to be at least 100 years old for it to go in comfortably, wouldn't she?"</p>
+<p>"Shiwoo, if you force it, you could, I guess But at this size, even an adult would struggle to take it! It's as big as Seyoung's forearm! She'd have to be at least 100 years old for it to go in comfortably, wouldn't she?"</p>
 
 <p>To Shiwoo's casually tossed joke, using her own daughter as the subject, Sejin Nuna answers seriously while wearing a strange smile all over her face.</p>
 
 <p>"100 years from now, then? Then in the meantime, I'll have to unleash it all on Sejin instead of Sae-a."</p>
 
-<p>"But even before she turns 100, if Sejin can't handle it properly, I might just ram it into Sae-a right away~"</p>
+<p>"But even before she turns 100, if Sejin can't handle it properly, I might just ram it into Sae-a right away"</p>
 
 <p>Shiwoo, calling Sejin Nuna's name without an honorific, speaks as if subtly probing about the sexual relationship they would have in the future.</p>
 

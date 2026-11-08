@@ -14,29 +14,29 @@ chapter = 236
 
 <p>Seyoung, who was cutting slices of ice cream cake onto pretty plates at the counter and carrying them back to the table with small forks, said to Shiwoo.</p>
 
-<p>"Ah~ earlier during the day~!"</p>
+<p>"Ah earlier during the day!"</p>
 
 <p>Shiwoo stopped gripping his cock and mumbled as if to brush it off, like it was nothing.</p>
 
-<p>"What is it~?"</p>
+<p>"What is it?"</p>
 
 <p>Seyoung asked Shiwoo, seemingly curious about what snack Shiwoo had given Mom and Sehee Nuna.</p>
 
-<p>"Something kids can't eat~hehe,"</p>
+<p>"Something kids can't eathehe,"</p>
 
 <p>Shiwoo said in a boastful tone, teasing Seyoung as if she were curious.</p>
 
-<p>"What is it~ stingy~ pii~!"</p>
+<p>"What is it stingy pii!"</p>
 
 <p>Seyoung made a sound and expression as if she were sulking and held out the plate of cake she was carrying towards Shiwoo.</p>
 
-<p>"But what~~? If only Mom would allow it, I might be able to feed it to Seyoung too?"</p>
+<p>"But what? If only Mom would allow it, I might be able to feed it to Seyoung too?"</p>
 
 <p>Shiwoo said nonchalantly, slowly moving the hand gripping his cock again.</p>
 
 <p>While saying that, Shiwoo recalled the time last night when he had put his penis in Seyoung's mouth while she was sleeping and immediately ejaculated on Seyoung's face.</p>
 
-<p>"Really? Mom~ I want to try what Shiwoo oppa gives too~hehe~ Can I try it once?~"</p>
+<p>"Really? Mom I want to try what Shiwoo oppa gives toohehe Can I try it once?"</p>
 
 <p>Seyoung, not even knowing exactly what Shiwoo had given Mom and Sehee Nuna, was pestering Mom with a bright expression.</p>
 
@@ -46,7 +46,7 @@ chapter = 236
 
 <p>After answering vaguely, Mom picked up the glass placed in front of her and drank the liquor inside as it was.</p>
 
-<p>"Gulp~ Gulp~"</p>
+<p>"Gulp Gulp"</p>
 
 <p>The green liquid in the glass was passing through Mom's mouth and into her throat.</p>
 
@@ -78,11 +78,11 @@ chapter = 236
 
 <p>Mom was saying, clenching Shiwoo's foot tightly with both thighs, as if trying to prevent Shiwoo's toes from digging in any deeper.</p>
 
-<p>"Really? I'm just worried that it might be hard for Mom later when you sleep~"</p>
+<p>"Really? I'm just worried that it might be hard for Mom later when you sleep"</p>
 
 <p>Shiwoo was speaking as if reminding her of the night's events that he would be having with Mom.</p>
 
-<p>"Hmm! Mom will wash up with Seyoung first~ Shiwoo, you and Sehee... do the dishes! And clean up the table too~!"</p>
+<p>"Hmm! Mom will wash up with Seyoung first Shiwoo, you and Sehee... do the dishes! And clean up the table too!"</p>
 
 <p>After the meal, Mom was trying to regain her usual dignity in front of her son and daughters, trying to lower her pronunciation and voice properly.</p>
 
@@ -90,23 +90,23 @@ chapter = 236
 
 <p>A tremor and vibration, as if seeking Shiwoo's permission, was being transmitted to Shiwoo's foot.</p>
 
-<p>"You're going to do it with Seyoung? You used to do it separately~?"</p>
+<p>"You're going to do it with Seyoung? You used to do it separately?"</p>
 
 <p>Shiwoo asked Mom as if he were wondering.</p>
 
-<p>"If...if we do it together, it'll be over quickly, right! Seyoung must be a little tired today~ Since we're going to the department store from tomorrow morning. We have to put her to bed early too...is that okay?"</p>
+<p>"If...if we do it together, it'll be over quickly, right! Seyoung must be a little tired today Since we're going to the department store from tomorrow morning. We have to put her to bed early too...is that okay?"</p>
 
 <p>Mom was saying as if finding a reason why she had to shower with Seyoung, looking at Seyoung's face and asking.</p>
 
 <p>But Mom's voice was echoing in the air as if the subject of that question wasn't Seyoung.</p>
 
-<p>"I like washing up with Mom~hehe"</p>
+<p>"I like washing up with Momhehe"</p>
 
 <p>Seyoung answered Mom with a bright smile as if she were happy.</p>
 
 <p>And for a while, a silent tremor continued between Mom and Shiwoo.</p>
 
-<p>"Okay~! Then I'll be doing the dishes with Sehee in the kitchen~"</p>
+<p>"Okay! Then I'll be doing the dishes with Sehee in the kitchen"</p>
 
 <p>Finally, Shiwoo's permission for Mom and Seyoung to enter the shower room together was given from Shiwoo's mouth.</p>
 
@@ -114,7 +114,7 @@ chapter = 236
 
 <p>Shiwoo's foot, wet with moisture, fell onto the kitchen floor under the table.</p>
 
-<p>"Seyoung-ah~! Bring the clothes you're going to change into from the room to wash up with Mom~!"</p>
+<p>"Seyoung-ah! Bring the clothes you're going to change into from the room to wash up with Mom!"</p>
 
 <p>Mom straightened her clothes and said to Seyoung as she got up from her seat.</p>
 
@@ -122,7 +122,7 @@ chapter = 236
 
 <p>Or was she now playing the role of Mom that Shiwoo wanted, like a game?</p>
 
-<p>"Eueuung~! I'm just going to go in as I am today~ It's okay to come out comfortably after the shower now~"</p>
+<p>"Eueuung! I'm just going to go in as I am today It's okay to come out comfortably after the shower now"</p>
 
 <p>Seyoung shook her head and replied to Mom.</p>
 
@@ -130,13 +130,13 @@ chapter = 236
 
 <p>Mom, as if flustered by Seyoung's unexpected answer, looked at Shiwoo and answered.</p>
 
-<p>"Yeah~ that's what we decided~!!"</p>
+<p>"Yeah that's what we decided!!"</p>
 
 <p>Seyoung said, getting up from her seat following Mom.</p>
 
 <p>Mom, thinking that there was no other way, headed towards the changing room with Seyoung with an expression as if she had resigned herself to it.</p>
 
-<p>"But Mom~! How long do you think it'll take to shower with Seyoung?"</p>
+<p>"But Mom! How long do you think it'll take to shower with Seyoung?"</p>
 
 <p>Shiwoo asked, stopping Mom and Seyoung, who were walking to the dressing room.</p>
 
@@ -148,7 +148,7 @@ chapter = 236
 
 <p>Shiwoo was speaking as if implying the sex he would be having with Sehee Nuna in the kitchen and living room while Mom and Seyoung were in the shower.</p>
 
-<p>"Haaa-aaaa~"</p>
+<p>"Haaa-aaaa"</p>
 
 <p>Mom took a deep sigh and, without any particular answer, held Seyoung's hand tightly and immediately entered the dressing room.</p>
 
@@ -172,7 +172,7 @@ chapter = 236
 
 <p>The elastic flesh was grasped in Shiwoo's hand as if overflowing.</p>
 
-<p>"Haeueut~!"</p>
+<p>"Haeueut!"</p>
 
 <p>Sehee Nuna's low moan.</p>
 
@@ -216,13 +216,13 @@ chapter = 236
 
 <p>Shiwoo deeply thrust his thing into her vaginal hole from behind Sehee Nuna.</p>
 
-<p>"Haeueueueueung~!"</p>
+<p>"Haeueueueueung!"</p>
 
 <p>Sehee Nuna's groan, as if she were groaning intensely, burst out as she fell onto the table.</p>
 
 <p>-Chaltssak!</p>
 
-<p>"Okay~ Now, we have to start doing the dishes~ Since we don't have much time!"</p>
+<p>"Okay Now, we have to start doing the dishes Since we don't have much time!"</p>
 
 <p>Shiwoo commanded, slapping Sehee Nuna's butt.</p>
 

@@ -48,11 +48,11 @@ chapter = 259
 
 <p>Then, perhaps because of uncontrollable Arousal, Mom's breath, scattered as if hiccuping, leaks out. Shiwoo empties every last drop of Semen into Seyoung's mouth. Shiwoo turns Seyoung's Head to the side, placing a Pillow underneath. He slowly pulls his Dick pillar out of Seyoung's mouth. Shiwoo brings the cock, which had just exploded in Seyoung's mouth, to Mom's Lips, who is dimly opening her eyes. Mom's mouth is opening as if accepting everything, making eye contact with Shiwoo. Mom wipes away the Filth on Shiwoo's penis with her tongue and Lips, just like she is cleaning the Semen on Seyoung's Face.</p>
 
-<p>"Chyuuup~ Haap~ Hauuup~ Haap~ Chyup!"</p>
+<p>"Chyuuup Haap Hauuup Haap Chyup!"</p>
 
 <p>Mom is diligently licking Shiwoo's cock, moving her Head back and forth. The cozy, soft sensation of her Lips and tongue is sweeping over Shiwoo's cock.</p>
 
-<p>"Chyuuup Chyuuuup~ Chyup!! Olgak! Olgak!"</p>
+<p>"Chyuuup Chyuuuup Chyup!! Olgak! Olgak!"</p>
 
 <p>Mom gathers the Filth on Shiwoo's Dick pillar in her mouth and swallows it down without hesitation. Those scenes are being captured on the smartphone that Shiwoo is holding. Mom has cleanly licked away the Filth on Shiwoo's cock. Shiwoo pulls his penis out of Mom's moist mouth, which is filled with warmth. Mom's fading breath, with her pupils dilated, is subsiding along with the intermittent trembling of her Body. Shiwoo looks down at Mom and Seyoung, leans back against the headboard cushion, and catches his breath.</p>
 
@@ -68,6 +68,6 @@ chapter = 259
 
 <p>Mom sticks out her tongue and pushes it into Seyoung's mouth at the same time as she Moans.</p>
 
-<p>"Chyureup~ Haeut...Chyuruuup~ Haap~ Chyueap!"</p>
+<p>"Chyureup Haeut...Chyuruuup Haap Chyueap!"</p>
 
 <p>Mom is being violated in her core with a Finger and is licking Seyoung's mouth, as if inhaling the Semen in her mouth. Mom is sharing a high-level Kiss with her Daughter, and her core is being violated with a Finger by her son. Even though it is right after Ejaculation, Shiwoo's cock is full of blood and is throbbing with strength.</p>

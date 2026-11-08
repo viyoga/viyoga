@@ -138,11 +138,11 @@ chapter = 130
 
 <p>「You crazy bastard! Leaving the front door wide open like that, are you really in your right mind? What if someone came and saw?」 Shiwoo blurted out a rough curse, as if trying to gloss over things.</p>
 
-<p>「Puhaha~ You bastard! For that bitch, that'd be even better, so what does it matter~?」 Cheoljin-i's line, as if he truly wasn't in his right mind.</p>
+<p>「Puhaha You bastard! For that bitch, that'd be even better, so what does it matter?」 Cheoljin-i's line, as if he truly wasn't in his right mind.</p>
 
 <p>Shiwoo shook his head, as if utterly disgusted.</p>
 
-<p>「But did you have a good time? Why are you so late~?」 Cheoljin-i asked Shiwoo with a sly expression.</p>
+<p>「But did you have a good time? Why are you so late?」 Cheoljin-i asked Shiwoo with a sly expression.</p>
 
 <p>「What good time?! You idiot! I... I just bought bread and milk from the convenience store and was late feeding Ajumma... She hadn't even eaten breakfast, you know...」 Shiwoo spoke to Cheoljin-i with a serious expression, as if making an excuse.</p>
 

@@ -58,7 +58,7 @@ chapter = 61
 
 <p>In the empty changing room, Shiwoo gripped the shaft of his penis fully with one hand, elevating his mood, and forcefully stroked it up and down several times as if showing off.</p>
 
-<p>Tak!! Tak!! Tak!! Tak~!!!</p>
+<p>Tak!! Tak!! Tak!! Tak!!!</p>
 
 <p>-The sound of flesh slapping, loud enough to echo into the living room-</p>
 
@@ -86,7 +86,7 @@ chapter = 61
 
 <p>He also felt that Sehee Nuna was a little vexing.</p>
 
-<p>"Sehee Nuna, I'm all done with my shower~!"</p>
+<p>"Sehee Nuna, I'm all done with my shower!"</p>
 
 <p>Shiwoo spoke as if reporting to Sehee Nuna.</p>
 
@@ -94,7 +94,7 @@ chapter = 61
 
 <p>Sehee Nuna confirmed Shiwoo's massive erect penis, then turned her head away in embarrassment and let out a deep sigh.</p>
 
-<p>"Haa~ Th-then I'll go take a shower now..."</p>
+<p>"Haa Th-then I'll go take a shower now..."</p>
 
 <p>Sehee Nuna stood up and headed for the changing room, unable to meet Shiwoo's eyes.</p>
 
@@ -192,7 +192,7 @@ chapter = 61
 
 <p>Shiwoo also had no hesitation with Seonju Imo's jokes.</p>
 
-<p>'Greedy~!! Just wait!!'</p>
+<p>'Greedy!! Just wait!!'</p>
 
 <p>Seonju Imo sent that message.</p>
 
@@ -220,15 +220,15 @@ chapter = 61
 
 <p>Shiwoo was startled for a while, just staring intently at the photo.</p>
 
-<p>'Should I have slept there with Seyoung today? Kikik~'</p>
+<p>'Should I have slept there with Seyoung today? Kikik'</p>
 
 <p>Seonju Imo sent Shiwoo a message again, as if joking.</p>
 
-<p>'Well, I'd like that, but Seyoung can't sleep without Mom~!'</p>
+<p>'Well, I'd like that, but Seyoung can't sleep without Mom!'</p>
 
 <p>Shiwoo replied to Seonju Imo's playful message, pretending to be nonchalant.</p>
 
-<p>'Shiwoo, you don't seem to know~!! When Unnie isn't here, Seyoung sleeps well even suckling my breast?'</p>
+<p>'Shiwoo, you don't seem to know!! When Unnie isn't here, Seyoung sleeps well even suckling my breast?'</p>
 
 <p>Seonju Imo's message was once again incredibly provocative.</p>
 
@@ -246,7 +246,7 @@ chapter = 61
 
 <p>While he was having such doubtful thoughts, another message came from Seonju Imo.</p>
 
-<p>'Your Mom is showering right now~'</p>
+<p>'Your Mom is showering right now'</p>
 
 <p>The mystery was solved so simply.</p>
 

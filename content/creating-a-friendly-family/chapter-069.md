@@ -10,7 +10,7 @@ chapter = 69
 
 <p>Sehee, crushed as if folded in half by Shiwoo, could do nothing but let out cries of pleasure.</p>
 
-<p>"...Ha-eot!!! I...heueut...I'm going to dieee!! Heueueum~~!!!"</p>
+<p>"...Ha-eot!!! I...heueut...I'm going to dieee!! Heueueum!!!"</p>
 
 <p>Sehee was clenching her vagina hole, crying out wildly.</p>
 
@@ -38,9 +38,9 @@ chapter = 69
 
 <p>He could feel Sehee's absolute submission to the pleasure Shiwoo was creating.</p>
 
-<p>Peok! Peobeobeok~! Peok! Peok! Peok!!!</p>
+<p>Peok! Peobeobeok! Peok! Peok! Peok!!!</p>
 
-<p>"Haa-at, ha-eum, Shiwoo-ya~ I feel like I'm going crazy right now~~Haa-eut~haa-at heueueung~"</p>
+<p>"Haa-at, ha-eum, Shiwoo-ya I feel like I'm going crazy right nowHaa-euthaa-at heueueung"</p>
 
 <p>Sehee's arms, which had been tightly gripping Shiwoo's neck, had also begun to repeatedly pull or release in rhythm with Shiwoo's piston movements at some point.</p>
 
@@ -68,7 +68,7 @@ chapter = 69
 
 <p>A wave of unbearable pleasure washed over Sehee.</p>
 
-<p>"Heueu-ang heueueum heua-at!!Heueu-eut~haa-aa-ang!!!"</p>
+<p>"Heueu-ang heueueum heua-at!!Heueu-euthaa-aa-ang!!!"</p>
 
 <p>Sehee's distorted expression and moaning sound, as if she had lost her mind.</p>
 
@@ -78,13 +78,13 @@ chapter = 69
 
 <p>"Sehee-ya, I'm going to cum now!!!"</p>
 
-<p>"Heueu-eut... heueueum haa~at~"</p>
+<p>"Heueu-eut... heueueum haaat"</p>
 
 <p>Peok ppeok peok peok!!!!</p>
 
 <p>Shiwoo pushed his penis deep into Sehee's vagina, reaching the peak of pleasure.</p>
 
-<p>"Eua-at~ Sehee-ya!!!!"</p>
+<p>"Eua-at Sehee-ya!!!!"</p>
 
 <p>Shiwoo's semen erupting inside Sehee.</p>
 
@@ -106,7 +106,7 @@ chapter = 69
 
 <p>As his penis was pulled out, with a ssu-keong sound, the spring water inside Sehee's cavern splattered in droplets everywhere.</p>
 
-<p>"Heueu-eut!! Haa~ haa-aa-aa-aa"</p>
+<p>"Heueu-eut!! Haa haa-aa-aa-aa"</p>
 
 <p>Sehee's moaning sound and breathing, as if in relief.</p>
 
@@ -132,7 +132,7 @@ chapter = 69
 
 <p>Shiwoo's penis, still not fully subsided and slick with semen, was largely contained within Sehee's mouth.</p>
 
-<p>"Uhm heup!! Ha-ul chureup~ uhm"</p>
+<p>"Uhm heup!! Ha-ul chureup uhm"</p>
 
 <p>Sehee met Shiwoo's eyes and began to lick Shiwoo's penis inside her mouth.</p>
 
@@ -140,7 +140,7 @@ chapter = 69
 
 <p>At the touch of her tongue on his sensitive penis, Shiwoo flinched as if startled.</p>
 
-<p>"Huruup~ chuup chu-u-up~ hu-um ha-ap~"</p>
+<p>"Huruup chuup chu-u-up hu-um ha-ap"</p>
 
 <p>As if enjoying Shiwoo's reaction, Sehee sucked his penis more strongly into her mouth and licked it.</p>
 
@@ -202,7 +202,7 @@ chapter = 69
 
 <p>Shiwoo pulled his penis out of Sehee's mouth.</p>
 
-<p>"Haa-ak haa-ak hu-aa-aa~"</p>
+<p>"Haa-ak haa-ak hu-aa-aa"</p>
 
 <p>Sehee trembled violently, gasping for breath.</p>
 

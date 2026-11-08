@@ -8,11 +8,11 @@ chapter = 228
 
 <p>With his exposed, erect penis thrust forward, Shiwoo waited for Sehee Nuna.</p>
 
-<p>"Shi... Shiwoo-ya... I... I'm coming in~"</p>
+<p>"Shi... Shiwoo-ya... I... I'm coming in"</p>
 
 <p>Sehee Nuna's voice was soon heard from in front of Shiwoo's door.</p>
 
-<p>"Yeah~ Come on in~!"</p>
+<p>"Yeah Come on in!"</p>
 
 <p>Shiwoo took a posture as if pushing his exposed, throbbing cock even further forward and spoke.</p>
 
@@ -66,7 +66,7 @@ chapter = 228
 
 <p>Shallow scratches were created on Sehee Nuna's inner thigh flesh, soaked with vaginal fluid, over Sinbi Nuna's initial tattoo.</p>
 
-<p>"Heeu-eut~! Heut~!"</p>
+<p>"Heeu-eut! Heut!"</p>
 
 <p>A moan, as if complaining of pain, was coming from Sehee Nuna's mouth.</p>
 
@@ -90,7 +90,7 @@ chapter = 228
 
 <p>Sehee Nuna's short breath...</p>
 
-<p>"When we're alone, call me Master from now on~! And you have to use polite speech too!"</p>
+<p>"When we're alone, call me Master from now on! And you have to use polite speech too!"</p>
 
 <p>Shiwoo was speaking to Sehee Nuna in a scolding tone.</p>
 
@@ -134,7 +134,7 @@ chapter = 228
 
 <p>And he pushed up with the instep of his foot, stimulating Sehee Nuna's sensitive mound over the purple fabric.</p>
 
-<p>"Haeup! Heueueup~!"</p>
+<p>"Haeup! Heueueup!"</p>
 
 <p>A plaintive moan burst out from Sehee Nuna's mouth, who was sucking on Shiwoo's cock and giving him fellatio.</p>
 
@@ -144,7 +144,7 @@ chapter = 228
 
 <p>Sehee Nuna, with Shiwoo's large cock in her mouth, nodded her head, making eye contact.</p>
 
-<p>"Chureup~ Chuup~ Haap! Haup~!"</p>
+<p>"Chureup Chuup Haap! Haup!"</p>
 
 <p>Sehee Nuna slowly stirred Shiwoo's cock, contained in her mouth, wildly with her tongue, looking at Shiwoo with a provocative gaze.</p>
 
@@ -154,7 +154,7 @@ chapter = 228
 
 <p>Sehee Nuna's wet throat mucous membranes constricted and rubbed against Shiwoo's glans and cock shaft.</p>
 
-<p>"Woop~ Wooooook!! Kuluk! Woougwoop~!"</p>
+<p>"Woop Wooooook!! Kuluk! Woougwoop!"</p>
 
 <p>He felt Sehee Nuna's throat constricting, as if his penis would be cut off, along with the sound of gagging.</p>
 
@@ -162,27 +162,27 @@ chapter = 228
 
 <p>A thrilling sensation of pleasure that pierced his brain overflowed from the tip of his cock as if exploding.</p>
 
-<p>"Haup~ Hooook~ Haup"</p>
+<p>"Haup Hooook Haup"</p>
 
 <p>Sehee Nuna moved her head on her own, stimulating Shiwoo's taut flesh mass contained in her mouth.</p>
 
-<p>"Eueu~ Sehee-ya~!!"</p>
+<p>"Eueu Sehee-ya!!"</p>
 
 <p>Shiwoo called Sehee Nuna's name in a moaning voice.</p>
 
-<p>-Pusyuk~! Pusyuk~!</p>
+<p>-Pusyuk! Pusyuk!</p>
 
 <p>Soon, Shiwoo's semen poured into Sehee Nuna's mouth.</p>
 
 <p>Shiwoo pulled his penis out of her mouth while ejaculating into Sehee Nuna's mouth.</p>
 
-<p>-Pusyuk! Pusyuk~!</p>
+<p>-Pusyuk! Pusyuk!</p>
 
 <p>Pure white semen was being sprayed from the tip of Shiwoo's pillar, which was popping out of Sehee Nuna's mouth.</p>
 
 <p>Sticky clumps drew streaks and poured onto Sehee Nuna's face, sticking to it.</p>
 
-<p>-Pusyuk~ Pusyuk~~ Pusyuuuk~!</p>
+<p>-Pusyuk Pusyuk Pusyuuuk!</p>
 
 <p>Shiwoo's semen droplets, shooting out radially from the center, were scattered onto various parts of Sehee Nuna's exposed bare skin, without missing her neck, collarbone, shoulders, or arms.</p>
 

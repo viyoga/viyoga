@@ -4,7 +4,7 @@ weight = 148
 [extra]
 chapter = 148
 +++
-<p>,Seonju Imo, Sehee, let's eat now~! ,</p>
+<p>,Seonju Imo, Sehee, let's eat now! ,</p>
 
 <p>Shiwoo lowered the vibrator's intensity and spoke to them as if giving an order.</p>
 
@@ -14,7 +14,7 @@ chapter = 148
 
 <p>Sehee, conscious of Shiwoo's semen smeared inside her underwear, repeatedly opened and closed her thighs as if flinching, with her head bowed.</p>
 
-<p>,Sehee, eat heartily~,</p>
+<p>,Sehee, eat heartily,</p>
 
 <p>Shiwoo placed his hand on Sehee's exposed shoulder, deliberately hooking his finger and pulling the bra strap down to the side.</p>
 
@@ -22,7 +22,7 @@ chapter = 148
 
 <p>Sehee looked at Shiwoo, seemingly troubled, then glanced at Seonju Imo and spoke before picking up a spoon and starting to eat the chicken porridge.</p>
 
-<p>,It smells good~ right? Sehee, eat a lot~,</p>
+<p>,It smells good right? Sehee, eat a lot,</p>
 
 <p>Shiwoo seemed to find Sehee cute, so he stroked her head as he spoke before starting to eat the chicken porridge.</p>
 
@@ -32,11 +32,11 @@ chapter = 148
 
 <p>Shiwoo asked Seonju Imo while eating the chicken porridge.</p>
 
-<p>-Jiiiing~</p>
+<p>-Jiiiing</p>
 
 <p>The vibrator attached to Seonju Imo's clitoris was still vibrating, making a small noise.</p>
 
-<p>,Uh...eung...doing well...right...of course~,</p>
+<p>,Uh...eung...doing well...right...of course,</p>
 
 <p>Seonju Imo answered, enduring the weakened vibration of the vibrator with a flushed expression.</p>
 
@@ -50,15 +50,15 @@ chapter = 148
 
 <p>Sehee's thighs, which had been repeatedly closing, stopped as if focusing on Seonju Imo's answer.</p>
 
-<p>,That...that's after meeting your Dad~ kikik~,</p>
+<p>,That...that's after meeting your Dad kikik,</p>
 
 <p>Seonju Imo answered, giving a slightly suggestive smile with a flushed face.</p>
 
-<p>-Jiiiiiiing~!</p>
+<p>-Jiiiiiiing!</p>
 
 <p>Shiwoo increased the intensity of the vibrator until Seonju Imo's relaxed smile contorted.</p>
 
-<p>,Haeueue~! Heueu...haa-eut!...Haaaa!,</p>
+<p>,Haeueue! Heueu...haa-eut!...Haaaa!,</p>
 
 <p>Seonju Imo's moaning sound gradually increased with the vibrator's vibration slowly rising, and before long, she collapsed onto the table as if falling forward.</p>
 
@@ -66,7 +66,7 @@ chapter = 148
 
 <p>Shiwoo asked, slightly reducing the vibrator's intensity.</p>
 
-<p>,Haaa...heueu...uh...through Unni's introduction...heueueu....haeueue~,</p>
+<p>,Haaa...heueu...uh...through Unni's introduction...heueueu....haeueue,</p>
 
 <p>Seonju Imo answered, letting out a faint moan at the vibrating hum of the vibrator.</p>
 
@@ -100,7 +100,7 @@ chapter = 148
 
 <p>And she offered Gyuri Ajumma to Dad?</p>
 
-<p>,I...Unni called me to hang out, so I went...and Gyuri Unni was there too...heueu...it was my first time...together with Seonmi Unni and Gyuri Unni, heuuut~,</p>
+<p>,I...Unni called me to hang out, so I went...and Gyuri Unni was there too...heueu...it was my first time...together with Seonmi Unni and Gyuri Unni, heuuut,</p>
 
 <p>Seonju Imo was trembling and moaning as if she was getting excited by her own words.</p>
 
@@ -132,7 +132,7 @@ chapter = 148
 
 <p>And about the act of offering her daughter as a sex slave to Dad...</p>
 
-<p>,Your...your Mom is funny, right~ heueu...she did everything she wanted to do...but how can she just...haa-eut!...drop...drop out like that by herself? She...she made us like this~ haeueung...,</p>
+<p>,Your...your Mom is funny, right heueu...she did everything she wanted to do...but how can she just...haa-eut!...drop...drop out like that by herself? She...she made us like this haeueung...,</p>
 
 <p>Seonju Imo was moaning and speaking as if expressing her resentment towards Mom.</p>
 
@@ -140,7 +140,7 @@ chapter = 148
 
 <p>The vibrator's vibration had already reached its maximum.</p>
 
-<p>,Haeung haaaa haeueung~haaa-at~,</p>
+<p>,Haeung haaaa haeueunghaaa-at,</p>
 
 <p>Seonju Imo was shaking her body while collapsed on the table as if climaxing several times.</p>
 
@@ -202,7 +202,7 @@ chapter = 148
 
 <p>-Wiiiiing!!</p>
 
-<p>,Haaa-at heueu-eut...haa...haa~,</p>
+<p>,Haaa-at heueu-eut...haa...haa,</p>
 
 <p>Seonju Imo's moaning sound was heard from the dressing room along with the smartphone's vibration.</p>
 
@@ -248,7 +248,7 @@ chapter = 148
 
 <p>Shiwoo's large glans parted Sehee's slippery crevice and entered, filling Sehee's body.</p>
 
-<p>,Haeueuk~!,</p>
+<p>,Haeueuk!,</p>
 
 <p>Sehee was letting out a moan that seemed to be momentarily heightened.</p>
 

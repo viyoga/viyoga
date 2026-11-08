@@ -8,7 +8,7 @@ chapter = 183
 
 <p>Mom's voice, sounding peevish and sharp over the phone receiver, ""</p>
 
-<p>Alright~ alright~ I'm going in now! Don't worry, I won't say anything~!</p>
+<p>Alright alright I'm going in now! Don't worry, I won't say anything!</p>
 
 <p>""</p>
 
@@ -16,7 +16,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Mm... mm... I get it~ I said I'm going in~ Nothing happened, right~! Okay~ mm~ I'm hanging up~~!</p>
+<p>Mm... mm... I get it I said I'm going in Nothing happened, right! Okay mm I'm hanging up!</p>
 
 <p>""</p>
 
@@ -26,7 +26,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>We should go now. Because I took the kids out without telling her, your Mom seems really angry right now~ Kikikik</p>
+<p>We should go now. Because I took the kids out without telling her, your Mom seems really angry right now Kikikik</p>
 
 <p>"" Seonju Imo said to Shiwoo, laughing as if satisfied.</p>
 
@@ -40,7 +40,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Yes~ I've seen Shiwoo's face~ and it seems I've done everything I intended to do. So I should go now~</p>
+<p>Yes I've seen Shiwoo's face and it seems I've done everything I intended to do. So I should go now</p>
 
 <p>"" Seonju Imo said, looking at Shiwoo with a strange smile.</p>
 
@@ -62,7 +62,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Hwaaah-am~</p>
+<p>Hwaaah-am</p>
 
 <p>""</p>
 
@@ -70,7 +70,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Egugu~ Thanks to Shiwoo, there's not a single spot on me that doesn't ache~!</p>
+<p>Egugu Thanks to Shiwoo, there's not a single spot on me that doesn't ache!</p>
 
 <p>""</p>
 
@@ -78,7 +78,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>I should go get dressed now~</p>
+<p>I should go get dressed now</p>
 
 <p>""</p>
 
@@ -88,7 +88,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Hee-ing~ The alcohol is kicking in and I'm relaxed now, so it feels like my legs have no strength left~</p>
+<p>Hee-ing The alcohol is kicking in and I'm relaxed now, so it feels like my legs have no strength left</p>
 
 <p>""</p>
 
@@ -104,7 +104,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>I'll be fine if I get another massage from Shiwoo next time~ Then, Seyoung and Sua and I should lie down side by side and get it together, kikik</p>
+<p>I'll be fine if I get another massage from Shiwoo next time Then, Seyoung and Sua and I should lie down side by side and get it together, kikik</p>
 
 <p>""</p>
 
@@ -112,7 +112,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Uh... o-okay~</p>
+<p>Uh... o-okay</p>
 
 <p>""</p>
 
@@ -122,7 +122,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Sua-ya~ Sua, could you help Mom to the dressing room? We have to go home now, so I need to get dressed again~</p>
+<p>Sua-ya Sua, could you help Mom to the dressing room? We have to go home now, so I need to get dressed again</p>
 
 <p>""</p>
 
@@ -132,7 +132,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Then I'll be back, Shiwoo-ya~ Just talk with Seyoung for a bit~</p>
+<p>Then I'll be back, Shiwoo-ya Just talk with Seyoung for a bit</p>
 
 <p>""</p>
 
@@ -150,7 +150,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Yeah, it's fun~! Teacher Yena is pretty too~! Hehe</p>
+<p>Yeah, it's fun! Teacher Yena is pretty too! Hehe</p>
 
 <p>""</p>
 
@@ -174,7 +174,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Hehe~ I still have a long way to go~ But I'm studying hard~</p>
+<p>Hehe I still have a long way to go But I'm studying hard</p>
 
 <p>"" Seyoung replied to Shiwoo, smiling shyly.</p>
 
@@ -184,7 +184,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Here, I brought Shiwoo's clothes too~ If you stay undressed for too long because it's hot, you might catch a cold~</p>
+<p>Here, I brought Shiwoo's clothes too If you stay undressed for too long because it's hot, you might catch a cold</p>
 
 <p>""</p>
 
@@ -196,7 +196,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>We're leaving now~ Oppa</p>
+<p>We're leaving now Oppa</p>
 
 <p>""</p>
 

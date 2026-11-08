@@ -4,11 +4,11 @@ weight = 306
 [extra]
 chapter = 306
 +++
-<p>,Haa... Yes...! Master-nim~ Please impregnate my daughter Sua and me today...,</p>
+<p>,Haa... Yes...! Master-nim Please impregnate my daughter Sua and me today...,</p>
 
 <p>Seonju Imo contorts her face vulgarly, answering with ragged breaths.</p>
 
-<p>,Impregnate us, mother and daughter, at the same time, and we'll give birth to Master-nim's babies~. Haaeeu... We'll take care of all of Master-nim's children ourselves so as not to cause Master-nim any trouble~ Haaeeut~,</p>
+<p>,Impregnate us, mother and daughter, at the same time, and we'll give birth to Master-nim's babies. Haaeeu... We'll take care of all of Master-nim's children ourselves so as not to cause Master-nim any trouble Haaeeut,</p>
 
 <p>She was declaring to Shiwoo, her master, the proper answer she should give as a lowly sex slave.</p>
 
@@ -106,7 +106,7 @@ chapter = 306
 
 <p>From Seonju Imo's mouth, a moaning sound was already flowing out, as if Shiwoo's thing and fucking were burdensome.</p>
 
-<p>-Ssuk-keok! Ssuk-keok! Ssuk-keok! Ssuk-geot! Ssuk-keot! Ssuk-keok!~</p>
+<p>-Ssuk-keok! Ssuk-keok! Ssuk-keok! Ssuk-geot! Ssuk-keot! Ssuk-keok!</p>
 
 <p>Shiwoo shakes his waist even more violently, ravaging Seonju Imo's hole with the feeling of completely digging it up.</p>
 
@@ -178,6 +178,6 @@ chapter = 306
 
 <p>Each time that happened, Shiwoo mercilessly slaps Seonju Imo's buttocks with his palm.</p>
 
-<p>,Haeuek! Haaaak! Haaat! Ju... Master-niim~!! Heueueueuk!!\,</p>
+<p>,Haeuek! Haaaak! Haaat! Ju... Master-niim!! Heueueueuk!!\,</p>
 
 <p>Along with the sound of Shiwoo's spanking, Seonju Imo's scream of pain echoes fully in the front yard of Seonju Imo's house.</p>

@@ -36,7 +36,7 @@ chapter = 190
 
 <p>Sinbi Nuna slightly shrugged her neck, as if Shiwoo's voice in her ear tickled her.</p>
 
-<p>"Thank you~ Hehe, it feels so good to receive praise from Shiwoo."</p>
+<p>"Thank you Hehe, it feels so good to receive praise from Shiwoo."</p>
 
 <p>Sinbi Nuna, as if truly pleased by Shiwoo's praise, brought her mouth close to Shiwoo's ear again and said with a laugh.</p>
 
@@ -46,7 +46,7 @@ chapter = 190
 
 <p>Sinbi Nuna seemed to flinch once, then,</p>
 
-<p>"Just as I heard, you're lewd, as expected~!"</p>
+<p>"Just as I heard, you're lewd, as expected!"</p>
 
 <p>she brought her lips close to Shiwoo's ear and said.</p>
 
@@ -66,7 +66,7 @@ chapter = 190
 
 <p>Shiwoo was flustered by Sinbi Nuna's question, but he answered, trying not to show it.</p>
 
-<p>"Shiwoo~ I thought you wouldn't come, but somehow you ended up coming out? Hehe~"</p>
+<p>"Shiwoo I thought you wouldn't come, but somehow you ended up coming out? Hehe"</p>
 
 <p>Sinbi Nuna seemed to be talking about the meeting.</p>
 
@@ -76,7 +76,7 @@ chapter = 190
 
 <p>Sinbi Nuna smiled contentedly for a moment, seeming to think about something.</p>
 
-<p>"Sehee said that... Shiwoo, you said I was your favorite among her friends, right? You usually don't seem to have much interest in Nuna's friends~ Is that true?"</p>
+<p>"Sehee said that... Shiwoo, you said I was your favorite among her friends, right? You usually don't seem to have much interest in Nuna's friends Is that true?"</p>
 
 <p>Sinbi Nuna asked Shiwoo, as if trying to confirm what she had heard from Sehee Nuna.</p>
 
@@ -90,13 +90,13 @@ chapter = 190
 
 <p>Then she brought her mouth close to Shiwoo's ear again.</p>
 
-<p>"But why don't you ever call me~?"</p>
+<p>"But why don't you ever call me?"</p>
 
 <p>Sinbi Nuna whispered, as if feeling disappointed.</p>
 
 <p>"What?"</p>
 
-<p>"Isn't that right~!? Like when I sent you the photo of the initial tattoo on my thigh... and even though I sent those kinds of photos yesterday and today with a lot of courage, you didn't contact me even once, did you? I thought Shiwoo would at least call and ask once~ Hmph."</p>
+<p>"Isn't that right!? Like when I sent you the photo of the initial tattoo on my thigh... and even though I sent those kinds of photos yesterday and today with a lot of courage, you didn't contact me even once, did you? I thought Shiwoo would at least call and ask once Hmph."</p>
 
 <p>Now, as if whining, Sinbi Nuna leaned her entire body onto Shiwoo's arm, pressing down.</p>
 
@@ -132,7 +132,7 @@ chapter = 190
 
 <p>Shiwoo brought his lips very close to Sinbi Nuna's ear and spoke.</p>
 
-<p>"I don't really know~ I... hehe~"</p>
+<p>"I don't really know I... hehe"</p>
 
 <p>Sinbi Nuna answered Shiwoo, showing an expression as if it was difficult to explain.</p>
 
@@ -188,11 +188,11 @@ chapter = 190
 
 <p>In the silence, the sound of wet kisses was heard as if echoing.</p>
 
-<p>"I'm going to the restroom for a bit~ Shiwoo-ya~"</p>
+<p>"I'm going to the restroom for a bit Shiwoo-ya"</p>
 
 <p>As the karaoke accompaniment that had been playing stopped, Sinbi Nuna, perhaps feeling a little shy, sat up straight and said to Shiwoo.</p>
 
-<p>"Then~ Shall we go out for a bit too?"</p>
+<p>"Then Shall we go out for a bit too?"</p>
 
 <p>Juni Hyeong, who had been drinking alone while waiting for Sehee Nuna, picked up the cigarettes and lighter placed on the table, stood up, and spoke towards the other Hyeong-s.</p>
 
@@ -200,6 +200,6 @@ chapter = 190
 
 <p>The other Hyeong-s immediately stopped the skinship and small talk they had been doing with the Nuna-s and stood up from their seats to follow Juni Hyeong.</p>
 
-<p>"Me too~! I want to go too~~"</p>
+<p>"Me too! I want to go too"</p>
 
 <p>Saerom Nuna also stood up from her seat, following the Hyeong-s, perhaps craving a cigarette.</p>

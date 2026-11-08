@@ -6,7 +6,7 @@ chapter = 709
 +++
 <p>The next morning...</p>
 
-<p>"Shiwoo-oppa~ Wake up! Mom says to come down for breakfast~"</p>
+<p>"Shiwoo-oppa Wake up! Mom says to come down for breakfast"</p>
 
 <p>An all-too-familiar voice seeped through the crack of the open door, stirring the air inside Shiwoo's room.</p>
 
@@ -18,7 +18,7 @@ chapter = 709
 
 <p>The words spilling from his mouth sounded like the lazy grumbling of a child, his voice still thick with the languid haze of a dream.</p>
 
-<p>"Oppa! You told me that 10 minutes ago too~? You said 5 more minutes, but you haven't even started getting ready yet~!"</p>
+<p>"Oppa! You told me that 10 minutes ago too? You said 5 more minutes, but you haven't even started getting ready yet!"</p>
 
 <p>"Mom has the food all set out and she's right on the verge of getting angry! Are you really going to start your day listening to Mom nag you?"</p>
 
@@ -28,7 +28,7 @@ chapter = 709
 
 <p>Shiwoo kept his eyes closed, burying his face into the pillow as he rolled over, muttering in a voice that sounded like sleep-talking.</p>
 
-<p>"Oppa~ if you don't get up right now, I'm going to rip this blanket off~?"</p>
+<p>"Oppa if you don't get up right now, I'm going to rip this blanket off?"</p>
 
 <p>With her fingertips already gripping the edge of the blanket, Seyoung's voice was thick with playfulness.</p>
 
@@ -60,7 +60,7 @@ chapter = 709
 
 <p>As if the remaining sleepiness had been swept away in an instant, Shiwoo could not tear his eyes away from the sight before him.</p>
 
-<p>"Do you feel like getting up now? I was going to bite you awake if you really wouldn't get up~"</p>
+<p>"Do you feel like getting up now? I was going to bite you awake if you really wouldn't get up"</p>
 
 <p>Seyoung looked down at Shiwoo, letting a lewdly playful joke slip from her lips.</p>
 
@@ -74,7 +74,7 @@ chapter = 709
 
 <p>Shiwoo's penis was already stiffly erect and pulsating.</p>
 
-<p>"Mom told me not to let you off easy this time, and to make sure I wake you up and bring you down no matter what~!"</p>
+<p>"Mom told me not to let you off easy this time, and to make sure I wake you up and bring you down no matter what!"</p>
 
 <p>Seyoung pulled at the blanket covering Shiwoo, speaking in a coaxing manner with a mischievous smile.</p>
 
@@ -94,19 +94,19 @@ chapter = 709
 
 <p>After staring at Shiwoo's penis for a moment, Seyoung laughed as if it were awkward after all and averted her eyes...</p>
 
-<p>"What are the side dishes today~?"</p>
+<p>"What are the side dishes today?"</p>
 
 <p>Looking at Seyoung, Shiwoo asked about the food prepared on the breakfast table as if nothing were out of the ordinary.</p>
 
-<p>"Rolled omelets and stir-fried sausages~!"</p>
+<p>"Rolled omelets and stir-fried sausages!"</p>
 
 <p>Seyoung looked back at Shiwoo's face and answered his question with a bright smile.</p>
 
-<p>"Ah~ exactly what I like."</p>
+<p>"Ah exactly what I like."</p>
 
 <p>Shiwoo spoke as if he were genuinely pleased.</p>
 
-<p>"Yup~! The stuff Oppa likes~ Hehe~"</p>
+<p>"Yup! The stuff Oppa likes Hehe"</p>
 
 <p>Seyoung nodded vigorously, responding with an innocent smile.</p>
 
@@ -120,7 +120,7 @@ chapter = 709
 
 <p>Shiwoo turned toward Seyoung and pushed his upper body up, asking about Mom.</p>
 
-<p>"Mom? She's finished setting the table and is waiting downstairs for Shiwoo-oppa to come down~!"</p>
+<p>"Mom? She's finished setting the table and is waiting downstairs for Shiwoo-oppa to come down!"</p>
 
 <p>Seyoung answered with a puzzled expression, as if wondering why he was asking something so obvious.</p>
 
@@ -128,7 +128,7 @@ chapter = 709
 
 <p>Shiwoo asked Seyoung, just in case.</p>
 
-<p>"Ah~! No~ she's wearing clothes~! There's what we talked about yesterday... and Aunt Seonju and Sua are still in the house too."</p>
+<p>"Ah! No she's wearing clothes! There's what we talked about yesterday... and Aunt Seonju and Sua are still in the house too."</p>
 
 <p>Seyoung answered with an expression that suggested she finally understood what Shiwoo was asking regarding Mom.</p>
 
@@ -148,7 +148,7 @@ chapter = 709
 
 <p>The long rod protruding from Shiwoo's crotch was thrust forward toward Seyoung.</p>
 
-<p>"I guess you should~? But can you handle it and come down by yourself?"</p>
+<p>"I guess you should? But can you handle it and come down by yourself?"</p>
 
 <p>Seyoung accepted Shiwoo's provocative display without a hint of being fazed, mixing in a sly joke.</p>
 
@@ -156,7 +156,7 @@ chapter = 709
 
 <p>Shiwoo tossed out the joke nonchalantly, as if it were Seyoung's natural duty and the logical order of things for her to handle his erect penis.</p>
 
-<p>"It's morning right now~ Since we've gone back to being siblings, I can't do that kind of thing anymore~"</p>
+<p>"It's morning right now Since we've gone back to being siblings, I can't do that kind of thing anymore"</p>
 
 <p>Seyoung spoke playfully with a mischievous expression and tone, as if reciting lines from a spiteful comedy routine.</p>
 
@@ -164,15 +164,15 @@ chapter = 709
 
 <p>Shiwoo countered her spiteful tone with a thin, laughter-laced voice, playing along with the banter.</p>
 
-<p>"It's the rule that you have to take off all your clothes and underwear when you come up to the 2nd floor! That much is common sense now~! And I guess the two of us aren't just a 'normal' sibling or family relationship~ Hehe~!"</p>
+<p>"It's the rule that you have to take off all your clothes and underwear when you come up to the 2nd floor! That much is common sense now! And I guess the two of us aren't just a 'normal' sibling or family relationship Hehe!"</p>
 
 <p>Seyoung spoke with a mix of laughter, satirizing the things that had happened among the family members over the past few days and the absurd rules that had been set.</p>
 
-<p>"If we aren't a normal sibling or family relationship, then you can at least do it with your mouth even if it's morning, right~? And what is it that we 'can't' do just because we're a normal sibling or family relationship anyway?"</p>
+<p>"If we aren't a normal sibling or family relationship, then you can at least do it with your mouth even if it's morning, right? And what is it that we 'can't' do just because we're a normal sibling or family relationship anyway?"</p>
 
 <p>Shiwoo faithfully performed his role of finding fault with Seyoung's words, responding in a playful tone as if picking a fight with her.</p>
 
-<p>"Is that so~? I guess I have to step in after all~? But Mom will scold us if we're too late~?"</p>
+<p>"Is that so? I guess I have to step in after all? But Mom will scold us if we're too late?"</p>
 
 <p>Seyoung took a posture as if rolling up her sleeves, seemingly persuaded by Shiwoo's words, then glanced at the clock and resumed her sly acting, pretending to hesitate.</p>
 
@@ -180,7 +180,7 @@ chapter = 709
 
 <p>Shiwoo gripped his penis with his hand while his legs were spread, gesturing with his head as he urged her with a voice tinged with slight impatience.</p>
 
-<p>"Fufufut~ Okay~ But we're siblings right now, right?"</p>
+<p>"Fufufut Okay But we're siblings right now, right?"</p>
 
 <p>Seyoung asked as she knelt down and looked up at Shiwoo, her expression appearing somewhat intoxicated.</p>
 

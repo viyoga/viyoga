@@ -4,7 +4,7 @@ weight = 714
 [extra]
 chapter = 714
 +++
-<p>"Kka-reu-reu-reu~"</p>
+<p>"Kka-reu-reu-reu"</p>
 
 <p>Suddenly, a loud burst of laughter erupted from Aunt Seonju, who was lying on the living room sofa watching television.</p>
 
@@ -12,7 +12,7 @@ chapter = 714
 
 <p>At the sound of Aunt Seonju's laughter, Mom looked flustered, fidgeting with the hem of her top as if she were in an awkward position.</p>
 
-<p>"I get it~ I'm going up now. I'll get ready so I'm not late, so don't worry too much. Mom~"</p>
+<p>"I get it I'm going up now. I'll get ready so I'm not late, so don't worry too much. Mom"</p>
 
 <p>Shiwoo spoke in the softest, most friendly voice possible to reassure and soothe Mom.</p>
 
@@ -62,7 +62,7 @@ chapter = 714
 
 <p>Shiwoo wore a curious smile and asked her while feigning ignorance, turning his head toward the television screen.</p>
 
-<p>"No, nothing much is on right now. I was just watching to kill time~"</p>
+<p>"No, nothing much is on right now. I was just watching to kill time"</p>
 
 <p>At Shiwoo's words, which seemed to show interest in her, Aunt Seonju brightened up and leaned forward slightly to answer.</p>
 
@@ -70,15 +70,15 @@ chapter = 714
 
 <p>Maintaining a thin smile on his lips, Shiwoo narrowed his eyes and fixed his gaze on her, as if persistently trying to dig out the inner thoughts hidden within her expression.</p>
 
-<p>"Ah~ it wasn't really like that~ I just suddenly had a funny thought~ Don't you have moments like that too, Shiwoo?"</p>
+<p>"Ah it wasn't really like that I just suddenly had a funny thought Don't you have moments like that too, Shiwoo?"</p>
 
 <p>Aunt Seonju spoke to Shiwoo in a light, nonchalant manner, as if making an excuse.</p>
 
-<p>"Have I~? But what kind of funny thought?"</p>
+<p>"Have I? But what kind of funny thought?"</p>
 
 <p>Shiwoo continued to wear a mysterious smile, never letting go of his persistent gaze.</p>
 
-<p>"Huh?... Just... I forgot~ But why are you suddenly asking that?"</p>
+<p>"Huh?... Just... I forgot But why are you suddenly asking that?"</p>
 
 <p>Aunt Seonju replied with a smile that seemed trivial, though a subtle discomfort was etched on her face.</p>
 
@@ -102,7 +102,7 @@ chapter = 714
 
 <p>Aunt Seonju's body flinched as if her clitoris had been touched.</p>
 
-<p>"Oh... well, shall we then~?"</p>
+<p>"Oh... well, shall we then?"</p>
 
 <p>Aunt Seonju adjusted her posture and looked up at Shiwoo with a tense expression.</p>
 
@@ -180,7 +180,7 @@ chapter = 714
 
 <p>Shiwoo struck her buttocks with his palm once more.</p>
 
-<p>"Ha-eu-eut~!"</p>
+<p>"Ha-eu-eut!"</p>
 
 <p>Aunt Seonju stiffened again as the pain spread across her sensitive skin, her breathing becoming ragged.</p>
 

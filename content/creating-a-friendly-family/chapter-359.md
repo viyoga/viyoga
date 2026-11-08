@@ -148,7 +148,7 @@ chapter = 359
 
 <p>Shiwoo, as Sua sucked his cock, spoke as if chiding Seonju Imo-nim.</p>
 
-<p>"Haat... Yes... Heut... I'm sorry, Juinin-nim~ I'll suck it right now!"</p>
+<p>"Haat... Yes... Heut... I'm sorry, Juinin-nim I'll suck it right now!"</p>
 
 <p>Seonju Imo-nim, unable to properly open her eyes, groped Shiwoo's thigh with her hand and spoke guiltily.</p>
 

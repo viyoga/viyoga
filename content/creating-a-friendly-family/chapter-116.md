@@ -16,7 +16,7 @@ chapter = 116
 
 <p>Mom said to Shiwoo, as if feeling unfairly wronged.</p>
 
-<p>'When Seyoung was sleeping, I put my cock in her mouth too~ And then I put Seyoung's saliva on it in Mom's mouth and let you taste it~? You licked it up well, didn't you?'</p>
+<p>'When Seyoung was sleeping, I put my cock in her mouth too And then I put Seyoung's saliva on it in Mom's mouth and let you taste it? You licked it up well, didn't you?'</p>
 
 <p>Shiwoo was saying things that he wouldn't have easily brought up before, as if he was humiliating Mom.</p>
 
@@ -24,7 +24,7 @@ chapter = 116
 
 <p>Mom said, complaining as if she now resented Shiwoo's actions.</p>
 
-<p>'Hehehe~'</p>
+<p>'Hehehe'</p>
 
 <p>Shiwoo wrote and sent the message as if he was smirking maliciously.</p>
 
@@ -32,31 +32,31 @@ chapter = 116
 
 <p>Mom asked, as if suspicious of Shiwoo's intentions.</p>
 
-<p>'Well~ In a way, isn't it the same as me having an affair with Gyuri Ajumma or Seyoung while leaving Mom alone? But I was wondering why Mom didn't say anything even after seeing that~'</p>
+<p>'Well In a way, isn't it the same as me having an affair with Gyuri Ajumma or Seyoung while leaving Mom alone? But I was wondering why Mom didn't say anything even after seeing that'</p>
 
 <p>Shiwoo was thinking of probing Mom's true intentions regarding the relationship between Shiwoo and the other family members, with a cautious feeling.</p>
 
-<p>'Haa~ really!! How is that an affair? It's not like Shiwoo and Mom are dating!'</p>
+<p>'Haa really!! How is that an affair? It's not like Shiwoo and Mom are dating!'</p>
 
 <p>Mom reacted to Shiwoo's words as if they were absurd.</p>
 
-<p>'Isn't it~?'</p>
+<p>'Isn't it?'</p>
 
 <p>Shiwoo said, feeling awkward.</p>
 
-<p>'You said that before, it's so funny~! You're just trying to catch Mom off guard and make fun of her if she doesn't answer well, aren't you?'</p>
+<p>'You said that before, it's so funny! You're just trying to catch Mom off guard and make fun of her if she doesn't answer well, aren't you?'</p>
 
 <p>Mom was saying as if she wouldn't be swayed by Shiwoo's mischievous pranks anymore.</p>
 
-<p>'No~ I'm really asking because I'm curious! Even if we're not dating, Mom and I have done that, so we can talk about this now, right?'</p>
+<p>'No I'm really asking because I'm curious! Even if we're not dating, Mom and I have done that, so we can talk about this now, right?'</p>
 
 <p>Shiwoo said to Mom, intending to argue with her by revealing his sincere feelings.</p>
 
-<p>'Haa~ really!! So! What are you going to do if Mom says she's jealous? Can you handle it?'</p>
+<p>'Haa really!! So! What are you going to do if Mom says she's jealous? Can you handle it?'</p>
 
 <p>Mom was saying as if she was fed up, but also with a strange atmosphere.</p>
 
-<p>'Well, if that's really the case, we should think about it seriously too~ hehe'</p>
+<p>'Well, if that's really the case, we should think about it seriously too hehe'</p>
 
 <p>'Think about what?'</p>
 
@@ -68,11 +68,11 @@ chapter = 116
 
 <p>Mom was naturally dumbfounded.</p>
 
-<p>'There's no reason why we can't~ Mom and I have already had sex, and you changed my name to Master in your phone address book!'</p>
+<p>'There's no reason why we can't Mom and I have already had sex, and you changed my name to Master in your phone address book!'</p>
 
 <p>Shiwoo was pointing out the fact that she had changed his name in the phone address book to Master as if it were a weakness.</p>
 
-<p>'We were only supposed to do that in chat~!'</p>
+<p>'We were only supposed to do that in chat!'</p>
 
 <p>Mom said, as if troubled.</p>
 
@@ -88,13 +88,13 @@ chapter = 116
 
 <p>Shiwoo had started with a joke, but he felt a slight stubbornness.</p>
 
-<p>'Even if the Master is ordering the slave, it wouldn't work~?'</p>
+<p>'Even if the Master is ordering the slave, it wouldn't work?'</p>
 
 <p>Shiwoo said, trying to be stubborn.</p>
 
 <p>Mom was silent for a moment, as if troubled.</p>
 
-<p>'Sigh~ That's cheating~!'</p>
+<p>'Sigh That's cheating!'</p>
 
 <p>Mom was saying with a nuance that she couldn't refuse if Shiwoo ordered her as the Master.</p>
 
@@ -114,13 +114,13 @@ chapter = 116
 
 <p>Mom was saying as if she had no choice in order to escape from the difficult situation.</p>
 
-<p>'I really want to see Seonmi masturbate today. In a video!! I'm going to cum to that today~ Is that okay?'</p>
+<p>'I really want to see Seonmi masturbate today. In a video!! I'm going to cum to that today Is that okay?'</p>
 
 <p>Shiwoo called Mom by her name and slowly started making forceful demands.</p>
 
 <p>Mom paused for a long time and then answered as if she had made up her mind.</p>
 
-<p>'Okay~ Wait for me'</p>
+<p>'Okay Wait for me'</p>
 
 <p>It seemed like a somewhat unreasonable request, but Mom seemed to have a hard time refusing due to the flow of the atmosphere.</p>
 
@@ -132,7 +132,7 @@ chapter = 116
 
 <p>-Jjigeok jjigeok jjigeok</p>
 
-<p>'Heueuht~'</p>
+<p>'Heueuht'</p>
 
 <p>Sehee Nuna's moaning sound.</p>
 
@@ -204,13 +204,13 @@ chapter = 116
 
 <p>Fierce piston movements</p>
 
-<p>"Ah~ Mom~! Mom~! Seonmi, you fucking bitch!"</p>
+<p>"Ah Mom! Mom! Seonmi, you fucking bitch!"</p>
 
 <p>Shiwoo was saying Mom's name out loud as if he was humiliating her while having sex with Sehee Nuna.</p>
 
 <p>Shiwoo was now imagining Sehee Nuna as Mom without hiding anything and doing piston movements.</p>
 
-<p>"Hot! Haaht! Shiwoo-ya~ Haa aht! Hot! M...Master! Master!"</p>
+<p>"Hot! Haaht! Shiwoo-ya Haa aht! Hot! M...Master! Master!"</p>
 
 <p>Sehee Nuna's humiliating moaning sound, as if she had succumbed to pleasure.</p>
 
@@ -224,7 +224,7 @@ chapter = 116
 
 <p>Shiwoo urgently pulls out his penis right before ejaculation.</p>
 
-<p>"Heueueueung~"</p>
+<p>"Heueueueung"</p>
 
 <p>Sehee Nuna trembles and moans as if she is about to die.</p>
 
@@ -234,7 +234,7 @@ chapter = 116
 
 <p>Shiwoo imagines Mom, Seonju Imo, and Sehee Nuna kneeling down and bringing their faces close to each other in a row to receive Shiwoo's semen.</p>
 
-<p>"Ah~Seonmi-ya! Seonju-ya! Sehee-ya~!"</p>
+<p>"AhSeonmi-ya! Seonju-ya! Sehee-ya!"</p>
 
 <p>Shiwoo calls out the names of Mom, Imo, and Sehee Nuna in order.</p>
 

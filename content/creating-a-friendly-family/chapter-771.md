@@ -22,7 +22,7 @@ chapter = 771
 
 <p>The moment she admitted the immoral truth with her own mouth, Mom barely offset the misery that burst forth with the satiation of pleasure Shiwoo was providing...</p>
 
-<p>"Uu-ng~! Fufufu! I guess I called while you were in the middle of it~?"</p>
+<p>"Uu-ng! Fufufu! I guess I called while you were in the middle of it?"</p>
 
 <p>Sejin Nuna's sadistic tone, enjoying the other's misery, seemed enough to push Mom to a mental precipice, stickily scanning her shameful reality from head to toe.</p>
 
@@ -62,7 +62,7 @@ chapter = 771
 
 <p>It was a miserable and pitiful struggle by Mom to turn the conversation back by asking about daily life.</p>
 
-<p>"Yeah. Shiwoo asked earlier, so I told him I ate... Didn't you say you ate at a restaurant with Shiwoo, Mom? You went to the aquarium too, and I was just talking about that with Shiwoo a moment ago... And that shouldn't be what's important right now, right? You must really be out of it~ Fufut~"</p>
+<p>"Yeah. Shiwoo asked earlier, so I told him I ate... Didn't you say you ate at a restaurant with Shiwoo, Mom? You went to the aquarium too, and I was just talking about that with Shiwoo a moment ago... And that shouldn't be what's important right now, right? You must really be out of it Fufut"</p>
 
 <p>Sejin Nuna rummaged through Mom's confused mind with a low, sunken voice, as if leisurely enjoying the wretched struggle of a raw fish caught in a net.</p>
 
@@ -80,9 +80,9 @@ chapter = 771
 
 <p>Mom turned her head away from the smartphone's receiver and bit her lower lip to stop the sounds leaking from her mouth, but the moans that squeezed through the gaps turned into even more explicit pleas as they flowed out.</p>
 
-<p>"You can make sounds comfortably~ There's no need to hide it anymore... After all, everyone in our family knows we've all ended up having sex with Shiwoo, right?"</p>
+<p>"You can make sounds comfortably There's no need to hide it anymore... After all, everyone in our family knows we've all ended up having sex with Shiwoo, right?"</p>
 
-<p>"I also met Shiwoo at the officetel yesterday and had sex... You know what I mean, right? It's okay not to hide it anymore~"</p>
+<p>"I also met Shiwoo at the officetel yesterday and had sex... You know what I mean, right? It's okay not to hide it anymore"</p>
 
 <p>Sejin Nuna tried to break down Mom's last line of defense, using the word 'sex' in a nonchalant and plain voice that shattered taboos.</p>
 

@@ -4,7 +4,7 @@ weight = 537
 [extra]
 chapter = 537
 +++
-<p>,I thought Mom was sleeping in because she was tired, so I started cooking rice before going into the shower~ I was going to prepare the meal right after showering~ Hehe,</p>
+<p>,I thought Mom was sleeping in because she was tired, so I started cooking rice before going into the shower I was going to prepare the meal right after showering Hehe,</p>
 
 <p>Seyoung approaches Mom, indirectly mentioning the events of last night as if nothing happened.</p>
 
@@ -40,7 +40,7 @@ chapter = 537
 
 <p>Shiwoo felt that Mom's actions and attitude were both resentful and very cute.</p>
 
-<p>,Okay~ I got it~ But I'll take this to the nightstand drawer in the master bedroom first, then go wake up Sehee~,</p>
+<p>,Okay I got it But I'll take this to the nightstand drawer in the master bedroom first, then go wake up Sehee,</p>
 
 <p>Shiwoo said leisurely, shaking the leash he had just taken off Mom's neck.</p>
 
@@ -48,23 +48,23 @@ chapter = 537
 
 <p>Mom spoke to Shiwoo, who was shaking the leash, with a slightly irritated voice.</p>
 
-<p>,Alright~! I won't get in the way~ I have to listen carefully to what Mom says~! That way, I'll get rice cakes or ice cream even in my sleep~,</p>
+<p>,Alright! I won't get in the way I have to listen carefully to what Mom says! That way, I'll get rice cakes or ice cream even in my sleep,</p>
 
 <p>Shiwoo playfully used words that would remind them of last night as he moved towards the master bedroom.</p>
 
 <p>Mom heard Shiwoo's words and closed her mouth as if she didn't know how to react for a moment, feeling embarrassed and avoiding Seyoung's gaze.</p>
 
-<p>,Shiwoo oppa~ I'll go up to the second floor to wake up Sehee Unni~! I can go straight up there after showering anyway,</p>
+<p>,Shiwoo oppa I'll go up to the second floor to wake up Sehee Unni! I can go straight up there after showering anyway,</p>
 
 <p>Seyoung said to Shiwoo, who was heading to the master bedroom, that she would go up to the second floor to wake up Sehee.</p>
 
 <p>Mom, hearing Seyoung's added comment that she could go straight up to the second floor after showering, took a deep breath with her head bowed, as if certain scenes from last night had come to mind again.</p>
 
-<p>,Oh, you want to? I'd appreciate it if you did~! It'll be less awkward for each other if we see each other on the second floor~,</p>
+<p>,Oh, you want to? I'd appreciate it if you did! It'll be less awkward for each other if we see each other on the second floor,</p>
 
 <p>Shiwoo deliberately spoke in a nonchalant manner, as if for Mom to hear, that Seyoung had come down to the first floor in a hurry to find her smartphone in the morning.</p>
 
-<p>,Yeah, that's right~! It'll be awkward if we wake up alone, hehe~,</p>
+<p>,Yeah, that's right! It'll be awkward if we wake up alone, hehe,</p>
 
 <p>Seyoung said, matching Shiwoo's tone.</p>
 
@@ -156,7 +156,7 @@ chapter = 537
 
 <p>Shiwoo felt an uncomfortable sense of alienation from Mom's tone and manner, but he seemed to be very pleased with her awkward reaction.</p>
 
-<p>,Alright~ Alright~! I can just stay in the living room... then that's fine, right?,</p>
+<p>,Alright Alright! I can just stay in the living room... then that's fine, right?,</p>
 
 <p>Shiwoo said, raising both arms and making a gesture of surrender, as if appeasing Mom.</p>
 

@@ -68,7 +68,7 @@ chapter = 152
 
 <p>Shiwoo subtly moved his hips back and forth, pressing down on Sehee-nuna's head, which was turned sideways.</p>
 
-<p>「Ha-woob~ Hoob~ Chureuk! Churu-oob!」</p>
+<p>「Ha-woob Hoob Chureuk! Churu-oob!」</p>
 
 <p>Sehee-nuna, with unfocused eyes, held Shiwoo's slowly moving penis full in her mouth.</p>
 
@@ -188,7 +188,7 @@ chapter = 152
 
 <p>Shiwoo looked down at Seonju Imo and commanded her forcefully.</p>
 
-<p>「Chureup~ Churoop~ Chu-waap~」</p>
+<p>「Chureup Churoop Chu-waap」</p>
 
 <p>Seonju Imo, holding Shiwoo's penis in her mouth, extended her tongue and licked clean the filth clinging to his penis, sweeping it along the shaft.</p>
 
@@ -196,10 +196,10 @@ chapter = 152
 
 <p>Then, Shiwoo grabbed Seonju Imo's head with both hands and gently pushed his penis further in.</p>
 
-<p>「Ha-ak~! Ha-ap! Hoo-ap!」</p>
+<p>「Ha-ak! Ha-ap! Hoo-ap!」</p>
 
 <p>Shiwoo's penis entered Seonju Imo's throat.</p>
 
-<p>「Cheu-oob! Cheu-ap~ Cheu-eup! Eu-eup...」</p>
+<p>「Cheu-oob! Cheu-ap Cheu-eup! Eu-eup...」</p>
 
 <p>With the penis lodged in her throat, Seonju Imo licked at the base of Shiwoo's shaft and his testicles, as if stimulating them with her tongue.</p>

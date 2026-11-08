@@ -142,7 +142,7 @@ chapter = 355
 
 <p>Seonju Imo's tight apricot-colored homewear slip, made of silk material that he had seen in the morning, was crumpled and wrapped around her waist.</p>
 
-<p>"Welcome~ Master-nim~!"</p>
+<p>"Welcome Master-nim!"</p>
 
 <p>Seonju Imo greeted him, bowing her head respectfully to the floor.</p>
 

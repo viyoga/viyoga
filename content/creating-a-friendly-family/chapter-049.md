@@ -4,7 +4,7 @@ weight = 49
 [extra]
 chapter = 49
 +++
-<p>"Haa~ seeing it in person, it seems even bigger~ At this size, it's almost as thick as Seyoung's forearm.. Haa~ something like this goes inside a woman's body? Does it actually fit?"</p>
+<p>"Haa seeing it in person, it seems even bigger At this size, it's almost as thick as Seyoung's forearm.. Haa something like this goes inside a woman's body? Does it actually fit?"</p>
 
 <p>Sehee Nuna, marveling at Shiwoo's erect thing, which she had witnessed directly for the first time, was continuously muttering sounds, whether questions or soliloquies, breathing roughly with quickened breaths.</p>
 
@@ -12,7 +12,7 @@ chapter = 49
 
 <p>Tak!!!</p>
 
-<p>"Yeah~ I-it seems to go in~"</p>
+<p>"Yeah I-it seems to go in"</p>
 
 <p>Shiwoo answered Sehee Nuna's curious question, continuing the vigorous piston-like motion of his penis with his hand.</p>
 
@@ -42,7 +42,7 @@ chapter = 49
 
 <p>Tak!</p>
 
-<p>"Ah~ really~?"</p>
+<p>"Ah really?"</p>
 
 <p>Sehee Nuna was smiling slightly, as if she had caught onto something strange.</p>
 
@@ -76,7 +76,7 @@ chapter = 49
 
 <p>"R-really?"</p>
 
-<p>"Yeah... my friends and I talk about you a lot at school these days? They all seem quite interested in you~ Sora Nuna too.. Semi too.. Saerom too.."</p>
+<p>"Yeah... my friends and I talk about you a lot at school these days? They all seem quite interested in you Sora Nuna too.. Semi too.. Saerom too.."</p>
 
 <p>Sehee Nuna, speaking as if listing her friends' names, deliberately exaggerated her pronunciation, syllable by syllable, so that Shiwoo could hear clearly.</p>
 
@@ -92,7 +92,7 @@ chapter = 49
 
 <p>Shiwoo, flustered as expected.</p>
 
-<p>"You should get a girlfriend soon~ How long can Nuna keep watching and helping you masturbate like this~ kikik~"</p>
+<p>"You should get a girlfriend soon How long can Nuna keep watching and helping you masturbate like this kikik"</p>
 
 <p>Sehee Nuna, speaking playfully and laughing.</p>
 
@@ -110,7 +110,7 @@ chapter = 49
 
 <p>Tak! Tak!! Tak!!! Tak!!!!</p>
 
-<p>"Haa~ why are you suddenly speeding up?"</p>
+<p>"Haa why are you suddenly speeding up?"</p>
 
 <p>Sehee Nuna, seeing Shiwoo's hand movements suddenly quicken, spoke with a slightly surprised and bewildered expression.</p>
 
@@ -120,11 +120,11 @@ chapter = 49
 
 <p>Pulled by Shiwoo, Sehee Nuna became pressed tightly against Shiwoo's body, almost falling over. Following the intense up-and-down vibrations of Shiwoo's arm, Shiwoo's body was also shaking greatly and violently. Naturally, those vibrations and tremors were transmitted without reservation to Sehee Nuna, who was pressed tightly against Shiwoo's body.</p>
 
-<p>"Haha~ you couldn't stand it when I brought up Sinbi Nuna just now, and got so excited, didn't you? I know everything, you know? Did you like it that much when I told you about Sinbi Nuna? Huh?"</p>
+<p>"Haha you couldn't stand it when I brought up Sinbi Nuna just now, and got so excited, didn't you? I know everything, you know? Did you like it that much when I told you about Sinbi Nuna? Huh?"</p>
 
 <p>Sehee Nuna, as if she had sensed Shiwoo's mood, matched Shiwoo's movements, making a seductive voice and stimulating Shiwoo's ear.</p>
 
-<p>"Shall I tell you one more good thing? Sinbi Nuna also seems to be interested in you, you know? Because my friends talk about you a lot, she keeps asking me about you, you know? She acts really close with you in front of our friends~ Sinbi Nuna, she's subtly like a fox, you know? kikik!"</p>
+<p>"Shall I tell you one more good thing? Sinbi Nuna also seems to be interested in you, you know? Because my friends talk about you a lot, she keeps asking me about you, you know? She acts really close with you in front of our friends Sinbi Nuna, she's subtly like a fox, you know? kikik!"</p>
 
 <p>Sehee Nuna said to Shiwoo, creating a lewd and coquettish atmosphere.</p>
 
@@ -132,7 +132,7 @@ chapter = 49
 
 <p>Tak!!!</p>
 
-<p>"You, by any chance~ if Sinbi Nuna asked you to date, would you?"</p>
+<p>"You, by any chance if Sinbi Nuna asked you to date, would you?"</p>
 
 <p>Sehee Nuna's question continued in a petulant voice.</p>
 
@@ -140,7 +140,7 @@ chapter = 49
 
 <p>Shiwoo had violently gripped Sehee Nuna's breasts as if fiercely protesting, telling her to stop talking and asking about Sinbi Nuna now.</p>
 
-<p>"A-aah, this one.. this one is just grabbing Nuna's breasts now, isn't he? D-does he really want to get punished~?!"</p>
+<p>"A-aah, this one.. this one is just grabbing Nuna's breasts now, isn't he? D-does he really want to get punished?!"</p>
 
 <p>Sehee Nuna spoke, seemingly flustered by Shiwoo's sudden sadistic action, which was accompanied by a slight pain. Then, with Shiwoo's continuous rough caresses, she made an expression as if her pupils had unfocused, and leaned against Shiwoo, lying down and surrendering her body.</p>
 
@@ -158,7 +158,7 @@ chapter = 49
 
 <p>At Shiwoo's words, Sehee Nuna momentarily moved away from Shiwoo, adjusted her posture, then reached her hands behind her back and obediently unhooked her bra. And she alternately put one arm inside her clothes, separating the bra from her body.</p>
 
-<p>"I like Sehee Nuna the best, I tell you~!!"</p>
+<p>"I like Sehee Nuna the best, I tell you!!"</p>
 
 <p>Even before the bra had fully fallen from Sehee Nuna's body, Shiwoo gripped Sehee Nuna's breasts over her dress and poured out his intense emotions as if shouting. And he pulled Sehee Nuna's body towards his own with even more force than before, harassing Sehee Nuna's breasts as if persistently squeezing them. Shiwoo's piston motion, reaching its limit with Sehee Nuna's seductive moans.</p>
 
@@ -170,7 +170,7 @@ chapter = 49
 
 <p class="scene-break">· · ·</p>
 
-<p>"Haat~...Aah~~ah~~... B-but.. uh.. Mom must have had a really hard time yesterday because of you, Shiwoo, right?"</p>
+<p>"Haat...Aahah... B-but.. uh.. Mom must have had a really hard time yesterday because of you, Shiwoo, right?"</p>
 
 <p>Sehee Nuna's meaningful line, heard by Shiwoo who had been engrossed in caressing and masturbating for a while.</p>
 

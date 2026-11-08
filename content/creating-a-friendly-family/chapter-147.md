@@ -12,7 +12,7 @@ chapter = 147
 
 <p>Shiwoo removed his finger from the button on his smartphone screen and interrogated Seonju Imo, who was lying face down with her face buried in her arm.</p>
 
-<p>,Not a doctor... just someone I know~ Haa... I had a prescription from before and didn't take it, so I had some medicine left... I got that,~</p>
+<p>,Not a doctor... just someone I know Haa... I had a prescription from before and didn't take it, so I had some medicine left... I got that,</p>
 
 <p>Seonju Imo answered Shiwoo's question, catching her breath as the vibrator attached to her clitoris stopped vibrating.</p>
 
@@ -36,7 +36,7 @@ chapter = 147
 
 <p>Shiwoo spoke to Seonju Imo with a slightly irritated tone.</p>
 
-<p>,Right before we got home... Se... Sehee asked me to buy it. Not much, we just... had one can of beer together,~</p>
+<p>,Right before we got home... Se... Sehee asked me to buy it. Not much, we just... had one can of beer together,</p>
 
 <p>Seonju Imo spoke to Shiwoo apologetically, as if making excuses.</p>
 
@@ -48,7 +48,7 @@ chapter = 147
 
 <p>Shiwoo moved his finger upward, adjusting the intensity of the vibrator.</p>
 
-<p>,Heeueueuheut~!,</p>
+<p>,Heeueueuheut!,</p>
 
 <p>Seonju Imo flinched and moaned, shrinking her body from the strong stimulation.</p>
 
@@ -64,7 +64,7 @@ chapter = 147
 
 <p>-Jing! Jiiing!! Jiiiiing!!</p>
 
-<p>,Heut~ Haaheut~ Haaaheut~,</p>
+<p>,Heut Haaheut Haaaheut,</p>
 
 <p>Seonju Imo's moans, mixed with gasps/panting sounds, filled the kitchen where only Shiwoo and she were present.</p>
 
@@ -72,9 +72,9 @@ chapter = 147
 
 <p>Shiwoo continued the conversation, keeping his finger on the smartphone.</p>
 
-<p>-Jiiiiiiing~</p>
+<p>-Jiiiiiiing</p>
 
-<p>,Heut... uh-huh... I... I saw her using it sometimes... Heeheut~,</p>
+<p>,Heut... uh-huh... I... I saw her using it sometimes... Heeheut,</p>
 
 <p>Seonju Imo barely answered Shiwoo's question, struggling to suppress her moans.</p>
 
@@ -84,7 +84,7 @@ chapter = 147
 
 <p>Seonju Imo began to twist her body from the strong vibration.</p>
 
-<p>,A... at family gatherings~ Heung~ Haaheuh Haaang~!,</p>
+<p>,A... at family gatherings Heung Haaheuh Haaang!,</p>
 
 <p>Seonju Imo answered Shiwoo in respectful speech, lifting her buttocks as if reaching climax.</p>
 
@@ -92,7 +92,7 @@ chapter = 147
 
 <p>Shiwoo decided to give her a break, taking his finger off the smartphone for a moment and watching Seonju Imo.</p>
 
-<p>,Haaheueu Haaa Haaheueueueu~,</p>
+<p>,Haaheueu Haaa Haaheueueueu,</p>
 
 <p>Seonju Imo seemed to be easily controlled by just one of Shiwoo's fingers right now.</p>
 
@@ -136,7 +136,7 @@ chapter = 147
 
 <p>Sehee was putting on clothes in the dressing room.</p>
 
-<p>,Now that Sehee is coming out, I think we should start getting ready. Master~ Hehehehe!!,</p>
+<p>,Now that Sehee is coming out, I think we should start getting ready. Master Hehehehe!!,</p>
 
 <p>Seonju Imo straightened her clothes and put the chicken porridge she had scooped into a bowl earlier in the microwave.</p>
 
@@ -150,7 +150,7 @@ chapter = 147
 
 <p>Sehee's face was flushed, as if she was feverish.</p>
 
-<p>,Did you finish showering? I'm microwaving the chicken porridge right now, so come and sit down~ Sehee-ya,</p>
+<p>,Did you finish showering? I'm microwaving the chicken porridge right now, so come and sit down Sehee-ya,</p>
 
 <p>Seonju Imo was talking to Sehee as if nothing had happened, as if she hadn't just reached climax from Shiwoo's finger.</p>
 
@@ -216,7 +216,7 @@ chapter = 147
 
 <p>Shiwoo pressed the hold button on his smartphone as if sulking and fixed the vibrator installed in Seonju Imo's crotch to vibrate at its strongest.</p>
 
-<p>-Jiiiiiiiiiiing~!!</p>
+<p>-Jiiiiiiiiiiing!!</p>
 
 <p>Seonju Imo's vibrator rang with a loud vibration.</p>
 

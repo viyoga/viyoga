@@ -56,7 +56,7 @@ chapter = 345
 
 <p>Shiwoo said to his sisters, holding up his smartphone and displaying the taxi-hailing app on the screen.</p>
 
-<p>"Yeah~ we decided to do that on the way back~ since we have luggage too! Hehe"</p>
+<p>"Yeah we decided to do that on the way back since we have luggage too! Hehe"</p>
 
 <p>Seyoung nodded towards Shiwoo as she answered.</p>
 
@@ -80,7 +80,7 @@ chapter = 345
 
 <p>Shiwoo proudly showed his sisters the photo of the nine-seater van he had just selected.</p>
 
-<p>"Wow~ it's big? I don't think I've ever ridden in something like this before! Hehe~"</p>
+<p>"Wow it's big? I don't think I've ever ridden in something like this before! Hehe"</p>
 
 <p>Seyoung responded to Shiwoo, looking at the photo as if she was happily excited.</p>
 
@@ -148,7 +148,7 @@ chapter = 345
 
 <p>Shiwoo showed the swimsuit he had picked out to his sisters and immediately asked for their opinions without any additional explanation.</p>
 
-<p>"Wow~ it's pretty! Mom would like it, hehe~"</p>
+<p>"Wow it's pretty! Mom would like it, hehe"</p>
 
 <p>Seyoung looked at the sexy swimsuit Shiwoo had picked out and immediately replied as if she knew right away that it was a gift for Mom.</p>
 
@@ -184,7 +184,7 @@ chapter = 345
 
 <p>Thick curtains were installed on each window of the seats divided on both sides.</p>
 
-<p>"I'm going to ride in the very back~"</p>
+<p>"I'm going to ride in the very back"</p>
 
 <p>As soon as the side door that opened and closed automatically opened, Seyoung jumped into the van first.</p>
 

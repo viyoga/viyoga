@@ -48,7 +48,7 @@ chapter = 379
 
 <p>The fan, which he had turned on together to cover up the vibration sound before turning on the vibrator, was not visible now.</p>
 
-<p>"I left it at Seonju Imo-nim's house earlier and put it in my bag... I thought I had to take everything off then... Hehe~"</p>
+<p>"I left it at Seonju Imo-nim's house earlier and put it in my bag... I thought I had to take everything off then... Hehe"</p>
 
 <p>Seyoung took the mini fan out of the crossbody bag she was carrying and spoke with an awkward smile.</p>
 

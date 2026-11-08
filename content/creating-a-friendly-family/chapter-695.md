@@ -32,7 +32,7 @@ chapter = 695
 
 <p>Seeing Shiwoo flinch, Seyoung let out a playful snicker through her nose while her mouth remained full of his penis.</p>
 
-<p>"Gi-geun bwa gu-ge~ su-up jyu-rup! Su-uu-up."</p>
+<p>"Gi-geun bwa gu-ge su-up jyu-rup! Su-uu-up."</p>
 
 <p>Speaking as if to tease Shiwoo, she loosened the intense pressure in her mouth before returning to her original rhythm of sucking his penis.</p>
 

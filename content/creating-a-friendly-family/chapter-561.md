@@ -156,7 +156,7 @@ chapter = 561
 
 <p>Mom stimulates Sehee Nuna's buttocks by scratching them with her fingernails.</p>
 
-<p>"Hau-uu~ ha-eut...ha-um...ha-a-a-a..."</p>
+<p>"Hau-uu ha-eut...ha-um...ha-a-a-a..."</p>
 
 <p>A sigh-like moan escapes from Sehee Nuna's mouth, who was licking Mom's clitoris.</p>
 
@@ -174,7 +174,7 @@ chapter = 561
 
 <p>As if the pre-announced signal had met each other, the tension increased and the two people's bodies gradually stiffened.</p>
 
-<p>"Ha-eu-eung~ ha-a-ang~ hau-uuu~~~ha-a-ang"</p>
+<p>"Ha-eu-eung ha-a-ang hau-uuuha-a-ang"</p>
 
 <p>In the midst of the intense moans that finally erupted, both Mom and Sehee Nuna seemed to have reached their climax, shaking their bodies.</p>
 

@@ -120,7 +120,7 @@ chapter = 239
 
 <p>Shiwoo, holding Sehee Nuna's underwear, went back down to the first-floor living room where Sehee Nuna was.</p>
 
-<p>"Here, wear this~!"</p>
+<p>"Here, wear this!"</p>
 
 <p>Shiwoo hands her the skin-patterned underwear he brought down from Sehee Nuna's room.</p>
 

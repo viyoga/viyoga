@@ -14,13 +14,13 @@ chapter = 80
 
 <p>"Well..."</p>
 
-<p>"Give me your hands~!!"</p>
+<p>"Give me your hands!!"</p>
 
 <p>Seulgi placed both hands on the table, palms facing up, and spoke.</p>
 
 <p>Shiwoo hesitated for a moment, then placed his hands over Seulgi's palms.</p>
 
-<p>"It seems something did happen to Sehee Unnie after you fell asleep last night~! We're going to confirm it together now~! You need to concentrate! Nothing will be revealed if you're not honest with yourself!"</p>
+<p>"It seems something did happen to Sehee Unnie after you fell asleep last night! We're going to confirm it together now! You need to concentrate! Nothing will be revealed if you're not honest with yourself!"</p>
 
 <p>Seulgi spoke as if pressing Shiwoo, who had been taking the fortune-telling lightly.</p>
 
@@ -48,7 +48,7 @@ chapter = 80
 
 <p>Shiwoo felt as if he were lost, like a stray child.</p>
 
-<p>"Something is appearing~"</p>
+<p>"Something is appearing"</p>
 
 <p>Seulgi said to Shiwoo in an exaggerated, excited tone, her gaze fixed on the crystal ball.</p>
 
@@ -62,7 +62,7 @@ chapter = 80
 
 <p>Seulgi briefly raised her head and looked at Shiwoo.</p>
 
-<p>"Shiwoo, you look closely too~!"</p>
+<p>"Shiwoo, you look closely too!"</p>
 
 <p>Shiwoo gazed into the crystal ball Seulgi was looking into.</p>
 
@@ -104,13 +104,13 @@ chapter = 80
 
 <p>Seulgi whispered into Shiwoo's ear.</p>
 
-<p>'It'll definitely be okay~ Mom, Sejin Unnie, Sehee Unnie, Seyoung... and us too...'</p>
+<p>'It'll definitely be okay Mom, Sejin Unnie, Sehee Unnie, Seyoung... and us too...'</p>
 
 <p>A familiar whisper, as if he had experienced it somewhere before...</p>
 
 <p>Shiwoo's mind went blank, and he could no longer think of anything.</p>
 
-<p>"This is all I can tell you for now~!! If you want more, there'll be an extra charge~! Good job~"</p>
+<p>"This is all I can tell you for now!! If you want more, there'll be an extra charge! Good job"</p>
 
 <p>Seulgi faced Shiwoo and flashed a gentle smile.</p>
 
@@ -156,7 +156,7 @@ chapter = 80
 
 <p>Shiwoo abruptly questioned Yu Yena Teacher.</p>
 
-<p>"What are you talking about~?"</p>
+<p>"What are you talking about?"</p>
 
 <p>Yu Yena Teacher asked back in a playful tone, as if teasing Shiwoo.</p>
 
@@ -176,7 +176,7 @@ chapter = 80
 
 <p>Shiwoo looked at Yu Yena Teacher as if pleading for something.</p>
 
-<p>"Now~ calm down~ calm down~"</p>
+<p>"Now calm down calm down"</p>
 
 <p>Yu Yena Teacher stepped forward, wrapped her arms tightly around Shiwoo's body, and stroked his back as if comforting a child.</p>
 
@@ -204,25 +204,25 @@ chapter = 80
 
 <p>Yu Yena Teacher looked at Shiwoo and smiled faintly.</p>
 
-<p>"Yes~ she's receiving psychological therapy in conjunction with her magic classes~"</p>
+<p>"Yes she's receiving psychological therapy in conjunction with her magic classes"</p>
 
 <p>Yu Yena Teacher answered gently.</p>
 
 <p>"Does Seyoung also learn how to hypnotize, by any chance?"</p>
 
-<p>"She'll learn all the basics in the future~ since it's like a stage performance combined with psychology."</p>
+<p>"She'll learn all the basics in the future since it's like a stage performance combined with psychology."</p>
 
 <p>"It's not dangerous, is it?"</p>
 
 <p>Shiwoo brought up a concern he usually had.</p>
 
-<p>"Dangerous? Huhu~ What kind of dangerous thing~?"</p>
+<p>"Dangerous? Huhu What kind of dangerous thing?"</p>
 
 <p>Yu Yena Teacher asked Shiwoo back in a playful tone, just like before.</p>
 
 <p>"I mean, like making someone do strange things while under hypnosis..."</p>
 
-<p>"Well~? What could that be~?"</p>
+<p>"Well? What could that be?"</p>
 
 <p>Yu Yena Teacher tilted her head as if she didn't know, and spoke.</p>
 
@@ -236,13 +236,13 @@ chapter = 80
 
 <p>Yu Yena Teacher, as if she had read Shiwoo's thoughts, straightened her posture and spoke.</p>
 
-<p>"You don't have to worry about that~ hypnosis can't make anyone do anything they don't want to."</p>
+<p>"You don't have to worry about that hypnosis can't make anyone do anything they don't want to."</p>
 
 <p>"It can't make anyone do anything they don't want to??"</p>
 
 <p>Shiwoo repeated Yu Yena Teacher's words, asking.</p>
 
-<p>"Hypnosis is, for example, similar to making someone open a refrigerator door~ without giving a direct command or request. Even if they open the refrigerator door that way, you wouldn't think they were hypnotized, would you? You'd think they opened it for some external reason."</p>
+<p>"Hypnosis is, for example, similar to making someone open a refrigerator door without giving a direct command or request. Even if they open the refrigerator door that way, you wouldn't think they were hypnotized, would you? You'd think they opened it for some external reason."</p>
 
 <p>"That's true, isn't it?"</p>
 
@@ -252,7 +252,7 @@ chapter = 80
 
 <p>"If it were me, I'd subtly let them know that their favorite food is inside the refrigerator. Especially if they're hungry..."</p>
 
-<p>"Ah~!"</p>
+<p>"Ah!"</p>
 
 <p>"What we do in hypnosis therapy is to help people find and fulfill their hidden desires in their subconscious. It's like subtly letting them know their favorite food is inside. If the food they want isn't in there in the first place, you won't be able to make them open the refrigerator door. So, you can never make them do something they don't want to."</p>
 

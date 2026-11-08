@@ -112,7 +112,7 @@ chapter = 381
 
 <p>Shiwoo continued to speak to Seyoung in a threatening tone and attitude.</p>
 
-<p>"O...Oppa... Please... Please... Can't you just... Let me go now...? I really feel like I'm going to pee... Hiiing~!"</p>
+<p>"O...Oppa... Please... Please... Can't you just... Let me go now...? I really feel like I'm going to pee... Hiiing!"</p>
 
 <p>Seyoung, twisting her body and pleading earnestly to Shiwoo with an expression as if she was about to burst into tears as well as urine.</p>
 
@@ -124,7 +124,7 @@ chapter = 381
 
 <p>Seyoung, as if confirming the hope that she could go to the restroom and relieve herself from Shiwoo's voice filled with tenderness, looks at Shiwoo again with a desperate gaze and desperately appeals to her condition.</p>
 
-<p>"Okay~ If it's urgent, then there's nothing I can do... I'll let you pee! Come here! Seyoung-ah~!"</p>
+<p>"Okay If it's urgent, then there's nothing I can do... I'll let you pee! Come here! Seyoung-ah!"</p>
 
 <p>Shiwoo calls Seyoung with a soft smile and a teasing tone.</p>
 

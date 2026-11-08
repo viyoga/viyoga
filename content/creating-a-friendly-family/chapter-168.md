@@ -180,9 +180,9 @@ chapter = 168
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo Oppa, we're here~~"</p>
+<p>"Shiwoo Oppa, we're here"</p>
 
-<p>"I came too, Oppa~"</p>
+<p>"I came too, Oppa"</p>
 
 <p>Seyoung's and Sua's voices were heard along with the sound of the front door opening.</p>
 
@@ -202,13 +202,13 @@ chapter = 168
 
 <p>Shiwoo got up from the sofa and stood awkwardly facing the front door.</p>
 
-<p>"Shiwoo, how have you been? I heard Sehee is sleeping over at a friend's house tonight~ Won't you be lonely tonight, Shiwoo? kikik"</p>
+<p>"Shiwoo, how have you been? I heard Sehee is sleeping over at a friend's house tonight Won't you be lonely tonight, Shiwoo? kikik"</p>
 
 <p>From behind Seyoung and Sua, who were squatting down to take off their shoes, Seonju Imo greeted Shiwoo with a smile, as if joking, in her usual manner.</p>
 
 <p>-As if last night's events had never happened-</p>
 
-<p>"Oh~ Seonju Imo! Did you hear? Sehee Nuna said she's sleeping over~ If you're really worried, why don't you sleep in my room tonight, Seonju Imo?!"</p>
+<p>"Oh Seonju Imo! Did you hear? Sehee Nuna said she's sleeping over If you're really worried, why don't you sleep in my room tonight, Seonju Imo?!"</p>
 
 <p>Shiwoo also played along with Imo's act, pretending not to know.</p>
 
@@ -220,7 +220,7 @@ chapter = 168
 
 <p>But then! As soon as she took off her shoes, Seyoung rushed towards Shiwoo first.</p>
 
-<p>"Shiwoo Oppa~~hehe~"</p>
+<p>"Shiwoo Oppahehe"</p>
 
 <p>Seyoung threw herself into the defenseless Shiwoo's arms.</p>
 

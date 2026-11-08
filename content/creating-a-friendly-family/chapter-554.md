@@ -14,7 +14,7 @@ chapter = 554
 
 <p>In the brief silence, a faint moaning sound could be heard through the crack in Seyoung's room door.</p>
 
-<p>,Haaaa... haaahhh... haaaa~hauuu...,</p>
+<p>,Haaaa... haaahhh... haaaahauuu...,</p>
 
 <p>Mom's moaning sound, seemingly suppressed, flowed faintly from beyond the living room...</p>
 
@@ -24,7 +24,7 @@ chapter = 554
 
 <p>It seemed to be the sound of Sehee Nuna spanking Mom.</p>
 
-<p>,Sehee Unni and Mom must be at it for a while... hehe~,</p>
+<p>,Sehee Unni and Mom must be at it for a while... hehe,</p>
 
 <p>Seyoung speaks to Shiwoo with an expression as if she finds it somewhat amusing.</p>
 
@@ -56,7 +56,7 @@ chapter = 554
 
 <p>Shiwoo's penis throbs as if surging up in response...</p>
 
-<p>,We were doing that all night long... and now we're just switching partners in the morning and doing it again like this, so it feels like we're exchanging partners... it's weird... I feel jealous for no reason... don't you, Shiwoo oppa? Hehe~,</p>
+<p>,We were doing that all night long... and now we're just switching partners in the morning and doing it again like this, so it feels like we're exchanging partners... it's weird... I feel jealous for no reason... don't you, Shiwoo oppa? Hehe,</p>
 
 <p>Seyoung speaks about her impressions of the perverted play that the family is currently engaged in, smiling innocently.</p>
 
@@ -66,7 +66,7 @@ chapter = 554
 
 <p>Seyoung looks up at Shiwoo's face for a moment, as if gauging his mood.</p>
 
-<p>,It's okay~ I can do it for you if you want~ Mom too... me too... communal cumdumpsters...,</p>
+<p>,It's okay I can do it for you if you want Mom too... me too... communal cumdumpsters...,</p>
 
 <p>Seyoung releases one hand that had been holding Shiwoo's arm, caresses Shiwoo's cheek, and speaks.</p>
 

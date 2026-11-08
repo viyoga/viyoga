@@ -38,7 +38,7 @@ chapter = 291
 
 <p>Shiwoo glares fiercely at Mom, who still hasn't answered, and speaks as if threatening her.</p>
 
-<p>'Juein-nim seems angry~ Unnie~ You have to answer quickly! You're going to get in big trouble later~! I'm so scared of being punished by Juein-nim~ Hiiiing~!'</p>
+<p>'Juein-nim seems angry Unnie You have to answer quickly! You're going to get in big trouble later! I'm so scared of being punished by Juein-nim Hiiiing!'</p>
 
 <p>Seonju Imo was watching the conversation between Shiwoo and the mother and daughter, and whether she was worried or wanted to tease Mom, she chimes in on Shiwoo's words as if giving advice.</p>
 
@@ -56,19 +56,19 @@ chapter = 291
 
 <p>As he was almost finished eating, Shiwoo casually talks to Seyoung as if trying to relieve the tension.</p>
 
-<p>"I have to shower~! We decided to go to Sua's house after breakfast, so we should leave around 9 o'clock~"</p>
+<p>"I have to shower! We decided to go to Sua's house after breakfast, so we should leave around 9 o'clock"</p>
 
 <p>Seyoung checks the clock on her smartphone's standby screen and answers Shiwoo's question.</p>
 
-<p>"Ah~ That's right~ Seyoung also has to shower~ You're taking a shower, right? And changing your clothes~! How long does it take to shower? Will 9 o'clock be enough?"</p>
+<p>"Ah That's right Seyoung also has to shower You're taking a shower, right? And changing your clothes! How long does it take to shower? Will 9 o'clock be enough?"</p>
 
 <p>Shiwoo asks Seyoung as if meticulously checking the preparation process after the meal.</p>
 
-<p>"Yeah~ Drying my hair, changing my clothes, and feeding Sae-a! It'll probably be around that time when I leave~"</p>
+<p>"Yeah Drying my hair, changing my clothes, and feeding Sae-a! It'll probably be around that time when I leave"</p>
 
 <p>Seyoung explains to Shiwoo in detail about the time it takes to prepare to go out.</p>
 
-<p>"Okay~ Then I'll change my clothes while Seyoung is showering, and I'll have to watch TV in the living room~"</p>
+<p>"Okay Then I'll change my clothes while Seyoung is showering, and I'll have to watch TV in the living room"</p>
 
 <p>Shiwoo puts his spoon down on the table and speaks as if he is conscious of Mom and Sehee Nuna.</p>
 
@@ -78,15 +78,15 @@ chapter = 291
 
 <p>Or, she was worried that he might try to do something harsh to Seyoung who went into the shower.</p>
 
-<p>"Mom~ Should I help you with the dishes?"</p>
+<p>"Mom Should I help you with the dishes?"</p>
 
 <p>Shiwoo asks Mom, who is making a worried expression, for no reason.</p>
 
-<p>"Ah... no... Mom will do it alone... You have to change your clothes and get ready too, Shiwoo. If you're done eating, go up to your room first~"</p>
+<p>"Ah... no... Mom will do it alone... You have to change your clothes and get ready too, Shiwoo. If you're done eating, go up to your room first"</p>
 
 <p>Mom rejects Shiwoo's help with a roundabout tone, as if she is very uncomfortable with the situation of doing the dishes alone with Shiwoo in the kitchen.</p>
 
-<p>"Okay~ Then I'll go up and change my clothes, and I'll come down after I'm all ready to go~"</p>
+<p>"Okay Then I'll go up and change my clothes, and I'll come down after I'm all ready to go"</p>
 
 <p>Shiwoo speaks as if accepting Mom's roundabout rejection.</p>
 
@@ -164,11 +164,11 @@ chapter = 291
 
 <p>Perhaps it was a confirmation of Shiwoo's order to have her eat Shiwoo's semen in the condom in front of Sehee Nuna.</p>
 
-<p>'Of course! You have to do it~! You've already answered everything, so what are you asking now? It's not like you haven't eaten mine before, right?'</p>
+<p>'Of course! You have to do it! You've already answered everything, so what are you asking now? It's not like you haven't eaten mine before, right?'</p>
 
 <p>Shiwoo writes a reply to Mom in a tone as if he is annoyed for no reason.</p>
 
-<p>'That's true, but... can't I not eat it in front of Sehee? It's really hard for Mom right now~'</p>
+<p>'That's true, but... can't I not eat it in front of Sehee? It's really hard for Mom right now'</p>
 
 <p>Mom was telling Shiwoo as if conveying her difficult feelings.</p>
 
@@ -176,7 +176,7 @@ chapter = 291
 
 <p>Shiwoo reminds her of the fact that he had her mix his semen into Mom's wine glass, which still had wine left in it, and drink it last night.</p>
 
-<p>'It's because you told me to do it when we're alone! And you told me to use respectful speech? It's really awkward for Mom to do that with Sehee~! If you give it to Mom, I'll take it and eat it later~ okay?'</p>
+<p>'It's because you told me to do it when we're alone! And you told me to use respectful speech? It's really awkward for Mom to do that with Sehee! If you give it to Mom, I'll take it and eat it later okay?'</p>
 
 <p>Mom seemed to feel really embarrassed and awkward as a mother to receive and drink Shiwoo's semen in front of Sehee Nuna when they were alone.</p>
 
@@ -184,6 +184,6 @@ chapter = 291
 
 <p>Shiwoo is explaining the reason why he can't listen to Mom's words with a firm attitude.</p>
 
-<p>'I'll take a separate video of that and send it to you~ Please, Shiwoo~!'</p>
+<p>'I'll take a separate video of that and send it to you Please, Shiwoo!'</p>
 
 <p>Mom is now pleading with Shiwoo in a text message.</p>

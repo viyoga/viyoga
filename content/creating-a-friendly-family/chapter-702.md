@@ -84,7 +84,7 @@ chapter = 702
 
 <p>Seyoung obsessively moved her tongue, wiggling it to widen the space in that subtle crevice of flesh.</p>
 
-<p>Chu-rup chu-ap chu-up~ chu-um...!</p>
+<p>Chu-rup chu-ap chu-up chu-um...!</p>
 
 <p>Seyoung's tongue, which had pushed into the widened gap, finally tangled with Sehee-noona's tongue, and together they began to sweep over Mom's nipple.</p>
 
@@ -124,7 +124,7 @@ chapter = 702
 
 <p>Seyoung, who had been licking Mom's breast along with Sehee-noona's lips, was pushed back by the violent movements Shiwoo was making.</p>
 
-<p>"Hee-ee-eeng~!"</p>
+<p>"Hee-ee-eeng!"</p>
 
 <p>Seyoung made a playful, sulky expression, like a child who had been robbed of a snack or candy.</p>
 
@@ -168,7 +168,7 @@ chapter = 702
 
 <p>Shiwoo tilted his shaking penis forward and, this time, found Mom's crack and pushed it in.</p>
 
-<p>Chul-peok~!</p>
+<p>Chul-peok!</p>
 
 <p>"Ha-eu-eu-eeut!"</p>
 
@@ -218,6 +218,6 @@ chapter = 702
 
 <p>Mom, feeling the sensation of the metal bulb that had been in her mouth now against her sensitive flesh below, moaned in flustered surprise and stiffened her body.</p>
 
-<p>"No~! You can't be so greedy and go back and forth like that! And right now, it's Sehee-onni's turn!"</p>
+<p>"No! You can't be so greedy and go back and forth like that! And right now, it's Sehee-onni's turn!"</p>
 
 <p>Seyoung spoke as if giving a warning, her voice a mix of playfulness and humor, with her lips pressed tight against Shiwoo's back.</p>

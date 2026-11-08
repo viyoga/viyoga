@@ -46,7 +46,7 @@ chapter = 27
 
 <p>Shiwoo put strength into both hands and roughly grabbed Gyuri Ajumma's buttocks.</p>
 
-<p>"Haa~~"</p>
+<p>"Haa"</p>
 
 <p>Gyuri Ajumma's heavy breathing could be heard.</p>
 
@@ -190,7 +190,7 @@ chapter = 27
 
 <p>Mom glanced at Shiwoo, sighed, and alternately lifted her feet to allow him to remove her panties.</p>
 
-<p>"Our Mom is so good~"</p>
+<p>"Our Mom is so good"</p>
 
 <p>Shiwoo stood up and stroked Mom's buttocks, which were still turned away and standing still with her head lowered.</p>
 
@@ -278,7 +278,7 @@ chapter = 27
 
 <p>Shiwoo moved back and forth a few times inside Gyuri's throat, then pulled his thing from Gyuri's mouth.</p>
 
-<p>"Haaak kulleok kek huaaa~huaak"</p>
+<p>"Haaak kulleok kek huaaahuaak"</p>
 
 <p>Gyuri finally caught her breath.</p>
 

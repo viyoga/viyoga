@@ -32,7 +32,7 @@ chapter = 684
 
 <p>With an intense hammering of his penis unlike anything before, Shiwoo pounds into her as if he intends to rupture Seonju-imo's vaginal hole.</p>
 
-<p>"Ha-ang... ha-aaa... ha-eung~! Ha-aang! Hau~ ha-ang! Shiwoo-ya~! Ha-ang! No... no more... ha-ah... ha-ang hau! Shiwoo-ya! Ha-ang Juin-nim!! Hauuuung~!"</p>
+<p>"Ha-ang... ha-aaa... ha-eung! Ha-aang! Hau ha-ang! Shiwoo-ya! Ha-ang! No... no more... ha-ah... ha-ang hau! Shiwoo-ya! Ha-ang Juin-nim!! Hauuuung!"</p>
 
 <p>Under the force of Shiwoo's powerful ramming, the likes of which she had never experienced, Seonju-imo lets out shrieking moans that seem ready to tear through the house.</p>
 

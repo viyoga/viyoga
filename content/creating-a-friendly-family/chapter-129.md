@@ -52,7 +52,7 @@ chapter = 129
 
 <p>Perhaps he could get a hint from Gyuri Ajumma about the future relationships with his family.</p>
 
-<p>「Why~? What if that person... wasn't here? Ho...could it be that you, Shiwoo, have feelings for me?... Haaat... If I become that kind of relationship with you... Se...Seonmi will really scold me~?」</p>
+<p>「Why? What if that person... wasn't here? Ho...could it be that you, Shiwoo, have feelings for me?... Haaat... If I become that kind of relationship with you... Se...Seonmi will really scold me?」</p>
 
 <p>As Gyuri Ajumma spoke to Shiwoo, her vaginal walls and pussy flesh were strongly tightening around Shiwoo's cock.</p>
 
@@ -66,7 +66,7 @@ chapter = 129
 
 <p>Shiwoo's thrusting suddenly intensified, as if trying to defuse a situation where he seemed to be getting a somewhat absurd misunderstanding from Gyuri Ajumma.</p>
 
-<p>「Haaat Haaaat Haaang~ I thought, haa... what was that... Ah, it's funny... I, haaat... really in this state, heueueut... don't even have the energy to laugh... hehe... drinking kimchi soup alone... heueu...」</p>
+<p>「Haaat Haaaat Haaang I thought, haa... what was that... Ah, it's funny... I, haaat... really in this state, heueueut... don't even have the energy to laugh... hehe... drinking kimchi soup alone... heueu...」</p>
 
 <p>Gyuri Ajumma, unable to move and heading towards climax from Shiwoo's fierce thrusting, mixed her words with moans as if trying to hide her embarrassment.</p>
 
@@ -112,7 +112,7 @@ chapter = 129
 
 <p>Shiwoo could no longer pretend not to know the joke Seonju Imo had let slip.</p>
 
-<p>「N...now... Huhu... Se...Seonmi, what's she going to say to me~? Sh...she's the one who broke the promise from the start... Should we just do it openly for Seonmi to see? Ad...adultery? Heueueuk...」</p>
+<p>「N...now... Huhu... Se...Seonmi, what's she going to say to me? Sh...she's the one who broke the promise from the start... Should we just do it openly for Seonmi to see? Ad...adultery? Heueueuk...」</p>
 
 <p>Gyuri Ajumma, speaking while trembling as if reaching climax.</p>
 
@@ -148,7 +148,7 @@ chapter = 129
 
 <p>Shiwoo strongly slapped Gyuri Ajumma's buttocks as if urging an answer.</p>
 
-<p>「Haaat... Ev...everything! My...my husband and...children...co...contract.... Haaak... Haaaeuuung~」</p>
+<p>「Haaat... Ev...everything! My...my husband and...children...co...contract.... Haaak... Haaaeuuung」</p>
 
 <p>Gyuri Ajumma, mumbling incomprehensible words, came.</p>
 
@@ -200,7 +200,7 @@ chapter = 129
 
 <p>The furious piston strokes continued unabated.</p>
 
-<p>Heueueup Heuap Heuaap~</p>
+<p>Heueueup Heuap Heuaap</p>
 
 <p>Gyuri Ajumma, her mouth covered by Shiwoo's hand, shook her head from side to side, thrashing madly.</p>
 

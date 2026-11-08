@@ -162,7 +162,7 @@ chapter = 138
 
 <p>Gyuri Ajumma's mouth and hand movements were speeding up.</p>
 
-<p>,Ah~ Gyu...Gyuri-ya!,</p>
+<p>,Ah Gyu...Gyuri-ya!,</p>
 
 <p>-Pusyuk! Pusyuk! Pusyuuuk!-</p>
 

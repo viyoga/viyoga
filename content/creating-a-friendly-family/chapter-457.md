@@ -88,7 +88,7 @@ chapter = 457
 
 <p>Mom's trembling breathing is heard through the smartphone's speaker.</p>
 
-<p>"It must be cold, you shouldn't catch a cold, so put on your clothes quickly~"</p>
+<p>"It must be cold, you shouldn't catch a cold, so put on your clothes quickly"</p>
 
 <p>Shiwoo speaks kindly as if thinking of Mom.</p>
 
@@ -208,9 +208,9 @@ chapter = 457
 
 <p>The climax that she had been holding back had risen to Shiwoo's chin.</p>
 
-<p>"Haa-eut! Sehee-ya! Sehee Nuna~!"</p>
+<p>"Haa-eut! Sehee-ya! Sehee Nuna!"</p>
 
-<p>"Shi...Shiwoo-ya...haa-eung Master~~!"</p>
+<p>"Shi...Shiwoo-ya...haa-eung Master!"</p>
 
 <p>The two were about to reach their climax, calling each other by different titles.</p>
 

@@ -30,13 +30,13 @@ chapter = 299
 
 <p>But even with Shiwoo's sudden actions, Seyoung walked naturally as if nothing had happened, keeping her back straight.</p>
 
-<p>,Yeah~ I only wore panties inside~ I thought it was too early to wear a bra~! What do you think, Oppa? Does it look too weird?,</p>
+<p>,Yeah I only wore panties inside I thought it was too early to wear a bra! What do you think, Oppa? Does it look too weird?,</p>
 
 <p>Seyoung answered Shiwoo's question with a nonchalant attitude, as if nothing was wrong.</p>
 
 <p>Seyoung was asking her oppa, who was looking inside her clothes after lifting them up without permission, as if asking for his impressions and opinions about her body.</p>
 
-<p>,Ah... no... it's not weird~! It's pretty... I think you can wait until your breasts get a little bigger to wear a bra.,</p>
+<p>,Ah... no... it's not weird! It's pretty... I think you can wait until your breasts get a little bigger to wear a bra.,</p>
 
 <p>Shiwoo was answering while looking down at Seyoung's pudding-like bare breasts with a different feeling.</p>
 
@@ -46,7 +46,7 @@ chapter = 299
 
 <p>This kind of lewd conversation, looking directly at Seyoung's breasts, made Shiwoo's heart beat so fast it felt like it would burst.</p>
 
-<p>,Really~? I hope my breasts get as big as Sehee Unni's or Mom's soon~ Hehe~,</p>
+<p>,Really? I hope my breasts get as big as Sehee Unni's or Mom's soon Hehe,</p>
 
 <p>Seyoung was speaking as if accepting Shiwoo's molestation as if it were a familiar topic of conversation that they had been having normally.</p>
 
@@ -60,7 +60,7 @@ chapter = 299
 
 <p>But now, Shiwoo judged that there was no longer any need to be concerned about the titles of the enslaved family members, even in front of Seyoung, so Shiwoo subtly called Mom's name as if he was casually checking Seyoung's reaction.</p>
 
-<p>,Hehe~ Really~?,</p>
+<p>,Hehe Really?,</p>
 
 <p>Seyoung asked back, seeming happy with Shiwoo's words of praise.</p>
 
@@ -72,7 +72,7 @@ chapter = 299
 
 <p>Shiwoo lowered the dress fabric covering Seyoung's chest that he had been lifting with his index finger.</p>
 
-<p>,Yeah~ Really~! And the size will get bigger soon anyway~! If you look at Sehee, she started getting bigger when she went to the intermediate academy~! Remember?,</p>
+<p>,Yeah Really! And the size will get bigger soon anyway! If you look at Sehee, she started getting bigger when she went to the intermediate academy! Remember?,</p>
 
 <p>Shiwoo said, gently supporting the lower part of Seyoung's breasts with his palm.</p>
 
@@ -98,7 +98,7 @@ chapter = 299
 
 <p class="scene-break">· · ·</p>
 
-<p>,Oppa~! But what happened to the perfume I gave you as a gift?,</p>
+<p>,Oppa! But what happened to the perfume I gave you as a gift?,</p>
 
 <p>Seyoung watched her oppa, who was massaging her breasts, and asked in a bold tone.</p>
 
@@ -108,7 +108,7 @@ chapter = 299
 
 <p>Shiwoo was trying to explain to Seyoung about breaking the perfume.</p>
 
-<p>,You broke it? Tsk tsk~ You should be more careful!,</p>
+<p>,You broke it? Tsk tsk You should be more careful!,</p>
 
 <p>Seyoung interrupted her oppa and said as if scolding him.</p>
 
@@ -122,7 +122,7 @@ chapter = 299
 
 <p>Seyoung said, looking at Shiwoo with a worried expression.</p>
 
-<p>,Yeah~! I don't think I was hurt!,</p>
+<p>,Yeah! I don't think I was hurt!,</p>
 
 <p>Shiwoo was talking proudly as if boasting that he wasn't hurt, even though his face was scarred here and there from the fight.</p>
 
@@ -144,11 +144,11 @@ chapter = 299
 
 <p>In a daze, Shiwoo answered Seyoung's question with an uncertain tone.</p>
 
-<p>,Then that's enough~ Hehe~,</p>
+<p>,Then that's enough Hehe,</p>
 
 <p>Seyoung had returned from a scolding tone to her usual bright and kind tone.</p>
 
-<p>,I'm looking forward to the aquarium today~!,</p>
+<p>,I'm looking forward to the aquarium today!,</p>
 
 <p>Seyoung then said that and released the arm she had been holding with Shiwoo.</p>
 
@@ -176,7 +176,7 @@ chapter = 299
 
 <p>Seyoung, who had arrived a few steps ahead, pressed the doorbell for a long time as if she was familiar with it.</p>
 
-<p>,Oh~! Seyoung and Shiwoo are already here? Just a moment~! Sua is doing something right now~,</p>
+<p>,Oh! Seyoung and Shiwoo are already here? Just a moment! Sua is doing something right now,</p>
 
 <p>Before long, Seonju Imo greeted her nephews and nieces with a bright voice through the intercom.</p>
 
@@ -184,7 +184,7 @@ chapter = 299
 
 <p>And soon the iron door of the entrance opened.</p>
 
-<p>,It seems like Sua isn't ready yet~ Let's go in and wait~ Shiwoo Oppa~!,</p>
+<p>,It seems like Sua isn't ready yet Let's go in and wait Shiwoo Oppa!,</p>
 
 <p>Seyoung turned to Shiwoo and smiled slightly, then entered through the open door.</p>
 

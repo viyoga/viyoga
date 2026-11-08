@@ -84,7 +84,7 @@ chapter = 420
 
 <p>He was also adjusting the speed of the hand supporting and enveloping her breasts to match the movement of his penis.</p>
 
-<p>"Seyoung's breasts seem to have grown a lot since I last saw them~? Kids really grow up fast, don't they?"</p>
+<p>"Seyoung's breasts seem to have grown a lot since I last saw them? Kids really grow up fast, don't they?"</p>
 
 <p>Shiwoo asked Mom, as if continuing from the conversation they had before the insertion.</p>
 
@@ -96,11 +96,11 @@ chapter = 420
 
 <p>Mom soon exhaled again and answered, as if responding to Shiwoo's words about her daughter.</p>
 
-<p>"If she keeps growing like this, she'll catch up to Sehee's breasts soon~ But this chest is probably impossible, right?"</p>
+<p>"If she keeps growing like this, she'll catch up to Sehee's breasts soon But this chest is probably impossible, right?"</p>
 
 <p>Shiwoo casually kneaded Mom's breasts, as if comparing them to his daughters, and talked about Seyoung's growth potential.</p>
 
-<p>"Hau... Hoo-a-a-a~"</p>
+<p>"Hau... Hoo-a-a-a"</p>
 
 <p>Mom was emitting irregular bursts of rough breathing, like someone who didn't know how to react.</p>
 
@@ -154,7 +154,7 @@ chapter = 420
 
 <p>Shiwoo stopped the movement of his waist, so that Mom could focus on the stimulation he was creating on her nipples, and spoke while rubbing her nipples with his entire palm as if stroking them.</p>
 
-<p>"Tonight, let's have Seyoung suck on your breasts properly while she's awake and get fucked by me~"</p>
+<p>"Tonight, let's have Seyoung suck on your breasts properly while she's awake and get fucked by me"</p>
 
 <p>Shiwoo's words were no longer even in the form of asking for an opinion, but were more like an order.</p>
 
@@ -170,7 +170,7 @@ chapter = 420
 
 <p>Her vagina hole, which had been tightly enveloping Shiwoo's penis as she was bent over as if stiffened, suddenly began to convulse violently.</p>
 
-<p>"Haa-eu-eu-eung.. Haa-a-ang....Haa-eu-eu~ Haa-heu-eu-eung~!!"</p>
+<p>"Haa-eu-eu-eung.. Haa-a-ang....Haa-eu-eu Haa-heu-eu-eung!!"</p>
 
 <p>Now, she had no time or余裕to suppress the pleasure that was washing over her, and Mom was spewing out frivolous moaning sounds while being pinned down by Shiwoo.</p>
 

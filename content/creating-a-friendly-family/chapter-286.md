@@ -4,7 +4,7 @@ weight = 286
 [extra]
 chapter = 286
 +++
-<p>,Ugh... it wasn't me... Haa... I was constantly harassed by Seyoung after you left yesterday and fell asleep like that... Haaa~ B... But... Mom said it wasn't her either, right? Heu-eut~!,</p>
+<p>,Ugh... it wasn't me... Haa... I was constantly harassed by Seyoung after you left yesterday and fell asleep like that... Haaa B... But... Mom said it wasn't her either, right? Heu-eut!,</p>
 
 <p>Sehee Nuna, having seen the text conversation between Shiwoo and Mom, seemed to already deduce the culprit who had visited Shiwoo's room during the night, her vagina hole twitching as she spoke.</p>
 
@@ -70,7 +70,7 @@ chapter = 286
 
 <p>As the sensation of last night, which had felt so real even in his drowsiness, came to mind once again, blood rushed to Shiwoo's thing.</p>
 
-<p>,Haa-eu-eu-eut~!,</p>
+<p>,Haa-eu-eu-eut!,</p>
 
 <p>Sehee Nuna let out a rough breath as she felt a throbbing stimulation in her genitals, tightening the limbs that had been embracing Shiwoo.</p>
 
@@ -84,11 +84,11 @@ chapter = 286
 
 <p>Shiwoo's pounding, as if driving his pelvis into Sehee Nuna's body while embracing her, continued.</p>
 
-<p>,Haa-eut~! Haa-at~! Haa-ang! Haa-at!!,</p>
+<p>,Haa-eut! Haa-at! Haa-ang! Haa-at!!,</p>
 
 <p>Sehee Nuna's moaning sound, which she was suppressing as much as possible as if conscious of Seyoung on the first floor.</p>
 
-<p>,It doesn't matter anymore anyway~?! Whether it's Mom or Seyoung!!,</p>
+<p>,It doesn't matter anymore anyway?! Whether it's Mom or Seyoung!!,</p>
 
 <p>Shiwoo said as if mocking Sehee Nuna, who was suppressing her moaning sound.</p>
 
@@ -100,7 +100,7 @@ chapter = 286
 
 <p>Shiwoo's pelvis struck Sehee Nuna's crotch, creating lewd popping sounds.</p>
 
-<p>,Haeuk! Hae-euk! Haa-at! Haa~! Hauuu~!,</p>
+<p>,Haeuk! Hae-euk! Haa-at! Haa! Hauuu!,</p>
 
 <p>Each time the huge penis was thrust deep into Sehee Nuna's hole, her head, which had been buried in Shiwoo's shoulder, was thrown back, and a pitiful moaning sound was spewed from her mouth.</p>
 
@@ -132,7 +132,7 @@ chapter = 286
 
 <p>Shiwoo said as if scolding Sehee Nuna.</p>
 
-<p>,M... Master-nim... Haeu-eu~ Pl... Please forgive me~ Ha-at,,</p>
+<p>,M... Master-nim... Haeu-eu Pl... Please forgive me Ha-at,,</p>
 
 <p>Sehee Nuna, calling Shiwoo by the title of Master-nim and begging for forgiveness.</p>
 
@@ -142,7 +142,7 @@ chapter = 286
 
 <p>In that instant, Shiwoo repeatedly performed powerful piston strokes on Sehee Nuna's vagina hole, which had been loosened as she let her guard down.</p>
 
-<p>-Pueok! Peok! Peok! Peok~! Peok!</p>
+<p>-Pueok! Peok! Peok! Peok! Peok!</p>
 
 <p>Shiwoo's massive penis was thrust into Sehee Nuna's vagina hole as if piercing through it.</p>
 

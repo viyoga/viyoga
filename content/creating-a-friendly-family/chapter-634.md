@@ -12,7 +12,7 @@ chapter = 634
 
 <p>Shiwoo replied, pulling the bag he had been holding in front of him tightly against his stomach to hide his penis.</p>
 
-<p>"This is an event cafe, so it's rare for someone to come alone on their first visit. You must be quite adventurous? Kukuk ~!"</p>
+<p>"This is an event cafe, so it's rare for someone to come alone on their first visit. You must be quite adventurous? Kukuk !"</p>
 
 <p>The clerk let out a light, joking laugh, as if trying to ease the tension for the awkward Shiwoo.</p>
 
@@ -22,7 +22,7 @@ chapter = 634
 
 <p>Shiwoo babbled on, unnecessarily explaining himself just to hide his embarrassment.</p>
 
-<p>"Ah~ I see~?"</p>
+<p>"Ah I see?"</p>
 
 <p>The young female clerk reacted as if she understood the situation after hearing Shiwoo's story.</p>
 
@@ -32,7 +32,7 @@ chapter = 634
 
 <p>Shiwoo was certain that this young female clerk guiding him now also knew the secrets of that space within the severed darkness.</p>
 
-<p>"Just a moment~"</p>
+<p>"Just a moment"</p>
 
 <p>The female clerk leaned her body forward slightly, as if tidying the baskets placed on the table.</p>
 
@@ -74,7 +74,7 @@ chapter = 634
 
 <p>Shiwoo asked back, unable to hide his somewhat excited tone.</p>
 
-<p>"When there's a special meeting or something to commemorate~ occasionally..."</p>
+<p>"When there's a special meeting or something to commemorate occasionally..."</p>
 
 <p>The clerk nuna answered with a quiet laugh, not avoiding Shiwoo's gaze.</p>
 
@@ -100,7 +100,7 @@ chapter = 634
 
 <p>Shiwoo asked, as if trying to confirm the internal affairs of the Blackout Cafe in more detail.</p>
 
-<p>"Hmm... perhaps~?"</p>
+<p>"Hmm... perhaps?"</p>
 
 <p>She answered with a playful expression, a smile playing on her lips.</p>
 
@@ -110,7 +110,7 @@ chapter = 634
 
 <p>She seemed lost in thought for a moment at Shiwoo's question.</p>
 
-<p>"You can't... and you mustn't! Recognizing each other... is against the rules~"</p>
+<p>"You can't... and you mustn't! Recognizing each other... is against the rules"</p>
 
 <p>She spoke as if giving him a hint about the rules within the Blackout Cafe.</p>
 
@@ -122,7 +122,7 @@ chapter = 634
 
 <p>Shiwoo asked, feeling puzzled by her reaction yet also as if he had discovered an interesting fact.</p>
 
-<p>"Yeah~ it's against the rules! Well~ it's not like there's no way to recognize each other, but..."</p>
+<p>"Yeah it's against the rules! Well it's not like there's no way to recognize each other, but..."</p>
 
 <p>She answered as if giving another hint about the rules and secrets of the Blackout Cafe, then playfully trailed off, murmuring as if whispering.</p>
 
@@ -152,7 +152,7 @@ chapter = 634
 
 <p>However—</p>
 
-<p>"There~! I'll guide you inside now~ Shall we go in this way?"</p>
+<p>"There! I'll guide you inside now Shall we go in this way?"</p>
 
 <p>As if cutting through Shiwoo's delusions, the clerk nuna straightened her waist and spoke while pointing toward the curtain of the door leading inside.</p>
 

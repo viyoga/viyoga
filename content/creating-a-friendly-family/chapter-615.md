@@ -154,7 +154,7 @@ chapter = 615
 
 <p>At the same time that Shiwoo was thrusting his penis into Sejin Nuna's vagina hole, he was scraping the protruding bump with the tip of his finger.</p>
 
-<p>"Haa-u...haa-aang...Juin-nim haa-euk...Juin-nim~!"</p>
+<p>"Haa-u...haa-aang...Juin-nim haa-euk...Juin-nim!"</p>
 
 <p>Sejin Nuna called Shiwoo Juinnim and moaned in a pleading voice.</p>
 
@@ -210,6 +210,6 @@ chapter = 615
 
 <p>Each time she laughed, her vagina hole seemed to reverberate loudly as it strongly gripped Shiwoo's penis.</p>
 
-<p>"I thought you were pretending not to know while playing dumb, but you still hadn't checked everything~? Kukuk..."</p>
+<p>"I thought you were pretending not to know while playing dumb, but you still hadn't checked everything? Kukuk..."</p>
 
 <p>Sejin Nuna was talking in a tone as if she was teasing Shiwoo, as if she was enjoying something.</p>

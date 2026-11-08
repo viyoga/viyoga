@@ -104,7 +104,7 @@ chapter = 449
 
 <p>Shiwoo's penis slowly slides into Sehee Nuna's slick vagina hole.</p>
 
-<p>"Haa-euuuu-euk...Haaaaaaa...Huuuuuuu~"</p>
+<p>"Haa-euuuu-euk...Haaaaaaa...Huuuuuuu"</p>
 
 <p>Sehee Nuna moans as if fully feeling Shiwoo's penis, which is slowly sweeping across her sensitive inner flesh as it penetrates.</p>
 

@@ -8,11 +8,11 @@ chapter = 199
 
 <p>Shiwoo subtly turned his head towards Sehee Nuna, who was clinging to him, her arm linked with his, as if leaning against him, and spoke.</p>
 
-<p>"Alright~ Then we should part ways here, shouldn't we?! Hmph~"</p>
+<p>"Alright Then we should part ways here, shouldn't we?! Hmph"</p>
 
 <p>Yu Yena Teacher was smiling sweetly as she looked at Shiwoo and Sehee Nuna.</p>
 
-<p>"Yes, thank you~"</p>
+<p>"Yes, thank you"</p>
 
 <p>Shiwoo bowed his head slightly and once again expressed his gratitude to Yu Yena Teacher.</p>
 
@@ -24,7 +24,7 @@ chapter = 199
 
 <p>The seductive curves flowing from her slender waist to her hips further stiffened Shiwoo's erect 'thing'.</p>
 
-<p>"Well then, I'll be going now~ Shiwoo and Sehee, go home safely~!"</p>
+<p>"Well then, I'll be going now Shiwoo and Sehee, go home safely!"</p>
 
 <p>Yu Yena Teacher winked at Shiwoo and Sehee Nuna and spoke.</p>
 
@@ -124,17 +124,17 @@ chapter = 199
 
 <p>Sehee Nuna was clinging to Shiwoo, a significant portion of her body provocatively exposed.</p>
 
-<p>"I don't know... I'm sleepy~"</p>
+<p>"I don't know... I'm sleepy"</p>
 
 <p>Sehee Nuna spoke to Shiwoo in a whining tone.</p>
 
-<p>"That's why we should go home~ Sehee Nuna~ It's too late now, we have to go in~"</p>
+<p>"That's why we should go home Sehee Nuna It's too late now, we have to go in"</p>
 
 <p>Shiwoo spoke, coaxing the whining Sehee Nuna as if she were a child.</p>
 
 <p>Shiwoo's way of addressing Sehee Nuna had, without him realizing, returned from calling her by her name informally to the usual 'Nuna'.</p>
 
-<p>"Your lips are all chapped~ Your face is so swollen, and there's blood on your clothes... What if a taxi driver sees us wandering around at this hour and reports us to the police again?"</p>
+<p>"Your lips are all chapped Your face is so swollen, and there's blood on your clothes... What if a taxi driver sees us wandering around at this hour and reports us to the police again?"</p>
 
 <p>Sehee Nuna spoke, nagging Shiwoo about his condition.</p>
 
@@ -142,7 +142,7 @@ chapter = 199
 
 <p>Shiwoo spoke, flustered, as if he hadn't thought of that.</p>
 
-<p>"I don't know! I'm sleepy right now~ Just don't say anything and follow me~"</p>
+<p>"I don't know! I'm sleepy right now Just don't say anything and follow me"</p>
 
 <p>Sehee Nuna repeated the same line as if annoyed, pulling Shiwoo's arm as if leading him.</p>
 
@@ -176,7 +176,7 @@ chapter = 199
 
 <p>Sehee Nuna walked to the elevator, stood there, and pressed the button to go up to the upper floor.</p>
 
-<p>"Don't think anything weird! I've only come here a few times with Sinbi out of curiosity~"</p>
+<p>"Don't think anything weird! I've only come here a few times with Sinbi out of curiosity"</p>
 
 <p>Sehee Nuna stood facing the elevator, offering an answer to an unasked question as if making an excuse.</p>
 
@@ -188,7 +188,7 @@ chapter = 199
 
 <p>"The jacket doesn't show it much, so you can take it to the dry cleaner later..."</p>
 
-<p>"And shower first! I think I'll take a while~"</p>
+<p>"And shower first! I think I'll take a while"</p>
 
 <p>Sehee Nuna gave Shiwoo instructions, rambling on as if nagging him.</p>
 
@@ -212,11 +212,11 @@ chapter = 199
 
 <p>On the bedside table next to the round bed, towels and disposable items were laid out, and about three condoms were also provided.</p>
 
-<p>"Ah, I'm thirsty~"</p>
+<p>"Ah, I'm thirsty"</p>
 
 <p>As soon as she entered, Sehee Nuna opened the door of the nearby mini-fridge, took out two cold cans of beer, and handed one to Shiwoo.</p>
 
-<p>"Drink that and go straight into the shower, and wash the clothes you're wearing with you~"</p>
+<p>"Drink that and go straight into the shower, and wash the clothes you're wearing with you"</p>
 
 <p>Sehee Nuna spoke, holding the beer can in one hand and perching on the round bed.</p>
 

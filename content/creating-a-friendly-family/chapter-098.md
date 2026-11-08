@@ -4,7 +4,7 @@ weight = 98
 [extra]
 chapter = 98
 +++
-<p>"Haa~ haaaa heueuk... haaaang~ haa~"</p>
+<p>"Haa haaaa heueuk... haaaang haa"</p>
 
 <p>Shiwoo's Sehee Nuna, covered in Shiwoo's semen, was kneeling and bent over on the shower floor, supporting herself with her hands.</p>
 
@@ -72,7 +72,7 @@ chapter = 98
 
 <p>As soon as one protruding bump touched Shiwoo's middle finger roughly, Sehee Nuna's back jumped up.</p>
 
-<p>"Haaaak~!!!"</p>
+<p>"Haaaak!!!"</p>
 
 <p>A scream as if she was in agony.</p>
 
@@ -94,7 +94,7 @@ chapter = 98
 
 <p>-So that Sehee Nuna couldn't even think about raising her head again-</p>
 
-<p>"Haaaa~ heueu... hu-ha... haaaa~"</p>
+<p>"Haaaa heueu... hu-ha... haaaa"</p>
 
 <p>Sehee Nuna was breathing heavily, with her face touching the filth on the floor.</p>
 
@@ -114,7 +114,7 @@ chapter = 98
 
 <p>Shiwoo's three fingers were swallowed as if fixed in Sehee Nuna's front and back holes.</p>
 
-<p>"Heu-heu-eut... heu-at... ha-at~"</p>
+<p>"Heu-heu-eut... heu-at... ha-at"</p>
 
 <p>A humiliating moan flowed from Sehee Nuna's mouth.</p>
 
@@ -122,7 +122,7 @@ chapter = 98
 
 <p>Shiwoo shook his arm as it was, vibrating Sehee Nuna's pelvis.</p>
 
-<p>"Ha... haaaat~!! Shi... Shiwoo-hyaaaat~!!"</p>
+<p>"Ha... haaaat!! Shi... Shiwoo-hyaaaat!!"</p>
 
 <p>Sehee Nuna called out Shiwoo's name as if in agony.</p>
 
@@ -130,7 +130,7 @@ chapter = 98
 
 <p>Sehee Nuna's pelvis, twisting and trembling as if trying to escape from Shiwoo's hand.</p>
 
-<p>"Haaaaaa... heuaaaaa~~"</p>
+<p>"Haaaaaa... heuaaaaa"</p>
 
 <p>Soon after, along with a loud cry, Sehee Nuna trembled violently all over her body as if reaching climax.</p>
 
@@ -186,7 +186,7 @@ chapter = 98
 
 <p>The tip of his glans split Sehee Nuna's crevice and rested appropriately in the hole that had been widened with his fingers.</p>
 
-<p>"A-at~!!"</p>
+<p>"A-at!!"</p>
 
 <p>Sehee Nuna's urgent voice.</p>
 
@@ -204,7 +204,7 @@ chapter = 98
 
 <p>Sehee Nuna's vaginal muscles, sticking to Shiwoo's penis flesh as if squeezing it, created strong pressure and friction.</p>
 
-<p>"Haak~! Haaaa! Ha-eut haaak!!"</p>
+<p>"Haak! Haaaa! Ha-eut haaak!!"</p>
 
 <p>An erotic cry bursting from Sehee Nuna's mouth.</p>
 
@@ -222,7 +222,7 @@ chapter = 98
 
 <p>Shiwoo answered simply to Sehee Nuna's words and continued to move his waist.</p>
 
-<p>"O-outside... ha-eut... please... Shiwoo-ya ha-at~!!"</p>
+<p>"O-outside... ha-eut... please... Shiwoo-ya ha-at!!"</p>
 
 <p>Sehee Nuna said pleadingly.</p>
 
@@ -242,7 +242,7 @@ chapter = 98
 
 <p>-Jji-geo-k! Jji-geo-k! Jji-geo-k!</p>
 
-<p>"Heueueung... heuk... heuk... a... it hurts, Shiwoo-ya~"</p>
+<p>"Heueueung... heuk... heuk... a... it hurts, Shiwoo-ya"</p>
 
 <p>Sehee Nuna said sadly, as if sobbing.</p>
 
@@ -270,7 +270,7 @@ chapter = 98
 
 <p>Shiwoo pulled his penis out of her pussy and shook the penis, which was about to ejaculate, wildly in front of Sehee Nuna's face, which was lying face down and sticking out to the side.</p>
 
-<p>"Ah~ Sehee-ya!!!"</p>
+<p>"Ah Sehee-ya!!!"</p>
 
 <p>Along with a shout, Shiwoo's semen burst out.</p>
 

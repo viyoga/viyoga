@@ -132,7 +132,7 @@ chapter = 62
 
 <p>Shiwoo was barely suppressing such impulsive desires.</p>
 
-<p>「Okay~ then I'll get it ready!!」 After saying that to Sehee Nuna, Shiwoo exited the changing room.</p>
+<p>「Okay then I'll get it ready!!」 After saying that to Sehee Nuna, Shiwoo exited the changing room.</p>
 
 <p class="scene-break">· · ·</p>
 

@@ -34,7 +34,7 @@ chapter = 158
 
 <p>Sehee-nuna's finger, which had been on the smartphone screen to operate the vibrator, showed no sign of lifting even after some time had passed.</p>
 
-<p>「Haaa...Haaa~」</p>
+<p>「Haaa...Haaa」</p>
 
 <p>As the vibration continued, Seonju Imo began to breathe heavily.</p>
 
@@ -108,7 +108,7 @@ chapter = 158
 
 <p>The vibrator's sound was amplifying, resonating as if vibrating the souls of Shiwoo, Sehee-nuna, and Seonju Imo.</p>
 
-<p>「Ha-eung~ Haa-aat! Haa-aak!!」</p>
+<p>「Ha-eung Haa-aat! Haa-aak!!」</p>
 
 <p>A scream that sounded like she was going to shatter burst from Seonju Imo's mouth.</p>
 
@@ -160,7 +160,7 @@ chapter = 158
 
 <p>Under Shiwoo's merciless pounding, Sehee-nuna toppled forward, collapsing over Seonju Imo's back.</p>
 
-<p>「Haa-aaeuk!! Haa-ak! Haa~ak!」</p>
+<p>「Haa-aaeuk!! Haa-ak! Haaak!」</p>
 
 <p>Sehee-nuna experienced an uncontrollable orgasm so intense it made her mind go blank.</p>
 
@@ -174,7 +174,7 @@ chapter = 158
 
 <p>Shiwoo, seeing Seonju Imo's collapsed posture, cursed as if enraged.</p>
 
-<p>「Sh-Shiwoo-ya... Heueueueu~」</p>
+<p>「Sh-Shiwoo-ya... Heueueueu」</p>
 
 <p>Seonju Imo, having dropped the vibrator and smartphone, called Shiwoo's name, moaning regretfully.</p>
 
@@ -184,7 +184,7 @@ chapter = 158
 
 <p>Shiwoo flared up, raising his voice at Seonju Imo.</p>
 
-<p>「M-Master-nim~! Heueuk」</p>
+<p>「M-Master-nim! Heueuk」</p>
 
 <p>Seonju Imo, with a trembling voice, re-acknowledged her own position, blurred by the distant climax.</p>
 

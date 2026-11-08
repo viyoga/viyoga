@@ -20,7 +20,7 @@ chapter = 426
 
 <p>Mom said to Shiwoo in a scolding tone through the 1:1 text conversation.</p>
 
-<p>[What! So it's okay to walk around like that at dawn? Then you can sing until dawn and walk home alone in that state when there are no people~]</p>
+<p>[What! So it's okay to walk around like that at dawn? Then you can sing until dawn and walk home alone in that state when there are no people]</p>
 
 <p>Shiwoo wrote and sent a text in a teasing tone, as if he was making fun of Mom.</p>
 
@@ -36,7 +36,7 @@ chapter = 426
 
 <p>The unfamiliar disconnect and gap between reality and the chat window created a strange thrill and alien excitement for Shiwoo.</p>
 
-<p>[Hehehe Check the shopping bag~ There's something for Mom to wear instead of clothes!]</p>
+<p>[Hehehe Check the shopping bag There's something for Mom to wear instead of clothes!]</p>
 
 <p>Shiwoo, seeing Mom's reaction, wrote and sent a text with a bashful laughing emoticon, telling her to open the shopping bag containing the swimsuit.</p>
 
@@ -56,7 +56,7 @@ chapter = 426
 
 <p>Mom seemed curious about the item in the shopping bag that Shiwoo had placed on the karaoke floor.</p>
 
-<p>[It's a present~ Seyoung and Sua picked it out together at the department store today to give to Mom! To make you wear it when we go to a pension in the summer!]</p>
+<p>[It's a present Seyoung and Sua picked it out together at the department store today to give to Mom! To make you wear it when we go to a pension in the summer!]</p>
 
 <p>[Seyoung sent a picture of it earlier, right? The card statement should have gone to you by text too, didn't you see it?]</p>
 
@@ -82,7 +82,7 @@ chapter = 426
 
 <p>Mom reluctantly wore it, but sent a text expressing her dissatisfaction with Shiwoo's perverted tastes in a blunt manner.</p>
 
-<p>[How lucky is it that we have that, at least? Thanks to that, I don't have to wait until dawn~ hehehe]</p>
+<p>[How lucky is it that we have that, at least? Thanks to that, I don't have to wait until dawn hehehe]</p>
 
 <p>Shiwoo said to Mom in a nonchalant tone, as if he was joking.</p>
 
@@ -102,7 +102,7 @@ chapter = 426
 
 <p>Mom was complaining to Shiwoo, nagging him cutely for a long time.</p>
 
-<p>[It's probably a little smaller than regular swimsuits. But that's what's popular on SNS and personal broadcasting channels these days~!]</p>
+<p>[It's probably a little smaller than regular swimsuits. But that's what's popular on SNS and personal broadcasting channels these days!]</p>
 
 <p>[Celebrities and famous people go to pensions and hot springs and take a lot of pictures wearing these, right? I just happened to see it when I was coming back from the department store, so I bought it! A micro bikini!]</p>
 
@@ -128,7 +128,7 @@ chapter = 426
 
 <p>Or was it a superior display of being able to assert his master-slave relationship with her at any time, regardless of the conversation in the 1:1 chat window?</p>
 
-<p>[I'll bring the mop and wet wipes first, so just wait there for a bit~]</p>
+<p>[I'll bring the mop and wet wipes first, so just wait there for a bit]</p>
 
 <p>Shiwoo switched the screen back to the chat window, spoke as if brushing off Mom's annoyance and scolding, and took a mop from the cleaning supply cabinet in the bathroom.</p>
 

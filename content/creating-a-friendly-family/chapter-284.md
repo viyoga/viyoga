@@ -52,15 +52,15 @@ chapter = 284
 
 <p>Below it was a reply from Seonju Imo who had seen the photo.</p>
 
-<p>'Oh my~ Unnie~ Are you doing that from morning~? It seems like you've decided to completely obey our Juein-nim now~? I'm so jealous~~~!'</p>
+<p>'Oh my Unnie Are you doing that from morning? It seems like you've decided to completely obey our Juein-nim now? I'm so jealous!'</p>
 
 <p>Seonju Imo, seeing the photo Shiwoo sent, teasing Mom in an exaggerated manner.</p>
 
-<p>'Since that's where our Juein-nim's children are, you have to suck carefully~! Got it~?'</p>
+<p>'Since that's where our Juein-nim's children are, you have to suck carefully! Got it?'</p>
 
 <p>Seonju Imo, seeing the photo of Mom with Shiwoo's balls in her mouth, speaks to Mom as if she were a mother-in-law, interfering.</p>
 
-<p>'Well~ Since they're grandchildren to Unnie, she'll probably be careful without me even saying anything, right~? Kekekeke'</p>
+<p>'Well Since they're grandchildren to Unnie, she'll probably be careful without me even saying anything, right? Kekekeke'</p>
 
 <p>Seonju Imo sends a text as if reminding Mom of her incestuous relationship with Shiwoo and trying to induce shame.</p>
 
@@ -190,7 +190,7 @@ chapter = 284
 
 <p>-As if desperately following Shiwoo's command to check her smartphone...-</p>
 
-<p>"Chuuup! Suuup~! Suup~!"</p>
+<p>"Chuuup! Suuup! Suup!"</p>
 
 <p>The movements of Shiwoo's mouth and tongue licking her pussy become more violent and rough.</p>
 

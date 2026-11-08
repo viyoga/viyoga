@@ -94,7 +94,7 @@ chapter = 745
 
 <p>The female staff member who guided Mom and Shiwoo to their seats checked both of their faces once with a soft gaze.</p>
 
-<p>"If you wait just a moment, I will bring you drinks immediately and help you with the menu guide~"</p>
+<p>"If you wait just a moment, I will bring you drinks immediately and help you with the menu guide"</p>
 
 <p>Then, she bowed her head forward in a polite greeting and turned back toward the hall.</p>
 
@@ -140,7 +140,7 @@ chapter = 745
 
 <p>She placed the tray on the table and set the separate menus in front of Shiwoo and Mom respectively.</p>
 
-<p>"Then... I will help guide you through the course meal menu~"</p>
+<p>"Then... I will help guide you through the course meal menu"</p>
 
 <p>She soon continued her explanation of the course meal menu prepared for today.</p>
 

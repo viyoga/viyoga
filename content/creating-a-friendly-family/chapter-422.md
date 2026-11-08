@@ -60,7 +60,7 @@ chapter = 422
 
 <p>A plaintive, pitiful moaning sound, as if begging for mercy, flows from Mom's mouth.</p>
 
-<p>"Ah~! That's right! Sejin Nuna already fucked Dad and got pregnant, so Seonmi, you were already confirmed to be a grandmother, weren't you? Then if I get Seyoung pregnant, I'll be making you a second grandchild, right?"</p>
+<p>"Ah! That's right! Sejin Nuna already fucked Dad and got pregnant, so Seonmi, you were already confirmed to be a grandmother, weren't you? Then if I get Seyoung pregnant, I'll be making you a second grandchild, right?"</p>
 
 <p>Shiwoo taunts and mocks Mom, mentioning Sejin Nuna's pregnancy.</p>
 
@@ -122,7 +122,7 @@ chapter = 422
 
 <p>In the time that passed, without knowing how much, Shiwoo was digging even more strongly into Mom's vagina hole.</p>
 
-<p>"Haaaaeeeuuu! Master-nim! Haaaeeut! Haaaang~! Master-nim! Haaaat! Haeuk!"</p>
+<p>"Haaaaeeeuuu! Master-nim! Haaaeeut! Haaaang! Master-nim! Haaaat! Haeuk!"</p>
 
 <p>Mom was now accepting Shiwoo's fucking, making loud cries of pleasure as if she didn't care about the karaoke hallway outside.</p>
 
@@ -192,7 +192,7 @@ chapter = 422
 
 <p>Shiwoo flicks Mom's nipple with a refreshing 딱밤.</p>
 
-<p>"Haeup!! Heueeum~!! Hawooeeup!! Haaaaaap!!"</p>
+<p>"Haeup!! Heueeum!! Hawooeeup!! Haaaaaap!!"</p>
 
 <p>Mom thrashes wildly like a live fish, seemingly in pain.</p>
 

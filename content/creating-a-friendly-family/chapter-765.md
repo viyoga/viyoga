@@ -8,7 +8,7 @@ chapter = 765
 
 <p>Shiwoo meticulously examined the smartphone screen Mom held out without answering for a moment.</p>
 
-<p>「Well done, our Mom~」</p>
+<p>「Well done, our Mom」</p>
 
 <p>After confirming the dispatch information, Shiwoo spoke while softly stroking Mom's hair.</p>
 
@@ -102,7 +102,7 @@ chapter = 765
 
 <p>By leaving the gap between the relationship and the space filled with shame empty with silence, Shiwoo isolated Mom within thorough self-hatred and guilt. The tension, sharpened in the silence, was amplified to its peak, and the misery and self-pity Mom felt, having fallen into an unmanageable abyss of shame , seemed to have already reached its zenith.</p>
 
-<p>「We're here~」</p>
+<p>「We're here」</p>
 
 <p>The driver's dry voice broke the silence like glass shards. Mom flinched for a moment and lowered her head deeply, which had been facing the window, but Shiwoo got out of the taxi with a nonchalant bow.</p>
 

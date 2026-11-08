@@ -234,7 +234,7 @@ chapter = 4
 
 <p>Then, Mom said as if complaining softly.</p>
 
-<p>"Sleeping together is only occasionally~ Mom can't sleep comfortably if someone is next to her. And Seyoung-ie turns on the light in the master bedroom because she's scared. Then Mom can't sleep deeply and is tired all day~ Seyoung-ie has to get used to sleeping alone now! Oh right! You went to Gyuri's house today, right?"</p>
+<p>"Sleeping together is only occasionally Mom can't sleep comfortably if someone is next to her. And Seyoung-ie turns on the light in the master bedroom because she's scared. Then Mom can't sleep deeply and is tired all day Seyoung-ie has to get used to sleeping alone now! Oh right! You went to Gyuri's house today, right?"</p>
 
 <p>After complaining like that, Mom suddenly asked Shiwoo as if she had just remembered.</p>
 
@@ -252,7 +252,7 @@ chapter = 4
 
 <p>"Anyway, Gyuri is supposed to see us at our house this weekend, but since I need it right away, can you go to Gyuri's house after school tomorrow and get the eye mask? I'll tell Gyuri separately tomorrow morning."</p>
 
-<p>"Okay... I understand~ I'll go after school tomorrow."</p>
+<p>"Okay... I understand I'll go after school tomorrow."</p>
 
 <p>Shiwoo felt good about the unknown anticipation related to Gyuri Ajumma and answered immediately.</p>
 
@@ -260,11 +260,11 @@ chapter = 4
 
 <p>Mom said, making Seyoung-ie's sleeping arrangements comfortable.</p>
 
-<p>"Yeah~ Kids really grow up fast."</p>
+<p>"Yeah Kids really grow up fast."</p>
 
 <p>Shiwoo answered as if formally responding to Mom's words.</p>
 
-<p>"Haha~ Anyone would think you're Seyoung-ie's dad. There's only a 30-year difference between you-nim and Seyoung-ie, you know?"</p>
+<p>"Haha Anyone would think you're Seyoung-ie's dad. There's only a 30-year difference between you-nim and Seyoung-ie, you know?"</p>
 
 <p>Mom teased him, using respectful speech because Shiwoo's tone didn't match his age.</p>
 

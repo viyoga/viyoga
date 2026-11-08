@@ -40,7 +40,7 @@ chapter = 703
 
 <p>Seyoung's hand gripped the anal plug, moving it back and forth, relentlessly stimulating Mom's vagina hole.</p>
 
-<p>"Ha-um... aaaa... ha-eeeung... ha-aaaang, ha-aaa~"</p>
+<p>"Ha-um... aaaa... ha-eeeung... ha-aaaang, ha-aaa"</p>
 
 <p>Mom's moans mixed with Sehee-nuna's, rushing into Shiwoo's ears like waves.</p>
 
@@ -70,7 +70,7 @@ chapter = 703
 
 <p>It felt as if the exhaustion that follows ejaculation had seeped deep into his body and was slowly being released.</p>
 
-<p>"Hua-aaaaa~ ha-aaaaa..."</p>
+<p>"Hua-aaaaa ha-aaaaa..."</p>
 
 <p>Shiwoo let out a long exhale, releasing the suppressed tension and tremors along with it.</p>
 

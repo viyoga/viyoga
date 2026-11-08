@@ -4,13 +4,13 @@ weight = 673
 [extra]
 chapter = 673
 +++
-<p>"Do I drink too~?"</p>
+<p>"Do I drink too?"</p>
 
 <p>At Shiwoo's words offering a drink, Seyoung asks while looking back at Aunt Seonju on the opposite side with a suspicious glance. Seyoung sends a look toward Aunt Seonju, the eldest present, as if double-checking if it is truly alright to accept Shiwoo's suggestion... In that gaze of Seyoung's, a subtle sense of superiority over Aunt Seonju and a deceptive confidence are embedded. Aunt Seonju lowered her head slightly, as if avoiding Seyoung's eyes. Seyoung's tone and gaze seemed to prick at Aunt Seonju's sense of responsibility as an elder and her guilt as a guardian.</p>
 
 <p>An indefinable sense of shame and ambiguous emotions that could not be clearly explained seemed to permeate Aunt Seonju's expression through Seyoung's manner of speaking and her look.</p>
 
-<p>"What should I do if I get drunk and suddenly want to bully Aunt Seonju~? I feel like I might do that today."</p>
+<p>"What should I do if I get drunk and suddenly want to bully Aunt Seonju? I feel like I might do that today."</p>
 
 <p>Seyoung speaks mischievously with a playful smile, making sure Aunt Seonju hears her. Was it the effect of Shiwoo's command for her to come prepared as an aunt, and the threat that he would sacrifice Sua as an offering? Aunt Seonju maintained a bashful attitude, shrinking her shoulders and flushing red in the face.</p>
 
@@ -18,11 +18,11 @@ chapter = 673
 
 <p>Shiwoo speaks as if prodding Seyoung, who is pretending to hesitate while teasing Aunt Seonju.</p>
 
-<p>"Is that so~? Hehe~"</p>
+<p>"Is that so? Hehe"</p>
 
 <p>Seyoung laughs slyly and stands up from her seat as if to follow Shiwoo's command. After placing her hand on Sua's bare flesh, Seyoung brings her mouth to her crotch... Seyoung brings her lips to the triangular valley of Sua's crotch where the alcohol is pooled, playfully tasting the liquor as if licking it with her tongue. Like a cat drinking water, Seyoung uses the tip of her tongue to take the liquid pooled in the crotch into her mouth...</p>
 
-<p>"Olgak churup! Olgak olgak churup~!"</p>
+<p>"Olgak churup! Olgak olgak churup!"</p>
 
 <p>As Seyoung swallows the alcohol held in her mouth, she simultaneously repeats the action of licking up the pooled liquor again. Every time the sound of her licking the alcohol with the tip of her tongue echoed from below, Sua's body flinched and reacted as if it were a struggle. Seyoung, who was licking the liquid pooled in Sua's crotch, had her buttocks pushed back and her upper body bent forward. In that posture with her ass protruding backward, she stood there shaking her buttocks left and right in accordance with the movements of her tongue.</p>
 
@@ -38,11 +38,11 @@ chapter = 673
 
 <p>Due to Seyoung's tongue licking up the alcohol in the triangular valley, Sua's wet, bare crotch was soon faintly revealed. Just as Aunt Seonju had done, Seyoung parts the folds of Sua's flesh with her tongue and tastes the foreign objects protruding from between them. As if indirectly conveying the movement of Shiwoo's finger, Seyoung rummages through the gaps in her flesh with her inserted tongue, as if skinning them.</p>
 
-<p>"Haueueu... eueueut~"</p>
+<p>"Haueueu... eueueut"</p>
 
 <p>Sua threw her head back and let out a long moan. The nasal breaths of Seyoung, whose lips and face were buried in Sua's crotch, also gradually became rougher. At that point, Shiwoo pulls his squirming middle finger out of Seyoung's vagina hole.</p>
 
-<p>Churuk~!</p>
+<p>Churuk!</p>
 
 <p>Along with the friction sound of wet flesh, the fluid that seeped out from inside pours out like melted emulsion onto Shiwoo's hand.</p>
 
@@ -94,7 +94,7 @@ chapter = 673
 
 <p>Shiwoo makes comments about his experience with the provocative play quite casually in front of Seyoung and Aunt Seonju. As soon as he finishes speaking, Shiwoo picks up another piece of sushi from Sua's stomach. This time too, he coats the sushi with the sauce he had drizzled on her navel and takes it toward Seyoung's protruding crotch. Shiwoo pushes another piece of sushi into her vagina hole. With his thumb, Shiwoo firmly packs the grains of rice that entered the hole, pushing them in deep.</p>
 
-<p>"Haueueuut~"</p>
+<p>"Haueueuut"</p>
 
 <p>Prostrate on the table, Seyoung twists her pelvis to match the angle of the finger Shiwoo is pushing up. Her voluptuous posture and litting moans stoke Shiwoo's arousal and further stimulate his desire. Shiwoo stands up as he is, moves Seyoung's chair to the side, and moves behind her. His penis, covered by a condom, is swollen as if it has reached its limit. With one hand on Seyoung's pelvis, Shiwoo grips his penis and pushes it into her open crevice.</p>
 

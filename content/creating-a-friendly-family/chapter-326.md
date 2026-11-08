@@ -4,7 +4,7 @@ weight = 326
 [extra]
 chapter = 326
 +++
-<p>'Seonmi-ga asked me for a favor... I thought if I decided on my own like before, Shiwoo, you might get angry, so I'm just asking~ Should I tell her to send you a text directly and ask?'</p>
+<p>'Seonmi-ga asked me for a favor... I thought if I decided on my own like before, Shiwoo, you might get angry, so I'm just asking Should I tell her to send you a text directly and ask?'</p>
 
 <p>Sehee Noona was speaking cautiously, as if she was concerned about being punished by Shiwoo for ordering Mom around earlier.</p>
 
@@ -14,7 +14,7 @@ chapter = 326
 
 <p>The text, referring to his own Mom by her name and sent to Sehee Noona in an oppressive tone.</p>
 
-<p>'Okay, I'll tell her to talk to you directly. Don't be too angry with Seonmi~'</p>
+<p>'Okay, I'll tell her to talk to you directly. Don't be too angry with Seonmi'</p>
 
 <p>Sehee Noona obediently follows Shiwoo's order.</p>
 
@@ -86,7 +86,7 @@ chapter = 326
 
 <p>Mom writes and sends a text as if slightly complaining or annoyed at Shiwoo's nonchalant question.</p>
 
-<p>'Ah, that's what you mean? Hehe~ How long? I told you to stay like that all day~ Why?'</p>
+<p>'Ah, that's what you mean? Hehe How long? I told you to stay like that all day Why?'</p>
 
 <p>Ignoring Mom's annoyance, Shiwoo continues to answer as if teasing Mom.</p>
 
@@ -102,17 +102,17 @@ chapter = 326
 
 <p>-Appealing to her son with her humiliating appearance captured in the video as a tool for mitigating circumstances-</p>
 
-<p>'We're alone at home, just the two of you, if you keep doing things like that, won't you become closer~?'</p>
+<p>'We're alone at home, just the two of you, if you keep doing things like that, won't you become closer?'</p>
 
 <p>To Mom's desperate plea, Shiwoo sends a text as if trying to appease Mom instead.</p>
 
 <p>Mom is silent again for a moment before sending a text.</p>
 
-<p>'I've been suffering from you since yesterday morning, and now Sehee is doing this to me, Mom is so tired~ Can't you cut me some slack?'</p>
+<p>'I've been suffering from you since yesterday morning, and now Sehee is doing this to me, Mom is so tired Can't you cut me some slack?'</p>
 
 <p>Mom was explaining her situation and circumstances to Shiwoo, appealing to him as if begging.</p>
 
-<p>'Huh? What~?'</p>
+<p>'Huh? What?'</p>
 
 <p>This time again, Shiwoo sends a text pretending not to know, asking Mom back.</p>
 

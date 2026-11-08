@@ -22,11 +22,11 @@ chapter = 796
 
 <p>Mom snapped back, pretending to be offended, but her unfocused eyes were filled with an irresistible submission and the pleasure of relief.</p>
 
-<p>"Is that how it is~? Hehe... Then I'll have to do this more often from now on~ since I know for sure what Mom likes."</p>
+<p>"Is that how it is? Hehe... Then I'll have to do this more often from now on since I know for sure what Mom likes."</p>
 
 <p>Shiwoo said, laughing with satisfaction.</p>
 
-<p>"Ehyuuu~!"</p>
+<p>"Ehyuuu!"</p>
 
 <p>Mom let out a heavy sigh of distress, yet she couldn't look away from Shiwoo as she toyed with her mug.</p>
 
@@ -36,7 +36,7 @@ chapter = 796
 
 <p>Mom toyed with the mug and spoke as if trying to gauge Shiwoo's intentions. Her face held a strange, hard-to-read emotion.</p>
 
-<p>"Yeah? What is it~?"</p>
+<p>"Yeah? What is it?"</p>
 
 <p>Shiwoo responded with a nonchalant shrug.</p>
 
@@ -44,11 +44,11 @@ chapter = 796
 
 <p>Mom asked in a voice that seemed to be testing his true feelings.</p>
 
-<p>"I don't get tired of it. In fact, I like it more and more. I'm actually thinking of mixing mine into every beverage Mom drinks from now on~"</p>
+<p>"I don't get tired of it. In fact, I like it more and more. I'm actually thinking of mixing mine into every beverage Mom drinks from now on"</p>
 
 <p>Shiwoo continued, his eyes playful as the corners of his mouth curled erotically.</p>
 
-<p>"Haaaaa~"</p>
+<p>"Haaaaa"</p>
 
 <p>Mom let out a long sigh as if it were absurd and hung her head low. She stayed like that for a moment as if thinking about something, then raised her head to glare at Shiwoo once.</p>
 
@@ -78,7 +78,7 @@ chapter = 796
 
 <p>Mom called Shiwoo again, patting the seat beside her.</p>
 
-<p>"Why~?"</p>
+<p>"Why?"</p>
 
 <p>Shiwoo asked with a voice mixed with anticipation as he moved from the opposite seat to the one next to her.</p>
 

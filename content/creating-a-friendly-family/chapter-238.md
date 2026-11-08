@@ -12,7 +12,7 @@ chapter = 238
 
 <p>Sehee Nuna grits her teeth, enduring Shiwoo's pounding.</p>
 
-<p>"Haa-euuuu~... Heuuu-eung... Heuuu-euuuu~ Heuuu-eut~"</p>
+<p>"Haa-euuuu... Heuuu-eung... Heuuu-euuuu Heuuu-eut"</p>
 
 <p>A pitiful moaning sound escapes Sehee Nuna's mouth, as if she's barely holding back the intense pleasure Shiwoo is creating.</p>
 
@@ -80,7 +80,7 @@ chapter = 238
 
 <p>Sehee Nuna licks Shiwoo's cock shaft as it plunges into and out of her throat, checking the taste of her vaginal fluid.</p>
 
-<p>"Uuuk! Uuut! Chureup~! Huak~! Huut~! Chureup~!"</p>
+<p>"Uuuk! Uuut! Chureup! Huak! Huut! Chureup!"</p>
 
 <p>Every time Shiwoo's thing is pulled out of Sehee Nuna's throat, creating space in her mouth, Sehee Nuna's tongue tickles the tip of Shiwoo's urethra, strongly stimulating it.</p>
 
@@ -94,11 +94,11 @@ chapter = 238
 
 <p>Then, he hands the smartphone, which is recording the video, to Sehee Nuna.</p>
 
-<p>"Film it well, because I'm going to send it to Seonmi~! Got it!?"</p>
+<p>"Film it well, because I'm going to send it to Seonmi! Got it!?"</p>
 
 <p>Shiwoo says that and takes out his thing, which is swollen as if it will burst, from Sehee Nuna's throat, standing with only the glans resting on Sehee Nuna's lips.</p>
 
-<p>"Kulkkeok kulkkeok heuk~ kek~ heuek kekkek~! Huaaa~ haaaa..."</p>
+<p>"Kulkkeok kulkkeok heuk kek heuek kekkek! Huaaa haaaa..."</p>
 
 <p>Sehee Nuna coughs severely with Shiwoo's cock in her lips, and calms her disheveled breathing.</p>
 
@@ -130,7 +130,7 @@ chapter = 238
 
 <p>Shiwoo is groaning, as if startled by the pain in his sensitive skin that he had never felt before.</p>
 
-<p>"D-don't drink it... just keep it in your mouth~! Got it?"</p>
+<p>"D-don't drink it... just keep it in your mouth! Got it?"</p>
 
 <p>Shiwoo commands, looking down at Sehee Nuna, who is kneeling.</p>
 
@@ -142,11 +142,11 @@ chapter = 238
 
 <p>Shiwoo endures the pain and dips his glans into Sehee Nuna's mouth, which is filled with alcohol, and begins to shake his cock shaft with his hand.</p>
 
-<p>-Tak~! Tak~! Tak~! Tak~! Tak~!</p>
+<p>-Tak! Tak! Tak! Tak! Tak!</p>
 
 <p>The scorching pain that rises hotly is mixed with pleasure, urging Shiwoo's ejaculation.</p>
 
-<p>"I'm coming~! Heuuu... I'm gonna cum~! Just keep your mouth open~"</p>
+<p>"I'm coming! Heuuu... I'm gonna cum! Just keep your mouth open"</p>
 
 <p>Shiwoo begins to ejaculate with his glans dipped in the green liquid filling Sehee Nuna's mouth.</p>
 
@@ -174,7 +174,7 @@ chapter = 238
 
 <p>Shiwoo stares at Sehee Nuna for a while, then shakes his head from side to side.</p>
 
-<p>"Keep it in your mouth and wait until Seonmi comes out~! Wait, and tell Seonmi to drink it together when she drinks~!"</p>
+<p>"Keep it in your mouth and wait until Seonmi comes out! Wait, and tell Seonmi to drink it together when she drinks!"</p>
 
 <p>Shiwoo commands Sehee Nuna.</p>
 

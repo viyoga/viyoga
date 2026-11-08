@@ -22,7 +22,7 @@ chapter = 166
 
 <p>After much thought, Shiwoo sent a text message to Sehee-nuna during break time.</p>
 
-<p>'I don't know! It's yours now, so you figure it out~'</p>
+<p>'I don't know! It's yours now, so you figure it out'</p>
 
 <p>Sehee-nuna replied curtly to Shiwoo, as if something displeased her.</p>
 
@@ -72,7 +72,7 @@ chapter = 166
 
 <p>Shiwoo answered, avoiding eye contact, embarrassed to face him.</p>
 
-<p>"The camera was off, wasn't it? Nothing happened, I hope? Well, it must have been fine~ Heh heh."</p>
+<p>"The camera was off, wasn't it? Nothing happened, I hope? Well, it must have been fine Heh heh."</p>
 
 <p>Cheoljin spoke to Shiwoo as if something was bothering him.</p>
 
@@ -94,15 +94,15 @@ chapter = 166
 
 <p>Cheoljin stared intently at Shiwoo for a moment.</p>
 
-<p>"Ah~ Thanks to your help, Shiwoo, I was able to go all over the place yesterday~"</p>
+<p>"Ah Thanks to your help, Shiwoo, I was able to go all over the place yesterday"</p>
 
 <p>Cheoljin spoke to Shiwoo with an expression that seemed to hold a story and a swaggering tone.</p>
 
-<p>"You seemed to be chasing Seulgi so hard. Did you find someone you like even more than Seulgi? You should know when to stop~ I don't know what's going on, but..."</p>
+<p>"You seemed to be chasing Seulgi so hard. Did you find someone you like even more than Seulgi? You should know when to stop I don't know what's going on, but..."</p>
 
 <p>Shiwoo spoke to Cheoljin, maintaining a slight distance.</p>
 
-<p>"Ah~ that? I think I can stop that now~ More importantly, did you know Seulgi takes a break from magic class every Wednesday?"</p>
+<p>"Ah that? I think I can stop that now More importantly, did you know Seulgi takes a break from magic class every Wednesday?"</p>
 
 <p>Cheoljin asked Shiwoo with a triumphant attitude, as if revealing a fact only he knew to the world.</p>
 
@@ -110,7 +110,7 @@ chapter = 166
 
 <p>Shiwoo spoke as if Cheoljin's attitude displeased him.</p>
 
-<p>"Well, it doesn't really matter if you don't know~ But it's good to know, isn't it? Between us~ Puh-hee-hit!"</p>
+<p>"Well, it doesn't really matter if you don't know But it's good to know, isn't it? Between us Puh-hee-hit!"</p>
 
 <p>Cheoljin laughed unpleasantly as he spoke.</p>
 
@@ -180,7 +180,7 @@ chapter = 166
 
 <p>Shiwoo asked Cheoljin about Gyuri Ajumma in passing while eating lunch in the student cafeteria.</p>
 
-<p>"Ah~ my mom? That only needs to be done once a week."</p>
+<p>"Ah my mom? That only needs to be done once a week."</p>
 
 <p>Cheoljin spoke as if he had some kind of agreement with Gyuri Ajumma regarding bondage play.</p>
 
@@ -206,7 +206,7 @@ chapter = 166
 
 <p>It was Sehee-nuna.</p>
 
-<p>'I'm going straight to Sinbi-ne's house! Make sure you eat well~! '</p>
+<p>'I'm going straight to Sinbi-ne's house! Make sure you eat well! '</p>
 
 <p>Sehee-nuna's text, saying she was going straight to Sinbi-nuna's house as they had discussed that morning.</p>
 
@@ -214,7 +214,7 @@ chapter = 166
 
 <p>Shiwoo asked, just in case.</p>
 
-<p>'Yep~ If nothing special happens today, I'll just sleep over at Sinbi-ne's, so don't wait up!'</p>
+<p>'Yep If nothing special happens today, I'll just sleep over at Sinbi-ne's, so don't wait up!'</p>
 
 <p>Sehee-nuna replied immediately.</p>
 

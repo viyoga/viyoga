@@ -128,7 +128,7 @@ chapter = 574
 
 <p>Mom briefly finished answering the photo and order Shiwoo sent without any particular impressions or reactions.</p>
 
-<p>[Then I'm going to go eat lunch. Mom, you should prepare a delicious meal for yourself now~]</p>
+<p>[Then I'm going to go eat lunch. Mom, you should prepare a delicious meal for yourself now]</p>
 
 <p>Shiwoo said goodbye to Mom for the last time.</p>
 

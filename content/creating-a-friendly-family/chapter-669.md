@@ -8,7 +8,7 @@ chapter = 669
 
 <p>Shiwoo sent the text with a nonchalant air, as if half-ignoring her words.</p>
 
-<p>「Yeah~ ^ ^」</p>
+<p>「Yeah ^ ^」</p>
 
 <p>To Shiwoo's text, which read almost like a command, Seonju Imo replied with a smiling emoticon.</p>
 
@@ -92,7 +92,7 @@ chapter = 669
 
 <p>As if noticing the operation light on the gate camera, Seonju Imo waved at the screen.</p>
 
-<p>"Shiwoo-ya, open the door~ Imo is here~!"</p>
+<p>"Shiwoo-ya, open the door Imo is here!"</p>
 
 <p>Seonju Imo spoke with her face close to the intercom camera.</p>
 
@@ -118,7 +118,7 @@ chapter = 669
 
 <p>The front door opened, and Seonju Imo entered Shiwoo's household with a bright smile.</p>
 
-<p>"Hi, Shiwoo-ya! Imo is here~"</p>
+<p>"Hi, Shiwoo-ya! Imo is here"</p>
 
 <p>Seonju Imo waved happily as she stepped inside.</p>
 
@@ -154,7 +154,7 @@ chapter = 669
 
 <p>Shiwoo asked, looking down at the long paper box.</p>
 
-<p>"Ah~ this? I heard you guys were having sushi, so I bought this because I thought it would pair well! Sake!"</p>
+<p>"Ah this? I heard you guys were having sushi, so I bought this because I thought it would pair well! Sake!"</p>
 
 <p>Seonju Imo lightly shook the cardboard case as she held it out.</p>
 
@@ -174,11 +174,11 @@ chapter = 669
 
 <p>Even though she could clearly see Sua lying on the table over Shiwoo's shoulder, Seonju Imo looked for Seyoung as if intentionally ignoring her.</p>
 
-<p>"Ah~ she's in her room drying her hair~ she just got out of the shower."</p>
+<p>"Ah she's in her room drying her hair she just got out of the shower."</p>
 
 <p>Shiwoo replied nonchalantly, as if playing along with Seonju Imo's gaze and her suspicious reaction.</p>
 
-<p>"Seonju Imo~ you're here?"</p>
+<p>"Seonju Imo you're here?"</p>
 
 <p>Just then, as if she had heard Seonju Imo's voice looking for her, Seyoung peeked her body out from her room and greeted her.</p>
 

@@ -56,7 +56,7 @@ chapter = 814
 
 <p>She seemed lost in silent thought for a moment, before suddenly pushing Siu's chest as if reacting to some unfairness.</p>
 
-<p>"Do you really think this is an act?! I'm just acting awkward because I don't know what to do! Gosh~!"</p>
+<p>"Do you really think this is an act?! I'm just acting awkward because I don't know what to do! Gosh!"</p>
 
 <p>Mother let out her pent-up resentment all at once, breathing heavily as her shoulders hitched roughly.</p>
 
@@ -114,7 +114,7 @@ chapter = 814
 
 <p>Silicone pieces in gold, silver, and primary colors gleamed smoothly, painting a touch of bizarre sensuality onto the heavy ink scent of the tattoo shop.</p>
 
-<p>"Welcome~ I've been waiting for you~ Took you long enough, didn't it?"</p>
+<p>"Welcome I've been waiting for you Took you long enough, didn't it?"</p>
 
 <p>From behind the curtain near the adult toy section, a woman stepped out with a soft, amused voice and casually greeted them.</p>
 
@@ -158,11 +158,11 @@ chapter = 814
 
 <p>Her playful yet unreadable gaze broke the stiff tension of the two in a strange way.</p>
 
-<p>"Take a seat over here first... we can take our time chatting later~"</p>
+<p>"Take a seat over here first... we can take our time chatting later"</p>
 
 <p>The tattoo shop owner guided Siu and Mother to a corner sofa.</p>
 
-<p>"Would you like some water or a drink~? What would you prefer: coffee, juice, or soda?"</p>
+<p>"Would you like some water or a drink? What would you prefer: coffee, juice, or soda?"</p>
 
 <p>She smiled warmly, offering Siu a drink as if treating a close nephew.</p>
 
@@ -182,7 +182,7 @@ chapter = 814
 
 <p>Mother answered awkwardly.</p>
 
-<p>"Drink something warm~ The weather hasn't quite warmed up yet..."</p>
+<p>"Drink something warm The weather hasn't quite warmed up yet..."</p>
 
 <p>She spoke as if subtly pointing to what had just occurred outside the shop's entrance.</p>
 

@@ -26,7 +26,7 @@ chapter = 162
 
 <p>Sehee-nuna leaned her head forward and licked at the connected area where Shiwoo and Seonju Imo were joined, as if tickling it.</p>
 
-<p>「Heu-eut~!」</p>
+<p>「Heu-eut!」</p>
 
 <p>Seonju Imo trembled and moaned at Sehee-nuna's tongue stimulation, which reached her once again.</p>
 
@@ -100,7 +100,7 @@ chapter = 162
 
 <p>Shiwoo approached Sehee-nuna and Seonju Imo, who were piled on top of each other in a strange position.</p>
 
-<p>「Seonju Imo~! Seonju Imo~?!」</p>
+<p>「Seonju Imo! Seonju Imo?!」</p>
 
 <p>First, Shiwoo shook Seonju Imo's body, which was lying face down on top, to wake her.</p>
 
@@ -114,11 +114,11 @@ chapter = 162
 
 <p>Instantly, Seonju Imo let out a moan and trembled violently as if suddenly coming to her senses.</p>
 
-<p>「You need to get up~ You'll be suffocated under Sehee-nuna!」</p>
+<p>「You need to get up You'll be suffocated under Sehee-nuna!」</p>
 
 <p>Shiwoo then tapped Seonju Imo's buttocks, speaking as if gently instructing her.</p>
 
-<p>「Heu-eu...Heu-eung~!」</p>
+<p>「Heu-eu...Heu-eung!」</p>
 
 <p>Though it was a light touch, Seonju Imo felt a sharp pain from Shiwoo's hand touching her sensitively swollen buttocks flesh.</p>
 
@@ -166,7 +166,7 @@ chapter = 162
 
 <p>Shiwoo commanded in a resolute tone, inserting his finger between the crevice as if checking the state of the vibrator vibrating inside Seonju Imo's vaginal opening.</p>
 
-<p>「Yes...I...I'll do that, Master-nim~ Haa...」</p>
+<p>「Yes...I...I'll do that, Master-nim Haa...」</p>
 
 <p>Seonju Imo answered submissively.</p>
 
@@ -188,13 +188,13 @@ chapter = 162
 
 <p>Shiwoo pressed the hold button on the smartphone screen and looked down at Seonju Imo as if appreciating her for a moment.</p>
 
-<p>「Haa-eu~! Haa-eueu~! Haa-aa!」</p>
+<p>「Haa-eu! Haa-eueu! Haa-aa!」</p>
 
 <p>Faint moans were continuously leaking out from Seonju Imo's mouth.</p>
 
 <p>Shiwoo shifted his gaze to Sehee-nuna, who was lying next to him, leaving Seonju Imo as she was.</p>
 
-<p>「Sehee-nuna! Are you alright~?」</p>
+<p>「Sehee-nuna! Are you alright?」</p>
 
 <p>Sehee-nuna's face, rubbed and spread, as if smeared all over with Shiwoo's semen received from Seonju Imo's valley.</p>
 

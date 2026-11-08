@@ -4,11 +4,11 @@ weight = 591
 [extra]
 chapter = 591
 +++
-<p>「What is this~! Just Seyoung alone is overwhelming, but if even Seonju, you're like this, how am I supposed to sleep that night?!」</p>
+<p>「What is this! Just Seyoung alone is overwhelming, but if even Seonju, you're like this, how am I supposed to sleep that night?!」</p>
 
 <p>Gyuri Ajumma speaks as if troubled, seemingly imagining a situation where she's being sucked on by two people at the same time.</p>
 
-<p>「Oh my~ Gyuri Unnie, were you planning to sleep comfortably that night? Your mouth is empty, and your lower parts are empty too, did you think the Owner-nim would only let Gyuri Unnie sleep comfortably?ㅋㅋㅋ」</p>
+<p>「Oh my Gyuri Unnie, were you planning to sleep comfortably that night? Your mouth is empty, and your lower parts are empty too, did you think the Owner-nim would only let Gyuri Unnie sleep comfortably?ㅋㅋㅋ」</p>
 
 <p>Seonju Imo writes and uploads a heavily suggestive, lewd remark, as if addressing it to Gyuri Ajumma and everyone else in the room.</p>
 
@@ -64,7 +64,7 @@ chapter = 591
 
 <p>Before long, a reply comes back from Sejin Nuna.</p>
 
-<p>「Okay. Come carefully! If something happens or you get lost, contact me right away~」</p>
+<p>「Okay. Come carefully! If something happens or you get lost, contact me right away」</p>
 
 <p>Sejin Nuna speaks as if she is carefully concerned about Shiwoo.</p>
 
@@ -78,7 +78,7 @@ chapter = 591
 
 <p>No, perhaps Shiwoo is going to see her now, expecting only that.</p>
 
-<p>「Okay, I got it~ See you later~! Sejin Nuna~」</p>
+<p>「Okay, I got it See you later! Sejin Nuna」</p>
 
 <p>Hiding his awkward expectations, Shiwoo speaks to Sejin Nuna as if he is indifferent.</p>
 
@@ -156,7 +156,7 @@ chapter = 591
 
 <p>After the ringing tone of the call rings three or four times, Sejin Nuna answers the phone.</p>
 
-<p>"Oh~ Shiwoo, have you already arrived at the officetel?"</p>
+<p>"Oh Shiwoo, have you already arrived at the officetel?"</p>
 
 <p>Sejin Nuna's voice, which he hasn't heard in a while, is heard over the smartphone receiver.</p>
 

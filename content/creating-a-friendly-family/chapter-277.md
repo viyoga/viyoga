@@ -40,7 +40,7 @@ chapter = 277
 
 <p>Mom spoke to Shiwoo as if she was very upset.</p>
 
-<p>,What~~? I was secretly, secretly doing it so Seyoung couldn't see~!\,</p>
+<p>,What? I was secretly, secretly doing it so Seyoung couldn't see!\,</p>
 
 <p>Shiwoo retorted to Mom's words shamelessly and nonchalantly.</p>
 
@@ -48,7 +48,7 @@ chapter = 277
 
 <p>Mom was questioning Shiwoo about what had happened in the kitchen just now as if she was really seriously angry.</p>
 
-<p>,What's wrong with it~? Seyoung doesn't seem to care much anymore~ I saw Seyoung not saying anything even when I was touching Mom's breasts like that last night, didn't I? And isn't Mom enjoying it too? I touched it just now and it was all wet, wasn't it? Hehe,'</p>
+<p>,What's wrong with it? Seyoung doesn't seem to care much anymore I saw Seyoung not saying anything even when I was touching Mom's breasts like that last night, didn't I? And isn't Mom enjoying it too? I touched it just now and it was all wet, wasn't it? Hehe,'</p>
 
 <p>Shiwoo now blatantly pointed out Mom's aroused and wet state, speaking as if teasing her mischievously.</p>
 
@@ -56,15 +56,15 @@ chapter = 277
 
 <p>Mom was speaking to Shiwoo as if she was really serious.</p>
 
-<p>,No, but why did you suddenly hit me so hard like that?! I even got a big bump on my head~ I thought it was okay to completely do that now because Mom was using respectful speech to me and calling me Juein-nim or Yeobo on her own yesterday~!,</p>
+<p>,No, but why did you suddenly hit me so hard like that?! I even got a big bump on my head I thought it was okay to completely do that now because Mom was using respectful speech to me and calling me Juein-nim or Yeobo on her own yesterday!,</p>
 
 <p>Shiwoo voiced his position to Mom as if appealing to her about his own sense of injustice.</p>
 
-<p>,Ugh~ You idiot! Where is it okay to do that?! How am I supposed to face the other family members? I'm already so embarrassed I could die just from Sunju and Sehee finding out about what happened between you and me!\,,</p>
+<p>,Ugh You idiot! Where is it okay to do that?! How am I supposed to face the other family members? I'm already so embarrassed I could die just from Sunju and Sehee finding out about what happened between you and me!\,,</p>
 
 <p>Mom spoke, shooting back at Shiwoo as if she was dumbfounded by his words.</p>
 
-<p>,Didn't Mom say she's not someone who dislikes that kind of thing? Mom's an M, isn't she~? You told me that~! Isn't that right? You're not even wearing panties right now while listening to me!'</p>
+<p>,Didn't Mom say she's not someone who dislikes that kind of thing? Mom's an M, isn't she? You told me that! Isn't that right? You're not even wearing panties right now while listening to me!'</p>
 
 <p>Shiwoo reminded her of the words and actions Mom had made and done last, speaking as if complaining.</p>
 
@@ -90,7 +90,7 @@ chapter = 277
 
 <p>Shiwoo was thinking hard about something for a while, and then he started writing in the smartphone conversation input window as if he thought things couldn't go on like this.</p>
 
-<p>,I understood what Mom said, so I'll do as Mom says during the day. I won't embarrass Mom in front of Seyoung either! But I really won't go easy on you at night! I'm not going to stop no matter if Mom faints or not now! Be prepared~! I won't even treat you like Mom!'</p>
+<p>,I understood what Mom said, so I'll do as Mom says during the day. I won't embarrass Mom in front of Seyoung either! But I really won't go easy on you at night! I'm not going to stop no matter if Mom faints or not now! Be prepared! I won't even treat you like Mom!'</p>
 
 <p>Shiwoo wrote and sent a text as if warning her about the merciless sexual acts that would take place at night to Mom, who had changed her attitude, as if trying to protect his crumpled pride.</p>
 
@@ -112,7 +112,7 @@ chapter = 277
 
 <p>Shiwoo was feeling a sense of satisfaction in his own way with the negotiation with Mom that seemed to have been difficultly achieved once again after being hit by Mom with a ladle.</p>
 
-<p>,Hehehehe~'</p>
+<p>,Hehehehe'</p>
 
 <p>Shiwoo wrote and sent a text emoticon that was awkwardly laughing, trying to subtly ease the heightened atmosphere.</p>
 
@@ -126,7 +126,7 @@ chapter = 277
 
 <p>Mom was answering Shiwoo's question properly even while getting annoyed.</p>
 
-<p>,Ah~ Is that how it was? I guess Seyoung would have been a little embarrassed if she woke up with her panties off~'</p>
+<p>,Ah Is that how it was? I guess Seyoung would have been a little embarrassed if she woke up with her panties off'</p>
 
 <p>Shiwoo answered Mom's words as if he understood.</p>
 
@@ -134,7 +134,7 @@ chapter = 277
 
 <p>Mom spoke as if strongly scolding Shiwoo's actions.</p>
 
-<p>,What's wrong with it? Mom and Sehee are sleeping with all their clothes off now too~ She'll probably think she took them off because she was hot while sleeping~'</p>
+<p>,What's wrong with it? Mom and Sehee are sleeping with all their clothes off now too She'll probably think she took them off because she was hot while sleeping'</p>
 
 <p>Shiwoo answered Mom playfully as if it was nothing about taking off Seyoung's panties.</p>
 
@@ -142,11 +142,11 @@ chapter = 277
 
 <p>Mom was nagging him, pointing out not only that Shiwoo had taken off Seyoung's panties but also that he had sent Mom's pictures to Seyoung.</p>
 
-<p>,Ah~ There was that too~? Mom had every reason to be angry~ Hehe'</p>
+<p>,Ah There was that too? Mom had every reason to be angry Hehe'</p>
 
 <p>Shiwoo spoke as if soothing Mom's anger, nonchalantly accepting Mom's nagging.</p>
 
-<p>,Ugh~!!'</p>
+<p>,Ugh!!'</p>
 
 <p>Mom sent a text to Shiwoo as if she didn't like Shiwoo's actions and nonchalant answer at all.</p>
 
@@ -158,7 +158,7 @@ chapter = 277
 
 <p>A strange excitement seemed to be rising from the bottom of Shiwoo's heart as the memories of last night's dream came to mind.</p>
 
-<p>,But did Mom hide Seyoung's smartphone? Are you really going to buy her a new one? You don't have to~'</p>
+<p>,But did Mom hide Seyoung's smartphone? Are you really going to buy her a new one? You don't have to'</p>
 
 <p>Shiwoo asked Mom as if confirming about Seyoung's smartphone that had disappeared.</p>
 
@@ -168,7 +168,7 @@ chapter = 277
 
 <p>Shiwoo changed his mind, thinking it would be difficult to handle her anger and annoyance that would follow if he tried to tease Mom more.</p>
 
-<p>,I did it because I had a plan! Just wait and see~!'</p>
+<p>,I did it because I had a plan! Just wait and see!'</p>
 
 <p>Shiwoo quickly wrote a text to Mom as if giving her an order and closed the conversation window with Mom.</p>
 

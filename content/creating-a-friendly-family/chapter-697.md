@@ -146,7 +146,7 @@ chapter = 697
 
 <p>As if a hydraulic press were in operation, a heavy pressure dug into the center of Mom's body.</p>
 
-<p>"Haaaaaaaang... ha-uuuuuuuut~"</p>
+<p>"Haaaaaaaang... ha-uuuuuuuut"</p>
 
 <p>Mom threw her head back, trembling and moaning as if the weight were too much to handle.</p>
 

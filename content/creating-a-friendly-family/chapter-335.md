@@ -42,7 +42,7 @@ chapter = 335
 
 <p>Seyoung's tongue, which had reached the part where the cock shaft and Sua's pussy were connected, moved directly onto Sua's sensitive skin.</p>
 
-<p>"Haa-euhss! Haa-aht~"</p>
+<p>"Haa-euhss! Haa-aht"</p>
 
 <p>Sua writhed her body and moaned.</p>
 
@@ -90,7 +90,7 @@ chapter = 335
 
 <p>Shiwoo was moving with the intention of rubbing his genitals against Sua's vaginal walls in sync with Seyoung.</p>
 
-<p>"Heo-eueueuht...Haa-aaaa~...Haaht!! Ha-ut!!!"</p>
+<p>"Heo-eueueuht...Haa-aaaa...Haaht!! Ha-ut!!!"</p>
 
 <p>Sua sobbed and moaned as if her mind was confused by the friction of Shiwoo's penis stuck inside her hole.</p>
 
@@ -108,7 +108,7 @@ chapter = 335
 
 <p>At that moment, he felt Seyoung's breath warmly enveloping Shiwoo's scrotum.</p>
 
-<p>"Chyu-up~! Eum! A-eum~! Chap~! O-rok~ U-eum~!"</p>
+<p>"Chyu-up! Eum! A-eum! Chap! O-rok U-eum!"</p>
 
 <p>Seyoung held Shiwoo's testicles in her mouth and chewed as if rolling them around inside her mouth.</p>
 
@@ -166,7 +166,7 @@ chapter = 335
 
 <p>It was Shiwoo's artistic fucking that was repeating endlessly.</p>
 
-<p>"Haa-eueung~ Haa-aht~!Haaht! Haa-ak~!"</p>
+<p>"Haa-eueung Haa-aht!Haaht! Haa-ak!"</p>
 
 <p>In the meantime, Sua trembled and moaned as if she had climaxed several times.</p>
 
@@ -196,10 +196,10 @@ chapter = 335
 
 <p>Shiwoo was intensely fucking Sua's pussy for ejaculation.</p>
 
-<p>"Chyu-up~ Chyu-ap! Chyu-lru-rup~ Chyu-hup~"</p>
+<p>"Chyu-up Chyu-ap! Chyu-lru-rup Chyu-hup"</p>
 
 <p>Seyoung also began to suck Sua's clitoris in earnest.</p>
 
-<p>"Haa-eueung~ Haa-aang~ Sh...Shiwoo oppa~ Ha-heuk...Se...Se-yeo...Heo-eueung!!!"</p>
+<p>"Haa-eueung Haa-aang Sh...Shiwoo oppa Ha-heuk...Se...Se-yeo...Heo-eueung!!!"</p>
 
 <p>Sua, being targeted by the Shiwoo siblings in her vagina hole and clitoris, was now falling into a swamp of endless pleasure.</p>

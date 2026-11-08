@@ -6,7 +6,7 @@ chapter = 143
 +++
 <p>The texts with Mom continue.</p>
 
-<p>,Alright~ But Mom called first, didn't you!,</p>
+<p>,Alright But Mom called first, didn't you!,</p>
 
 <p>Shiwoo playfully replies to Mom's text message that he just received.</p>
 
@@ -14,11 +14,11 @@ chapter = 143
 
 <p>Mom sends Shiwoo a text message in a tone that sounds like she's upset.</p>
 
-<p>,I wondered if that might be it~ Mom always pretends to dislike it while secretly enjoying it,</p>
+<p>,I wondered if that might be it Mom always pretends to dislike it while secretly enjoying it,</p>
 
 <p>Shiwoo is now openly trying to tease Mom.</p>
 
-<p>,I can't believe this~! When did I ever!\?,</p>
+<p>,I can't believe this! When did I ever!\?,</p>
 
 <p>Mom seems taken aback and flares up.</p>
 
@@ -34,7 +34,7 @@ chapter = 143
 
 <p>Mom blames Shiwoo, making a clumsy excuse for her actions.</p>
 
-<p>,So that's how it was~? But Mom! I told you to take your panties off before you and I had sex, hehe.'</p>
+<p>,So that's how it was? But Mom! I told you to take your panties off before you and I had sex, hehe.'</p>
 
 <p>,I begged you to be my slave after you left the house... Or was it not like that?,</p>
 
@@ -52,7 +52,7 @@ chapter = 143
 
 <p>Mom brings up Seyoung in order to rationalize her exposed contradictory behavior.</p>
 
-<p>,We can just include Seyoung too~!! Hehehe,</p>
+<p>,We can just include Seyoung too!! Hehehe,</p>
 
 <p>Shiwoo reveals his true feelings as if joking.</p>
 
@@ -64,7 +64,7 @@ chapter = 143
 
 <p>Shiwoo continues to say what he wants to say as if deliberately ignoring Mom's text message.</p>
 
-<p>,I'm really going to run away to another country if that happens~ Do whatever you want, Shiwoo!\?,</p>
+<p>,I'm really going to run away to another country if that happens Do whatever you want, Shiwoo!\?,</p>
 
 <p>Mom attempts a cute threat and rebellion with a half-resigned heart to her son's unreasonable demands.</p>
 
@@ -72,7 +72,7 @@ chapter = 143
 
 <p>Shiwoo kept talking as if he was teasing Mom.</p>
 
-<p>,Do whatever you want~! Why are you asking when you're going to do whatever you want anyway!\?,</p>
+<p>,Do whatever you want! Why are you asking when you're going to do whatever you want anyway!\?,</p>
 
 <p>Mom says, mixing in honorifics as if she's fed up.</p>
 
@@ -96,11 +96,11 @@ chapter = 143
 
 <p>Mom really seems to be annoyed.</p>
 
-<p>,Is our Seonmi really angry~?,</p>
+<p>,Is our Seonmi really angry?,</p>
 
 <p>Shiwoo calls Mom's name playfully, trying to appease her.</p>
 
-<p>,It's not that I'm angry~! You bad boy! We were originally only supposed to do that kind of stuff in chat before Mom left!\?,</p>
+<p>,It's not that I'm angry! You bad boy! We were originally only supposed to do that kind of stuff in chat before Mom left!\?,</p>
 
 <p>Mom was seriously telling Shiwoo.</p>
 
@@ -112,11 +112,11 @@ chapter = 143
 
 <p>Mom, as if she had a lot pent up against Shiwoo, pours out jumbled words without context in a text message, as if she's really pissed off.</p>
 
-<p>,I'm sorry Mom~ I honestly thought you'd like all that stuff too~,</p>
+<p>,I'm sorry Mom I honestly thought you'd like all that stuff too,</p>
 
 <p>Shiwoo offers Mom his own explanation.</p>
 
-<p>,Ugh~ And if you're a wife, you're just a wife! Why are you adding first and second? Who said they'd marry you? You're being ridiculous, really!\?,</p>
+<p>,Ugh And if you're a wife, you're just a wife! Why are you adding first and second? Who said they'd marry you? You're being ridiculous, really!\?,</p>
 
 <p>Mom's last text message was sent as if she was excited.</p>
 
@@ -168,7 +168,7 @@ chapter = 143
 
 <p>Mom's text message comes back after a while.</p>
 
-<p>,Ugh~! What do you mean okay, you idiot! You better think carefully about what you're going to do when Mom goes back home! About Seyoung too! And save some condoms!\?,</p>
+<p>,Ugh! What do you mean okay, you idiot! You better think carefully about what you're going to do when Mom goes back home! About Seyoung too! And save some condoms!\?,</p>
 
 <p>An affectionate title for Shiwoo.</p>
 
@@ -178,7 +178,7 @@ chapter = 143
 
 <p>And Shiwoo was feeling a sense of satisfaction at Mom's nagging, which seemed to temporarily acknowledge his relationship with Seonju Imo or Sehee.</p>
 
-<p>,Alright Seonmi-ya~ I'll do well~ Hehehe,</p>
+<p>,Alright Seonmi-ya I'll do well Hehehe,</p>
 
 <p>Shiwoo now feels comfortable, even while calling Mom's name casually.</p>
 

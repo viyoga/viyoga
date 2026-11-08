@@ -6,7 +6,7 @@ chapter = 216
 +++
 <p>Seonju Imo, face buried on the bed, was being violated by Shiwoo.</p>
 
-<p>"Haaah~! Haaaat~! Haa-euut~! Haaang~!!"</p>
+<p>"Haaah! Haaaat! Haa-euut! Haaang!!"</p>
 
 <p>Seonju Imo, caught off guard by Shiwoo's sudden piston-like thrusting, seemed to momentarily forget that the door was open, and she couldn't help but let out moans.</p>
 
@@ -14,19 +14,19 @@ chapter = 216
 
 <p>Shiwoo forcefully slapped Seonju Imo's buttocks in an instant.</p>
 
-<p>"Haaat~!"</p>
+<p>"Haaat!"</p>
 
 <p>Seonju Imo reacted, surprised by Shiwoo's spanking that came without warning.</p>
 
-<p>"Mom and the kids are all here, is this okay~?"</p>
+<p>"Mom and the kids are all here, is this okay?"</p>
 
 <p>Shiwoo mimicked the words Seonju Imo had teased him with earlier, asking her a question that wasn't really a question, looking down at her.</p>
 
-<p>-Thwack! Thwack! Thwack! Thwack~!</p>
+<p>-Thwack! Thwack! Thwack! Thwack!</p>
 
 <p>Shiwoo's penis, rammed inside Seonju Imo's hole, increased its piston-like speed even more.</p>
 
-<p>"Haaht~ Haa-eup~ Haa-ap~ Haa-euht!"</p>
+<p>"Haaht Haa-eup Haa-ap Haa-euht!"</p>
 
 <p>Seonju Imo, hearing Shiwoo's words, seemed to become conscious of the open door, and she tried to suppress the moans that were leaking out by covering her mouth with her hand.</p>
 
@@ -50,7 +50,7 @@ chapter = 216
 
 <p>Shiwoo roughly scraped against Seonju Imo's taut vaginal wall wrinkles, creating intense friction.</p>
 
-<p>"Master-nim~! Haa-euk~ Ple...please forgive me~! Haaat! Ung! Haa-euht~!!"</p>
+<p>"Master-nim! Haa-euk Ple...please forgive me! Haaat! Ung! Haa-euht!!"</p>
 
 <p>Seonju Imo was sprawled face down, with her waist and pelvis hanging off the edge of the bed, pinned down by Shiwoo's body.</p>
 
@@ -68,11 +68,11 @@ chapter = 216
 
 <p>Seonju Imo was suspended in the air like Superman flying, with her arms and chest hanging on the bed.</p>
 
-<p>-Thwack~! Thwack~! Thwack~!</p>
+<p>-Thwack! Thwack! Thwack!</p>
 
 <p>Shiwoo moved his hips back and forth again, violating the inside of Seonju Imo's hole with his own unique position.</p>
 
-<p>-Haa-ak Haa-aak Haa-aaa~</p>
+<p>-Haa-ak Haa-aak Haa-aaa</p>
 
 <p>Seonju Imo's body, which had not long ago reached climax...</p>
 
@@ -84,11 +84,11 @@ chapter = 216
 
 <p>The trembling that had started from Seonju Imo's arms and upper body was soon spreading throughout her entire body.</p>
 
-<p>"Heueung~ Ma...Master-nim... Please... just once, have mercy... Heueueung~"</p>
+<p>"Heueung Ma...Master-nim... Please... just once, have mercy... Heueueung"</p>
 
 <p>Seonju Imo was begging Shiwoo, crying.</p>
 
-<p>"Have mercy on what~? You're just going to ignore me like that again every time!"</p>
+<p>"Have mercy on what? You're just going to ignore me like that again every time!"</p>
 
 <p>Shiwoo scolded Seonju Imo, moving his hips roughly.</p>
 
@@ -96,7 +96,7 @@ chapter = 216
 
 <p>Shiwoo's penis was thrusting deeply, all the way to the base, inside her crotch.</p>
 
-<p>"Haa-eung~ I...I was wrong~! I...I won't do that again~! Haa-euk~! Please~"</p>
+<p>"Haa-eung I...I was wrong! I...I won't do that again! Haa-euk! Please"</p>
 
 <p>Seonju Imo was struggling to hold on, her body trembling as if her upper body would fall off the bed.</p>
 
@@ -106,7 +106,7 @@ chapter = 216
 
 <p>Shiwoo asked Seonju Imo, his hip movements stopped.</p>
 
-<p>"I...I was rude~ I'll never do that again, so please have mercy just this once~"</p>
+<p>"I...I was rude I'll never do that again, so please have mercy just this once"</p>
 
 <p>Seonju Imo was pleading with Shiwoo.</p>
 
@@ -116,7 +116,7 @@ chapter = 216
 
 <p>Shiwoo ignored Seonju Imo's pleas and resumed his intense piston-like movements.</p>
 
-<p>"Haa-eung Haa-aang Haa-eu-eung~~~!"</p>
+<p>"Haa-eung Haa-aang Haa-eu-eung!"</p>
 
 <p>Seonju Imo, clinging to the edge of the bed after Shiwoo's prolonged piston-like thrusting, was shaking her pelvis violently up and down, as if she had reached climax again.</p>
 
@@ -134,7 +134,7 @@ chapter = 216
 
 <p>Seonju Imo's face, exhausted and sprawled out, was positioned between his legs.</p>
 
-<p>"Haa~ Haa~"</p>
+<p>"Haa Haa"</p>
 
 <p>Seonju Imo's labored breathing as she lay sprawled out.</p>
 
@@ -144,7 +144,7 @@ chapter = 216
 
 <p>Seonju Imo, with a tired expression, looked up at Shiwoo once, then stuck out her tongue and began to lick Shiwoo's massive thing.</p>
 
-<p>"Chyu-ap~ Chyu-eup~ Haa-up~ Chyu-ryup~"</p>
+<p>"Chyu-ap Chyu-eup Haa-up Chyu-ryup"</p>
 
 <p>Seonju Imo spread her tongue and licked Shiwoo's thing from the base.</p>
 
@@ -180,7 +180,7 @@ chapter = 216
 
 <p>Shiwoo was speaking to Seonju Imo in an angry, enraged tone.</p>
 
-<p>"U-oop! Uu-oop~"</p>
+<p>"U-oop! Uu-oop"</p>
 
 <p>Seonju Imo was trying to answer something to Shiwoo, mumbling and trying to take her mouth off Shiwoo's thing.</p>
 
@@ -198,7 +198,7 @@ chapter = 216
 
 <p>Then, he pressed down on Seonju Imo's head, shoving his thing down her throat.</p>
 
-<p>"Huu-oop~ U-uk! Haa-uu-oop~!"</p>
+<p>"Huu-oop U-uk! Haa-uu-oop!"</p>
 
 <p>Shiwoo's penis was swallowed into Seonju Imo's throat in an instant, and she made a painful sound.</p>
 
@@ -210,7 +210,7 @@ chapter = 216
 
 <p>Shiwoo pulled his thing out of her throat when Seonju Imo's body started to tremble and her eyes were about to roll back.</p>
 
-<p>"Kehk-kehk~ Ku-ap~ Haa-eup~ Haa-ap~!"</p>
+<p>"Kehk-kehk Ku-ap Haa-eup Haa-ap!"</p>
 
 <p>Seonju Imo was coughing and breathing heavily, seeming to be in pain.</p>
 
@@ -240,10 +240,10 @@ chapter = 216
 
 <p>Shiwoo commanded Seonju Imo, shaking his thing.</p>
 
-<p>"Yes...until we get home...haa...I'll keep it all...in my mouth~"</p>
+<p>"Yes...until we get home...haa...I'll keep it all...in my mouth"</p>
 
 <p>Seonju Imo immediately answered Shiwoo obediently.</p>
 
-<p>-Pshyuk~! Pshyuk~! Pshyuk~!</p>
+<p>-Pshyuk! Pshyuk! Pshyuk!</p>
 
 <p>Shiwoo's milky white fluid burst out from the tip of his glans and filled Seonju Imo's mouth.</p>

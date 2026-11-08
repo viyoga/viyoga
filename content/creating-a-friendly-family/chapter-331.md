@@ -12,7 +12,7 @@ chapter = 331
 
 <p>Seyoung braced herself, putting strength into her legs to avoid being pushed forward. Through Sua's pelvis, the vibrator's pulsations were transmitted.</p>
 
-<p>"It seems we're almost there~ Will it be our turn after the next one or two?"</p>
+<p>"It seems we're almost there Will it be our turn after the next one or two?"</p>
 
 <p>Shiwoo said, raising his voice as if speaking to his sisters. Sua, reacting sensitively to her older brother's words, flinched and twitched her body...</p>
 
@@ -66,11 +66,11 @@ chapter = 331
 
 <p>Only then did Seyoung gasp for air, as if her breathing had eased slightly.</p>
 
-<p>"Seyoung-ah, can you record a video with your smartphone? We have to show it to the other family members~!"</p>
+<p>"Seyoung-ah, can you record a video with your smartphone? We have to show it to the other family members!"</p>
 
 <p>Shiwoo instructed Seyoung, who was twitching, as if making a request.</p>
 
-<p>"Uh... yeah, okay~ Shiwoo oppa." Seyoung replied to Shiwoo in a subdued voice.</p>
+<p>"Uh... yeah, okay Shiwoo oppa." Seyoung replied to Shiwoo in a subdued voice.</p>
 
 <p>Seyoung aimed her smartphone lens at Shiwoo and Sua. -Ddiring! From her smartphone, the notification sound for starting recording was heard. Shiwoo lifted Sua up again. Then, he reached his hand under her skirt, grabbed his penis, and aligned the tip of his glans with her crevice. Moving his shaft back and forth, Shiwoo widened her crevice. Now, Shiwoo's glans was poised at the edge of her vagina hole. Shiwoo lifted his pelvis, and at the same time, pulled Sua towards his crotch.</p>
 
@@ -84,6 +84,6 @@ chapter = 331
 
 <p>Sua's moaning sound, expelled as if in pain. Shiwoo held Sua's waist firmly and continued to push his long shaft further into Sua's hole. -Ssuuuk! Upeok! Into her vagina hole, Shiwoo's penis slid and was sucked in. The tip of his half-inserted penis seemed to reach the entrance of her uterus. Finally, Shiwoo was experiencing Sua's intimate hole for the very first time. Convulsing, Sua's vagina hole gnawed at Shiwoo's penis.</p>
 
-<p>"Haaaaahng~! Hah! Haaah-eugh! Haaaaah~!"</p>
+<p>"Haaaaahng! Hah! Haaah-eugh! Haaaaah!"</p>
 
 <p>Her moaning sounds burst forth like a flood, a moment too late.</p>

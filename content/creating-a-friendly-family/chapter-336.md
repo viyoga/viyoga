@@ -6,11 +6,11 @@ chapter = 336
 +++
 <p>-Cheolpeok! Cheolpeok! Pueok! Peok! Bbeok!</p>
 
-<p>"Chuap! Churururu~up chwap! Chuap!"</p>
+<p>"Chuap! Churururuup chwap! Chuap!"</p>
 
 <p>The filthy sounds of intercourse filled the contraption that Shiwoo and his sisters were riding.</p>
 
-<p>"Haeuk! Haaa~! Haaa~at!! Haeung!! Heueueueung~!"</p>
+<p>"Haeuk! Haaa! Haaaat!! Haeung!! Heueueueung!"</p>
 
 <p>Sua, now whimpering, arched her back like a bow, then repeatedly leaned forward again.</p>
 
@@ -90,7 +90,7 @@ chapter = 336
 
 <p>Shiwoo squeezed out the remaining semen inside his body into Seyoung's mouth.</p>
 
-<p>"Uup~! Huuum!! Haeum!"</p>
+<p>"Uup! Huuum!! Haeum!"</p>
 
 <p>Seyoung made sounds as she encircled Shiwoo's shaft with her lips, receiving Shiwoo's semen into her mouth.</p>
 
@@ -142,7 +142,7 @@ chapter = 336
 
 <p>Shiwoo's body began to tremble from the painful pressure and friction that Seyoung was creating with her throat.</p>
 
-<p>"Haeueueeut! Haaaat... Aeu... Heueu~"</p>
+<p>"Haeueueeut! Haaaat... Aeu... Heueu"</p>
 
 <p>Shiwoo twisted his body and let out a painful moan.</p>
 

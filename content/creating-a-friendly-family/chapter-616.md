@@ -38,7 +38,7 @@ chapter = 616
 
 <p>And with that, Shiwoo moved his pelvis roughly, ravaging Sejin Nuna's hole.</p>
 
-<p>「Ha-eung~ Ha-eu-eu-eu..Ha-u-eung...Ha-a-ang Ha-ung Ha-ang...」</p>
+<p>「Ha-eung Ha-eu-eu-eu..Ha-u-eung...Ha-a-ang Ha-ung Ha-ang...」</p>
 
 <p>Sejin Nuna arched her waist, letting out a heated moaning sound.</p>
 
@@ -120,7 +120,7 @@ chapter = 616
 
 <p>Shiwoo's penis was being violently thrust into her vagina hole, to the very root.</p>
 
-<p>「Ha-eung Ha-a-ang Ha-euk! I-I'm sorry... Ha-eung... Ju-in-nim... Ha-a-at! I was wrong~ Ha-ang Ju-in-nim! Ha-eu-eung」</p>
+<p>「Ha-eung Ha-a-ang Ha-euk! I-I'm sorry... Ha-eung... Ju-in-nim... Ha-a-at! I was wrong Ha-ang Ju-in-nim! Ha-eu-eung」</p>
 
 <p>Apologizing in respectful speech, Sejin Nuna called out to Shiwoo as if pleading.</p>
 
@@ -180,7 +180,7 @@ chapter = 616
 
 <p>And then, as if expressing that there would be no more spanking, Shiwoo gently stroked down her buttocks.</p>
 
-<p>「Ha-a-a... Hu-u-u-u... Ha-a-a-a-a... Heu-eu... Ha-a-a~」</p>
+<p>「Ha-a-a... Hu-u-u-u... Ha-a-a-a-a... Heu-eu... Ha-a-a」</p>
 
 <p>Only then did Sejin Nuna exhale a long breath, releasing the tension that had been tightening her entire body.</p>
 

@@ -120,7 +120,7 @@ chapter = 200
 
 <p>A moment of quiet silence filled the motel room where Shiwoo and Sehee Nuna were.</p>
 
-<p>"Shiwoo-ya, give me your arm~"</p>
+<p>"Shiwoo-ya, give me your arm"</p>
 
 <p>Breaking the silence, Sehee Nuna said to Shiwoo in the dark.</p>
 
@@ -168,7 +168,7 @@ chapter = 200
 
 <p>Sehee Nuna put her hand on Shiwoo's chest, hugged him tightly in his arms, and apologized again.</p>
 
-<p>"It's all over now. Don't worry too much about it~!"</p>
+<p>"It's all over now. Don't worry too much about it!"</p>
 
 <p>Shiwoo turned his body to face Sehee Nuna, making his penis touch Sehee Nuna's body.</p>
 
@@ -176,7 +176,7 @@ chapter = 200
 
 <p>For some reason, Sehee Nuna was also apologizing to Shiwoo for her usual behavior.</p>
 
-<p>"Yeah... well, you just have to not do that anymore~"</p>
+<p>"Yeah... well, you just have to not do that anymore"</p>
 
 <p>Shiwoo stroked Sehee Nuna's hair and spoke soothingly.</p>
 

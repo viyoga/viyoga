@@ -62,7 +62,7 @@ chapter = 421
 
 <p>When Shiwoo presses his palm, covering the vibrator, towards Mom's crotch, a compressed vibrating sound is heard rampaging between her legs.</p>
 
-<p>"Haeueueuk! Haaaaaang! Haeueueung~!"</p>
+<p>"Haeueueuk! Haaaaaang! Haeueueung!"</p>
 
 <p>Mom twisted her upper body, which was pinned down by Shiwoo, from side to side, moaning in response to the reverberation of the vibrator pressed against her clitoris.</p>
 
@@ -76,7 +76,7 @@ chapter = 421
 
 <p>Shiwoo says, pressing down on Mom's clitoris even more tenaciously with the vibrator.</p>
 
-<p>"Haeut haaang... Ma... Master-nim... Shiwoo... Master-nim~! Heueueueung.... Master-nim~! Heueuk! Haeueueung haaaaak!"</p>
+<p>"Haeut haaang... Ma... Master-nim... Shiwoo... Master-nim! Heueueueung.... Master-nim! Heueuk! Haeueueung haaaaak!"</p>
 
 <p>Mom desperately calls Shiwoo, making a sound like she is about to pass out.</p>
 
@@ -90,7 +90,7 @@ chapter = 421
 
 <p>Shiwoo threatens Mom as if scolding her, mentioning Sehee Nuna's name and the rank he had just set.</p>
 
-<p>"I... I really... don't think I can endure it... Like this... Haeueuk... Too... too strong... Haueut! Shiwoo-ya~! Shiwoo-yat! Heueueung heugeueuk!"</p>
+<p>"I... I really... don't think I can endure it... Like this... Haeueuk... Too... too strong... Haueut! Shiwoo-ya! Shiwoo-yat! Heueueung heugeueuk!"</p>
 
 <p>-Tak tak tak!</p>
 

@@ -4,7 +4,7 @@ weight = 53
 [extra]
 chapter = 53
 +++
-<p>"My panties are soaked!! This feeling is really strange~!! Haa~ really~~ Shiwoo, you should hurry up and get a girlfriend you can get a couple tattoo with in secret from Mom~ Don't make Nuna struggle like this~!"</p>
+<p>"My panties are soaked!! This feeling is really strange!! Haa really Shiwoo, you should hurry up and get a girlfriend you can get a couple tattoo with in secret from Mom Don't make Nuna struggle like this!"</p>
 
 <p>Sehee Nuna, walking while embraced by Shiwoo, poked Shiwoo's side deeply as she spoke. Sehee Nuna spoke as if complaining, sounding annoyed and regretful.</p>
 
@@ -12,7 +12,7 @@ chapter = 53
 
 <p>Shiwoo asked Sehee Nuna without stopping the hand that was caressing her.</p>
 
-<p>"Of course it's hard like this, you idiot~!!"</p>
+<p>"Of course it's hard like this, you idiot!!"</p>
 
 <p>Sehee Nuna, with half-lidded eyes, spoke while leaning on Shiwoo's shoulder.</p>
 
@@ -30,7 +30,7 @@ chapter = 53
 
 <p>While making her own younger brother an object of casual amusement, enjoying herself by overtly seducing him... Even though she knew it would turn out like this from the very beginning...</p>
 
-<p>"Aah~"</p>
+<p>"Aah"</p>
 
 <p>Sehee Nuna let out a short, single moaning sound and winced. Yet, she showed an attitude as if she was simply submitting to Shiwoo's actions. Shiwoo released his pinching fingers and rubbed Sehee Nuna's cheek in a circular motion with his palm, asking seriously.</p>
 
@@ -38,7 +38,7 @@ chapter = 53
 
 <p>Shiwoo spoke as if probing, with an uncomfortable insinuation about his relationship with Sinbi Nuna, to gauge Sehee Nuna's reaction.</p>
 
-<p>"Haaah~"</p>
+<p>"Haaah"</p>
 
 <p>Sehee Nuna let out a deep sigh. And after a moment of silence, she spoke in a small voice.</p>
 
@@ -58,7 +58,7 @@ chapter = 53
 
 <p>Seeing Sehee Nuna's expression, Shiwoo audaciously and shamelessly made what was not really a suggestion.</p>
 
-<p>"Haa~ you really just do whatever you want!!"</p>
+<p>"Haa you really just do whatever you want!!"</p>
 
 <p>Sehee Nuna let out a deep sigh, as if exasperated, and spoke with a somewhat forlorn expression. Shiwoo and Sehee Nuna walked through the department store, exchanging strange conversations that crossed the boundaries of conventional ethics and taboos.</p>
 
@@ -74,7 +74,7 @@ chapter = 53
 
 <p>Shiwoo released the arm he had around Sehee Nuna and entered the store. Sehee Nuna soon followed him in.</p>
 
-<p>"Welcome~"</p>
+<p>"Welcome"</p>
 
 <p>The store employees, seeing Shiwoo and Sehee Nuna, who looked like high school students, enter the store, offered a professional greeting while standing still and watching, wondering what was happening. Then, as if recognizing Sehee Nuna's face, one employee approached Shiwoo and Sehee Nuna.</p>
 
@@ -94,11 +94,11 @@ chapter = 53
 
 <p>Sehee Nuna held up the shopping bag in front of Shiwoo and asked him.</p>
 
-<p>"No~" Shiwoo smiled leisurely at Sehee Nuna's question, shaking his head.</p>
+<p>"No" Shiwoo smiled leisurely at Sehee Nuna's question, shaking his head.</p>
 
 <p>"Then what are you going to do? Tell me to wear it in secret?" Sehee Nuna asked cautiously, as if worried.</p>
 
-<p>"I'll talk to Mom and make sure you can wear those clothes comfortably at home now~!!"</p>
+<p>"I'll talk to Mom and make sure you can wear those clothes comfortably at home now!!"</p>
 
 <p>"What?"</p>
 
@@ -106,7 +106,7 @@ chapter = 53
 
 <p>Shiwoo, smiling brightly, said to Sehee Nuna, who stood facing him.</p>
 
-<p>"What the hell is this~"</p>
+<p>"What the hell is this"</p>
 
 <p>Sehee Nuna cast her gaze downwards and murmured to herself. Shiwoo gently stroked Sehee Nuna's head and cheek. Shiwoo's still hard cock, hidden beneath Seyoung's pajamas draped over his arm, remained rigidly erect, pointing towards Sehee Nuna.</p>
 
@@ -128,7 +128,7 @@ chapter = 53
 
 <p>Sehee Nuna spoke as if it were someone else's business, or perhaps she was feigning innocence.</p>
 
-<p>"Isn't it a bit hard to walk right now? Is it going to keep coming out all day? That's amazing~" Shiwoo spoke to Sehee Nuna with a subtle, teasing smile.</p>
+<p>"Isn't it a bit hard to walk right now? Is it going to keep coming out all day? That's amazing" Shiwoo spoke to Sehee Nuna with a subtle, teasing smile.</p>
 
 <p>He was simultaneously feeling a strange excitement and a smug satisfaction at the fact that Sehee Nuna was reacting to him, continuously leaking fluid for over half a day.</p>
 
@@ -144,11 +144,11 @@ chapter = 53
 
 <p>Breaking the silence between them, Shiwoo spoke quietly, in a tone as if letting the words slip out. Sehee Nuna, walking in Shiwoo's embrace, leaning on his shoulder. Instantly, Sehee Nuna trembled and reacted immediately to his words.</p>
 
-<p>"What the hell are you talking about~ And would something like that even fit in~"</p>
+<p>"What the hell are you talking about And would something like that even fit in"</p>
 
 <p>Sehee Nuna's face flushed bright red again, and she spoke in a voice that was almost on the verge of tears.</p>
 
-<p>"I told you, it goes in just fine~"</p>
+<p>"I told you, it goes in just fine"</p>
 
 <p>Shiwoo said to Nuna, recalling the sex he had with Mom yesterday. -Because he had experienced it once, he could say it proudly, no matter how many times he had to-</p>
 

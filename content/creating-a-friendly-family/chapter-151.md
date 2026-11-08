@@ -12,7 +12,7 @@ chapter = 151
 
 <p>With his outstretched fingertips, Shiwoo gently rotated and rolled over the sensitive inner flesh and protuberances of their joined parts, as if washing them.</p>
 
-<p>「Haa-eueu~haa-eu.. Heueut!」</p>
+<p>「Haa-eueuhaa-eu.. Heueut!」</p>
 
 <p>Seonju Imo was letting out moans with irregular breaths, her expression slightly distorted.</p>
 
@@ -50,7 +50,7 @@ chapter = 151
 
 <p>A cozy sense of security and intense stimulation simultaneously made Seonju Imo's body burn with heat.</p>
 
-<p>「Haaaa-aah~」</p>
+<p>「Haaaa-aah」</p>
 
 <p>Perhaps feeling unnecessarily embarrassed, Seonju Imo sighed and blushed.</p>
 

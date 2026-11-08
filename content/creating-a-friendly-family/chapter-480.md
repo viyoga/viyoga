@@ -58,7 +58,7 @@ chapter = 480
 
 <p>She was clearly anxious that Seyoung might come into the master bedroom early to sleep and see Shiwoo naked and erect.</p>
 
-<p>"Moon~?"</p>
+<p>"Moon?"</p>
 
 <p>Shiwoo thrust his pelvis forward, flaunting his massively erect penis to Mom, and reacted to Mom with an innocent, playful expression.</p>
 
@@ -68,7 +68,7 @@ chapter = 480
 
 <p>Mom averted her eyes from Shiwoo and answered in a barely audible voice.</p>
 
-<p>"Ah ah~ You mean I have to close the door?"</p>
+<p>"Ah ah You mean I have to close the door?"</p>
 
 <p>Shiwoo closed the wide-open door as if he had finally understood Mom's words.</p>
 
@@ -102,7 +102,7 @@ chapter = 480
 
 <p>Mom reacted as if startled by the documents Shiwoo was handing her.</p>
 
-<p>"I sent you a picture of it earlier~ I told you to read it and sign it!"</p>
+<p>"I sent you a picture of it earlier I told you to read it and sign it!"</p>
 
 <p>Shiwoo lightly shook the marriage contract he was holding out and commanded.</p>
 

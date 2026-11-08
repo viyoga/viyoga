@@ -12,15 +12,15 @@ chapter = 47
 
 <p>After the commercials ended and the distributor and production company logo videos passed, the movie began with a roar. The initial 30 minutes of the film were filled with dazzling action scenes that felt as if they were plastered with special effects of light and visuals. After the middle part, as the story became a little loose and immersion in the work began to wane, Sehee Nuna secretly whispered to Shiwoo.</p>
 
-<p>"The movie is really boring~ Shiwoo, this is all because you didn't bring your student ID properly!!"</p>
+<p>"The movie is really boring Shiwoo, this is all because you didn't bring your student ID properly!!"</p>
 
 <p>Sehee Nuna's tone wasn't one of blaming Shiwoo. -Rather, it was a cute tone, as if she was just playfully complaining- Every time Sehee Nuna made a sound, the breath escaping from her lips and the vibration of her voice reached Shiwoo's ear, seemingly adding a tingling sensation of ejaculation directly to Shiwoo's penis.</p>
 
-<p>"Sorry~ Next time I come, I'll definitely bring my student ID~"</p>
+<p>"Sorry Next time I come, I'll definitely bring my student ID"</p>
 
 <p>Shiwoo also spoke close to Sehee Nuna's ear, as if conveying a secret conversation just between the two of them. Perhaps Shiwoo's breath tickled her, for every time Shiwoo's voice reached her ear, Sehee Nuna flinched slightly, listening to Shiwoo's whisper. At first glance, the content of the conversation between Shiwoo and Sehee Nuna seemed like an older sister scolding and reprimanding her younger brother, but in reality, the sensations they both felt seemed entirely different.</p>
 
-<p>"I'm sleepy~!! And I'm a little cold~!"</p>
+<p>"I'm sleepy!! And I'm a little cold!"</p>
 
 <p>Sehee Nuna whispered to Shiwoo again like that, then released the hand she was holding with Shiwoo and lifted the armrest placed between them. And then, she gently leaned her head on Shiwoo's shoulder. On the large screen in front, the colorful lights of special effects burst like flashes, momentarily filling the dark theater. Shiwoo adjusted his posture and sat, wrapping his arm around Sehee Nuna's shoulder. He was now in a position where he was embracing Sehee Nuna, who was leaning slightly towards him, with one arm.</p>
 

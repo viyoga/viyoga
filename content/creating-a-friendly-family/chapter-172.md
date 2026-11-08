@@ -16,11 +16,11 @@ chapter = 172
 
 <p>Shiwoo suppressed his voice as much as possible, but he couldn't be sure that his angry voice hadn't reached Seyoung's ears.</p>
 
-<p>,Seyoung-a?! Imo has something to talk about with Shiwoo Oppa, so I'm going up to Oppa's room on the second floor for a bit? It might take a while, so can you two play on the first floor when Sua comes out~?"</p>
+<p>,Seyoung-a?! Imo has something to talk about with Shiwoo Oppa, so I'm going up to Oppa's room on the second floor for a bit? It might take a while, so can you two play on the first floor when Sua comes out?"</p>
 
 <p>Seonju Imo, as if trying to obey Shiwoo's command, calmly gets up and speaks to Seyoung in the living room.</p>
 
-<p>"Okay! I understand, Seonju Imo~ When Sua comes out of the bathroom, I'll tell her that Oppa and Seonju Imo went up together."</p>
+<p>"Okay! I understand, Seonju Imo When Sua comes out of the bathroom, I'll tell her that Oppa and Seonju Imo went up together."</p>
 
 <p>Seyoung glances at the dining table and answers Seonju Imo before turning her gaze back to the TV.</p>
 
@@ -40,7 +40,7 @@ chapter = 172
 
 <p>In his fantasy, Seyoung's face, which had been smiling brightly, is distorted as if stained with pleasure mixed with pain.</p>
 
-<p>"I'm going up, Shiwoo~ I'll go up and prepare as you said, right?"</p>
+<p>"I'm going up, Shiwoo I'll go up and prepare as you said, right?"</p>
 
 <p>Seonju Imo asks Shiwoo, who is captivated by his fantasy about Seyoung, as if confirming the command he just gave her.</p>
 
@@ -128,7 +128,7 @@ chapter = 172
 
 <p class="scene-break">· · ·</p>
 
-<p>"Have you arrived~? Master-nim?"</p>
+<p>"Have you arrived? Master-nim?"</p>
 
 <p>As soon as Shiwoo opens the door and enters, Seonju Imo lowers her eyes to the floor and politely greets Shiwoo.</p>
 
@@ -160,7 +160,7 @@ chapter = 172
 
 <p>Shiwoo's huge cock was erected right in front of Seonju Imo's face.</p>
 
-<p>"Oh my~ Did you take off your clothes and come up from the first floor? Seyoung must have been surprised~ Kik."</p>
+<p>"Oh my Did you take off your clothes and come up from the first floor? Seyoung must have been surprised Kik."</p>
 
 <p>Seonju Imo says, giving an awkward, admiring smile at the fact that Shiwoo had been taking off his clothes since before entering the room.</p>
 

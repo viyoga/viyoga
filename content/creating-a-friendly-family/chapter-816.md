@@ -14,7 +14,7 @@ chapter = 816
 
 <p>Siu spoke as if the thought had just crossed his mind, cutting into the conversation between his Mother and Yuna.</p>
 
-<p>"Ah~! An initial tattoo? 'S M N'... in the same spot as Sunmi, right? Of course that's possible! But are you sure you're up for it?"</p>
+<p>"Ah! An initial tattoo? 'S M N'... in the same spot as Sunmi, right? Of course that's possible! But are you sure you're up for it?"</p>
 
 <p>She narrowed her eyes, a playful smile playing on her lips, her tone a mix of worry and mockery as she let her words trail off.</p>
 
@@ -40,7 +40,7 @@ chapter = 816
 
 <p>Siu spoke in a slurred, informal tone, letting his voice fade out.</p>
 
-<p>"Sure~ go ahead."</p>
+<p>"Sure go ahead."</p>
 
 <p>She replied in a sleepy, listless voice, bowing slightly.</p>
 
@@ -82,7 +82,7 @@ chapter = 816
 
 <p>She bit her lip, holding her breath as if absorbing the thick, murderous aura of raw masculinity radiating from him.</p>
 
-<p>"Don't worry~ We won't start without you, Siu. I'll just prepare a few things first."</p>
+<p>"Don't worry We won't start without you, Siu. I'll just prepare a few things first."</p>
 
 <p>She let go of her lip, smiling calmly to soothe him as she spoke in a relaxed voice.</p>
 

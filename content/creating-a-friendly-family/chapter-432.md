@@ -14,7 +14,7 @@ chapter = 432
 
 <p>The bottom of the cardigan that Shiwoo draped over her shoulders goes down to the lower part of Mom's pelvis, covering her exposed smooth and snow-white skin.</p>
 
-<p>"I'll carry this now, so give it here~"</p>
+<p>"I'll carry this now, so give it here"</p>
 
 <p>Shiwoo says, grabbing and pulling the shopping bag that Mom is hugging.</p>
 
@@ -54,7 +54,7 @@ chapter = 432
 
 <p>Mom's pelvis and buttocks muscles tense up as if stiffened.</p>
 
-<p>"Relax and spread your legs, Seonmi-yang~!"</p>
+<p>"Relax and spread your legs, Seonmi-yang!"</p>
 
 <p>Shiwoo says to Mom in a low and soft voice.</p>
 

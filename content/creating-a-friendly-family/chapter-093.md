@@ -10,7 +10,7 @@ chapter = 93
 
 <p>Seeing the photo that revealed the curves of her bewitching body, Shiwoo felt an impulse to break through the smartphone screen and pounce on Mom right away.</p>
 
-<p>'This is a service~ Your Mom wore this during today's body profile shoot, kekeke'</p>
+<p>'This is a service Your Mom wore this during today's body profile shoot, kekeke'</p>
 
 <p>Seonju Imo's first reply seemed somewhat out of the blue.</p>
 
@@ -162,7 +162,7 @@ chapter = 93
 
 <p>And then, Seonju Imo's text message came right after.</p>
 
-<p>'Do whatever you want~'</p>
+<p>'Do whatever you want'</p>
 
 <p>Shiwoo felt his hair stand on end at Seonju Imo's message, and his mind snapped back to reality.</p>
 
@@ -182,7 +182,7 @@ chapter = 93
 
 <p>Shiwoo, who reached climax right away, spewed out an enormous amount of semen into the air.</p>
 
-<p>-Fshoo~! Fshoo!! Fshooo!!!</p>
+<p>-Fshoo! Fshoo!! Fshooo!!!</p>
 
 <p>The pent-up anger, displeasure, and countless twisted emotions that were hard to express.</p>
 

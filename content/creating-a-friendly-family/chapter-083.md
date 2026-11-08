@@ -6,7 +6,7 @@ chapter = 83
 +++
 <p>Shiwoo gently strokes Seonju Imo's calf as if caressing it.</p>
 
-<p>,Haa~... Eum....,</p>
+<p>,Haa... Eum....,</p>
 
 <p>Seonju Imo, with her eyes closed, let out light breaths into the air.</p>
 
@@ -36,17 +36,17 @@ chapter = 83
 
 <p>,Really?,</p>
 
-<p>,Yeah... she looked good ever since she woke up this morning~!!,</p>
+<p>,Yeah... she looked good ever since she woke up this morning!!,</p>
 
 <p>Seonju Imo was still answering Shiwoo with her eyes closed.</p>
 
 <p>At the mention of Mom being in a good mood, Shiwoo recalled the texts about their master-slave roleplay from last night and felt a little smug.</p>
 
-<p>,But Imo must have been really tired~ Her legs are completely stiff and knotted up?,</p>
+<p>,But Imo must have been really tired Her legs are completely stiff and knotted up?,</p>
 
 <p>Shiwoo, in fact, spoke slyly while touching Seonju Imo's calf muscles, which were softly relaxed.</p>
 
-<p>,Ugh... yeah~ I was attending to Unnie all day... they seem completely knotted up~ What if they swell up tomorrow morning?,</p>
+<p>,Ugh... yeah I was attending to Unnie all day... they seem completely knotted up What if they swell up tomorrow morning?,</p>
 
 <p>Seonju Imo, making unnecessary worried remarks and using Mom as an excuse to justify Shiwoo's labor.</p>
 
@@ -56,11 +56,11 @@ chapter = 83
 
 <p>Shiwoo withdrew his hand again and placed it on Seonju Imo's knee.</p>
 
-<p>,Th-that's why I'm loosening them up for you~! Doesn't it feel good?,</p>
+<p>,Th-that's why I'm loosening them up for you! Doesn't it feel good?,</p>
 
 <p>Shiwoo spoke to Seonju Imo with a somewhat clumsy, domineering tone after just touching her thigh.</p>
 
-<p>,No, no~~ it's not that~ Kikik! I've always loved it when Shiwoo touches me like this~ While you're at it, could you loosen up the spot you just touched? That part feels really stiff right now too~,</p>
+<p>,No, no it's not that Kikik! I've always loved it when Shiwoo touches me like this While you're at it, could you loosen up the spot you just touched? That part feels really stiff right now too,</p>
 
 <p>Seonju Imo spoke to Shiwoo in a languid, pleading tone.</p>
 
@@ -172,7 +172,7 @@ chapter = 83
 
 <p>Shiwoo believed that Seonju Imo, aroused and profusely secreting vaginal fluid like this, would easily grant any request.</p>
 
-<p>,Not today~!,</p>
+<p>,Not today!,</p>
 
 <p>Seonju Imo's words came back as a refusal.</p>
 
@@ -180,7 +180,7 @@ chapter = 83
 
 <p>Shiwoo asked, slightly flustered by Seonju Imo's unexpected words.</p>
 
-<p>,Because I'm wearing mismatched ones! No way~!! Kikik.,</p>
+<p>,Because I'm wearing mismatched ones! No way!! Kikik.,</p>
 
 <p>Seonju Imo was saying something playfully.</p>
 
@@ -188,7 +188,7 @@ chapter = 83
 
 <p>Shiwoo didn't understand what Seonju Imo was talking about.</p>
 
-<p>,Today, I really didn't intend to take them off, so I wore different top and bottom underwear~,</p>
+<p>,Today, I really didn't intend to take them off, so I wore different top and bottom underwear,</p>
 
 <p>Seonju Imo spoke playfully, yet as if truly embarrassed.</p>
 
@@ -196,7 +196,7 @@ chapter = 83
 
 <p>Shiwoo spoke as if dumbfounded.</p>
 
-<p>,Showing this kind of thing to a man subtly bothers me~!!,</p>
+<p>,Showing this kind of thing to a man subtly bothers me!!,</p>
 
 <p>Seonju Imo, despite already showing herself thoroughly soaked with vaginal fluid, spoke as if she was more embarrassed to show Shiwoo her mismatched underwear colors.</p>
 
@@ -208,7 +208,7 @@ chapter = 83
 
 <p>,Was it intentional? To seduce him?,</p>
 
-<p>,So what if I'm your nephew? Anyway, it's getting in the way~!! Either take it off or move it!!!,</p>
+<p>,So what if I'm your nephew? Anyway, it's getting in the way!! Either take it off or move it!!!,</p>
 
 <p>Perhaps emboldened by Seonju Imo's cute appearance, Shiwoo audaciously grabbed the hem of Seonju Imo's skirt with his hand and pulled it straight up, flipping it over her belly.</p>
 
@@ -220,7 +220,7 @@ chapter = 83
 
 <p>Shiwoo's enraged penis twitched, pressing against Seonju Imo's calf as if protesting its desire to enter her body.</p>
 
-<p>,Should I really let Shiwoo finish the massage today~? Kikik.,</p>
+<p>,Should I really let Shiwoo finish the massage today? Kikik.,</p>
 
 <p>Seonju Imo, laughing playfully, quietly let out a monologue.</p>
 

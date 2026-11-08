@@ -174,7 +174,7 @@ chapter = 586
 
 <p>Shiwoo is startled for a moment and the breath he had chosen is scattered again.</p>
 
-<p>,Well, maybe~"</p>
+<p>,Well, maybe"</p>
 
 <p>Cheoljin smiles as if it's nothing and pats Shiwoo before going down the stairs ahead of him at a fast pace.</p>
 

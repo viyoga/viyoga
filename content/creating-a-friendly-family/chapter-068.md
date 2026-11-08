@@ -16,7 +16,7 @@ chapter = 68
 
 <p>Reacting to the sensitive stimulation of the shaft, Sehee's hips arched and thrust up as if breaking.</p>
 
-<p>"Haa~! Hah!"</p>
+<p>"Haa! Hah!"</p>
 
 <p>Shiwoo pulled his hips back and placed the tip of his glans as if resting it on the entrance of the hole between the parted crevice.</p>
 
@@ -40,7 +40,7 @@ chapter = 68
 
 <p>A subtle sensation, as if the vaginal membrane was parting and tearing, was directly transmitted to the flesh of Shiwoo's glans.</p>
 
-<p>"Haaak~!!!"</p>
+<p>"Haaak!!!"</p>
 
 <p>Sehee's moan, seeping out as if stiffened.</p>
 
@@ -52,23 +52,23 @@ chapter = 68
 
 <p>Shiwoo wrapped his arms around Sehee's back and the nape of her neck, supporting her as she clung to him as if stiff.</p>
 
-<p>"Haaaat~!!!"</p>
+<p>"Haaaat!!!"</p>
 
 <p>In that instant, as if her contraction had released, Sehee's body relaxed and her moans burst forth.</p>
 
 <p>Shiwoo's cock head slid into Sehee's vagina.</p>
 
-<p>Jjigeok~</p>
+<p>Jjigeok</p>
 
 <p>Pouring out an endless spring of pleasure, Sehee's vaginal flesh embraced Shiwoo's shaft.</p>
 
-<p>"Heueueung~ Heut!"</p>
+<p>"Heueueung Heut!"</p>
 
 <p>Sehee's cries, as if pain and pleasure were intertwined.</p>
 
 <p>The tip of Shiwoo's penis touched Sehee's cervix.</p>
 
-<p>"I-it's deep~!!!"</p>
+<p>"I-it's deep!!!"</p>
 
 <p>Sehee, clinging to Shiwoo with her arms, was trembling all over.</p>
 
@@ -94,7 +94,7 @@ chapter = 68
 
 <p>"Are you okay like this?" Shiwoo asked, seemingly worried.</p>
 
-<p>"Uhm... I-I think it's better than I thought~" Sehee tried to erase her uneasy expression and smiled faintly.</p>
+<p>"Uhm... I-I think it's better than I thought" Sehee tried to erase her uneasy expression and smiled faintly.</p>
 
 <p>Sehee's body was still trembling.</p>
 
@@ -124,7 +124,7 @@ chapter = 68
 
 <p>As if resisting the pressure, it gained strength and widened Sehee's vagina hole.</p>
 
-<p>"Heum heum~ Eum... Heum..."</p>
+<p>"Heum heum Eum... Heum..."</p>
 
 <p>Sehee's moans, trapped in her mouth and unable to escape.</p>
 
@@ -144,7 +144,7 @@ chapter = 68
 
 <p>The penis trying to widen the hole and the vagina hole trying to squeeze that penis—a taut pressure between them.</p>
 
-<p>"Heuaaa Hah~!!!"</p>
+<p>"Heuaaa Hah!!!"</p>
 
 <p>Sehee, as if tormented by the indiscriminate pressure of their joined parts, cried out, tightening her arms and legs around Shiwoo's body.</p>
 
@@ -174,13 +174,13 @@ chapter = 68
 
 <p>Perhaps embarrassed to look at Shiwoo's face with his penis deeply embedded, Sehee avoided his gaze, nodded slightly, then pulled Shiwoo's face closer and embraced him, as if crossing their cheeks.</p>
 
-<p>"W-would I ever say such a thing out loud?! You idiot~ Heut!"</p>
+<p>"W-would I ever say such a thing out loud?! You idiot Heut!"</p>
 
 <p>Sehee's trembling voice reached Shiwoo's ear faintly.</p>
 
 <p>Sehee's rebellious attitude, which seemed to have changed from just a moment ago.</p>
 
-<p>"And Shiwoo, why have you been calling my name so casually since earlier? Haa~ You're messing with your Nuna, you little... Just because I'm quiet, you think it's okay?! I'm really upset, you know?! Haa~ Haa~"</p>
+<p>"And Shiwoo, why have you been calling my name so casually since earlier? Haa You're messing with your Nuna, you little... Just because I'm quiet, you think it's okay?! I'm really upset, you know?! Haa Haa"</p>
 
 <p>Sehee breathed roughly and, as if deliberately trying to provoke Shiwoo, complained in a quarrelsome tone.</p>
 
@@ -192,7 +192,7 @@ chapter = 68
 
 <p>In Shiwoo's chest, a strong sadistic urge to thrust his penis, piercing Sehee's uterus, right now, strongly arose.</p>
 
-<p>"It's really... going to hurt, and I'm not going to stop, ever~!!!"</p>
+<p>"It's really... going to hurt, and I'm not going to stop, ever!!!"</p>
 
 <p>Shiwoo, as if playing along with Sehee's provocation, was giving Sehee a final warning.</p>
 
@@ -218,11 +218,11 @@ chapter = 68
 
 <p>In that state, Shiwoo, with all his might, plunged his penis into Sehee's vagina.</p>
 
-<p>Peok~!!!</p>
+<p>Peok!!!</p>
 
 <p>Shiwoo's penis, buried to the root.</p>
 
-<p>"Haaaat~!!!!"</p>
+<p>"Haaaat!!!!"</p>
 
 <p>Sehee's moans, bursting forth as if exploding.</p>
 
@@ -240,21 +240,21 @@ chapter = 68
 
 <p>With the added weight of his forward-leaning upper body, Shiwoo's thrusting became even more intense.</p>
 
-<p>Peok~!!! Peoeok~!!! Jjigeok! Jjigeok! Peok~!!!</p>
+<p>Peok!!! Peoeok!!! Jjigeok! Jjigeok! Peok!!!</p>
 
 <p>To try and minimize Shiwoo's thrusting movements, Sehee wrapped her arms around Shiwoo's neck, embracing him as if strangling him.</p>
 
 <p>But it was far from enough to affect Shiwoo's violent thrusting.</p>
 
-<p>"Haeueu Haaak Sh-Shiwoo-ya... what do I do now~!!!"</p>
+<p>"Haeueu Haaak Sh-Shiwoo-ya... what do I do now!!!"</p>
 
 <p>Sehee cried out pleadingly, calling Shiwoo's name.</p>
 
-<p>"Sehee, you're mine now~!!! I won't give you to anyone~!!!"</p>
+<p>"Sehee, you're mine now!!! I won't give you to anyone!!!"</p>
 
 <p>Peok!! Peok!! Peok!! Peok!! Peok!! Peok!!!</p>
 
-<p>"Heua... Heuam... Haaat Haaang~!!!"</p>
+<p>"Heua... Heuam... Haaat Haaang!!!"</p>
 
 <p>Shiwoo's rough fucking to possess Sehee and Sehee's shattering cries seemed to announce the beginning of a deep night.</p>
 

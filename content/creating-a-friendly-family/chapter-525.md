@@ -100,7 +100,7 @@ chapter = 525
 
 <p>He put the smartphone, which was still recording, down next to him, and bent his waist forward, bringing his lips to Mom's thigh.</p>
 
-<p>"Chyuuuuup chuaaaap~ chuuup! Chwap chwap!"</p>
+<p>"Chyuuuuup chuaaaap chuuup! Chwap chwap!"</p>
 
 <p>Shiwoo sucked on the soft flesh inside Mom's thigh with his lips.</p>
 

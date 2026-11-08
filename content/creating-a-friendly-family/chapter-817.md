@@ -98,7 +98,7 @@ chapter = 817
 
 <p>The more clearly that red shape filled his vision, the more his mind tangled into a dizzying whirl of confusion.</p>
 
-<p>"Everything is ready. I'll guide you inside now~"</p>
+<p>"Everything is ready. I'll guide you inside now"</p>
 
 <p>"But before that..."</p>
 
@@ -128,7 +128,7 @@ chapter = 817
 
 <p>Just the fact that he was exposing his bare penis in front of her sent a chest-pounding throb racing down his spine.</p>
 
-<p>"Now, would you please come this way~?"</p>
+<p>"Now, would you please come this way?"</p>
 
 <p>Shin Yu-na watched Siu's reaction, offering a bright, amused smile as if she didn't mind at all, yet found it highly intriguing.</p>
 
@@ -184,6 +184,6 @@ chapter = 817
 
 <p>She turned her body slightly, looking back at Mother with a mocking expression.</p>
 
-<p>"Why~? Did your old memories come back, and now you're suddenly scared?"</p>
+<p>"Why? Did your old memories come back, and now you're suddenly scared?"</p>
 
 <p>Shin Yu-na spoke with a chilling smile, as if reminiscing about past games.</p>

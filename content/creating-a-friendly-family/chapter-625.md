@@ -138,7 +138,7 @@ chapter = 625
 
 <p>It was a woman who seemed to be a college student, with clear features and a calm atmosphere.</p>
 
-<p>"Hehe~ What does it matter? Not anymore~"</p>
+<p>"Hehe What does it matter? Not anymore"</p>
 
 <p>The girl who had casually called her older sister's name didn't seem to have any problems despite her protest, and replied with an innocent smile.</p>
 
@@ -170,7 +170,7 @@ chapter = 625
 
 <p>The person called the older sister, who was approaching the elevator from behind, passed Shiwoo and said to the girl as if giving a warning.</p>
 
-<p>"Is that so~?"</p>
+<p>"Is that so?"</p>
 
 <p>The girl shrugged her shoulders playfully in response to her older sister's nagging.</p>
 

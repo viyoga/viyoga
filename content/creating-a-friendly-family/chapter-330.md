@@ -62,7 +62,7 @@ chapter = 330
 
 <p>Shiwoo wondered inwardly.</p>
 
-<p>"Shiwoo oppa~! We're all ready~! Hehe~"</p>
+<p>"Shiwoo oppa! We're all ready! Hehe"</p>
 
 <p>Seyoung approached the table where Shiwoo was sitting, standing close and speaking with a bright smile.</p>
 
@@ -70,7 +70,7 @@ chapter = 330
 
 <p>Shiwoo answered somewhat flustered, seeing Seyoung's innocent smile.</p>
 
-<p>"You waited a long time, didn't you? It must have been boring waiting. The restroom line was a bit backed up, so it took a while~ Hehe~"</p>
+<p>"You waited a long time, didn't you? It must have been boring waiting. The restroom line was a bit backed up, so it took a while Hehe"</p>
 
 <p>Seyoung spoke to Shiwoo with an innocent expression, as if she knew nothing at all about what had happened in the video she had sent.</p>
 
@@ -86,7 +86,7 @@ chapter = 330
 
 <p>Shiwoo said to his younger sisters, standing up from his seat.</p>
 
-<p>"Yeah~"</p>
+<p>"Yeah"</p>
 
 <p>"Mm..."</p>
 
@@ -118,7 +118,7 @@ chapter = 330
 
 <p>Shiwoo's announcement that they would have sex for 20 minutes.</p>
 
-<p>"Yeah~ That sounds fun~ We can brag to Mom or Sehee eonni again~?! And to Seonju too!"</p>
+<p>"Yeah That sounds fun We can brag to Mom or Sehee eonni again?! And to Seonju too!"</p>
 
 <p>Seyoung responded to Shiwoo's words as if it were nothing.</p>
 
@@ -172,7 +172,7 @@ chapter = 330
 
 <p>Yet, Shiwoo felt unnecessarily embarrassed, as if he had been caught by Seyoung doing something he shouldn't.</p>
 
-<p>"You two, hold still! I need to take a commemorative photo~"</p>
+<p>"You two, hold still! I need to take a commemorative photo"</p>
 
 <p>Seyoung raised her smartphone towards Shiwoo, capturing a photo of Shiwoo and Sua standing close together.</p>
 
@@ -184,7 +184,7 @@ chapter = 330
 
 <p>Shiwoo spoke to Seyoung as if giving a pointless lecture.</p>
 
-<p>"I took it well so they won't be in it! Don't worry~! I need to show it to Mom and Seonju, so I'll send it to oppa right away~!"</p>
+<p>"I took it well so they won't be in it! Don't worry! I need to show it to Mom and Seonju, so I'll send it to oppa right away!"</p>
 
 <p>Seyoung paid no mind to Shiwoo's nagging, and as if diligently performing her assigned task, sent the photos she had just taken to Shiwoo.</p>
 
@@ -198,7 +198,7 @@ chapter = 330
 
 <p>A video audaciously sent in a space packed with people waiting in line.</p>
 
-<p>"Watch that after we get on the ride~ It's a bit awkward to watch it here, you know~ Hehe~!"</p>
+<p>"Watch that after we get on the ride It's a bit awkward to watch it here, you know Hehe!"</p>
 
 <p>Seyoung said to Shiwoo as if giving a warning, then walked forward, following the shortening line.</p>
 

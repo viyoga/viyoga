@@ -10,7 +10,7 @@ chapter = 444
 
 <p>Seyoung, as if on purpose, is hugging Mom, groping her buttocks, and rubbing her body against hers without a care.</p>
 
-<p>,Oh... really...? While shopping... you... you made dinner? Good job, Seyoung-ah~... Oh... Mom... had some business with Shiwoo... so I took a long way around and got late...,</p>
+<p>,Oh... really...? While shopping... you... you made dinner? Good job, Seyoung-ah... Oh... Mom... had some business with Shiwoo... so I took a long way around and got late...,</p>
 
 <p>Mom stutters her answer, as if surprised by Seyoung's provocative hug, which could be seen as just being spoiled.</p>
 
@@ -54,7 +54,7 @@ chapter = 444
 
 <p>Mom shudders her shoulders, reacting to the touch of Shiwoo's palm.</p>
 
-<p>"Eung~ Sehee Unni is upstairs on the second floor right now~!"</p>
+<p>"Eung Sehee Unni is upstairs on the second floor right now!"</p>
 
 <p>Seyoung turns her head to the side, rubbing her cheek and head against Mom's chest, and answers.</p>
 
@@ -62,7 +62,7 @@ chapter = 444
 
 <p>Shiwoo asks Seyoung as if checking to see if anything happened with Sehee Nuna's friends in the house while he was gone, as if he was worried even though he had asked Sehee Nuna to take care of it.</p>
 
-<p>"Eung~ After Oppa left, Sehee Unni and her friends went up to the second floor to play, and then came down after a while, but nothing much happened~ hehe~"</p>
+<p>"Eung After Oppa left, Sehee Unni and her friends went up to the second floor to play, and then came down after a while, but nothing much happened hehe"</p>
 
 <p>Seyoung continues to rub her face against Mom's chest and answers.</p>
 

@@ -102,7 +102,7 @@ chapter = 557
 
 <p>Sehee Nuna answered Shiwoo and then sent a text message as if asking him to take care of Mom, who was sprawled out on the bed.</p>
 
-<p>「Okay~! Don't worry about Seonmi, Sehee, you go upstairs!」</p>
+<p>「Okay! Don't worry about Seonmi, Sehee, you go upstairs!」</p>
 
 <p>Shiwoo sends a reply to reassure Sehee Nuna.</p>
 

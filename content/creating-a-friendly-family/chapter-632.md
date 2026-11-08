@@ -4,7 +4,7 @@ weight = 632
 [extra]
 chapter = 632
 +++
-<p>「Mom, then have a good shopping trip with Sehee~ I'll forgive you for cheating with Sehee just for today. Report to me separately later if anything happens! ㅎㅎㅎ」</p>
+<p>「Mom, then have a good shopping trip with Sehee I'll forgive you for cheating with Sehee just for today. Report to me separately later if anything happens! ㅎㅎㅎ」</p>
 
 <p>Shiwoo sends the text to Mom as if leaving a final, playful greeting.</p>
 
@@ -14,7 +14,7 @@ chapter = 632
 
 <p>Did she think that reacting to Shiwoo's wicked jokes would only build up unnecessary fatigue? Or did it mean she was now leaving open a positive possibility regarding the specific situation with Sehee Nuna that Shiwoo mentioned?</p>
 
-<p>「Got it~ I love you.」</p>
+<p>「Got it I love you.」</p>
 
 <p>Shiwoo stops teasing Mom playfully and conveys his heart to her as if shyly confessing his sincere feelings.</p>
 
@@ -98,7 +98,7 @@ chapter = 632
 
 <p>Shiwoo tells Seyoung as if informing her of the result of his visit to Sejin Nuna's house.</p>
 
-<p>「Really? That's great! Hehe~ I'm in class~ It'll be over in a bit!」</p>
+<p>「Really? That's great! Hehe I'm in class It'll be over in a bit!」</p>
 
 <p>「Do you want to go to the cafe in the basement of the academy? Let's eat ice cream later! With Sua!」</p>
 

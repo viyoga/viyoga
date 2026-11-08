@@ -12,7 +12,7 @@ chapter = 385
 
 <p>Shiwoo, sensing that Sora Nuna seemed to be closer to the Hyeong-deul from the blind date, speaks with a slight wariness.</p>
 
-<p>"Are you calling me Nuna now? I'm disappointed~! You can just call me by my name like before~!"</p>
+<p>"Are you calling me Nuna now? I'm disappointed! You can just call me by my name like before!"</p>
 
 <p>Sora Nuna, in an exaggerated, coquettish tone, leans forward, pushing her breasts out from her unbuttoned blouse as she speaks to Shiwoo.</p>
 
@@ -32,7 +32,7 @@ chapter = 385
 
 <p>Shiwoo watches Seyoung enter her room before turning his gaze back to Sora Nuna.</p>
 
-<p>"We~ came to see Sehee and Shiwoo's faces! We haven't had a proper conversation since we parted ways then."</p>
+<p>"We came to see Sehee and Shiwoo's faces! We haven't had a proper conversation since we parted ways then."</p>
 
 <p>Sora Nuna, as if reading Shiwoo's wary expression, changes her tone and speaks to Shiwoo.</p>
 
@@ -48,7 +48,7 @@ chapter = 385
 
 <p>Shiwoo asks about the Hyeong-deul's condition, as if he hadn't been particularly concerned.</p>
 
-<p>"They all spent some time in the hospital, but Jooni Oppa just had a mild concussion, and Seongguk Oppa's stab wound wasn't that serious, so they said he'll recover if he rests for a few months while getting outpatient treatment. They said there's no need to worry too much~!"</p>
+<p>"They all spent some time in the hospital, but Jooni Oppa just had a mild concussion, and Seongguk Oppa's stab wound wasn't that serious, so they said he'll recover if he rests for a few months while getting outpatient treatment. They said there's no need to worry too much!"</p>
 
 <p>Sora Nuna explains to Shiwoo about the injuries and conditions of Jooni Hyeong and Seongguk Hyeong after the blind date.</p>
 
@@ -90,13 +90,13 @@ chapter = 385
 
 <p>Sora Nuna explains the behind-the-scenes circumstances of that day to Shiwoo, as if complaining.</p>
 
-<p>"Jooni Oppa said he told Cheoljin and Shiwoo separately, so we really thought it would be okay then~ And when we were doing that, Shiwoo happened to come back into the room and sit down without saying anything, so we thought Shiwoo wanted to join us too~"</p>
+<p>"Jooni Oppa said he told Cheoljin and Shiwoo separately, so we really thought it would be okay then And when we were doing that, Shiwoo happened to come back into the room and sit down without saying anything, so we thought Shiwoo wanted to join us too"</p>
 
 <p>Sora Nuna was telling stories that would leave anyone who didn't know the situation speechless, as if it were nothing.</p>
 
 <p>Shiwoo was listening to Sora Nuna's words with a slightly bewildered expression.</p>
 
-<p>"Ah, and you don't have to worry about getting any revenge from the Oppa-deul~! Because we told them everything about how you and Sehee are biological siblings and the circumstances of you participating in the blind date, the Oppa-deul seem to understand why you went berserk and attacked them so fiercely~"</p>
+<p>"Ah, and you don't have to worry about getting any revenge from the Oppa-deul! Because we told them everything about how you and Sehee are biological siblings and the circumstances of you participating in the blind date, the Oppa-deul seem to understand why you went berserk and attacked them so fiercely"</p>
 
 <p>Sora Nuna continues, as if trying to reassure Shiwoo and Sehee Nuna about any potential future concerns.</p>
 
@@ -108,7 +108,7 @@ chapter = 385
 
 <p>Shiwoo had been inwardly worried that the Hyeong-deul might harbor resentment towards Shiwoo and Sehee Nuna and do something harmful.</p>
 
-<p>"The Oppa-deul were dumbfounded at first, but they also know they messed up, and they already went to the police station because of it, so they said they don't plan to make things bigger separately~ You know what I mean, right?"</p>
+<p>"The Oppa-deul were dumbfounded at first, but they also know they messed up, and they already went to the police station because of it, so they said they don't plan to make things bigger separately You know what I mean, right?"</p>
 
 <p>Sora Nuna speaks as if conveying the Hyeong-deul's position, waiting for Shiwoo's response as if demanding an answer.</p>
 
@@ -122,7 +122,7 @@ chapter = 385
 
 <p>But Shiwoo vows to exact thorough retribution, in any way possible, on each and every one of those unscrupulous people who tried to put his woman in danger, even if it's later.</p>
 
-<p>"Okay~ Then there's nothing awkward between us anymore, right? Hehe~!"</p>
+<p>"Okay Then there's nothing awkward between us anymore, right? Hehe!"</p>
 
 <p>Sora Nuna says, seemingly pleased after hearing Shiwoo's answer, pushing her chest forward.</p>
 

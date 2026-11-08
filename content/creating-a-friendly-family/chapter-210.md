@@ -22,13 +22,13 @@ chapter = 210
 
 <p>Shiwoo felt a slight release of tension at the familiar presence of guests inside the house.</p>
 
-<p>"Mom! We're here~!"</p>
+<p>"Mom! We're here!"</p>
 
 <p>Shiwoo took off his shoes and announced his and Sehee Nuna's arrival to Mom with a confident voice.</p>
 
 <p>Upon entering the living room, Seonju Imo was visible, sitting at the dining table.</p>
 
-<p>"Shiwoo~! Sehee~! Welcome~ Did you have a good time?!"</p>
+<p>"Shiwoo! Sehee! Welcome Did you have a good time?!"</p>
 
 <p>Seonju Imo's clear and cheerful voice came from the kitchen table, where she was sitting facing the entryway.</p>
 
@@ -48,11 +48,11 @@ chapter = 210
 
 <p>Sehee Nuna, blushing beside Shiwoo, silently bowed her head to Seonju Imo.</p>
 
-<p>"Yeah~ I thought Unnie might be bored~ so I came with the kids~ Heeheehet"</p>
+<p>"Yeah I thought Unnie might be bored so I came with the kids Heeheehet"</p>
 
 <p>Seonju Imo spoke in a playful tone.</p>
 
-<p>"Oppa's here? Hehehe~"</p>
+<p>"Oppa's here? Hehehe"</p>
 
 <p>Seyoung, who was playing in front of the living room TV with Sua, also greeted Shiwoo warmly.</p>
 
@@ -60,7 +60,7 @@ chapter = 210
 
 <p>Instead, she greeted Shiwoo from where she stood, smiling brightly.</p>
 
-<p>"Sh-Shiwoo Oppa~ Sehee Unnie~ Hello~!?"</p>
+<p>"Sh-Shiwoo Oppa Sehee Unnie Hello!?"</p>
 
 <p>Sua, who was playing next to Seyoung, also greeted Shiwoo and Sehee Nuna shyly.</p>
 
@@ -72,11 +72,11 @@ chapter = 210
 
 <p>Seonju Imo was talking to Shiwoo as if making a fuss, as if trying to inform someone unnecessarily.</p>
 
-<p>"Ah.. there was a little something~ but it's all resolved now~"</p>
+<p>"Ah.. there was a little something but it's all resolved now"</p>
 
 <p>Shiwoo answered Seonju Imo, gently touching his swollen face with his palm as if it were nothing.</p>
 
-<p>"What? Shiwoo, you're hurt? What's wrong with your face~? What happened?!"</p>
+<p>"What? Shiwoo, you're hurt? What's wrong with your face? What happened?!"</p>
 
 <p>Mom, who had been busy in the kitchen, heard Shiwoo and Seonju Imo's conversation and rushed into the living room.</p>
 
@@ -90,11 +90,11 @@ chapter = 210
 
 <p>Shiwoo felt his tension completely dissipate at Mom's usual appearance and reaction.</p>
 
-<p>"Ah~ Mom! Are you making food? Hehe~ There was a little something yesterday... but it's nothing!"</p>
+<p>"Ah Mom! Are you making food? Hehe There was a little something yesterday... but it's nothing!"</p>
 
 <p>Shiwoo stroked the injured part of his face and smiled at Mom as if it were nothing.</p>
 
-<p>"It's not 'nothing'~!"</p>
+<p>"It's not 'nothing'!"</p>
 
 <p>Mom approached Shiwoo and spoke, examining his injured spot with a worried expression.</p>
 
@@ -102,23 +102,23 @@ chapter = 210
 
 <p>Mom asked, looking at Sehee Nuna who was hiding behind Shiwoo as if she had committed a sin.</p>
 
-<p>"I... I'm not hurt, Mom. Shiwoo says he's fine now too~"</p>
+<p>"I... I'm not hurt, Mom. Shiwoo says he's fine now too"</p>
 
 <p>Sehee Nuna avoided Mom's eyes and answered as if trying to smooth over the situation to avoid getting scolded too much.</p>
 
-<p>"Fine, my ass~! Your skin's all torn open! Be a little more careful~!!"</p>
+<p>"Fine, my ass! Your skin's all torn open! Be a little more careful!!"</p>
 
 <p>Mom raised her voice, speaking as if upset.</p>
 
-<p>"We need to disinfect it and apply medicine right away~!"</p>
+<p>"We need to disinfect it and apply medicine right away!"</p>
 
 <p>Mom spoke, touching the area around Shiwoo's injury.</p>
 
-<p>"Ugh... eu-eut! Mom... it's fine if you just leave it~"</p>
+<p>"Ugh... eu-eut! Mom... it's fine if you just leave it"</p>
 
 <p>Shiwoo felt a strange sense of relief from Mom's touch, which was accompanied by pain.</p>
 
-<p>"No!! It'll be a big problem if the wound gets infected~ Shiwoo, come in here a bit!"</p>
+<p>"No!! It'll be a big problem if the wound gets infected Shiwoo, come in here a bit!"</p>
 
 <p>Mom led the way, trying to take Shiwoo into the master bedroom.</p>
 
@@ -138,19 +138,19 @@ chapter = 210
 
 <p>Through the half-open door, the faint sounds of Sehee Nuna and Seonju Imo's conversation in the kitchen, and Seyoung and Sua's voices in the living room, could be heard.</p>
 
-<p>"Why weren't you more careful? Did you get into a fight? What happened~"</p>
+<p>"Why weren't you more careful? Did you get into a fight? What happened"</p>
 
 <p>Mom spread the household first-aid kit on the bed, speaking as if frustrated.</p>
 
-<p>"Uh... yeah, well... I got into a bit of a dispute with some older guys I met yesterday... but it all ended well, Mom~"</p>
+<p>"Uh... yeah, well... I got into a bit of a dispute with some older guys I met yesterday... but it all ended well, Mom"</p>
 
 <p>Shiwoo answered cautiously, worried that Mom might get angry about him fighting with older guys.</p>
 
-<p>"Oh dear~ What's happened to my handsome son's face~ What if it scars~!?"</p>
+<p>"Oh dear What's happened to my handsome son's face What if it scars!?"</p>
 
 <p>Mom spoke as if upset and displeased, while applying disinfectant to Shiwoo's injured face.</p>
 
-<p>"Ayat!... Aht~!"</p>
+<p>"Ayat!... Aht!"</p>
 
 <p>Shiwoo, like a child in front of his mother, involuntarily let out a short cry of pain.</p>
 
@@ -160,7 +160,7 @@ chapter = 210
 
 <p>After applying all the disinfectant to the wound, Mom held Shiwoo's chin with both hands, pursed her lips, and blew</p>
 
-<p>"Hoo~"</p>
+<p>"Hoo"</p>
 
 <p>As she leaned slightly, the cleavage between her ample breasts was visible inside Mom's loose-fit purple T-shirt.</p>
 

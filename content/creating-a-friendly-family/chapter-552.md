@@ -120,7 +120,7 @@ chapter = 552
 
 <p>Shiwoo reacts as if he heard an unexpected answer from Seyoung.</p>
 
-<p>"Yeah... I've liked Shiwoo oppa since a long time ago~ Hehe~"</p>
+<p>"Yeah... I've liked Shiwoo oppa since a long time ago Hehe"</p>
 
 <p>Seyoung was regaining her composure, smoothing out her expression and voice, and answering brightly.</p>
 
@@ -138,7 +138,7 @@ chapter = 552
 
 <p>Shiwoo reacts with a slightly embarrassed expression to Seyoung's question that came back at him.</p>
 
-<p>"Is Shiwoo oppa okay~! How do you feel about being like this with me, oppa?"</p>
+<p>"Is Shiwoo oppa okay! How do you feel about being like this with me, oppa?"</p>
 
 <p>Then, Seyoung speaks in a soft tone and voice, as if worrying about Shiwoo's condition...</p>
 
@@ -146,7 +146,7 @@ chapter = 552
 
 <p>Shiwoo answers Seyoung's question seriously, with a slightly trembling voice.</p>
 
-<p>"...Really~? Shiwoo oppa liked me too? I kind of thought so~ Kikik!"</p>
+<p>"...Really? Shiwoo oppa liked me too? I kind of thought so Kikik!"</p>
 
 <p>Seyoung smiles playfully, responding as she usually did when she and Shiwoo exchanged silly jokes.</p>
 
@@ -174,7 +174,7 @@ chapter = 552
 
 <p>Shiwoo continues to move his waist, responding to Seyoung's lines as if he too is continuing the banter.</p>
 
-<p>"Eung, good job~! If Mom and I give birth to Shiwoo's baby, and then the baby's dad is a criminal, that would be pitiful in its own way! Kikik"</p>
+<p>"Eung, good job! If Mom and I give birth to Shiwoo's baby, and then the baby's dad is a criminal, that would be pitiful in its own way! Kikik"</p>
 
 <p>Seyoung was speaking as if it was natural for Mom and herself to become pregnant with Shiwoo's baby and give birth.</p>
 

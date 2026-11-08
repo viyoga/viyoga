@@ -8,7 +8,7 @@ chapter = 268
 
 <p>Shiwoo's thing, which had been pounding deep into Mom's wet hole for a long time. More than half of Shiwoo's firmly erect thing was inside Mom's vagina, strongly knocking against her cervix.</p>
 
-<p>"Ha-eung~! Ha-at~! Ha-eu-eut!"</p>
+<p>"Ha-eung! Ha-at! Ha-eu-eut!"</p>
 
 <p>Mom's incautious moaning sounds filled the room, echoing. Had the fact that Seyoung was not on the first floor made Mom let her guard down? Unlike before, it felt as if the restraints and suppression on Mom's voice had loosened.</p>
 
@@ -24,13 +24,13 @@ chapter = 268
 
 <p>At the end of his thoughts, as if having made a decision, Shiwoo spoke to Mom.</p>
 
-<p>"Seyoung was sucking Sehee's breast well and sleeping soundly, wasn't she~? Both of them are naked on the bed right now...!"</p>
+<p>"Seyoung was sucking Sehee's breast well and sleeping soundly, wasn't she? Both of them are naked on the bed right now...!"</p>
 
 <p>Shiwoo continued to move his hips, speaking as if muttering to himself.</p>
 
 <p>-Cheol-beok! Cheol-beok! Cheol-beok!</p>
 
-<p>"Ha-eu-eu... Ha-euk!... Haa-aa~"</p>
+<p>"Ha-eu-eu... Ha-euk!... Haa-aa"</p>
 
 <p>Mom responded to Shiwoo's words, moaning in time with his hip movements.</p>
 
@@ -38,7 +38,7 @@ chapter = 268
 
 <p>Shiwoo had zoomed in on the tattoo etched on Sehee Nuna's thigh and captured it on screen when he was filming a video to send to Mom on the second floor. Shiwoo asked Mom as if confirming, adjusting the speed of his hip movements slightly to continue the conversation.</p>
 
-<p>"Yes... I... I saw it... Heu-euk~!"</p>
+<p>"Yes... I... I saw it... Heu-euk!"</p>
 
 <p>Mom wrapped her arms around Shiwoo's neck, buried her face in his shoulder, and replied in respectful speech. Shiwoo paused his hips for a moment and stroked Mom's head as she replied to him in respectful speech.</p>
 
@@ -46,7 +46,7 @@ chapter = 268
 
 <p>Shiwoo moved his hips again, explaining Sehee Nuna's tattoo to Mom.</p>
 
-<p>"Heu-eu-eung~"</p>
+<p>"Heu-eu-eung"</p>
 
 <p>Mom let out a moaning sound as if answering Shiwoo's words.</p>
 
@@ -60,7 +60,7 @@ chapter = 268
 
 <p>Mom moaned as if melting into the pleasure felt in her groin. Pinned beneath Shiwoo, Mom hugged him and could barely regulate her breathing.</p>
 
-<p>"It seems they were secretly dating~ And they've probably already had sex~"</p>
+<p>"It seems they were secretly dating And they've probably already had sex"</p>
 
 <p>Shiwoo spoke as if revealing a secret about Sehee Nuna to Mom. Mom, already disoriented, flinched in surprise and embarrassment upon hearing news of her daughter's sex life from her son.</p>
 
@@ -68,7 +68,7 @@ chapter = 268
 
 <p>Instantly, Mom's vagina hole strongly compressed and tightened around Shiwoo's penis. Had Mom's vagina hole tightened instantly because she realized why Shiwoo had brought up Sehee Nuna? Mom's body began to tremble along with the tightening of her vagina hole.</p>
 
-<p>"Soon, I'll let you and Sehee sleep together~! Now that both of you will be with me at home~ Mom and daughter shouldn't become awkward, should they?!" Shiwoo spoke as if confirming Mom's expectations.</p>
+<p>"Soon, I'll let you and Sehee sleep together! Now that both of you will be with me at home Mom and daughter shouldn't become awkward, should they?!" Shiwoo spoke as if confirming Mom's expectations.</p>
 
 <p>Mom's body trembled as she hugged Shiwoo with both her arms and legs.</p>
 
@@ -88,7 +88,7 @@ chapter = 268
 
 <p>An exclamation burst from Mom's lips. Her head, which had been resting on Shiwoo's shoulder, was thrown back as if flipped over.</p>
 
-<p>"I... I'm sorry, Juein-nim... Ha-eut~"</p>
+<p>"I... I'm sorry, Juein-nim... Ha-eut"</p>
 
 <p>Following that, words of apology in respectful speech. And the honorific Juein-nim.</p>
 
@@ -132,7 +132,7 @@ chapter = 268
 
 <p>Shiwoo didn't stop at threatening; he picked up the smartphone he had placed on the bedside table and looked for the pictures. Soon, the lewd orgy pictures of pregnant women he had received from Gyuri Ajumma were displayed on Shiwoo's smartphone screen. Shiwoo brought the smartphone screen in front of Mom's face. Although her eyes were covered by the panties, Shiwoo thought Mom would be able to sufficiently discern the outline of the pictures displayed on the screen through Seyoung's thin pink panties.</p>
 
-<p>"P-please... Juein-nim... forgive me~ Heu-euk!"</p>
+<p>"P-please... Juein-nim... forgive me Heu-euk!"</p>
 
 <p>Mom released her arms that had been wrapped around Shiwoo's neck and urgently grabbed Shiwoo's arm as she spoke.</p>
 

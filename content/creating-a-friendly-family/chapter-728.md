@@ -50,7 +50,7 @@ chapter = 728
 
 <p>Shiwoo shouted at Cheoljin again, his voice a cocktail of fury and bewilderment.</p>
 
-<p>"Pu-hahahat! Alright, alright~ I'll tell you, so just calm down! Calm down~!"</p>
+<p>"Pu-hahahat! Alright, alright I'll tell you, so just calm down! Calm down!"</p>
 
 <p>Cheoljin held his palms out toward Shiwoo, laughing with satisfaction as if enjoying the reaction.</p>
 
@@ -132,7 +132,7 @@ chapter = 728
 
 <p>Shiwoo muttered to himself as if reluctantly, leaving the classroom and leaving Cheoljin behind.</p>
 
-<p>"If any new news comes in, let me know~ It's good for both of us~ Pu-hihihit!"</p>
+<p>"If any new news comes in, let me know It's good for both of us Pu-hihihit!"</p>
 
 <p>Ignoring Cheoljin's words and laughter echoing from behind, Shiwoo headed toward Seulgi's classroom.</p>
 
@@ -174,7 +174,7 @@ chapter = 728
 
 <p>Shiwoo scanned the classroom for a long time, searching for her.</p>
 
-<p>"Why are you just getting here?! The break is almost over! It's been forever since I told you to come~"</p>
+<p>"Why are you just getting here?! The break is almost over! It's been forever since I told you to come"</p>
 
 <p>Then, a girl's sharp voice came from behind him.</p>
 
@@ -190,7 +190,7 @@ chapter = 728
 
 <p>Shiwoo deliberately raised his voice with exaggeration, responding as if he were offended.</p>
 
-<p>"Oh please, if you arrived, you should've run straight to me. Since you didn't show, I figured you weren't coming~"</p>
+<p>"Oh please, if you arrived, you should've run straight to me. Since you didn't show, I figured you weren't coming"</p>
 
 <p>"Am I supposed to stay in my seat without even going to the restroom just to wait for you? You're the one who should've texted me in advance that you were coming to see me!"</p>
 

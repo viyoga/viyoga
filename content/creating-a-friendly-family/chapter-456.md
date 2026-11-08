@@ -22,7 +22,7 @@ chapter = 456
 
 <p>Mom answered, startled, following Shiwoo's words.</p>
 
-<p>"Hmph... T-that's a limited edition... I can't get it even if I try now... W-why didn't you wear it more carefully~ Haa..."</p>
+<p>"Hmph... T-that's a limited edition... I can't get it even if I try now... W-why didn't you wear it more carefully Haa..."</p>
 
 <p>Sehee Nuna turned her head to the smartphone placed by the bedside and spoke with clear pronunciation and articulation, as if to clearly show Shiwoo the scene of her talking to Mom.</p>
 
@@ -196,7 +196,7 @@ chapter = 456
 
 <p>Ssu-peok Peot peok peok peok peok!</p>
 
-<p>"Haa-ap! Haaaa-ap Ha-ap Haa-woo-eup! Haa-euuuu-eup~ Haa-eup!!"</p>
+<p>"Haa-ap! Haaaa-ap Ha-ap Haa-woo-eup! Haa-euuuu-eup Haa-eup!!"</p>
 
 <p>A violent tremor, as if starting from her uterus, traveled up Shiwoo's penis and pelvis from Sehee Nuna's vaginal hole.</p>
 

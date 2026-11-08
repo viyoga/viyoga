@@ -4,7 +4,7 @@ weight = 779
 [extra]
 chapter = 779
 +++
-<p>"Ha-euk~! Please don't do that... Mo-Mom... I feel like I'm going to go crazy... Ha-aa-ang ha-aaa-at ha-eu-heuk!"</p>
+<p>"Ha-euk! Please don't do that... Mo-Mom... I feel like I'm going to go crazy... Ha-aa-ang ha-aaa-at ha-eu-heuk!"</p>
 
 <p>Mom was pinned beneath Shiwoo, her body trembling violently as she squirmed as if in resentment.</p>
 
@@ -12,7 +12,7 @@ chapter = 779
 
 <p>At the threshold of pleasure racing toward a climax, Shiwoo suddenly halted the movement of his waist, causing the heated air to freeze in an instant.</p>
 
-<p>"Ha-eu-eu-eung... Heu-eu-eu-eung... Hi-ii-ii-ing~"</p>
+<p>"Ha-eu-eu-eung... Heu-eu-eu-eung... Hi-ii-ii-ing"</p>
 
 <p>Mom twisted her shoulders, waist, and hips, letting out a coquettish, nasal sobbing.</p>
 
@@ -62,13 +62,13 @@ chapter = 779
 
 <p>Pressing his lips tightly against Mom's ear...</p>
 
-<p>"Then... just don't go back~!"</p>
+<p>"Then... just don't go back!"</p>
 
 <p>Shiwoo replied to Mom in a voice so calm it felt shameless, smiling tenderly.</p>
 
 <p>That irresponsible tenderness of his completely incinerated the last remaining vestiges of her motherhood.</p>
 
-<p>"...F-fuck me... Right now... just... ha-eut... so I can't think of anything...! Heu-euk! Just... so I can go crazy.... Fuck me like crazy, Darling~!"</p>
+<p>"...F-fuck me... Right now... just... ha-eut... so I can't think of anything...! Heu-euk! Just... so I can go crazy.... Fuck me like crazy, Darling!"</p>
 
 <p>Mom pleaded desperately while hugging Shiwoo, her voice sounding as if her reason had already been burned away.</p>
 
@@ -76,7 +76,7 @@ chapter = 779
 
 <p>While holding Mom tightly, Shiwoo began to ram his penis deep into her hole.</p>
 
-<p>"Ha-eut ha-ang ha-eung ha-aa-ang. Darling... ha-aaa hak ha-eung~! It feels so good... ha-ang ha-aaa-at! Deeper.. ha-at harder!"</p>
+<p>"Ha-eut ha-ang ha-eung ha-aa-ang. Darling... ha-aaa hak ha-eung! It feels so good... ha-ang ha-aaa-at! Deeper.. ha-at harder!"</p>
 
 <p>Mom's beast-like moan filled the air of the tattered room.</p>
 
@@ -112,15 +112,15 @@ chapter = 779
 
 <p>Every time he shoved his massive penis into Mom's body, the urine filling her bladder surged, scouring through her vertebra as if wringing it out with a tingle.</p>
 
-<p>"Seonmi! Aa~!! Mom! Darling! Ha-aa... Honey~!.. Heu-eu-eu... You fucking bitch! Heu-eut!"</p>
+<p>"Seonmi! Aa!! Mom! Darling! Ha-aa... Honey!.. Heu-eu-eu... You fucking bitch! Heu-eut!"</p>
 
 <p>Within the sensation of a frenzied climax he quickly reached, Shiwoo poured out every possible address for Mom.</p>
 
-<p>"A-hang! Darling~ It feels so good~! Ha-eu-euk Shiwoo... ou-our son! Ha-aa-ang! Keep... going like that... ha-aa-ang.... I-I'm coming now~ Ha-eut! Ha-ang! Ha-aa-ang! Master! Ha-aa-ang~ Darli-ing~! Heu-eu-eu-eung!"</p>
+<p>"A-hang! Darling It feels so good! Ha-eu-euk Shiwoo... ou-our son! Ha-aa-ang! Keep... going like that... ha-aa-ang.... I-I'm coming now Ha-eut! Ha-ang! Ha-aa-ang! Master! Ha-aa-ang Darli-ing! Heu-eu-eu-eung!"</p>
 
 <p>Mom also let out a beastly cry, craving the seed of Shiwoo—her new husband, master, and son—all the way to the end of her womb.</p>
 
-<p>"Ha-aa-ang~ Ha-aa-ang! Ha-eu-eu-eung!"</p>
+<p>"Ha-aa-ang Ha-aa-ang! Ha-eu-eu-eung!"</p>
 
 <p>Mom convulsed as if reaching a climax, wrapping her arms and legs around Shiwoo's body.</p>
 

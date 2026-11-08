@@ -74,7 +74,7 @@ chapter = 139
 
 <p>Shiwoo puts strength into the tip of his tongue, pushing away the clitoral knob as if flicking it upwards.</p>
 
-<p>「Heu! Heup! Heup~!」</p>
+<p>「Heu! Heup! Heup!」</p>
 
 <p>Gyuri Ajumma's body trembles violently.</p>
 
@@ -198,7 +198,7 @@ chapter = 139
 
 <p>Shiwoo positioned Gyuri Ajumma's clitoris, which he had in his mouth, between his molars and mercilessly chewed it, as if grinding it.</p>
 
-<p>「Heup~! Heeueup! Heup! Heeueup!」</p>
+<p>「Heup! Heeueup! Heup! Heeueup!」</p>
 
 <p>Gyuri Ajumma's body twisted and writhed as if convulsing.</p>
 

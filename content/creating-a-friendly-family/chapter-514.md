@@ -142,7 +142,7 @@ chapter = 514
 
 <p>The smeared ice cream is gradually peeled off thinly, revealing Mom's clitoris.</p>
 
-<p>,Haeueut! Haang! Haaaa-at! Haaaang~!!"</p>
+<p>,Haeueut! Haang! Haaaa-at! Haaaang!!"</p>
 
 <p>Mom arches her back and neck, then curls forward again, trembling all over as if reaching an unbearable orgasm, and groans as if she is about to faint.</p>
 

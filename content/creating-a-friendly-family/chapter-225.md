@@ -4,7 +4,7 @@ weight = 225
 [extra]
 chapter = 225
 +++
-<p>'Yes~ It's just the two of us at home now~'</p>
+<p>'Yes It's just the two of us at home now'</p>
 
 <p>Seonju Imo-nim answered Shiwoo's question politely and immediately.</p>
 
@@ -26,7 +26,7 @@ chapter = 225
 
 <p>Shiwoo asked Seonju Imo-nim as if urging her to answer.</p>
 
-<p>'No~ I'll do it because it's Master's order~! But what if guests come or we have to go out?'</p>
+<p>'No I'll do it because it's Master's order! But what if guests come or we have to go out?'</p>
 
 <p>Seonju Imo-nim was asking Shiwoo as if she was worried about the realistic problems that might arise when living naked.</p>
 
@@ -34,7 +34,7 @@ chapter = 225
 
 <p>Shiwoo was explaining the instructions for the impromptu outfit to Seonju Imo-nim.</p>
 
-<p>'Yes~ I'll do that~ So I just have to do that until midnight?'</p>
+<p>'Yes I'll do that So I just have to do that until midnight?'</p>
 
 <p>Seonju Imo-nim continued to answer Shiwoo in a submissive tone.</p>
 
@@ -42,7 +42,7 @@ chapter = 225
 
 <p>Shiwoo said, recalling the order he had given Seonju Imo-nim to regularly take naked photos and send them to him every night at 10 o'clock.</p>
 
-<p>'That's right. I have to be naked all night by Master's order~'</p>
+<p>'That's right. I have to be naked all night by Master's order'</p>
 
 <p>Seonju Imo-nim answered, acting cute as if she knew.</p>
 
@@ -50,7 +50,7 @@ chapter = 225
 
 <p>Shiwoo ordered Sua to take off all her clothes and panties all night and sleep.</p>
 
-<p>'Yes~ I'll strip Sua naked too~ Don't worry!'</p>
+<p>'Yes I'll strip Sua naked too Don't worry!'</p>
 
 <p>Seonju Imo-nim was answering like a slave faithful to Shiwoo's orders instead of Sua.</p>
 
@@ -140,11 +140,11 @@ chapter = 225
 
 <p>Shiwoo went straight to the water purifier, pretending not to know.</p>
 
-<p>"Glug~ Glug~ Glug~"</p>
+<p>"Glug Glug Glug"</p>
 
 <p>Shiwoo takes out a cup from the cupboard and drinks water from the water purifier.</p>
 
-<p>"Mom~ I think I'm tired and need to go up to sleep~! Is there anything you need help with before that?"</p>
+<p>"Mom I think I'm tired and need to go up to sleep! Is there anything you need help with before that?"</p>
 
 <p>Shiwoo was talking to Mom, asking as if trying to openly check Mom's reaction after the molestation.</p>
 
@@ -152,17 +152,17 @@ chapter = 225
 
 <p>Mom answers, startled, when Shiwoo speaks to her after being molested by Shiwoo touching her buttocks.</p>
 
-<p>"Yeah~ It seems like you have a lot to do after coming home~?"</p>
+<p>"Yeah It seems like you have a lot to do after coming home?"</p>
 
 <p>Shiwoo was having an everyday conversation with Mom.</p>
 
-<p>"Al...almost done organizing... Shiwoo, you must be tired too. Go...go up quickly and get some rest~"</p>
+<p>"Al...almost done organizing... Shiwoo, you must be tired too. Go...go up quickly and get some rest"</p>
 
 <p>Mom was saying to Shiwoo, wary as if watching Seyoung in the living room.</p>
 
 <p>Shiwoo glances at the living room and then puts down the cup he was holding and approaches Mom from behind, who is organizing the refrigerator.</p>
 
-<p>"But Mom~ Aren't you a little hot~? I feel like I'm sweating again right away even though I just showered?"</p>
+<p>"But Mom Aren't you a little hot? I feel like I'm sweating again right away even though I just showered?"</p>
 
 <p>Shiwoo brings his symbol to her body from behind and smells her nape while saying this.</p>
 
@@ -178,11 +178,11 @@ chapter = 225
 
 <p>Mom said to Shiwoo as if flustered.</p>
 
-<p>"Yeah~ Well~ That's something Mom can take care of herself~"</p>
+<p>"Yeah Well That's something Mom can take care of herself"</p>
 
 <p>Shiwoo was saying to Mom in a soft voice, feeling like he was bestowing a favor.</p>
 
-<p>"Instead, I'll take this~ I think I need to use it now."</p>
+<p>"Instead, I'll take this I think I need to use it now."</p>
 
 <p>Shiwoo whispered in Mom's ear in a low and dignified tone.</p>
 
@@ -198,7 +198,7 @@ chapter = 225
 
 <p>Shiwoo's palm was feeling the bare skin of Mom's buttocks along with the texture of the lingerie panties.</p>
 
-<p>Swoosh~ Shiwoo pulls down the white lingerie panties Mom is wearing.</p>
+<p>Swoosh Shiwoo pulls down the white lingerie panties Mom is wearing.</p>
 
 <p>Shiwoo was using force in the opposite direction to when he had put the lingerie panties on Mom earlier, taking off her panties from her body.</p>
 
@@ -210,7 +210,7 @@ chapter = 225
 
 <p>Shiwoo patted her buttocks again with his hand as if praising Mom.</p>
 
-<p>"Then I'll go up now~"</p>
+<p>"Then I'll go up now"</p>
 
 <p>Shiwoo puts the panties in his pocket and gets up and says to Mom.</p>
 
@@ -230,11 +230,11 @@ chapter = 225
 
 <p>Mom was talking to Shiwoo in a way that was unlike her, as if she was really pissed off.</p>
 
-<p>'Didn't you see me stop trying to take off your clothes~? Hehe, besides, I didn't even insert it into Mom, so what~ I brought the panties because I wanted to relieve my hardness~ I can't cum on Mom when Seyoung is there~~ A promise is a promise~ I have to keep it~! Hehehe'</p>
+<p>'Didn't you see me stop trying to take off your clothes? Hehe, besides, I didn't even insert it into Mom, so what I brought the panties because I wanted to relieve my hardness I can't cum on Mom when Seyoung is there A promise is a promise I have to keep it! Hehehe'</p>
 
 <p>Shiwoo was answering Mom again in a sly and lewd tone without hesitation.</p>
 
-<p>'Tsk tsk~!!'</p>
+<p>'Tsk tsk!!'</p>
 
 <p>Mom's text message was sent as if she was amazed and displeased with Shiwoo's attitude.</p>
 

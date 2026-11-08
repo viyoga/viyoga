@@ -20,7 +20,7 @@ chapter = 217
 
 <p>From Seonju Imo-nim's raised lips, a stream of Shiwoo's semen was flowing out as if overflowing.</p>
 
-<p>"Open your mouth a little~!"</p>
+<p>"Open your mouth a little!"</p>
 
 <p>Shiwoo looked down at Seonju Imo-nim's eyes and said.</p>
 
@@ -98,7 +98,7 @@ chapter = 217
 
 <p class="scene-break">· · ·</p>
 
-<p>"Mom~ I'm done talking with Seonju Imo-nim~!"</p>
+<p>"Mom I'm done talking with Seonju Imo-nim!"</p>
 
 <p>Shiwoo announced to Mom that the story he was having with Seonju Imo-nim was over as he went down to the first floor.</p>
 
@@ -126,7 +126,7 @@ chapter = 217
 
 <p>Mom reacted as if she didn't know what Shiwoo was talking about.</p>
 
-<p>"I'm talking about the work preparation to help Seonju Imo-nim, that's why you went to Imo-nim's house in a hurry, right? I'm talking about that work preparation~"</p>
+<p>"I'm talking about the work preparation to help Seonju Imo-nim, that's why you went to Imo-nim's house in a hurry, right? I'm talking about that work preparation"</p>
 
 <p>Shiwoo was mentioning the incident when Mom left the house a week ago.</p>
 
@@ -134,7 +134,7 @@ chapter = 217
 
 <p>Mom answered with a bewildered feeling, as if she didn't know why Shiwoo was bringing up that story now.</p>
 
-<p>"Do you know how surprised I was when you left with only Seyoung in the early morning without saying anything to me and Sehee Nuna~?"</p>
+<p>"Do you know how surprised I was when you left with only Seyoung in the early morning without saying anything to me and Sehee Nuna?"</p>
 
 <p>Shiwoo was talking about the situation and feelings at the time when Mom left the house as if it was something new.</p>
 
@@ -142,7 +142,7 @@ chapter = 217
 
 <p>Mom said as if she was embarrassed by Shiwoo's words that she was bringing up again.</p>
 
-<p>"Well~ I guess it couldn't be helped since you were busy?~ Still, it was fortunate that you left a note~ If not, I would have thought Mom ran away with Seyoung~"</p>
+<p>"Well I guess it couldn't be helped since you were busy? Still, it was fortunate that you left a note If not, I would have thought Mom ran away with Seyoung"</p>
 
 <p>Shiwoo was having an everyday conversation with her as if starting a new game with Mom in front of the other family members.</p>
 
@@ -154,11 +154,11 @@ chapter = 217
 
 <p>Shiwoo was talking to her with a feeling as if he was subtly hinting to the other family members about the position and attitude that Mom and Shiwoo had towards each other in front of them during the day.</p>
 
-<p>"Oh... why would Mom run away? I even left a card for you guys to use~! Seonju called me urgently in the early morning, so I hurriedly packed up and went~! And Seyoung can't sleep without Mom! I explained everything over the phone, so why are you bringing up that story again~?"</p>
+<p>"Oh... why would Mom run away? I even left a card for you guys to use! Seonju called me urgently in the early morning, so I hurriedly packed up and went! And Seyoung can't sleep without Mom! I explained everything over the phone, so why are you bringing up that story again?"</p>
 
 <p>Mom seemed to have realized Shiwoo's intentions and was listing words mixed with explanations and nagging.</p>
 
-<p>"Ah~ So, if there wasn't a note and a card, I could have thought that way~ I know~ Our Mom isn't someone who would run away leaving us behind no matter what~"</p>
+<p>"Ah So, if there wasn't a note and a card, I could have thought that way I know Our Mom isn't someone who would run away leaving us behind no matter what"</p>
 
 <p>Shiwoo was talking to Mom in a sarcastic and teasing tone.</p>
 
@@ -202,7 +202,7 @@ chapter = 217
 
 <p>Shiwoo stood behind Mom like that for a while, rubbing his body against Mom's body and harassing her.</p>
 
-<p>"Wait a minute~!"</p>
+<p>"Wait a minute!"</p>
 
 <p>Shiwoo said that to Mom's ear and then headed to the master bedroom.</p>
 

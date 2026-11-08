@@ -34,7 +34,7 @@ chapter = 244
 
 <p>Shiwoo whispered his true feelings to Mom, as if murmuring sweet nothings just between the two of them, hidden from Sehee Nuna. As Shiwoo whispered, his hand was still grinding Mom's nipples, as if crushing them.</p>
 
-<p>「Eueueuung~」</p>
+<p>「Eueueuung」</p>
 
 <p>Mom let out a long sound, a mix of a sigh and a response, as if Shiwoo's whispered words were perplexing. Shiwoo pulled his hand from inside Mom's clothes and, standing, thrust his erect penis before Mom's face. His enormous penis, protruding from his pants, was throbbing as if it would explode at any moment. Shiwoo grabbed the hem of Mom's light purple oversized T-shirt, flipping it up to undress her. Mom's hands went up, and her clothes were removed as Shiwoo did.</p>
 
@@ -58,11 +58,11 @@ chapter = 244
 
 <p>Notification sounds rang almost simultaneously on Mom's and Sehee Nuna's smartphones. Immediately, the number next to the photo changed to 1. The two people, excluding Mom, had just checked the photo Shiwoo sent.</p>
 
-<p>「Oh my~ It seems you've completely subjugated older sister now~ Congratulations, Master-nim~!」</p>
+<p>「Oh my It seems you've completely subjugated older sister now Congratulations, Master-nim!」</p>
 
 <p>A congratulatory message from Seonju Imo, after seeing the photo of Shiwoo making Mom perform oral sex.</p>
 
-<p>「Sehee is here too? Welcome~!」</p>
+<p>「Sehee is here too? Welcome!」</p>
 
 <p>Seonju Imo then briefly greeted Sehee Nuna.</p>
 
@@ -70,7 +70,7 @@ chapter = 244
 
 <p>Shiwoo didn't give Seonju Imo a chance to exchange greetings with Mom or Sehee Nuna, and immediately sent a text message instructing all three of them.</p>
 
-<p>「Yes~ Shiwoo Master-nim, I will upload everything here from now on~!」</p>
+<p>「Yes Shiwoo Master-nim, I will upload everything here from now on!」</p>
 
 <p>Seonju Imo was the first to answer obediently.</p>
 
@@ -82,7 +82,7 @@ chapter = 244
 
 <p>Shiwoo sent a text message as if checking on Seonju Imo's situation.</p>
 
-<p>「I'm resting right now after showering~!」</p>
+<p>「I'm resting right now after showering!」</p>
 
 <p>Seonju Imo answered, fawning.</p>
 
@@ -90,7 +90,7 @@ chapter = 244
 
 <p>Shiwoo's next question.</p>
 
-<p>「She's naked right next to me~o」</p>
+<p>「She's naked right next to meo」</p>
 
 <p>Seonju Imo answered Shiwoo's question as if she had been waiting for it, emphasizing that Sua was naked.</p>
 
@@ -98,7 +98,7 @@ chapter = 244
 
 <p>Shiwoo instructed Seonju Imo to receive cunnilingus from her daughter, Sua, in a situation where the conversation content was exposed to Mom and Sehee Nuna.</p>
 
-<p>「Yes~ Master-nim, I will tell Sua to suck my clitoris as you commanded~!」</p>
+<p>「Yes Master-nim, I will tell Sua to suck my clitoris as you commanded!」</p>
 
 <p>Seonju Imo also replied to Shiwoo's instruction, knowing that it was being revealed to Mom and Sehee Nuna. As if directly announcing and publicizing the lewd act between mother and daughter to Mom and Sehee Nuna...</p>
 
@@ -114,7 +114,7 @@ chapter = 244
 
 <p>After a long time, Shiwoo subtly checked the clock on the wall. It was almost time for Seyoung to usually go to the main room to sleep.</p>
 
-<p>「Mom~ You look very tired~ It's almost time for Seyoung to come out, so you should get ready for bed now, shouldn't you~?! I'll go up to my room and come down to move Seyoung when it's time~!」</p>
+<p>「Mom You look very tired It's almost time for Seyoung to come out, so you should get ready for bed now, shouldn't you?! I'll go up to my room and come down to move Seyoung when it's time!」</p>
 
 <p>Shiwoo pulled his enormous cock out of Mom's mouth, giving her what was less a suggestion and more a command.</p>
 
@@ -126,6 +126,6 @@ chapter = 244
 
 <p>Shiwoo gave Sehee Nuna, who was sprawled out and trembling as if exhausted from reaching climax multiple times, the same instruction he had given Mom.</p>
 
-<p>「Uhm... yeah... sh-shower... Haa... Haa-aa~」</p>
+<p>「Uhm... yeah... sh-shower... Haa... Haa-aa」</p>
 
 <p>Sehee Nuna panted, replying to Shiwoo's command. As Shiwoo's address changed from Sehee to Sehee Nuna, her tone also changed, as if she was imitating Mom, speaking as she normally would to her younger sibling.</p>

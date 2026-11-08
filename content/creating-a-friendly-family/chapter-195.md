@@ -34,17 +34,17 @@ chapter = 195
 
 <p>Shiwoo abruptly told Cheoljin-i to come out to the back of the building without any further explanation.</p>
 
-<p>「What~ What's going on?」</p>
+<p>「What What's going on?」</p>
 
 <p>Cheoljin-i seemed to be speaking as if slightly wary of Shiwoo.</p>
 
 <p>Shiwoo inwardly worried if he had spoken too hastily to Cheoljin-i, who had decided to side with the Hyeong-s.</p>
 
-<p>「Just come out! It's important~」</p>
+<p>「Just come out! It's important」</p>
 
 <p>Shiwoo spoke to Cheoljin-i in a tone suppressing his annoyance.</p>
 
-<p>「What~? Is it more important than what I'm doing now? Usually, there wouldn't be such a thing~? Right? Puh-hee-hit!」</p>
+<p>「What? Is it more important than what I'm doing now? Usually, there wouldn't be such a thing? Right? Puh-hee-hit!」</p>
 
 <p>Cheoljin-i, as if finding Shiwoo's reaction amusing, spoke with a swaggering, teasing tone.</p>
 
@@ -52,7 +52,7 @@ chapter = 195
 
 <p>To lure Cheoljin-i out, Shiwoo was recklessly throwing out tempting proposals as they came to mind.</p>
 
-<p>「What? What sudden wind blew you here? If it's something like that, it's always welcome, but it's suspicious somehow, don't you have some strange ulterior motive, you~?」</p>
+<p>「What? What sudden wind blew you here? If it's something like that, it's always welcome, but it's suspicious somehow, don't you have some strange ulterior motive, you?」</p>
 
 <p>Cheoljin-i was speaking in a teasing tone, as if suspecting Shiwoo.</p>
 
@@ -66,7 +66,7 @@ chapter = 195
 
 <p>Cold sweat was soaking Shiwoo's back.</p>
 
-<p>「Hehe~ You better keep your promise later! I'm coming down now.」</p>
+<p>「Hehe You better keep your promise later! I'm coming down now.」</p>
 
 <p>Cheoljin-i answered and then immediately hung up the phone.</p>
 
@@ -134,7 +134,7 @@ chapter = 195
 
 <p class="scene-break">· · ·</p>
 
-<p>「Where did you go? You didn't come back for so long, I thought you'd left with Sinbi~ Where's Sinbi?」</p>
+<p>「Where did you go? You didn't come back for so long, I thought you'd left with Sinbi Where's Sinbi?」</p>
 
 <p>Sora Nuna approached Shiwoo from the direction of the bed and spoke.</p>
 
@@ -186,11 +186,11 @@ chapter = 195
 
 <p>Even though she was like that because of the drug's effects, why wasn't Sehee Nuna crying out for help, even with Shiwoo right in front of her?</p>
 
-<p>「D... don't look! Shiwoo-ya~ Hngh!」</p>
+<p>「D... don't look! Shiwoo-ya Hngh!」</p>
 
 <p>Words that came from Sehee Nuna's mouth as she was being violated by the Hyeong-s.</p>
 
-<p>「Hngh~ I hate this~ Please... hngh~」</p>
+<p>「Hngh I hate this Please... hngh」</p>
 
 <p>Sehee Nuna was speaking in a trembling voice.</p>
 

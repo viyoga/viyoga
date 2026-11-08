@@ -32,7 +32,7 @@ chapter = 20
 
 <p>Sehee Nuna and Sinbi Nuna, along with the three Nunas he had seen in the park the day before, were sitting around a table in a circle.</p>
 
-<p>「Shiwoo-ya, come here and sit~」</p>
+<p>「Shiwoo-ya, come here and sit」</p>
 
 <p>Sinbi Nuna, who was sitting next to Sehee Nuna, moved to create space between herself and Sehee Nuna, leaving an empty chair, and called Shiwoo.</p>
 
@@ -40,9 +40,9 @@ chapter = 20
 
 <p>「Shiwoo's here?」</p>
 
-<p>「Hello~」</p>
+<p>「Hello」</p>
 
-<p>「Welcome~」</p>
+<p>「Welcome」</p>
 
 <p>The three Nunas greeted Shiwoo one after another.</p>
 
@@ -70,7 +70,7 @@ chapter = 20
 
 <p>After the introductions, Shiwoo, feeling awkward, looked at Sehee Nuna and asked.</p>
 
-<p>「Just thought we'd have some cake together while you're here~」</p>
+<p>「Just thought we'd have some cake together while you're here」</p>
 
 <p>Shiwoo continued to sit, eating the cake and drinking the beverage Nuna bought him.</p>
 
@@ -86,7 +86,7 @@ chapter = 20
 
 <p>「Sinbi Nuna, I figured out the answer to that.」</p>
 
-<p>「Wow~ really? I thought you'd at least call me if you were curious, but it seems you solved it on your own?」</p>
+<p>「Wow really? I thought you'd at least call me if you were curious, but it seems you solved it on your own?」</p>
 
 <p>Sinbi Nuna looked at Shiwoo as if surprised and spoke.</p>
 
@@ -202,7 +202,7 @@ chapter = 20
 
 <p>Shiwoo, flustered.</p>
 
-<p>「I'm tired today, so I'll lean on Shiwoo a bit on the way~」</p>
+<p>「I'm tired today, so I'll lean on Shiwoo a bit on the way」</p>
 
 <p>Sehee Nuna linked her arm through Shiwoo's and rested her head on his shoulder.</p>
 
@@ -242,7 +242,7 @@ chapter = 20
 
 <p>He thought including Seyoung, even if Mom and Nuna didn't know, was a mistake.</p>
 
-<p>「Hmm~?」</p>
+<p>「Hmm?」</p>
 
 <p>Sehee Nuna looked at him as if thinking something.</p>
 

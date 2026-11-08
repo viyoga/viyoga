@@ -6,11 +6,11 @@ chapter = 469
 +++
 <p>Seyoung's hair and body, emerging from the shower room, were not wet. There would be no reason for Seyoung, who had only washed her face and brushed her teeth, to be undressed... Yet, there stood Seyoung, in a state almost akin to semi-nudity...</p>
 
-<p>"Ah~ Seyoung had bought that ice cream before, we were eating it for dessert~"</p>
+<p>"Ah Seyoung had bought that ice cream before, we were eating it for dessert"</p>
 
 <p>Shiwoo, seeing Seyoung emerge from the dressing room in her panties, replied as if nothing were amiss.</p>
 
-<p>"Hehe~ I bought it from the cafe under our magic academy~ How was it, Sehee Eonni? Was it delicious?"</p>
+<p>"Hehe I bought it from the cafe under our magic academy How was it, Sehee Eonni? Was it delicious?"</p>
 
 <p>Seyoung spoke as if boasting about the ice cream she had bought, singling out Sehee Nuna with her question.</p>
 
@@ -24,7 +24,7 @@ chapter = 469
 
 <p>Shiwoo held up the ice cream bowl, offering ice cream to Seyoung.</p>
 
-<p>"Ice cream~? Now?"</p>
+<p>"Ice cream? Now?"</p>
 
 <p>Seyoung, as if amused by Shiwoo's invitation, asked back with a smile in her eyes.</p>
 
@@ -34,13 +34,13 @@ chapter = 469
 
 <p>Shiwoo's words, offering ice cream to Seyoung, seemed to Mom like a provocation. Did Mom think Shiwoo would feed Seyoung ice cream in a peculiar way, just as he had done with Sehee Nuna moments ago?</p>
 
-<p>"Hehe~ If I eat ice cream now, I'll have to brush my teeth again~ I can eat it later, so for now, Sehee Eonni and Mom, eat a lot~"</p>
+<p>"Hehe If I eat ice cream now, I'll have to brush my teeth again I can eat it later, so for now, Sehee Eonni and Mom, eat a lot"</p>
 
 <p>Seyoung spoke with a relaxed demeanor, looking back at Mom and the other family members. With a composed attitude, as if she understood all the situations unfolding right now...</p>
 
 <p>Mom, just like in the morning, couldn't respond to Seyoung's words, merely hanging her head low, her face flushed.</p>
 
-<p>"Then I'll go in first and get ready~!"</p>
+<p>"Then I'll go in first and get ready!"</p>
 
 <p>Saying so, Seyoung took Sae-a, who was playing alone in the living room, and went into her room.</p>
 
@@ -88,7 +88,7 @@ chapter = 469
 
 <p>Shiwoo glanced towards Seyoung's room, then scooped a spoonful of ice cream from the bowl and spread it onto Sehee Nuna's ample breast. Since her bra was pushed up inside the mesh t-shirt, her bare breast was exposed. Over Sehee Nuna's breast, covered by the black mesh t-shirt, the cold ice cream was spread, centered around her hardened nipple.</p>
 
-<p>"Haa-euuut~!"</p>
+<p>"Haa-euuut!"</p>
 
 <p>Sehee Nuna, as if cooperating with Shiwoo's actions, thrust her chest forward, her body twitching.</p>
 
@@ -112,7 +112,7 @@ chapter = 469
 
 <p>Shiwoo pulled his lips away from Sehee Nuna's breast, straightened his posture, and looked at Mom.</p>
 
-<p>"Well~ whether you change your t-shirt or stay naked, Mom, that's up to you~! As long as you're properly wearing your underwear as your newlywed ceremonial attire, it doesn't matter!"</p>
+<p>"Well whether you change your t-shirt or stay naked, Mom, that's up to you! As long as you're properly wearing your underwear as your newlywed ceremonial attire, it doesn't matter!"</p>
 
 <p>Shiwoo, after a long pause, spoke to Mom in a teasing tone.</p>
 
@@ -120,7 +120,7 @@ chapter = 469
 
 <p>Mom glanced furtively at Sehee Nuna's exposed breast, speaking as if in distress.</p>
 
-<p>"Ah~ Before you go in to brush your teeth, come here and eat some ice cream first!"</p>
+<p>"Ah Before you go in to brush your teeth, come here and eat some ice cream first!"</p>
 
 <p>Shiwoo pointed to the other breast of Sehee Nuna, the one he hadn't sucked, and commanded Mom.</p>
 
@@ -152,6 +152,6 @@ chapter = 469
 
 <p>Shiwoo picked up Sehee Nuna's smartphone, which was lying on the table. Then, he manipulated Sehee Nuna's smartphone, activating Mom's vibrator, which had been stopped.</p>
 
-<p>"Jii-ii-ii-ing~"</p>
+<p>"Jii-ii-ii-ing"</p>
 
 <p>The vibrating sound of the vibrator echoed again from Mom's core.</p>

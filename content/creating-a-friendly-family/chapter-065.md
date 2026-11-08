@@ -40,7 +40,7 @@ chapter = 65
 
 <p>Sehee Nuna, who had been resting for a moment, covered by a blanket and leaning against Shiwoo, straightened her body and spoke to Shiwoo.</p>
 
-<p>「Uh...? Ah... yeah~」</p>
+<p>「Uh...? Ah... yeah」</p>
 
 <p>Shiwoo answered, somewhat flustered.</p>
 
@@ -62,13 +62,13 @@ chapter = 65
 
 <p>Sehee Nuna looked down at Shiwoo, as if completely unable to understand his intention.</p>
 
-<p>「Ah... no... I'm... I'm naked, you see~」</p>
+<p>「Ah... no... I'm... I'm naked, you see」</p>
 
 <p>After the hot kisses and caresses, as the atmosphere calmed, Shiwoo seemed embarrassed to be sitting naked and erect on the sofa alone.</p>
 
 <p>-Even though there were only the two of them in the house-</p>
 
-<p>「Haa~?」</p>
+<p>「Haa?」</p>
 
 <p>Sehee Nuna let out a hollow laugh, as if dumbfounded and questioning Shiwoo, who was now acting shy even after thrusting his stiff penis up and down several times in front of her face as if masturbating.</p>
 
@@ -76,7 +76,7 @@ chapter = 65
 
 <p>-While covering his front with the blanket he was holding and trying not to let go-</p>
 
-<p>「Then let's go together~!!」</p>
+<p>「Then let's go together!!」</p>
 
 <p>Sehee Nuna's bold suggestion.</p>
 
@@ -142,7 +142,7 @@ chapter = 65
 
 <p>He tightened his arms wrapped over her shoulders and lifted his penis, which was wedged below her crotch, as much as possible, pressing and squeezing Sehee Nuna.</p>
 
-<p>「Haaah~」</p>
+<p>「Haaah」</p>
 
 <p>Sehee Nuna, perhaps finding her situation of being held captive by Shiwoo while he drank water ridiculous, let out a long sigh with a helpless smile, as if in distress.</p>
 
@@ -182,13 +182,13 @@ chapter = 65
 
 <p>However, the precarious and heart-pounding title of 'first experience' and the enormous size of Shiwoo's penis made Sehee Nuna shrink back and hesitate.</p>
 
-<p>「Haaah~~~」</p>
+<p>「Haaah」</p>
 
 <p>Sehee Nuna let out a deep sigh.</p>
 
 <p>Shivering and trembling, as if she had braced herself for something...</p>
 
-<p>「Sh-Shiwoo-ya... Hmph... Mmm!! Just a moment~!!」</p>
+<p>「Sh-Shiwoo-ya... Hmph... Mmm!! Just a moment!!」</p>
 
 <p>She cleared her throat and called Shiwoo.</p>
 
@@ -196,7 +196,7 @@ chapter = 65
 
 <p>Shiwoo stopped his movements and answered Sehee Nuna.</p>
 
-<p>「Th-that... that thing you... you promised to show me earlier~?」</p>
+<p>「Th-that... that thing you... you promised to show me earlier?」</p>
 
 <p>「What...?」</p>
 
@@ -206,10 +206,10 @@ chapter = 65
 
 <p>Sehee Nuna said shyly.</p>
 
-<p>「Yeah~!!」</p>
+<p>「Yeah!!」</p>
 
 <p>Shiwoo answered brightly, as if Seyoung had possessed him.</p>
 
-<p>「'Yeah~!!' my ass, you idiot!!! You're too big~!!」</p>
+<p>「'Yeah!!' my ass, you idiot!!! You're too big!!」</p>
 
 <p>Sehee Nuna lost her temper at Shiwoo's foolish answer, demanding that he show her the video he had promised earlier.</p>

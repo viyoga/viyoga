@@ -4,7 +4,7 @@ weight = 196
 [extra]
 chapter = 196
 +++
-<p>"Get out, you crazy bastards~!"</p>
+<p>"Get out, you crazy bastards!"</p>
 
 <p>Shiwoo roared, swinging the fire extinguisher, driving away the men who were clinging to Sehee Nuna.</p>
 
@@ -128,7 +128,7 @@ chapter = 196
 
 <p class="scene-break">· · ·</p>
 
-<p>"Haaah~! Haaah~! Haak!"</p>
+<p>"Haaah! Haaah! Haak!"</p>
 
 <p>Hyeokjin Hyeong's arm, which had been choking him, released, and Shiwoo was finally able to breathe.</p>
 
@@ -144,7 +144,7 @@ chapter = 196
 
 <p>Cheoljin was hugging the thigh with all his might, as if he would never let go.</p>
 
-<p>"Uwaaaah~! Uwaaak!"</p>
+<p>"Uwaaaah! Uwaaak!"</p>
 
 <p>And Hyeokjin Hyeong was screaming like crazy.</p>
 
@@ -184,7 +184,7 @@ chapter = 196
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo-ya~ Shiwoo-ya~ Wake up~ Hmm? Shiwoo-ya~ Shiwoo-ya~"</p>
+<p>"Shiwoo-ya Shiwoo-ya Wake up Hmm? Shiwoo-ya Shiwoo-ya"</p>
 
 <p>Sehee Nuna's voice, calling out desperately to the unconscious Shiwoo, echoed in his ears.</p>
 
@@ -192,11 +192,11 @@ chapter = 196
 
 <p>The faint outline of Sehee Nuna's face shimmered before Shiwoo's eyes, taking shape.</p>
 
-<p>"Aish~ Seriously!! Why did you push yourself so hard? If you knew it was dangerous, you should have just left me and run away quickly~!"</p>
+<p>"Aish Seriously!! Why did you push yourself so hard? If you knew it was dangerous, you should have just left me and run away quickly!"</p>
 
 <p>Sehee Nuna's voice, choked with tears as if in distress, was heard again.</p>
 
-<p>"Look at all this blood here~! Your face is all swollen, your lips are all torn~ Hiiing~ You're really upsetting me... Heuheuheuk... Heuk... Please, try to wake up~! Shiwoo-ya~ Please!!"</p>
+<p>"Look at all this blood here! Your face is all swollen, your lips are all torn Hiiing You're really upsetting me... Heuheuheuk... Heuk... Please, try to wake up! Shiwoo-ya Please!!"</p>
 
 <p>Shiwoo felt Sehee Nuna's warm tears, forming into drops, fall and land on his swollen cheek.</p>
 
@@ -206,23 +206,23 @@ chapter = 196
 
 <p>When Shiwoo's hand touched her cheek, Sehee Nuna's eyes widened as she looked down at him.</p>
 
-<p>"Aish~! I was really worried, you know?! Seriously~ You always pick the most useless things to do!"</p>
+<p>"Aish! I was really worried, you know?! Seriously You always pick the most useless things to do!"</p>
 
 <p>And then, Sehee Nuna hugged Shiwoo tightly, who was lying with his head on her lap, and spoke.</p>
 
 <p>Sehee Nuna's perfect 'clamping attack,' using her breasts and thighs, was unleashed upon Shiwoo.</p>
 
-<p>"Ugh~~ It hurts! It hurts~! Sehee-ya~!"</p>
+<p>"Ugh It hurts! It hurts! Sehee-ya!"</p>
 
 <p>Shiwoo complained of pain from the strong pressure of Sehee Nuna's breasts and thighs.</p>
 
 <p>Soon, Sehee Nuna released her grip and checked if Shiwoo was alright.</p>
 
-<p>"Sehee, are... you alright~?"</p>
+<p>"Sehee, are... you alright?"</p>
 
 <p>Shiwoo's voice, like a low murmur, was heard as he looked at Sehee Nuna.</p>
 
-<p>"Ah, seriously!! Worry about yourself~! Heukheuk... What the hell, seriously~!"</p>
+<p>"Ah, seriously!! Worry about yourself! Heukheuk... What the hell, seriously!"</p>
 
 <p>Nuna's eyes reddened, and she choked back sobs, eventually bursting into tears.</p>
 

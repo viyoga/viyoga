@@ -82,7 +82,7 @@ chapter = 541
 
 <p>It seemed that she was still sitting with her panties halfway down her thighs, just as Seyoung had left her.</p>
 
-<p>[You were just nagging Sehee like that, but you've been in that state the whole time? Our Mom. You're really hopeless~? Hehe]</p>
+<p>[You were just nagging Sehee like that, but you've been in that state the whole time? Our Mom. You're really hopeless? Hehe]</p>
 
 <p>Shiwoo wrote a text message as if teasing Mom.</p>
 
@@ -90,7 +90,7 @@ chapter = 541
 
 <p>Mom was speaking to Shiwoo as if she was slightly annoyed.</p>
 
-<p>[No, it's not hard, but if you're that embarrassed, why don't you just take them off? I was wondering why you're staying like that~]</p>
+<p>[No, it's not hard, but if you're that embarrassed, why don't you just take them off? I was wondering why you're staying like that]</p>
 
 <p>Shiwoo said again, teasing Mom as if provoking her.</p>
 
@@ -102,7 +102,7 @@ chapter = 541
 
 <p>It was truly the original appearance of a 'slave acting as Mom'.</p>
 
-<p>[That's true~ But are you going to keep being like that even after we leave? You have to go up to the second floor to change the sheets, right?]</p>
+<p>[That's true But are you going to keep being like that even after we leave? You have to go up to the second floor to change the sheets, right?]</p>
 
 <p>Shiwoo continued to tease Mom, speaking as if he was scolding her about something.</p>
 
@@ -110,7 +110,7 @@ chapter = 541
 
 <p>Mom was confidently telling Shiwoo as if she had her own solution to the clothes.</p>
 
-<p>[Ah~ Is that so~? So there was a way~? But who gave you permission for that?]</p>
+<p>[Ah Is that so? So there was a way? But who gave you permission for that?]</p>
 
 <p>Shiwoo spoke sarcastically, mocking Mom's confident attitude and tone.</p>
 
@@ -136,13 +136,13 @@ chapter = 541
 
 <p>Mom was very troubled and asked Shiwoo as if complaining.</p>
 
-<p>[Try asking Seyoung separately~ Or just be prepared to get scolded later and do whatever you want, whether you put them on or take them off~!]</p>
+<p>[Try asking Seyoung separately Or just be prepared to get scolded later and do whatever you want, whether you put them on or take them off!]</p>
 
 <p>Shiwoo was cornering Mom, presenting her with his own choices.</p>
 
 <p>Mom's face, which was lowered, was changing color, turning red and blue.</p>
 
-<p>[Or you can just keep being like that all day~]</p>
+<p>[Or you can just keep being like that all day]</p>
 
 <p>Shiwoo said, mocking her situation and speaking sarcastically, as if tormenting Mom.</p>
 
@@ -166,7 +166,7 @@ chapter = 541
 
 <p>It seemed that Mom no longer had much aversion to the act of having someone lick the curry off her buttocks.</p>
 
-<p>[Too bad~ Should we just be satisfied with having Sae-a lick the ice cream? Then you choose, Mom! Who would you like to have lick it instead of Sae-a?]</p>
+<p>[Too bad Should we just be satisfied with having Sae-a lick the ice cream? Then you choose, Mom! Who would you like to have lick it instead of Sae-a?]</p>
 
 <p>Shiwoo continued to write and send questions to Mom, as if he was making mischievous jokes.</p>
 
@@ -174,7 +174,7 @@ chapter = 541
 
 <p>Mom was still lowering her head, breathing roughly, and writing and sending a text message to Shiwoo as if she was inwardly angry.</p>
 
-<p>[Of course you have to have someone lick it! Why would you wash it off with water? What a waste~? I went to the trouble of squeezing it out and putting it in the curry to feed you, hehehe]</p>
+<p>[Of course you have to have someone lick it! Why would you wash it off with water? What a waste? I went to the trouble of squeezing it out and putting it in the curry to feed you, hehehe]</p>
 
 <p>Shiwoo once again playfully emphasized his semen that had been put into the curry, saying to Mom.</p>
 

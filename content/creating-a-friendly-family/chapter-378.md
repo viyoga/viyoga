@@ -54,7 +54,7 @@ chapter = 378
 
 <p>Seyoung, as if surprised by Shiwoo's words about going around the park, shakes her head before even answering.</p>
 
-<p>"I don't think I can hold it that long, Oppa! Even now... hiiing~ Can't I just go into the house for a moment, pee right away, and come out again?"</p>
+<p>"I don't think I can hold it that long, Oppa! Even now... hiiing Can't I just go into the house for a moment, pee right away, and come out again?"</p>
 
 <p>Seyoung speaks to Shiwoo with a desperate, pleading expression.</p>
 
@@ -148,7 +148,7 @@ chapter = 378
 
 <p>Shiwoo asks Seyoung in a gentle tone, pulling on the leash that is inserted into Seyoung's cleavage.</p>
 
-<p>"Uhm... well~ It's a bit chafing down there, but I think it'll be okay to be like this for a while hehe~"</p>
+<p>"Uhm... well It's a bit chafing down there, but I think it'll be okay to be like this for a while hehe"</p>
 
 <p>Seyoung was answering Shiwoo's gentle question with an awkward smile.</p>
 

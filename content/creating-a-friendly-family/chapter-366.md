@@ -8,7 +8,7 @@ chapter = 366
 
 <p>Shiwoo's cunnilingus begins, stimulating her clitoris.</p>
 
-<p>"Uu-u-up...! Hoo-eu-up... Hoo-uung~.."</p>
+<p>"Uu-u-up...! Hoo-eu-up... Hoo-uung.."</p>
 
 <p>Seonju Imo-nim, unable to contain her excitement as the stimulation she desired was finally applied, trembled violently and made animalistic moaning sounds.</p>
 
@@ -44,7 +44,7 @@ chapter = 366
 
 <p>The hot stream poured onto Shiwoo's face like a waterfall.</p>
 
-<p>-Shwi-ik~! Shwi-i-ik! Shwi-ik!</p>
+<p>-Shwi-ik! Shwi-i-ik! Shwi-ik!</p>
 
 <p>Seonju Imo-nim's stream, ejected several times, soaked Shiwoo to the point that it dripped from his face onto the bed.</p>
 
@@ -82,7 +82,7 @@ chapter = 366
 
 <p>Before he knew it, Seyoung scurried over to the side table where the camera was and brought the wet wipes that were on the table.</p>
 
-<p>"Here you go, Shiwoo Oppa~"</p>
+<p>"Here you go, Shiwoo Oppa"</p>
 
 <p>Seyoung, with saliva smeared around her mouth, pulled out a wet wipe and handed it to Shiwoo.</p>
 
@@ -108,7 +108,7 @@ chapter = 366
 
 <p>Shiwoo held out his hand to Seyoung and demanded that she give him more wet wipes.</p>
 
-<p>"Here~ I'll give you as many as you want~"</p>
+<p>"Here I'll give you as many as you want"</p>
 
 <p>Seyoung pulled out a few more wet wipes and gave them to Shiwoo as if it was nothing.</p>
 

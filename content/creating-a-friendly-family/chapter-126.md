@@ -74,7 +74,7 @@ chapter = 126
 
 <p>Vaginal fluid transferred from the dildo was being spread and applied on Gyuri Ajumma's lips as if coating them.</p>
 
-<p>,Please~ I'm doing everything you tell me to do. Haa-euht...Can't you forgive me now?~ What happened yesterday was something Dad told me to do, so I couldn't help it. Heueuht,</p>
+<p>,Please I'm doing everything you tell me to do. Haa-euht...Can't you forgive me now? What happened yesterday was something Dad told me to do, so I couldn't help it. Heueuht,</p>
 
 <p>Gyuri Ajumma, moving her vaginal fluid-soaked lips, was speaking well, stuttering as if trying to excuse something.</p>
 

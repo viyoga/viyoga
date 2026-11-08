@@ -220,7 +220,7 @@ chapter = 125
 
 <p>Gyuri Ajumma, perhaps sensing Shiwoo's presence, was startled and spoke.</p>
 
-<p>,Cheol... Cheoljin? Uh... Mom needs to use the bathroom... badly~! I really don't think I can hold it in any longer. You said you'd let me go if I held it in for another hour, right? Please~!</p>
+<p>,Cheol... Cheoljin? Uh... Mom needs to use the bathroom... badly! I really don't think I can hold it in any longer. You said you'd let me go if I held it in for another hour, right? Please!</p>
 
 <p>Gyuri Ajumma, speaking as if pleading with her son.</p>
 

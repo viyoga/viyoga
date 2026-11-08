@@ -4,7 +4,7 @@ weight = 753
 [extra]
 chapter = 753
 +++
-<p>"Right, right~! Since we're out eating such expensive food, we should enjoy it~"</p>
+<p>"Right, right! Since we're out eating such expensive food, we should enjoy it"</p>
 
 <p>Shiwoo continued to respond to Mom with a playful smile, playing along with her mood.</p>
 
@@ -12,7 +12,7 @@ chapter = 753
 
 <p>Mom continued her stern, old-fashioned nagging, as if trying not to get swept up in Shiwoo's sly, playful pace.</p>
 
-<p>"I got it, Seonmi-ya~ I'll save it... He-he-he ... But I feel like I'm going to get indigestion eating this because of your nagging~?"</p>
+<p>"I got it, Seonmi-ya I'll save it... He-he-he ... But I feel like I'm going to get indigestion eating this because of your nagging?"</p>
 
 <p>Shiwoo mixed in Mom's name as if calling a lover or a friend, joking about her constant scolding.</p>
 
@@ -22,7 +22,7 @@ chapter = 753
 
 <p>Mom snapped back as if dissatisfied, lightly shaking her leg that was caught by Shiwoo. However, her voice held a thick sense of resigned tenderness rather than a sharp edge.</p>
 
-<p>"What do you mean~?"</p>
+<p>"What do you mean?"</p>
 
 <p>As if finding Mom's reaction amusing, Shiwoo gripped her leg even tighter, feigning ignorance with a sly eye-smile.</p>
 
@@ -72,7 +72,7 @@ chapter = 753
 
 <p>Mom finished the remaining wine in the bottle and let out a feverish breath, as if the tension had finally broken.</p>
 
-<p>"Wasn't this place pretty good? The taste was great, and the atmosphere was nice~"</p>
+<p>"Wasn't this place pretty good? The taste was great, and the atmosphere was nice"</p>
 
 <p>Shiwoo spoke to Mom while picking up the bill at the end of the table.</p>
 
@@ -88,7 +88,7 @@ chapter = 753
 
 <p>"Why spend so much money to eat out when I can make all of this at home?! The portions are smaller than when we cook for ourselves..."</p>
 
-<p>"I'd rather save this money to buy something we need or go on a family trip~!"</p>
+<p>"I'd rather save this money to buy something we need or go on a family trip!"</p>
 
 <p>Mom was whispering as if sharing a secret, just like in the chatroom earlier.</p>
 
@@ -96,7 +96,7 @@ chapter = 753
 
 <p>Shiwoo let out a smirk, feeling a mixture of a strange sense of conquest and affection, and unconsciously reached his hand toward her head.</p>
 
-<p>"I got it~ I'll do as Mom says next time..."</p>
+<p>"I got it I'll do as Mom says next time..."</p>
 
 <p>Shiwoo gently stroked Mom's hair, feeling a pleasant sense of dignity as if he were controlling her personality under his palm.</p>
 
@@ -110,7 +110,7 @@ chapter = 753
 
 <p>The way she hid behind the name 'Mom' and grumbled in reality, yet ultimately couldn't do anything about his single touch and bowed her head, seemed to be the ultimate amusement for Shiwoo.</p>
 
-<p>"Then I'll pay and hit the restroom , so go out and wait for me first~!"</p>
+<p>"Then I'll pay and hit the restroom , so go out and wait for me first!"</p>
 
 <p>Shiwoo withdrew his hand from Mom's hair and stood up.</p>
 
@@ -164,7 +164,7 @@ chapter = 753
 
 <p>Mom didn't reply for a moment after seeing Shiwoo's message.</p>
 
-<p>[Looking at the tattoo photo you sent earlier, I thought you'd need panty liners too, Seonmi. You were just as wet as Seihi earlier~ Totally soaked...]</p>
+<p>[Looking at the tattoo photo you sent earlier, I thought you'd need panty liners too, Seonmi. You were just as wet as Seihi earlier Totally soaked...]</p>
 
 <p>Shiwoo didn't stop, continuing his mockery-filled instructions as if to explicitly stimulate her shame .</p>
 

@@ -68,7 +68,7 @@ chapter = 388
 
 <p>Regardless, Shiwoo brings his lips to the wet part of Sora Nuna's black lingerie panties.</p>
 
-<p>,Chureup~ Churu-eup~ Chureueup~! Seuup!",</p>
+<p>,Chureup Churu-eup Chureueup! Seuup!",</p>
 
 <p>Shiwoo's lips and tongue, clinging to the small piece of cloth that Sora Nuna is wearing, rub against it with a force that seems to melt it.</p>
 

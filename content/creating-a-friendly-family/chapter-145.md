@@ -108,15 +108,15 @@ chapter = 145
 
 <p>At that moment, along with the sound of the front door opening, a familiar voice reaches Shiwoo.</p>
 
-<p>"Shiwoo-ya, we're here~! Hehe~"</p>
+<p>"Shiwoo-ya, we're here! Hehe"</p>
 
 <p>Seonju Imo, announcing her return home with Sehee Nuna in a slightly drunk tone.</p>
 
-<p>"Oh~ Seonju Imo, you're here?!"</p>
+<p>"Oh Seonju Imo, you're here?!"</p>
 
 <p>Shiwoo answers from inside the changing room, naked with his cock standing erect.</p>
 
-<p>"Oh my, our Shiwoo was already showering? You sly thing? We were thinking of taking our time to shower after eating~ Right, Sehee-yang~?"</p>
+<p>"Oh my, our Shiwoo was already showering? You sly thing? We were thinking of taking our time to shower after eating Right, Sehee-yang?"</p>
 
 <p>Seonju Imo speaks in a playful tone, as if making a lewd joke to her nephews.</p>
 
@@ -126,11 +126,11 @@ chapter = 145
 
 <p>But even so, Shiwoo's cock is throbbing roughly, as if rebelling against Seonju Imo's cheeky attitude.</p>
 
-<p>"I did~ With Sehee~ Kikik~ Now that it's like this, should we just go in and help Shiwoo shower together without waiting? What do you think, Sehee-ya?"</p>
+<p>"I did With Sehee Kikik Now that it's like this, should we just go in and help Shiwoo shower together without waiting? What do you think, Sehee-ya?"</p>
 
 <p>Seonju Imo's provocative joke to Sehee Nuna.</p>
 
-<p>"W...What are you saying, Seonju Imo! W...We were supposed to eat first~!"</p>
+<p>"W...What are you saying, Seonju Imo! W...We were supposed to eat first!"</p>
 
 <p>Sehee Nuna raises her voice to Seonju Imo, as if flustered.</p>
 
@@ -140,7 +140,7 @@ chapter = 145
 
 <p>Shiwoo was also speaking as if inwardly surprised by the sudden turn of events.</p>
 
-<p>"Is that so? Then there's nothing we can do~ Kikik! I'll go prepare the food first~!"</p>
+<p>"Is that so? Then there's nothing we can do Kikik! I'll go prepare the food first!"</p>
 
 <p>Seonju Imo's nonchalant voice fades away.</p>
 
@@ -164,7 +164,7 @@ chapter = 145
 
 <p>Shiwoo asks Seonju Imo, heading towards the kitchen.</p>
 
-<p>"She went up to Sehee's room~ She said she was going to take a shower right away and get clothes to change into~"</p>
+<p>"She went up to Sehee's room She said she was going to take a shower right away and get clothes to change into"</p>
 
 <p>Seonju Imo answers, glancing slightly towards Shiwoo.</p>
 
@@ -172,7 +172,7 @@ chapter = 145
 
 <p>"Aren't you showering, Imo?"</p>
 
-<p>"Aren't you hungry? I can shower after eating, so let's eat together after Sehee finishes showering~ You're going to eat first, right?"</p>
+<p>"Aren't you hungry? I can shower after eating, so let's eat together after Sehee finishes showering You're going to eat first, right?"</p>
 
 <p>Seonju Imo's way of addressing him has become so natural.</p>
 
@@ -192,7 +192,7 @@ chapter = 145
 
 <p>Shiwoo asks Seonju Imo, deliberately mentioning Sehee Nuna's name without honorifics.</p>
 
-<p>"Yeah~ I went to talk a bit and change her mood~ There are clothes for you too, so take a look later."</p>
+<p>"Yeah I went to talk a bit and change her mood There are clothes for you too, so take a look later."</p>
 
 <p>Seonju Imo was continuing the conversation with Shiwoo, naturally using the term 'jagi' as if she had been doing so for a long time.</p>
 
@@ -200,7 +200,7 @@ chapter = 145
 
 <p>Shiwoo asks, sounding worried.</p>
 
-<p>"Record? Ah~ You don't have to worry about that~ We didn't go to the hospital today."</p>
+<p>"Record? Ah You don't have to worry about that We didn't go to the hospital today."</p>
 
 <p>Seonju Imo answers coolly.</p>
 
@@ -212,7 +212,7 @@ chapter = 145
 
 <p>"Someone you know? Who?"</p>
 
-<p>"That's a secret~! Kikik"</p>
+<p>"That's a secret! Kikik"</p>
 
 <p>Seonju Imo answers, giving her unique playful smile.</p>
 
@@ -230,7 +230,7 @@ chapter = 145
 
 <p>The underwear in the drawer was soaked with Shiwoo's semen.</p>
 
-<p>'Ah, seriously~ What is this!'</p>
+<p>'Ah, seriously What is this!'</p>
 
 <p>Sehee Nuna's text message, with a hint of annoyance.</p>
 

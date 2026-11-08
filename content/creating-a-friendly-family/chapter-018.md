@@ -30,9 +30,9 @@ chapter = 18
 
 <p>After changing his clothes and getting ready for the academy, he went down to the first floor and greeted Mom, telling her he was off to the academy.</p>
 
-<p>"I'm off, Mom~"</p>
+<p>"I'm off, Mom"</p>
 
-<p>"Go carefully, Shiwoo-ya~" She looked like Mom, as usual.</p>
+<p>"Go carefully, Shiwoo-ya" She looked like Mom, as usual.</p>
 
 <p>At Mom's natural acting, as if the recent messages had never happened, Shiwoo's 'thing' seemed to stiffen once more. Shiwoo felt as if there were different Moms, each treating him distinctly. Mom during the day and Mom at night. And then, the newly discovered shy and lewd Mom from their chat, who treated Shiwoo normally yet could discuss the events of the night.</p>
 
@@ -68,9 +68,9 @@ chapter = 18
 
 <p>"But didn't you say you got a discount for couples?" Shiwoo continued to ask, a little puzzled.</p>
 
-<p>"Yeah, I got a discount~ kik-kik." Sehee Nuna spoke playfully, as if teasing Shiwoo.</p>
+<p>"Yeah, I got a discount kik-kik." Sehee Nuna spoke playfully, as if teasing Shiwoo.</p>
 
-<p>"Huh? So you lied and said you were a couple to get a discount? Nuna and Sinbi Nuna were the biggest delinquents, then~" Shiwoo also spoke to Sehee Nuna as if joking.</p>
+<p>"Huh? So you lied and said you were a couple to get a discount? Nuna and Sinbi Nuna were the biggest delinquents, then" Shiwoo also spoke to Sehee Nuna as if joking.</p>
 
 <p>"No? It's true love, though?" Nuna still spoke playfully.</p>
 
@@ -78,7 +78,7 @@ chapter = 18
 
 <p>Shiwoo, realizing he was being teased, flared up.</p>
 
-<p>"Why are you so curious? I'll tell you later, for now, I like things as they are~"</p>
+<p>"Why are you so curious? I'll tell you later, for now, I like things as they are"</p>
 
 <p>A shy expression momentarily flickered across Sehee Nuna's playful face. Shiwoo, feeling as if he almost understood, no longer asked about the tattoo.</p>
 
@@ -86,7 +86,7 @@ chapter = 18
 
 <p>On the way to Sehee Nuna's academy. Through their many conversations, Shiwoo felt he had learned aspects of Nuna he hadn't known before. -Though many mysterious points still remained- As they were almost at the academy, a familiar face appeared ahead. The familiar face, with a decent height and an easygoing look, was none other than Cheoljin.</p>
 
-<p>"Yo, Shiwoo-ya~ Sehee Nuna~ What brings you two to school together?"</p>
+<p>"Yo, Shiwoo-ya Sehee Nuna What brings you two to school together?"</p>
 
 <p>Cheoljin approached, speaking with feigned innocence.</p>
 
@@ -94,7 +94,7 @@ chapter = 18
 
 <p>Shiwoo, slightly surprised to encounter Cheoljin in an unexpected place.</p>
 
-<p>"Ah~ I also had some business nearby, you see."</p>
+<p>"Ah I also had some business nearby, you see."</p>
 
 <p>Cheoljin's tone and attitude were somehow suspicious.</p>
 
@@ -102,7 +102,7 @@ chapter = 18
 
 <p>Nuna, her tension heightened from talking with Shiwoo, teased Cheoljin as a greeting.</p>
 
-<p>"Ah, something similar, haha~ Since we've met like this, shall we go together?"</p>
+<p>"Ah, something similar, haha Since we've met like this, shall we go together?"</p>
 
 <p>Cheoljin looked suspicious no matter how you looked at him.</p>
 

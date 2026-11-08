@@ -64,7 +64,7 @@ chapter = 620
 
 <p>The sound of the carbonation escaping was refreshingly audible.</p>
 
-<p>"Here you go~!"</p>
+<p>"Here you go!"</p>
 
 <p>Sejin Nuna approached Shiwoo, who was lying on the bed, and held out the drink.</p>
 
@@ -124,7 +124,7 @@ chapter = 620
 
 <p>Shiwoo answered Sejin Nuna, still with a hint of awkwardness.</p>
 
-<p>"Okay~ Well~ Do as you please!"</p>
+<p>"Okay Well Do as you please!"</p>
 
 <p>Sejin Nuna gave a soft smile and spoke to Shiwoo in a languid voice.</p>
 

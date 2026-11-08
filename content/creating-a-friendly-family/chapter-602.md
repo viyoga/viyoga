@@ -90,7 +90,7 @@ chapter = 602
 
 <p>Mom, seeing the picture Shiwoo sent, nervously texted Shiwoo.</p>
 
-<p>「What~? Hahaha~」</p>
+<p>「What? Hahaha」</p>
 
 <p>Shiwoo wrote and sent Mom a text message mixed with laughter, with a playful attitude, as if trying to brush off his repeated intentional mistake.</p>
 
@@ -98,23 +98,23 @@ chapter = 602
 
 <p>Mom texted back, as if slightly annoyed by Shiwoo's playful attitude.</p>
 
-<p>「Ah~ I did forget, but this time Sejin Nuna suddenly burst in, that's why it happened, right?」</p>
+<p>「Ah I did forget, but this time Sejin Nuna suddenly burst in, that's why it happened, right?」</p>
 
 <p>「And I said I'd turn it off after I cum, so I didn't particularly deceive or do anything wrong, why are you being like this for nothing? My Mom?」</p>
 
-<p>「I was going to turn off Mom's vibrator right after cumming, but should I reconsider~?」</p>
+<p>「I was going to turn off Mom's vibrator right after cumming, but should I reconsider?」</p>
 
 <p>Shiwoo lightly brushed off Mom's annoyance, and instead wrote and sent a text message as if provoking and stimulating her further.</p>
 
-<p>「No, it's because it keeps vibrating without even a word! Shiwoo, you try it sometime later~ It's really hard just to stand still~」</p>
+<p>「No, it's because it keeps vibrating without even a word! Shiwoo, you try it sometime later It's really hard just to stand still」</p>
 
 <p>Mom, as if slightly flustered by Shiwoo's words, wrote and sent a text message in a complaining tone, as if backing down a step.</p>
 
-<p>「So I filmed and sent you a video of Sejin Nuna masturbating, didn't I~ It's almost done, so relax now~!」</p>
+<p>「So I filmed and sent you a video of Sejin Nuna masturbating, didn't I It's almost done, so relax now!」</p>
 
 <p>Shiwoo, acting relaxed, spoke to Mom as if showing off, with a boastful feeling once again.</p>
 
-<p>「Oh for goodness sake~! Relax or whatever! Why are you still doing that in the bathroom~?! If you even filmed and sent a video like that, didn't things go well with Sejin Nuna?」</p>
+<p>「Oh for goodness sake! Relax or whatever! Why are you still doing that in the bathroom?! If you even filmed and sent a video like that, didn't things go well with Sejin Nuna?」</p>
 
 <p>Mom, as if dumbfounded, spoke to Shiwoo slightly pressuringly, in a tone mixed with discomfort.</p>
 
@@ -126,7 +126,7 @@ chapter = 602
 
 <p>Mom, at Shiwoo's absurd words, snapped back as if flaring up once again.</p>
 
-<p>「Since Sejin Nuna showed me her masturbating, I should film what I'm doing and show Sejin Nuna~! That's fair, isn't it?」</p>
+<p>「Since Sejin Nuna showed me her masturbating, I should film what I'm doing and show Sejin Nuna! That's fair, isn't it?」</p>
 
 <p>Shiwoo continuously wrote and sent text messages to Mom, with somewhat absurd and forced words, as if joking.</p>
 
@@ -134,15 +134,15 @@ chapter = 602
 
 <p>Mom was speaking as if pointing out the added items in the picture, as if genuinely worried about Shiwoo's perverted actions.</p>
 
-<p>「Looking at the current atmosphere, she doesn't seem like she'll say anything, does she? If things go well for me, I'm going to try to make Sejin Nuna brush her teeth with this once~!」</p>
+<p>「Looking at the current atmosphere, she doesn't seem like she'll say anything, does she? If things go well for me, I'm going to try to make Sejin Nuna brush her teeth with this once!」</p>
 
 <p>Shiwoo spoke in a confident tone about the current atmosphere and his absurd plans afterwards.</p>
 
-<p>「Even though you're seeing her face after a long time, Shiwoo, you're really talented~!」</p>
+<p>「Even though you're seeing her face after a long time, Shiwoo, you're really talented!」</p>
 
 <p>Mom wrote and sent a text message as if surprised by Shiwoo's eccentric yet reckless drive and plans.</p>
 
-<p>「Just like I did to Mom, you know~ Like mother, like daughter, wouldn't you say?」</p>
+<p>「Just like I did to Mom, you know Like mother, like daughter, wouldn't you say?」</p>
 
 <p>Shiwoo spoke lightly, as if making a joke.</p>
 
@@ -150,7 +150,7 @@ chapter = 602
 
 <p>Then, belatedly, she spoke to Shiwoo as if urging him, containing concern and interest for Sejin Nuna.</p>
 
-<p>「Okay, I'll be careful~ But did you meet Sehee Nuna?」</p>
+<p>「Okay, I'll be careful But did you meet Sehee Nuna?」</p>
 
 <p>Shiwoo replied as if accepting Mom's urging, then asked if she had met Sehee Nuna.</p>
 
@@ -166,7 +166,7 @@ chapter = 602
 
 <p>Mom, puzzled as if not knowing what Shiwoo's sudden question was about, asked back.</p>
 
-<p>「I'm talking about what I said earlier! To make Sehee Nuna wear her panties pulled down to her thighs, just like Mom is doing~! You haven't told her yet?」</p>
+<p>「I'm talking about what I said earlier! To make Sehee Nuna wear her panties pulled down to her thighs, just like Mom is doing! You haven't told her yet?」</p>
 
 <p>Shiwoo confirmed the order he had given once again, cornering Mom and asking as if interrogating her.</p>
 
@@ -184,15 +184,15 @@ chapter = 602
 
 <p>Mom answers, as if the situation she was in with Sehee Nuna was awkward.</p>
 
-<p>「Really~? Sehee Nuna always listens well and is so good~」</p>
+<p>「Really? Sehee Nuna always listens well and is so good」</p>
 
 <p>Shiwoo unnecessarily praises Sehee Nuna, as if to show Mom.</p>
 
-<p>「Excuse me~ Mister! I'm doing the same thing right now, you know?! I'm even wearing a vibrator right now, so I'm really dying of embarrassment! So stop saying weird things and just hurry up and cum!」</p>
+<p>「Excuse me Mister! I'm doing the same thing right now, you know?! I'm even wearing a vibrator right now, so I'm really dying of embarrassment! So stop saying weird things and just hurry up and cum!」</p>
 
 <p>Mom, mixing playful respectful speech, spoke as if urging Shiwoo on, as if it was bothersome to talk any longer.</p>
 
-<p>「Okay~ I'll cum thinking of Mom and Sehee Nuna... Ah! Since Sejin Nuna is outside too, Sejin Nuna too... thinking of her.」</p>
+<p>「Okay I'll cum thinking of Mom and Sehee Nuna... Ah! Since Sejin Nuna is outside too, Sejin Nuna too... thinking of her.」</p>
 
 <p>「Later, should I try it while imagining all of them sucking my cock at the same time?」</p>
 

@@ -8,13 +8,13 @@ chapter = 133
 
 <p>Shiwoo withdrew money from the convenience store ATM and handed it to Seulgi.</p>
 
-<p>"Yeah, thanks~ But Shiwoo, what you usually do seems very different from what you answered on that survey that day? Did you write it down correctly? Will it be different when it actually happens? Kikik" Seulgi said playfully as she took the money from Shiwoo.</p>
+<p>"Yeah, thanks But Shiwoo, what you usually do seems very different from what you answered on that survey that day? Did you write it down correctly? Will it be different when it actually happens? Kikik" Seulgi said playfully as she took the money from Shiwoo.</p>
 
 <p>"What?"</p>
 
 <p>Shiwoo replied with a question, unable to understand what Seulgi was saying.</p>
 
-<p>"Well... we'll find out about that gradually~ You said you're going on a couple date with my older sister and her friends this weekend, right? I thought it wouldn't happen, but you're actually going with my sister?"</p>
+<p>"Well... we'll find out about that gradually You said you're going on a couple date with my older sister and her friends this weekend, right? I thought it wouldn't happen, but you're actually going with my sister?"</p>
 
 <p>Seulgi arbitrarily changed the subject and continued the conversation, as if it didn't matter whether Shiwoo understood what she was saying or not.</p>
 
@@ -22,13 +22,13 @@ chapter = 133
 
 <p>Each of Seulgi's questions, which seemed to carry a sexual undertone, felt quite awkward to Shiwoo.</p>
 
-<p>"Even if I don't hear it, I know, because I see everything with my crystal ball~ Kikikik" Seulgi spoke playfully to Shiwoo again.</p>
+<p>"Even if I don't hear it, I know, because I see everything with my crystal ball Kikikik" Seulgi spoke playfully to Shiwoo again.</p>
 
 <p>At the sight of Seulgi clutching her stomach and laughing so hard her small body shook, Shiwoo felt a little intimidated.</p>
 
 <p>After hearing Cheoljin's story, Shiwoo realized there must be some trick to Seulgi's crystal ball. However, Shiwoo couldn't completely erase the thought from a corner of his mind that Seulgi might have genuinely used a special ability to uncover secrets about Shiwoo's family.</p>
 
-<p>"Stop playing around with that now~! If someone who doesn't know sees it, they'll think it's real~!!"</p>
+<p>"Stop playing around with that now! If someone who doesn't know sees it, they'll think it's real!!"</p>
 
 <p>Shiwoo spoke as if grumbling to his older sisters or Mom.</p>
 
@@ -60,7 +60,7 @@ chapter = 133
 
 <p>His expression grew gloomy. His shoulders slumped. Seulgi reached out and stroked Shiwoo's head as if to comfort him.</p>
 
-<p>"It'll be okay~ Don't worry~"</p>
+<p>"It'll be okay Don't worry"</p>
 
 <p>Seulgi looked at Shiwoo with a warm smile.</p>
 
@@ -140,7 +140,7 @@ chapter = 133
 
 <p>"Ah... yes... but Cheoljin might take a while." Shiwoo said, as if trying to reassure Ajumma.</p>
 
-<p>"Really? Where did he go? I really don't know where he's been wandering around lately without saying a word~!" Gyuri Ajumma asked as if genuinely curious.</p>
+<p>"Really? Where did he go? I really don't know where he's been wandering around lately without saying a word!" Gyuri Ajumma asked as if genuinely curious.</p>
 
 <p>"Well, I don't really know that... it'll probably take a few more hours."</p>
 

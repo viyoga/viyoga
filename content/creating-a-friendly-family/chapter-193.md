@@ -82,7 +82,7 @@ chapter = 193
 
 <p>For some reason, Juni Hyeong asked Shiwoo about his partner, Sehee Nuna.</p>
 
-<p>"Ah~ that's right. Sehee is really pretty, isn't she."</p>
+<p>"Ah that's right. Sehee is really pretty, isn't she."</p>
 
 <p>Shiwoo answered casually, stating what he considered an obvious fact.</p>
 
@@ -94,7 +94,7 @@ chapter = 193
 
 <p>Shiwoo, slightly flustered, replied to Juni Hyeong as if making an excuse.</p>
 
-<p>"No, no~ it's fine~! I'm not offended or anything... Actually, I was thinking something similar to you when I saw your partner."</p>
+<p>"No, no it's fine! I'm not offended or anything... Actually, I was thinking something similar to you when I saw your partner."</p>
 
 <p>Juni Hyeong spoke to Shiwoo as if revealing his true thoughts.</p>
 
@@ -102,7 +102,7 @@ chapter = 193
 
 <p>Shiwoo, not immediately understanding what Juni Hyeong was trying to say, asked again, seemingly flustered.</p>
 
-<p>"You know Sinbi~ the more I look at her, the more she turns me on~?!"</p>
+<p>"You know Sinbi the more I look at her, the more she turns me on?!"</p>
 
 <p>Juni Hyeong used words and a tone that seemed to cross a line, praising Shiwoo's partner, Sinbi Nuna.</p>
 
@@ -118,7 +118,7 @@ chapter = 193
 
 <p>Seeing Juni Hyeong, who seemed to be eyeing his own partner, Shiwoo replied, feeling slightly displeased.</p>
 
-<p>"Ah~ I'll just be honest~! Actually, after sending you two couples off first today, I was planning to drug the girls, and then all of us would take turns with them, you know?"</p>
+<p>"Ah I'll just be honest! Actually, after sending you two couples off first today, I was planning to drug the girls, and then all of us would take turns with them, you know?"</p>
 
 <p>Seeing Shiwoo's reaction, as if he couldn't help it, Juni Hyeong spoke, frankly revealing the truth.</p>
 
@@ -128,7 +128,7 @@ chapter = 193
 
 <p>He had somewhat grasped the Nunas' and Hyeong-s' orgy, but this was the first he was hearing about drugs.</p>
 
-<p>"Don't be so surprised~ It's just an aphrodisiac or something. Think of it as something that helps you get more in the mood."</p>
+<p>"Don't be so surprised It's just an aphrodisiac or something. Think of it as something that helps you get more in the mood."</p>
 
 <p>Juni Hyeong calmed Shiwoo, and spoke simply, as if there was no problem.</p>
 
@@ -146,7 +146,7 @@ chapter = 193
 
 <p>Was that the reason?</p>
 
-<p>"It wouldn't be a problem if it was just us, but you seem to be quite interested in other girls too... And the more I look, Sinbi is really too good to waste~"</p>
+<p>"It wouldn't be a problem if it was just us, but you seem to be quite interested in other girls too... And the more I look, Sinbi is really too good to waste"</p>
 
 <p>Juni Hyeong now spoke, openly displaying a sly expression in front of Shiwoo, as if revealing his true intentions.</p>
 
@@ -154,11 +154,11 @@ chapter = 193
 
 <p>Only now was Shiwoo realizing the meaning of Juni Hyeong's words.</p>
 
-<p>"That's right! So listen~ I'll let you in on it too, so cooperate with us!"</p>
+<p>"That's right! So listen I'll let you in on it too, so cooperate with us!"</p>
 
 <p>Juni Hyeong was demanding Shiwoo to participate in his secret plan.</p>
 
-<p>"Cheoljin-i also agreed to help~"</p>
+<p>"Cheoljin-i also agreed to help"</p>
 
 <p>And then came Juni Hyeong's next words.</p>
 
@@ -168,7 +168,7 @@ chapter = 193
 
 <p>His friend, Cheoljin-i, helping with such a vile plan to defile Sehee Nuna...</p>
 
-<p>"That Cheoljin-i, he's a friend who's quite reasonable~ He's probably secretly mixing drugs into Semi's drink right now. He even volunteered to give it to her, you know?"</p>
+<p>"That Cheoljin-i, he's a friend who's quite reasonable He's probably secretly mixing drugs into Semi's drink right now. He even volunteered to give it to her, you know?"</p>
 
 <p>Juni Hyeong spoke as if Cheoljin-i's actions were commendable.</p>
 
@@ -176,7 +176,7 @@ chapter = 193
 
 <p>Shiwoo, as if speechless, closed his mouth and looked at Juni Hyeong.</p>
 
-<p>"When we go back to our seats this time, I'm going to drug Sinbi's drink. You just need to distract Sinbi when we're mixing the drug! Just stall for about 30 minutes until the drug takes effect! Then it's game over! We can all take turns enjoying her all night long~ What do you say? Can you do it?"</p>
+<p>"When we go back to our seats this time, I'm going to drug Sinbi's drink. You just need to distract Sinbi when we're mixing the drug! Just stall for about 30 minutes until the drug takes effect! Then it's game over! We can all take turns enjoying her all night long What do you say? Can you do it?"</p>
 
 <p>Juni Hyeong explained his plan, and then asked Shiwoo.</p>
 
@@ -184,7 +184,7 @@ chapter = 193
 
 <p>Shiwoo asked, sounding worried.</p>
 
-<p>"Don't worry! Hyeokjin, Seongguk, and I do this often, so it's really nothing to us~ And anyway, all the girls who come to places like this are already loose as hell. Most of them come here with the intention of doing that anyway!"</p>
+<p>"Don't worry! Hyeokjin, Seongguk, and I do this often, so it's really nothing to us And anyway, all the girls who come to places like this are already loose as hell. Most of them come here with the intention of doing that anyway!"</p>
 
 <p>Juni Hyeong, who seemed to have a lot of experience doing things like this with the three of them.</p>
 
@@ -206,7 +206,7 @@ chapter = 193
 
 <p>As he was racking his brain and thinking to himself, Juni Hyeong continued his speech.</p>
 
-<p>"You said you chose Sinbi, right? You would've done it no matter who you chose anyway, wouldn't you? That's what I heard from Sora, isn't it? Aren't you disappointed you didn't choose Sehee? You can just quietly watch us and then join in the fun~ There's absolutely nothing to lose in this!"</p>
+<p>"You said you chose Sinbi, right? You would've done it no matter who you chose anyway, wouldn't you? That's what I heard from Sora, isn't it? Aren't you disappointed you didn't choose Sehee? You can just quietly watch us and then join in the fun There's absolutely nothing to lose in this!"</p>
 
 <p>Juni Hyeong spoke to Shiwoo in a confident tone, as if cornering him.</p>
 

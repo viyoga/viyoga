@@ -156,7 +156,7 @@ chapter = 134
 
 <p>Gyuri Ajumma looked at Shiwoo's face with an unreadable expression, then turned her head towards the front door, checking that it was closed.</p>
 
-<p>"Haaah~"</p>
+<p>"Haaah"</p>
 
 <p>Gyuri Ajumma sighed, lowering her head as if all strength had left her.</p>
 

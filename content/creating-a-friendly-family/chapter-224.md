@@ -4,7 +4,7 @@ weight = 224
 [extra]
 chapter = 224
 +++
-<p>'You said your period started? I thought you were telling me it was okay to do it with you as a signal~?'</p>
+<p>'You said your period started? I thought you were telling me it was okay to do it with you as a signal?'</p>
 
 <p>Shiwoo said, recalling the conversation he had with Mom before.</p>
 
@@ -20,7 +20,7 @@ chapter = 224
 
 <p>Mom said to Shiwoo as if she was dumbfounded.</p>
 
-<p>'We can check it out~ Seyoung is right here, so if we show her Mom and I doing it first, wouldn't Seyoung be able to get in the mood and follow along? Hehehe.'</p>
+<p>'We can check it out Seyoung is right here, so if we show her Mom and I doing it first, wouldn't Seyoung be able to get in the mood and follow along? Hehehe.'</p>
 
 <p>Shiwoo seemed so pleased with the fact that he was having such a lewd conversation with Mom, returning to their everyday mother-son relationship.</p>
 
@@ -28,7 +28,7 @@ chapter = 224
 
 <p>Mom was saying as if she was really in trouble.</p>
 
-<p>'What does it matter? We're going to do it at night anyway~?'</p>
+<p>'What does it matter? We're going to do it at night anyway?'</p>
 
 <p>Shiwoo said to Mom slyly and playfully.</p>
 
@@ -36,17 +36,17 @@ chapter = 224
 
 <p>Mom's emoticon with three horns, looking serious and pissed off, was sent to Shiwoo.</p>
 
-<p>'Okay~ Okay~ I won't tease you anymore, Mom~ Hehehe.'</p>
+<p>'Okay Okay I won't tease you anymore, Mom Hehehe.'</p>
 
 <p>Shiwoo said, trying to appease her, worried that Mom might stop the conversation again after seeing her emoticon.</p>
 
 <p>Mom, who was doing her own thing as if she was really angry, was silent for a while.</p>
 
-<p>'If Mom really hates it, I won't do anything~! You know that, right~?'</p>
+<p>'If Mom really hates it, I won't do anything! You know that, right?'</p>
 
 <p>Shiwoo was writing and sending a text to try to calm Mom down, who seemed to be sulking.</p>
 
-<p>'I know what Mom is worried about~ But I will never do anything that Mom and Seyoung hate~ Okay~~?'</p>
+<p>'I know what Mom is worried about But I will never do anything that Mom and Seyoung hate Okay?'</p>
 
 <p>Shiwoo was writing and sending a text to Mom in a flattering tone.</p>
 
@@ -70,7 +70,7 @@ chapter = 224
 
 <p>Mom seemed very uncomfortable with the situation of sharing the same space with Shiwoo while chatting, but she couldn't just leave Seyoung and leave by herself.</p>
 
-<p>'I got it~ I promise~ I won't embarrass Mom when Seyoung is awake at home during the day~ Hehehe.'</p>
+<p>'I got it I promise I won't embarrass Mom when Seyoung is awake at home during the day Hehehe.'</p>
 
 <p>Shiwoo was thinking of words that would reassure Mom and writing them down to send in order to ease her feelings.</p>
 
@@ -78,15 +78,15 @@ chapter = 224
 
 <p>Mom was now talking to Shiwoo as if she was complaining.</p>
 
-<p>'Yeah~ Our Seonmi had a hard time earlier~ I know~ I won't do that anymore~ It's okay~ It's okay~'</p>
+<p>'Yeah Our Seonmi had a hard time earlier I know I won't do that anymore It's okay It's okay'</p>
 
 <p>Shiwoo was comforting Mom as if he was comforting a young child.</p>
 
-<p>'Tsk~! Anyway, you said it, so keep your promise from now on! And only do this in texts!'</p>
+<p>'Tsk! Anyway, you said it, so keep your promise from now on! And only do this in texts!'</p>
 
 <p>Mom was writing and sending a text as if she was fed up with Shiwoo, who was calling her by her name without permission and treating her like a young child.</p>
 
-<p>'I got it~ Hehe, I'll do whatever Mom wants~ But then, can you do me just one favor?'</p>
+<p>'I got it Hehe, I'll do whatever Mom wants But then, can you do me just one favor?'</p>
 
 <p>Shiwoo was saying to Mom as if he was trying to set a condition in exchange for not touching Mom when Seyoung was there during the day.</p>
 
@@ -94,7 +94,7 @@ chapter = 224
 
 <p>Mom reacted warily to Shiwoo's words.</p>
 
-<p>'It's not weird~ Hehe, you know the necklace you're wearing now~? I was thinking it would be nice if you kept wearing it all the time~'</p>
+<p>'It's not weird Hehe, you know the necklace you're wearing now? I was thinking it would be nice if you kept wearing it all the time'</p>
 
 <p>Shiwoo was demanding, as if it were a condition, that she continue to wear the red leather dog collar that Shiwoo had bought, in exchange for not touching Mom at home during the day.</p>
 
@@ -102,17 +102,17 @@ chapter = 224
 
 <p>Mom asked Shiwoo, dumbfounded.</p>
 
-<p>'Yeah~ That way, you won't get confused even when Mom gets angry or nags me, right?'</p>
+<p>'Yeah That way, you won't get confused even when Mom gets angry or nags me, right?'</p>
 
 <p>'What's there to be confused about?'</p>
 
-<p>'That Mom is my slave~ Hehehe.'</p>
+<p>'That Mom is my slave Hehehe.'</p>
 
 <p>Shiwoo was writing and sending a text to start a thrilling game of hierarchy with Mom.</p>
 
 <p>Mom, who seemed to have a lot of worries, was stalling for time.</p>
 
-<p>'Tsk~! Really! I got it! Make sure you keep your promise!'</p>
+<p>'Tsk! Really! I got it! Make sure you keep your promise!'</p>
 
 <p>Mom seemed to have finally decided to accept the new master-slave game that Shiwoo had proposed.</p>
 
@@ -210,7 +210,7 @@ chapter = 224
 
 <p>Shiwoo was cursing and writing a text in the chat room where Seonju Imo and Sua were.</p>
 
-<p>'I thought Master would like it, so I did it~ Hying~'</p>
+<p>'I thought Master would like it, so I did it Hying'</p>
 
 <p>Seonju Imo's reply soon came back, as if she had been waiting for Shiwoo's scolding.</p>
 
@@ -218,7 +218,7 @@ chapter = 224
 
 <p>Shiwoo said to Seonju Imo as if he was angry.</p>
 
-<p>'That's not really it~ I was just trying to make Master happy~ I'm sorry, Master~ Hying~'</p>
+<p>'That's not really it I was just trying to make Master happy I'm sorry, Master Hying'</p>
 
 <p>Seonju Imo was making an apology in the chat room where Sua was with her, without caring about her dignity as a mother anymore, whether it was sincere or not.</p>
 

@@ -196,7 +196,7 @@ chapter = 413
 
 <p>Shiwoo said, caressing Mom's large breasts with his palm.</p>
 
-<p>"Heueueueue~ Haeueueueueuk!"</p>
+<p>"Heueueueue Haeueueueueuk!"</p>
 
 <p>Mom contorts her face and makes a sobbing sound while maintaining her posture.</p>
 

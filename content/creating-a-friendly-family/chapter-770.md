@@ -60,13 +60,13 @@ chapter = 770
 
 <p>The wet friction sounds cruelly bored into Mom's eardrums, intensely stimulating her sense of shame.</p>
 
-<p>"Yeah. Sejin Nuna~! Have you eaten?"</p>
+<p>"Yeah. Sejin Nuna! Have you eaten?"</p>
 
 <p>Shiwoo spoke as if casually asking about her day, even as he carefully ground his hips.</p>
 
 <p>Unlike in the texts, Shiwoo now attached the title 'Nuna' to her name...</p>
 
-<p>"Yeah, I ate a while ago~ How about you, Shiwoo?"</p>
+<p>"Yeah, I ate a while ago How about you, Shiwoo?"</p>
 
 <p>Sejin Nuna asked back about Shiwoo's well-being in her usual voice.</p>
 
@@ -86,7 +86,7 @@ chapter = 770
 
 <p>Sejin Nuna asked as if she couldn't guess the situation between Shiwoo and Mom at all—or perhaps she was just pretending not to.</p>
 
-<p>"No~ we're somewhere else now~ Mom seemed tired after walking around for a bit!"</p>
+<p>"No we're somewhere else now Mom seemed tired after walking around for a bit!"</p>
 
 <p>Shiwoo replied to Sejin Nuna, still maintaining a casual breathing pattern and tone of voice.</p>
 
@@ -106,7 +106,7 @@ chapter = 770
 
 <p>Or was she intentionally feigning ignorance despite knowing?</p>
 
-<p>"Wait just a second~!"</p>
+<p>"Wait just a second!"</p>
 
 <p>Shiwoo replied with a voice that sounded slightly excited, as if anticipating something, and then reopened the 1:1 chatroom with Sejin Nuna on his smartphone.</p>
 
@@ -140,7 +140,7 @@ chapter = 770
 
 <p>Even though Sejin Nuna had already confirmed the background of the photos and Mom's pose, she asked calmly, as if nothing were wrong.</p>
 
-<p>"Yeah... she's right in front of me... Want to say hi? You two must have a lot to talk about, right? I've got it on speakerphone, so you can talk right now~!"</p>
+<p>"Yeah... she's right in front of me... Want to say hi? You two must have a lot to talk about, right? I've got it on speakerphone, so you can talk right now!"</p>
 
 <p>Shiwoo asked Sejin Nuna in a nonchalant tone, as if mediating between the two who were shrouded in awkwardness.</p>
 
@@ -188,6 +188,6 @@ chapter = 770
 
 <p>Mom answered Sejin Nuna's question while fully feeling Shiwoo's penis scraping against her vaginal walls.</p>
 
-<p>"Did you go to the department store with Shiwoo today? To a restaurant... an aquarium... It really sounds like a date between lovers, doesn't it~?"</p>
+<p>"Did you go to the department store with Shiwoo today? To a restaurant... an aquarium... It really sounds like a date between lovers, doesn't it?"</p>
 
 <p>Sejin Nuna spoke nonchalantly in a sweet, friendly voice, as if she already knew the truth beyond the receiver.</p>

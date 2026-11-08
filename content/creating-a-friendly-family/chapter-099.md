@@ -148,7 +148,7 @@ chapter = 99
 
 <p>A message to re-enter the number appeared again on Shiwoo's smartphone screen.</p>
 
-<p>Shiwoo's head felt slightly blank~.</p>
+<p>Shiwoo's head felt slightly blank.</p>
 
 <p>Shiwoo's smartphone password had been changed.</p>
 
@@ -176,15 +176,15 @@ chapter = 99
 
 <p>As soon as Shiwoo confirmed that the password had been changed to Sehee Nuna's birthday, he sent her a text message.</p>
 
-<p>「Why did you leave first? You should have woken me up~!」</p>
+<p>「Why did you leave first? You should have woken me up!」</p>
 
 <p>Shiwoo's text message, sent as if showing his disappointment.</p>
 
-<p>「After showing even that kind of appearance, how could I look you straight in the face immediately~ You idiot!!!」</p>
+<p>「After showing even that kind of appearance, how could I look you straight in the face immediately You idiot!!!」</p>
 
 <p>Sehee Nuna's reply flew in immediately, without delay, as if she had been holding her smartphone in her hand.</p>
 
-<p>「What's the big deal? Honestly, I almost came right then~!」</p>
+<p>「What's the big deal? Honestly, I almost came right then!」</p>
 
 <p>Shiwoo, recalling Sehee Nuna's urination scene, said.</p>
 
@@ -194,7 +194,7 @@ chapter = 99
 
 <p>Shiwoo, speaking to Sehee Nuna as if boasting triumphantly.</p>
 
-<p>「Yeah~ Guess the kid isn't a complete blockhead after all~ lol」</p>
+<p>「Yeah Guess the kid isn't a complete blockhead after all lol」</p>
 
 <p>Sehee Nuna's text message, slightly more playful and high-spirited than usual.</p>
 
@@ -204,7 +204,7 @@ chapter = 99
 
 <p>Shiwoo, asking to check Sehee Nuna's condition.</p>
 
-<p>「After being subjected to that, do you think I'd be okay?! It's still tingling~」</p>
+<p>「After being subjected to that, do you think I'd be okay?! It's still tingling」</p>
 
 <p>Sehee Nuna, answering curtly, expressing her complaint.</p>
 
@@ -228,7 +228,7 @@ chapter = 99
 
 <p>Sehee Nuna now seemed to be completely willing to have such conversations with Shiwoo via chat, without any formality or restraint.</p>
 
-<p>「Sorry~ But when I see Sehee Nuna, I get so aroused I can't help it.」</p>
+<p>「Sorry But when I see Sehee Nuna, I get so aroused I can't help it.」</p>
 
 <p>Shiwoo, honestly revealing his true feelings.</p>
 
@@ -236,7 +236,7 @@ chapter = 99
 
 <p>Sehee Nuna, warning him again as if in a fit of anger while talking about Sinbi Nuna.</p>
 
-<p>「Haha, okay~ I'll really be careful with Sinbi Nuna later~」</p>
+<p>「Haha, okay I'll really be careful with Sinbi Nuna later」</p>
 
 <p>Shiwoo, answering as if suppressed by Sehee Nuna's authority.</p>
 

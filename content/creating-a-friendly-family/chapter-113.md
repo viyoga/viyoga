@@ -16,7 +16,7 @@ chapter = 113
 
 <p>His massive penis is pressed tightly between Sehee Nuna's legs, as if it will burst.</p>
 
-<p>"Haaak!! What to do~~...Heueueuk~!!"</p>
+<p>"Haaak!! What to do...Heueueuk!!"</p>
 
 <p>Sehee Nuna was making sounds as if she had lost her mind due to the unprecedented pressure.</p>
 
@@ -26,11 +26,11 @@ chapter = 113
 
 <p>-Peok!! Peok!! Peok!! Peok!! Peok!!!!!</p>
 
-<p>"Haaak~ Haeut!! Haaak! Haaang!! Aaaak!!!"</p>
+<p>"Haaak Haeut!! Haaak! Haaang!! Aaaak!!!"</p>
 
 <p>An extreme sensation of ejaculation was rushing towards Shiwoo.</p>
 
-<p>"Seheeya~!!! Seheeyat~!!!! Eueueut!!!"</p>
+<p>"Seheeya!!! Seheeyat!!!! Eueueut!!!"</p>
 
 <p>Shiwoo shouts Sehee Nuna's name and ejaculates explosively deep inside Sehee Nuna.</p>
 
@@ -48,7 +48,7 @@ chapter = 113
 
 <p>Shiwoo's massive penis momentarily escapes as if obliterating the space it had stretched inside Sehee Nuna's cave.</p>
 
-<p>"Haaak~!!"</p>
+<p>"Haaak!!"</p>
 
 <p>An exclamation is released from Sehee Nuna's mouth, who was sprawled on the shower room floor as if almost passed out.</p>
 
@@ -68,7 +68,7 @@ chapter = 113
 
 <p>Sehee Nuna, who had heard Shiwoo's command with hazy eyes while lying down—</p>
 
-<p>"Haaaa~"</p>
+<p>"Haaaa"</p>
 
 <p>As soon as she heard Shiwoo's command, Sehee Nuna's mouth began to open, panting roughly.</p>
 
@@ -120,7 +120,7 @@ chapter = 113
 
 <p>Sehee Nuna was drinking the filth in her mouth as is.</p>
 
-<p>"Ol-gak~!! Ol-gak~!! Ol-gak~!!"</p>
+<p>"Ol-gak!! Ol-gak!! Ol-gak!!"</p>
 
 <p>While staring at the lens of the smartphone camera that was filming with hazy eyes...</p>
 
@@ -152,7 +152,7 @@ chapter = 113
 
 <p>Shiwoo wipes the moisture remaining on his and Sehee Nuna's bodies with a towel and hugs Sehee Nuna from behind.</p>
 
-<p>"Sehee Nuna! Let's go up to the room now~"</p>
+<p>"Sehee Nuna! Let's go up to the room now"</p>
 
 <p>Shiwoo speaks to Sehee Nuna in his usual tone, bringing his fully erect penis to Sehee Nuna's buttocks.</p>
 
@@ -178,7 +178,7 @@ chapter = 113
 
 <p>Sehee Nuna is startled and flinches.</p>
 
-<p>"Sehee Nuna~ How is it? Can you handle it?"</p>
+<p>"Sehee Nuna How is it? Can you handle it?"</p>
 
 <p>Shiwoo asks as if checking her condition for no reason.</p>
 
@@ -192,11 +192,11 @@ chapter = 113
 
 <p>Shiwoo slaps the other buttock again.</p>
 
-<p>"Haat~!!"</p>
+<p>"Haat!!"</p>
 
 <p>An exclamation bursts out.</p>
 
-<p>"I really wanted to do this when I saw Sehee Nuna going up the stairs~"</p>
+<p>"I really wanted to do this when I saw Sehee Nuna going up the stairs"</p>
 
 <p>Shiwoo recalls Sehee Nuna climbing the stairs wearing dolphin pants a few days ago and speaks naturally.</p>
 
@@ -236,7 +236,7 @@ chapter = 113
 
 <p>Sehee Nuna makes a sound as if surprised by the stimulation of the penis brushing against her flesh.</p>
 
-<p>"Sehee Nuna~ Shall we go up now?"</p>
+<p>"Sehee Nuna Shall we go up now?"</p>
 
 <p>Shiwoo says, gently lifting Sehee Nuna up as if nothing had happened.</p>
 
@@ -248,7 +248,7 @@ chapter = 113
 
 <p>"Ayat!!"</p>
 
-<p>"What are you doing? You have to go up~ Sehee Nuna!!"</p>
+<p>"What are you doing? You have to go up Sehee Nuna!!"</p>
 
 <p>Shiwoo urges her to walk.</p>
 
@@ -266,7 +266,7 @@ chapter = 113
 
 <p>-Chall-ssak!!</p>
 
-<p>"Heueung~!!"</p>
+<p>"Heueung!!"</p>
 
 <p>-Chall-ssak!!!!</p>
 

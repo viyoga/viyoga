@@ -62,7 +62,7 @@ chapter = 565
 
 <p>It seems to be because he is conscious of the conversations and actions that will take place after meeting Sejin Nuna.</p>
 
-<p>"If you finish talking with Sejin Unni quickly and arrive early, go down to the cafe in the basement of the academy and wait for me first~! Because we have to eat ice cream~ Hehe~"</p>
+<p>"If you finish talking with Sejin Unni quickly and arrive early, go down to the cafe in the basement of the academy and wait for me first! Because we have to eat ice cream Hehe"</p>
 
 <p>Seyoung smiles brightly and talks in a light tone, as if excited.</p>
 
@@ -84,7 +84,7 @@ chapter = 565
 
 <p>Shiwoo answers as if trying to gather his senses and emotions, which seemed to be intricately intertwined, as much as possible.</p>
 
-<p>"Then I'll go this way. See you later, Shiwoo Oppa~ Sehee Unni, have a good day too~!"</p>
+<p>"Then I'll go this way. See you later, Shiwoo Oppa Sehee Unni, have a good day too!"</p>
 
 <p>Seyoung says goodbye to Shiwoo and Sehee Nuna, and runs towards the fork in the road that crosses the park.</p>
 
@@ -102,7 +102,7 @@ chapter = 565
 
 <p>Sehee Nuna recalls the events of pressuring Mom with Seyoung during mealtime, and cautiously starts to speak, with a hesitant look, as if trying to explain something.</p>
 
-<p>"Ah~ that? It was something that had to be done someday anyway, right? I won't scold you, so don't worry about it~"</p>
+<p>"Ah that? It was something that had to be done someday anyway, right? I won't scold you, so don't worry about it"</p>
 
 <p>Shiwoo interrupts Sehee Nuna's words and says as if trying to reassure her in a gentle tone.</p>
 

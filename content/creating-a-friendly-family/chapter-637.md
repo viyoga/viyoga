@@ -10,7 +10,7 @@ chapter = 637
 
 <p>She seemed startled for a moment, her eyes widening at his momentum, but she quickly regained her expression and gave him a light eye-smile.</p>
 
-<p>"Yes~ then please tell me. What is it you want to know~?"</p>
+<p>"Yes then please tell me. What is it you want to know?"</p>
 
 <p>She asked while looking into Shiwoo's eyes with a calm tone.</p>
 
@@ -20,7 +20,7 @@ chapter = 637
 
 <p>Shiwoo spoke hesitantly, yet with the air of someone who had already crossed the point of no return.</p>
 
-<p>"Yu Yena-seonsaengnim? Of course I know her~ There isn't a single person attending the Magic Academy who isn't connected to Yu Yena-seonsaengnim..."</p>
+<p>"Yu Yena-seonsaengnim? Of course I know her There isn't a single person attending the Magic Academy who isn't connected to Yu Yena-seonsaengnim..."</p>
 
 <p>She continued speaking, her eyes still clear and serene as she watched Shiwoo.</p>
 
@@ -30,7 +30,7 @@ chapter = 637
 
 <p>Shiwoo asked back, searching her expression as if trying to grasp the hidden meaning behind her ambiguous words.</p>
 
-<p>"Of course~ No one is unconnected! You've been there before too, haven't you, Oppa? For the Magic Academy guardian interview~"</p>
+<p>"Of course No one is unconnected! You've been there before too, haven't you, Oppa? For the Magic Academy guardian interview"</p>
 
 <p>She spoke with an intentional smile, meeting Shiwoo's eyes directly as if it were the most natural thing in the world.</p>
 
@@ -40,7 +40,7 @@ chapter = 637
 
 <p>He felt as though his relationship with Yu Yena-seonsaengnim, which he felt he had to keep secret, had been discovered.</p>
 
-<p>"You're Seyoung's Oppa, right? I've heard a lot about you from Seyoung~ Hehet!"</p>
+<p>"You're Seyoung's Oppa, right? I've heard a lot about you from Seyoung Hehet!"</p>
 
 <p>The girl revealed her closeness with Seyoung without hesitation and spoke as if she were already familiar with Shiwoo.</p>
 
@@ -50,7 +50,7 @@ chapter = 637
 
 <p>Within him, a fear that even his relationship with his family might be exposed seeped out before he could even speak.</p>
 
-<p>"It's true we're close~ but I'm not sure if we're 'friends'... for now... Hehe~"</p>
+<p>"It's true we're close but I'm not sure if we're 'friends'... for now... Hehe"</p>
 
 <p>She tilted her head slightly to the side and laughed.</p>
 
@@ -68,7 +68,7 @@ chapter = 637
 
 <p>After confirming the teacher was looking elsewhere, she turned her head back and leaned her body toward Shiwoo.</p>
 
-<p>"Since she's the younger sister of the person who will become my Mom's Master, I don't know what I should call her... Hehe~"</p>
+<p>"Since she's the younger sister of the person who will become my Mom's Master, I don't know what I should call her... Hehe"</p>
 
 <p>She whispered softly, her body leaning deep toward Shiwoo.</p>
 
@@ -86,7 +86,7 @@ chapter = 637
 
 <p>That sight must surely be visible to the girl sitting across from him.</p>
 
-<p>"Surely what you want to know isn't something like that~?"</p>
+<p>"Surely what you want to know isn't something like that?"</p>
 
 <p>She asked in a teasing tone to Shiwoo, who was throbbing his penis with a dazed, out-of-it expression.</p>
 
@@ -94,7 +94,7 @@ chapter = 637
 
 <p>Unable to hide his fluster, Shiwoo barely managed to turn the thin breath hovering at the edge of his lips into words.</p>
 
-<p>"Then tell me what you want to know~ I'll uncover the secrets you're curious about through a tarot reading~!"</p>
+<p>"Then tell me what you want to know I'll uncover the secrets you're curious about through a tarot reading!"</p>
 
 <p>She said, curling the corners of her mouth and sending an implicitly provocative gaze toward Shiwoo.</p>
 
@@ -138,7 +138,7 @@ chapter = 637
 
 <p>Her voice continued, low and clear, like an incantation beginning a ritual.</p>
 
-<p>"Even small choices that seem like coincidences eventually connect into a single story the moment they are spread out on the table~"</p>
+<p>"Even small choices that seem like coincidences eventually connect into a single story the moment they are spread out on the table"</p>
 
 <p>After finishing the final shuffle, she spread them smoothly across the table.</p>
 
@@ -162,7 +162,7 @@ chapter = 637
 
 <p>Then, he pulled the selected cards toward himself and lined them up one by one, starting from the left.</p>
 
-<p>"Then I'll interpret them one by one~ Starting from the left!"</p>
+<p>"Then I'll interpret them one by one Starting from the left!"</p>
 
 <p>"The card placed on the left will tell us the situation you are currently facing, Oppa."</p>
 

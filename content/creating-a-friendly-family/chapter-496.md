@@ -4,7 +4,7 @@ weight = 496
 [extra]
 chapter = 496
 +++
-<p>"Haa...eum....puhaaa....haa~"</p>
+<p>"Haa...eum....puhaaa....haa"</p>
 
 <p>After sucking Shiwoo's glans intensely for a while, Seyoung suddenly releases the strength in her mouth and stops her oral movements, as if her jaw is aching.</p>
 
@@ -62,7 +62,7 @@ chapter = 496
 
 <p>Even though she is the one who has the responsibility and duty to immediately stop the sadistic behavior that her son is inflicting on her young daughter...</p>
 
-<p>"Haeueueueut...haeueueueuk...haaaaa~"</p>
+<p>"Haeueueueut...haeueueueuk...haaaaa"</p>
 
 <p>Mom is constantly letting out pitiful breaths, writhing her body as if soaked in masochistic pleasure.</p>
 

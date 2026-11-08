@@ -60,7 +60,7 @@ chapter = 787
 
 <p>Mom repeatedly checked that no one was around and then whispered to Shiwoo as if protesting, panting heavily with a flushed face.</p>
 
-<p>"When I pounced, you just stayed there clinging to me without any resistance, so I thought that much was okay.... Hehe~"</p>
+<p>"When I pounced, you just stayed there clinging to me without any resistance, so I thought that much was okay.... Hehe"</p>
 
 <p>"Besides, you acted like it was nothing while showing everything in front of Sejin Nuna too, didn't you? So I thought it didn't matter anymore?"</p>
 
@@ -74,11 +74,11 @@ chapter = 787
 
 <p>Shiwoo, with a strange smile on his lips, watched the anxious Mom in silence before reaching out his hand and flicking the bell hanging from Mom's neck from bottom to top with his finger.</p>
 
-<p>Chiring~!</p>
+<p>Chiring!</p>
 
 <p>The clear metallic sound secretly pierced the silence of the alley. Upon hearing the sound ringing from her neck, Mom seemed to realize her position again; her agitated expression softened, and she dropped her head.</p>
 
-<p>"So... were you really that surprised~?"</p>
+<p>"So... were you really that surprised?"</p>
 
 <p>Shiwoo asked in a relaxed voice, as if enjoying Mom's reaction.</p>
 
@@ -86,7 +86,7 @@ chapter = 787
 
 <p>Mom suppressed the thrill that still hadn't faded and answered in a slightly wet voice.</p>
 
-<p>"You were really surprised~? Enough to return to being 'Mom' and get all annoyed like that..."</p>
+<p>"You were really surprised? Enough to return to being 'Mom' and get all annoyed like that..."</p>
 
 <p>"Even when we just came out of the motel, you were so careful, asking me through text how you should address me... right?"</p>
 

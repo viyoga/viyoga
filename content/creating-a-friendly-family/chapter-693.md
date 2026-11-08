@@ -6,7 +6,7 @@ chapter = 693
 +++
 <p>Seyoung, seemingly satisfied by Shiwoo's reaction as his entire body gave an umjjil , slowly pulled her mouth away from his penis with a slight smile playing on her lips.</p>
 
-<p>"Huhuhut~"</p>
+<p>"Huhuhut"</p>
 
 <p>As if she already knew the answer, Seyoung looked at Shiwoo with a spiteful, smiling gaze.</p>
 
@@ -26,9 +26,9 @@ chapter = 693
 
 <p>Shiwoo found himself answering Seyoung's words in a daze.</p>
 
-<p>"Then, I'll tell you the method, so after we send Sunmi and Sehee Eonni off quickly and put them to sleep, Shiwoo Oppa, sleep with just me tonight~!"</p>
+<p>"Then, I'll tell you the method, so after we send Sunmi and Sehee Eonni off quickly and put them to sleep, Shiwoo Oppa, sleep with just me tonight!"</p>
 
-<p>"In exchange, you can't cum until I tell you to~! Not for Sunmi, not for Sehee Eonni, not for me... and not by yourself..."</p>
+<p>"In exchange, you can't cum until I tell you to! Not for Sunmi, not for Sehee Eonni, not for me... and not by yourself..."</p>
 
 <p>Seyoung spoke with a relaxed laugh in a voice mixed with aegyo .</p>
 
@@ -36,7 +36,7 @@ chapter = 693
 
 <p>Shiwoo paused for a moment at Seyoung's strange, incomprehensible proposal and condition, asking back.</p>
 
-<p>"I'm saying don't ejaculate until midnight! Shiwoo Oppa's semen! If you can't hold it and end up cumming before then, I won't tell you anything~"</p>
+<p>"I'm saying don't ejaculate until midnight! Shiwoo Oppa's semen! If you can't hold it and end up cumming before then, I won't tell you anything"</p>
 
 <p>Seyoung looked up at Shiwoo with provocative eyes and spoke in a voice that was like a small whisper.</p>
 
@@ -58,7 +58,7 @@ chapter = 693
 
 <p>Seyoung briefly let go of the penis held in her mouth and pulled her head back slightly.</p>
 
-<p>"You're holding it well~? Keep holding it just like that as much as you can, hehet ~!"</p>
+<p>"You're holding it well? Keep holding it just like that as much as you can, hehet !"</p>
 
 <p>Seyoung spoke to Shiwoo with a spiteful laugh, drawing out her playful tone.</p>
 
@@ -70,7 +70,7 @@ chapter = 693
 
 <p>Only then did Seyoung take her mouth off Shiwoo's penis and call out to Sehee Nuna.</p>
 
-<p>"Sehee Eonni is down~ Did you finish organizing the items~?"</p>
+<p>"Sehee Eonni is down Did you finish organizing the items?"</p>
 
 <p>At the voice and breath of Seyoung, who had been sucking his penis with the momentum to make him ejaculate just a moment ago but was now speaking to Sehee Nuna with a sense of everyday normalcy, Shiwoo felt a strange sense of déjà vu along with dizziness.</p>
 
@@ -78,7 +78,7 @@ chapter = 693
 
 <p>Sehee Nuna answered awkwardly and hesitantly from behind the sofa where Shiwoo and Seyoung were.</p>
 
-<p>"It looks like Sunmi isn't done organizing yet~ I think we can just start among ourselves~ Hehe ~"</p>
+<p>"It looks like Sunmi isn't done organizing yet I think we can just start among ourselves Hehe "</p>
 
 <p>Seyoung looked at Sehee Nuna and spoke with a gentle smile in a tone that subtly seemed to take the lead.</p>
 
@@ -138,7 +138,7 @@ chapter = 693
 
 <p>Seyoung looked at Shiwoo with a leering, sensual gaze for a moment.</p>
 
-<p>"Shiwoo Oppa seems especially weak here~ Churup !"</p>
+<p>"Shiwoo Oppa seems especially weak here Churup !"</p>
 
 <p>Then, as if exposing the weakness she had discovered in Shiwoo, Seyoung spoke playfully and licked upward, scratching the indented flesh below Shiwoo's glans.</p>
 

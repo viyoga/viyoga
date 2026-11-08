@@ -20,7 +20,7 @@ chapter = 46
 
 <p>"Nuna, do you want steak?"</p>
 
-<p>"No, you choose what you want to eat~"</p>
+<p>"No, you choose what you want to eat"</p>
 
 <p>The steak place Nuna pointed to was one that shared the central hall.</p>
 
@@ -70,7 +70,7 @@ chapter = 46
 
 <p>Shiwoo carefully took out Seyoung's pink one-piece pajamas from the shopping bag, as if handling a precious treasure, and unfolded them to show Sehee Nuna.</p>
 
-<p>"It's pretty~ Seyoung would look really cute in it."</p>
+<p>"It's pretty Seyoung would look really cute in it."</p>
 
 <p>Sehee Nuna spoke as if genuinely impressed.</p>
 
@@ -86,7 +86,7 @@ chapter = 46
 
 <p>Shiwoo answered, flustered as if caught off guard for no reason.</p>
 
-<p>"Idiot~! It was a joke~ You said you borrowed money from Mom to buy it, didn't you? No matter how cute it is, aren't you overdoing it a bit?"</p>
+<p>"Idiot! It was a joke You said you borrowed money from Mom to buy it, didn't you? No matter how cute it is, aren't you overdoing it a bit?"</p>
 
 <p>Sehee Nuna seemed to pity Shiwoo, who was always swayed by her teasing, even while she was teasing him.</p>
 
@@ -94,7 +94,7 @@ chapter = 46
 
 <p>Shiwoo said to Sehee Nuna, smiling shyly as if excusing his twisted sexual tendencies.</p>
 
-<p>"Hmm~?!"</p>
+<p>"Hmm?!"</p>
 
 <p>Sehee Nuna made a sound as if she found something regrettable but understood, and began to look down at Shiwoo.</p>
 

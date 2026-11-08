@@ -72,7 +72,7 @@ chapter = 492
 
 <p>Shiwoo spoke to Seyoung, who was feeding Mom her breast, as if reminding her of what he had said yesterday.</p>
 
-<p>"Yeah, you did~ You said it was similar to me coming to the master bedroom at night, sucking Mom's breast, and falling asleep~!"</p>
+<p>"Yeah, you did You said it was similar to me coming to the master bedroom at night, sucking Mom's breast, and falling asleep!"</p>
 
 <p>Seyoung stroked Mom's head and immediately answered as if she clearly remembered what Shiwoo had said.</p>
 
@@ -80,7 +80,7 @@ chapter = 492
 
 <p>Shiwoo, watching the situations that had been proceeding smoothly so far, spoke as if acknowledging the intimacy between the two women as the owner and husband of the two women.</p>
 
-<p>"Hehe~ Then can I just call Mom's name now?"</p>
+<p>"Hehe Then can I just call Mom's name now?"</p>
 
 <p>Seyoung nodded her head happily as if she was pleased to hear Shiwoo's words and smiled bashfully.</p>
 
@@ -92,13 +92,13 @@ chapter = 492
 
 <p>Seyoung asked Shiwoo back as if confirming while seeking permission.</p>
 
-<p>"No~! Don't ask directly~! Just formally call her name and talk to Seonmi, Seyoung! Anything!"</p>
+<p>"No! Don't ask directly! Just formally call her name and talk to Seonmi, Seyoung! Anything!"</p>
 
 <p>"Then Seonmi will react, right? If she really doesn't like it, she'll get angry and say something, and if she's okay with it, she'll just let it go! Right?"</p>
 
 <p>Shiwoo spoke as if emphasizing the end of his words, as if telling Mom, who was sucking on Seyoung's breast, to listen.</p>
 
-<p>"Okay, I'll talk to her now~ Hehe~"</p>
+<p>"Okay, I'll talk to her now Hehe"</p>
 
 <p>Seyoung smiled brightly as if she understood what Shiwoo was saying and answered.</p>
 
@@ -112,13 +112,13 @@ chapter = 492
 
 <p>Mom stopped the movement of her lips and tongue that had been sucking Seyoung's breast and flinched her body as if she was ticklish.</p>
 
-<p>"Actually, I can hear everything from outside~! The sounds of you moaning, Seonmi! Isn't it obvious since you left the door open?"</p>
+<p>"Actually, I can hear everything from outside! The sounds of you moaning, Seonmi! Isn't it obvious since you left the door open?"</p>
 
 <p>"But you're holding back well now? When the bedroom lights were off earlier and you were getting fucked by Shiwoo Oppa's cock, you were making sounds like you were about to die...? Did you perhaps make those sounds on purpose for me to hear?"</p>
 
 <p>"Actually, I knew that you were a fucking masochist pervert, Seonmi, even before Oppa fucked you! I heard it from Imo and the Aunts!?"</p>
 
-<p>"It must be really embarrassing to see our faces in the morning, right? But I'll pretend I don't know in the morning...because rules are rules~!"</p>
+<p>"It must be really embarrassing to see our faces in the morning, right? But I'll pretend I don't know in the morning...because rules are rules!"</p>
 
 <p>Seyoung spoke to Mom's ear as if whispering, as if she was making some shocking confession.</p>
 
@@ -158,13 +158,13 @@ chapter = 492
 
 <p>Seyoung took her lips off Mom's ear and was asking Shiwoo as if she was getting approval or permission.</p>
 
-<p>"According to Shiwoo Oppa, it seems like Seonmi is asleep now because she's not answering? Is that right~? Then she won't even remember anything that happened tonight tomorrow morning~? Kikik!"</p>
+<p>"According to Shiwoo Oppa, it seems like Seonmi is asleep now because she's not answering? Is that right? Then she won't even remember anything that happened tonight tomorrow morning? Kikik!"</p>
 
 <p>Seyoung was speaking to Shiwoo with sparkling eyes as if she understood exactly the rules of the night that had been implicitly decided between Shiwoo and Mom.</p>
 
 <p>Somehow, Seyoung's laughter sounded like Seonju Imo or Seulgi....</p>
 
-<p>"Yeah! You did well! It seems like Seyoung has become quite close with Seonmi now, so you can call Seonmi's name comfortably~!"</p>
+<p>"Yeah! You did well! It seems like Seyoung has become quite close with Seonmi now, so you can call Seonmi's name comfortably!"</p>
 
 <p>Shiwoo spoke to Seyoung, trying to calm his flustered and throbbing mood.</p>
 

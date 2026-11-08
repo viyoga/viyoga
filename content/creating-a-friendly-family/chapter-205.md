@@ -24,7 +24,7 @@ chapter = 205
 
 <p>Sehee Nuna's cheek was pressed and rubbed by Shiwoo's foot, changing the shape of her face.</p>
 
-<p>"Heeuuut~!"</p>
+<p>"Heeuuut!"</p>
 
 <p>Sehee Nuna's humiliating moan.</p>
 
@@ -58,7 +58,7 @@ chapter = 205
 
 <p>Shiwoo struck Sehee Nuna's buttocks, where red handprints were layered on top of each other, once again.</p>
 
-<p>"Haaht~!"</p>
+<p>"Haaht!"</p>
 
 <p>Sehee Nuna arched her back as if twisting, letting out a painful moan.</p>
 
@@ -66,7 +66,7 @@ chapter = 205
 
 <p>Shiwoo slapped Sehee Nuna's buttocks, which had undergone the humiliating ceremony under his feet, and then gave her a simple order to wash up.</p>
 
-<p>"Heeuh... Yes... Yes~"</p>
+<p>"Heeuh... Yes... Yes"</p>
 
 <p>Sehee Nuna answered Shiwoo with a sobbing breath and in a polite tone as if obeying him.</p>
 
@@ -84,7 +84,7 @@ chapter = 205
 
 <p>At that moment,</p>
 
-<p>-Tti-ling~!</p>
+<p>-Tti-ling!</p>
 
 <p>The notification sound of a text message rang out once again.</p>
 

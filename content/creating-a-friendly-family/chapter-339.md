@@ -12,7 +12,7 @@ chapter = 339
 
 <p>Shiwoo stammered his reply, seemingly a little flustered by Seyoung's mention of Sejin Nuna.</p>
 
-<p>"Sejin Nuna will be really upset later if she finds out~ Hehe" Seyoung spoke, teasing Shiwoo with a slightly playful tone.</p>
+<p>"Sejin Nuna will be really upset later if she finds out Hehe" Seyoung spoke, teasing Shiwoo with a slightly playful tone.</p>
 
 <p>Could Seyoung already know something about the relationship between Sejin Nuna and Dad? Perhaps through Seonju Imo-nim or Yu Yena Teacher, Seyoung already knew more secrets than Shiwoo.</p>
 
@@ -26,7 +26,7 @@ chapter = 339
 
 <p>Shiwoo suggested that Seyoung choose the design and color of Sejin Nuna's and Sae-a's dog collars.</p>
 
-<p>"Okay~ I'll pick Sae-a's first~!"</p>
+<p>"Okay I'll pick Sae-a's first!"</p>
 
 <p>Seyoung replied to Shiwoo's words, then slowly scanned the display stand where the dog collars were arranged.</p>
 
@@ -38,17 +38,17 @@ chapter = 339
 
 <p>Shiwoo picked up the dog collar Seyoung pointed to and asked, looking at her.</p>
 
-<p>"Yes~ that one! I really like that color~"</p>
+<p>"Yes that one! I really like that color"</p>
 
 <p>Seyoung confirmed with her expression and words that the teal dog collar Shiwoo had picked up was indeed the one she had chosen.</p>
 
 <p>Shiwoo placed the teal dog collar, along with its matching leash, into the basket.</p>
 
-<p>"And~ Sejin Nuna's is~"</p>
+<p>"And Sejin Nuna's is"</p>
 
 <p>Seyoung continued, her voice slightly excited, as she chose a dog collar for Sejin Nuna.</p>
 
-<p>"This one would be good~!!"</p>
+<p>"This one would be good!!"</p>
 
 <p>Seyoung took a collar hanging on the display stand directly in front of her and handed it to Shiwoo.</p>
 
@@ -62,7 +62,7 @@ chapter = 339
 
 <p>Shiwoo received the chain dog collar, showing a slightly flustered expression, and asked Seyoung as if to confirm.</p>
 
-<p>"Yes! Something like this would suit Sejin Nuna well. Hehe~" Seyoung said to Shiwoo, flashing an innocent smile.</p>
+<p>"Yes! Something like this would suit Sejin Nuna well. Hehe" Seyoung said to Shiwoo, flashing an innocent smile.</p>
 
 <p>Seyoung definitely seemed to know the detailed circumstances of Sejin Nuna. Sejin Nuna's situation: having an affair with Dad, getting pregnant, and then not returning home as if fleeing...</p>
 
@@ -82,9 +82,9 @@ chapter = 339
 
 <p>Shiwoo chose a purple leather collar for Sehee Nuna. A casual design and color that would suit women of Sehee Nuna's age.</p>
 
-<p>"That would suit her really well too~" Seyoung said, her expression satisfied and excited.</p>
+<p>"That would suit her really well too" Seyoung said, her expression satisfied and excited.</p>
 
-<p>"Oppa~! Oppa! This! The one at Sua's house!"</p>
+<p>"Oppa! Oppa! This! The one at Sua's house!"</p>
 
 <p>Seyoung then called out to Shiwoo, pointing at something a few steps away.</p>
 
@@ -114,7 +114,7 @@ chapter = 339
 
 <p>"What's that?" Shiwoo asked, curious about what Seyoung was choosing.</p>
 
-<p>"Dog tags~ We need these too, don't we?"</p>
+<p>"Dog tags We need these too, don't we?"</p>
 
 <p>Seyoung showed Shiwoo the name tag identification tags in her palm, speaking boastfully.</p>
 

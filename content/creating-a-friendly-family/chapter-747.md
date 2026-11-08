@@ -10,7 +10,7 @@ chapter = 747
 
 <p>Mom remains silent under the weight of his persistent interrogation, her face contorting in a pained, troubled grimace.</p>
 
-<p>"Did you really never have an affair, Mom? If I were you, I would've felt so wronged in that situation that I'd have cheated right back~ Hehe."</p>
+<p>"Did you really never have an affair, Mom? If I were you, I would've felt so wronged in that situation that I'd have cheated right back Hehe."</p>
 
 <p>Shiwoo speaks with a playful, teasing lilt, but his words dig deep, unearthing the silence she is trying to maintain.</p>
 
@@ -20,7 +20,7 @@ chapter = 747
 
 <p>She pours more wine into her empty glass and stares at it for a moment. Then, as if a foul, unpleasant memory had suddenly clawed its way to the surface of her mind, she brings the glass to her lips and drinks it down, beol-keok, beol-keok .</p>
 
-<p>"Haaaaaaa~"</p>
+<p>"Haaaaaaa"</p>
 
 <p>After draining the glass, she takes a long, deep breath to steady herself and sets the wine glass back down on the table.</p>
 
@@ -72,7 +72,7 @@ chapter = 747
 
 <p>Mom continues to pour out her grievances, retracing the bitter memories intertwined with Aunt Seonju.</p>
 
-<p>"Hearing you talk like that, you must have suffered a lot because of Seonju without me knowing~"</p>
+<p>"Hearing you talk like that, you must have suffered a lot because of Seonju without me knowing"</p>
 
 <p>"That's why I punished her this morning! I told you, I'm not going to let Seonju mess with you anymore!"</p>
 
@@ -100,7 +100,7 @@ chapter = 747
 
 <p class="scene-break">· · ·</p>
 
-<p>"I'll serve the herb scallop salad first~"</p>
+<p>"I'll serve the herb scallop salad first"</p>
 
 <p>"These are lightly marinated scallops served with herbs, finished with a sauce that highlights the natural juices of the scallops."</p>
 
@@ -148,7 +148,7 @@ chapter = 747
 
 <p>Only then does Shiwoo seem to understand the true meaning behind the things his mother had been blurting out in her drunken state.</p>
 
-<p>"Well... Sehee said she wasn't a lesbian either... so I guess you're the same, Mom~?"</p>
+<p>"Well... Sehee said she wasn't a lesbian either... so I guess you're the same, Mom?"</p>
 
 <p>"Sehee said she was basically a heterosexual... like she only has that special relationship with Shinbi..."</p>
 
@@ -162,7 +162,7 @@ chapter = 747
 
 <p>Mom raises the pitch of her voice, snapping irritably as she scrapes her fork against the plate where the scallop was speared.</p>
 
-<p>"Still, you're getting along fine with Sehee and Seyoung~ Ha-um... and based on what you said, even if you don't remember, it sounds like you've already done it with Sejin Nuna too..."</p>
+<p>"Still, you're getting along fine with Sehee and Seyoung Ha-um... and based on what you said, even if you don't remember, it sounds like you've already done it with Sejin Nuna too..."</p>
 
 <p>Shiwoo continues to talk, spearing two or three scallops at a time and eating them.</p>
 

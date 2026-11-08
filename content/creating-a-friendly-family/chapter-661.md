@@ -148,7 +148,7 @@ chapter = 661
 
 <p>Just then, a presence was felt from the direction of the dressing room.</p>
 
-<p>"Wow~ Oppa, did you set all of this up?"</p>
+<p>"Wow Oppa, did you set all of this up?"</p>
 
 <p>Seyoung, who had finished drying the water off her body, spoke as if impressed while walking toward the kitchen.</p>
 
@@ -172,7 +172,7 @@ chapter = 661
 
 <p>Shiwoo spoke with a confident expression, turning toward Seyoung with his fully erect penis aimed at her.</p>
 
-<p>"I feel a bit bad for making you work alone~ We could have done it together..."</p>
+<p>"I feel a bit bad for making you work alone We could have done it together..."</p>
 
 <p>Seyoung spoke as if shyly while looking at the scenery atop the dining table Shiwoo had prepared.</p>
 
@@ -186,6 +186,6 @@ chapter = 661
 
 <p>As if it would erupt his desire, which had been acknowledged by another, out of his body all at once...</p>
 
-<p>"No~ I just set the table with what I just bought! Usually, Sunmi and Seyoung make all our meals for us, right? On a special day, I should do something like this once in a while!"</p>
+<p>"No I just set the table with what I just bought! Usually, Sunmi and Seyoung make all our meals for us, right? On a special day, I should do something like this once in a while!"</p>
 
 <p>Shiwoo replied as if it were no big deal, rather expressing gratitude for Seyoung's usual hard work and devotion.</p>

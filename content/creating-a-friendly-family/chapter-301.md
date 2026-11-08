@@ -168,7 +168,7 @@ chapter = 301
 
 <p>Then, the camera briefly missed the subject it had been capturing inside the screen.</p>
 
-<p>,Churulup Chuup Chuap~!,</p>
+<p>,Churulup Chuup Chuap!,</p>
 
 <p>,Haeum... haat... haeup...,</p>
 

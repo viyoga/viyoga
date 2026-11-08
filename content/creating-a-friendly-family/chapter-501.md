@@ -146,7 +146,7 @@ chapter = 501
 
 <p>Seyoung, who had not anticipated Shiwoo's actions that had suddenly taken place while Mom was handing him the smartphone, let out a bewildered moaning sound.</p>
 
-<p>"Thank you, Mom~ I'll leave the door open..."</p>
+<p>"Thank you, Mom I'll leave the door open..."</p>
 
 <p>Shiwoo stopped the thrusting he was doing to Seyoung, turned his head, and spoke to Mom, who was averting her gaze from Shiwoo and Seyoung's act.</p>
 

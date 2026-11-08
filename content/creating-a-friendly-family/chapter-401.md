@@ -62,7 +62,7 @@ chapter = 401
 
 <p>Gulp, gulp, gulp.</p>
 
-<p>,Why don't you drink it with the pizza~! I went to the trouble of heating it up~ Should I get you another beer?"</p>
+<p>,Why don't you drink it with the pizza! I went to the trouble of heating it up Should I get you another beer?"</p>
 
 <p>Shiwoo, who had just been groping Mom's buttocks, asked her nonchalantly as if striking up a conversation.</p>
 

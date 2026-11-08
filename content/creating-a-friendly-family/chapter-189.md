@@ -52,7 +52,7 @@ chapter = 189
 
 <p>Saerom Nuna acknowledged Cheoljin-i, who had followed them in.</p>
 
-<p>"Ah~ I guess that's how it happened... hehe."</p>
+<p>"Ah I guess that's how it happened... hehe."</p>
 
 <p>Cheoljin-i said, raising his hand in a light greeting and smiling.</p>
 
@@ -70,7 +70,7 @@ chapter = 189
 
 <p>At first glance, it looked like an ordinary meeting or a blind date. But Shiwoo felt a subtly discordant atmosphere.</p>
 
-<p>"It's fine~ I'll pay separately~! How much could it be~!"</p>
+<p>"It's fine I'll pay separately! How much could it be!"</p>
 
 <p>Cheoljin-i said as he received the ordered drinks for Sinbi Nuna and Semi Nuna and walked towards the counter.</p>
 
@@ -88,11 +88,11 @@ chapter = 189
 
 <p>Shiwoo retorted to Cheoljin-i as if continuing the playful greetings they usually exchanged at the academy.</p>
 
-<p>"You never know~! Puhaha."</p>
+<p>"You never know! Puhaha."</p>
 
 <p>Cheoljin-i added a new sentence to the comedic dialogue he usually exchanged with Shiwoo and replied with a laugh.</p>
 
-<p>"This is Cheoljin-i~ He's in the same grade as Shiwoo."</p>
+<p>"This is Cheoljin-i He's in the same grade as Shiwoo."</p>
 
 <p>Sora Nuna was introducing Cheoljin-i to the three men who had arrived earlier.</p>
 
@@ -174,6 +174,6 @@ chapter = 189
 
 <p>Sinbi Nuna picked up a piece of fruit with a toothpick in it and fed it to Shiwoo.</p>
 
-<p>"You look quite handsome today~? Your clothes suit you well, and your perfume smells so good~"</p>
+<p>"You look quite handsome today? Your clothes suit you well, and your perfume smells so good"</p>
 
 <p>Sinbi Nuna sat closer to Shiwoo, who was eating the fruit she had given him, and whispered into his ear.</p>

@@ -24,11 +24,11 @@ chapter = 763
 
 <p>"It's easy for you to just cause trouble and leave it at that! ...I can already see myself being tormented by the kids!" Mom speaks as if flared up by Shiwoo's relaxed tone.</p>
 
-<p>"Don't worry~ I'll do my best to make sure you aren't hounded by the rest of the family..."</p>
+<p>"Don't worry I'll do my best to make sure you aren't hounded by the rest of the family..."</p>
 
 <p>Shiwoo answers with a sly smile, as if to make Mom's worries seem pointless.</p>
 
-<p>"Sigh~ I really don't know anymore... so do as you please~" Mom mutters to herself, letting out a deep sigh...</p>
+<p>"Sigh I really don't know anymore... so do as you please" Mom mutters to herself, letting out a deep sigh...</p>
 
 <p>While expressing her concern for the other family members, she speaks as if provoking Shiwoo with the playful tone she occasionally uses. Mom's contradictory speech and attitude make it impossible for Shiwoo to hold back any longer. The surrounding area happens to be a corner of a passage, a blind spot where almost no light reaches. After confirming there is no one around, Shiwoo corners Mom against the wall of the narrow, dark passage. Forcing Mom's face toward the wall, Shiwoo presses his body tightly against her from behind.</p>
 
@@ -118,7 +118,7 @@ chapter = 763
 
 <p>Mom trembles helplessly at Shiwoo's tightening hand and low voice, answering as if pleading.</p>
 
-<p>"Hmm? Let's go? Where~?"</p>
+<p>"Hmm? Let's go? Where?"</p>
 
 <p>Shiwoo loosens the strength in the hand holding Mom's breast and kneads it, speaking playfully as if feigning ignorance.</p>
 

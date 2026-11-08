@@ -18,7 +18,7 @@ chapter = 648
 
 <p>Shiwoo picked up the lid that had been lying on the table, capped the bottle of breast milk, and carefully tucked it into his bag.</p>
 
-<p>"I thought of something I want to eat~"</p>
+<p>"I thought of something I want to eat"</p>
 
 <p>Seyoung, who had been watching Shiwoo fix his clothes and tidy up the area, spoke up.</p>
 
@@ -26,7 +26,7 @@ chapter = 648
 
 <p>Shiwoo reacted, sounding a bit startled by Seyoung's sudden remark.</p>
 
-<p>"Sushi! I want to eat sushi for the first time in a while~ It's been so long since we've had sushi! Hehe~!"</p>
+<p>"Sushi! I want to eat sushi for the first time in a while It's been so long since we've had sushi! Hehe!"</p>
 
 <p>Seyoung spoke to Shiwoo in a voice thick with aegyo .</p>
 
@@ -44,7 +44,7 @@ chapter = 648
 
 <p>Shiwoo picked up his smartphone and spoke as he opened a navigation map app.</p>
 
-<p>"You don't have to search! I know a delicious sushi place nearby~ Let's go there~!"</p>
+<p>"You don't have to search! I know a delicious sushi place nearby Let's go there!"</p>
 
 <p>Seyoung stopped Shiwoo from searching the map and suggested they go to the place she knew.</p>
 
@@ -68,7 +68,7 @@ chapter = 648
 
 <p>Even though he was already in a relationship with Seyoung that involved not only familial sex but also a perverted master-slave dynamic and various deviant plays, he still felt a sense of bewilderment at her blunt way of speaking.</p>
 
-<p>"Yeah~ Tell Seonju to come to our house instead of here~ There's no need for her to come out and wait for nothing~ Anyway, Seonmi is going to be late coming home with Sehee-unni..."</p>
+<p>"Yeah Tell Seonju to come to our house instead of here There's no need for her to come out and wait for nothing Anyway, Seonmi is going to be late coming home with Sehee-unni..."</p>
 
 <p>Seyoung spoke in a soft, persuasive voice.</p>
 
@@ -82,7 +82,7 @@ chapter = 648
 
 <p>Shiwoo asked Seonju-imo, checking if she was prepared to go out.</p>
 
-<p>[Yes~ I've showered, changed my clothes, and I'm just about to head out after a bit of light makeup. Have you decided where to eat with the kids? Where should I go?]</p>
+<p>[Yes I've showered, changed my clothes, and I'm just about to head out after a bit of light makeup. Have you decided where to eat with the kids? Where should I go?]</p>
 
 <p>Seonju-imo replied to Shiwoo, sounding as if she were diligently preparing for their outing.</p>
 
@@ -98,7 +98,7 @@ chapter = 648
 
 <p>Shiwoo commanded Seonju-imo, his tone now completely natural and accustomed to the role.</p>
 
-<p>[Yes~ Then I will head to Master's house in about 30 to 40 minutes~!]</p>
+<p>[Yes Then I will head to Master's house in about 30 to 40 minutes!]</p>
 
 <p>Though she might have been a little disappointed by the sudden, arbitrary change in the dining plans, Seonju-imo answered energetically as always.</p>
 
@@ -106,7 +106,7 @@ chapter = 648
 
 <p>Shiwoo asked Seonju-imo one last time, as if to confirm she hadn't forgotten his previous instructions.</p>
 
-<p>[What you said earlier? You mean about steadying my heart as an aunt, not a slave, before coming out? Yes, I haven't forgotten~!]</p>
+<p>[What you said earlier? You mean about steadying my heart as an aunt, not a slave, before coming out? Yes, I haven't forgotten!]</p>
 
 <p>Seonju-imo replied to Shiwoo, repeating the command he had given her exactly, as if it were etched into her memory.</p>
 
@@ -114,7 +114,7 @@ chapter = 648
 
 <p>Shiwoo emphasized that the previous instruction remained unchanged despite the change in location, confirming it once more.</p>
 
-<p>[Yes~ Master! I'll keep it in mind and keep thinking about it while I head to Master's house~!]</p>
+<p>[Yes Master! I'll keep it in mind and keep thinking about it while I head to Master's house!]</p>
 
 <p>Seonju-imo mimicked Shiwoo's words, confirming that she clearly understood the command he had laid down.</p>
 
@@ -130,7 +130,7 @@ chapter = 648
 
 <p>Picking up the ice cream contained in the plastic bag, Shiwoo stood up and prepared to head back toward the entrance they had come through...</p>
 
-<p>"We're going to head out through there, so grab the luggage we left and see you outside~ Hehe~"</p>
+<p>"We're going to head out through there, so grab the luggage we left and see you outside Hehe"</p>
 
 <p>The sisters spoke as they naturally walked toward the female-only exit.</p>
 
@@ -188,7 +188,7 @@ chapter = 648
 
 <p>Shiwoo answered her question awkwardly.</p>
 
-<p>"I'm glad you liked them~ You're leaving now, right? Then I'll guide you outside~"</p>
+<p>"I'm glad you liked them You're leaving now, right? Then I'll guide you outside"</p>
 
 <p>She spoke as if leading Shiwoo, pulling back the curtain and stepping inside the door...</p>
 

@@ -206,6 +206,6 @@ chapter = 274
 
 <p>As he thought about the plump flesh and smooth skin inside the two women's clothes, Shiwoo's thing reacted and pushed against the waist elastic.</p>
 
-<p>'Mom~ Seyoung-ah~ Did you sleep well? Are you preparing breakfast?"</p>
+<p>'Mom Seyoung-ah Did you sleep well? Are you preparing breakfast?"</p>
 
 <p>Shiwoo greeted Mom and Seyoung with a nonchalant tone as if he had erased the events of last night from his memory.</p>

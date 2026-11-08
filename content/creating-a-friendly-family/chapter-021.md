@@ -12,7 +12,7 @@ chapter = 21
 
 <p>"Huh?"</p>
 
-<p>"If you go home with me like that, Mom might think it's weird~ Honestly, I can tell even from the side, it's not completely hidden by your clothes, you know?"</p>
+<p>"If you go home with me like that, Mom might think it's weird Honestly, I can tell even from the side, it's not completely hidden by your clothes, you know?"</p>
 
 <p>Perhaps because she had been walking with Shiwoo, whose cock was throbbing and hard, linked in her arm, Sehee Nuna, who usually teased him so much, had a flushed face, her usual smile gone.</p>
 
@@ -128,19 +128,19 @@ chapter = 21
 
 <p>Sehee Nuna looked at Shiwoo intently and said,</p>
 
-<p>"You're really funny~? You took my panties this morning, didn't you? Weren't you going to use those?"</p>
+<p>"You're really funny? You took my panties this morning, didn't you? Weren't you going to use those?"</p>
 
 <p>"Ah... you knew?"</p>
 
 <p>Shiwoo was flustered, thinking she didn't know.</p>
 
-<p>"Did you think I wouldn't know? How could I not know? Seyoung probably knows too~"</p>
+<p>"Did you think I wouldn't know? How could I not know? Seyoung probably knows too"</p>
 
 <p>Shiwoo was a little concerned about Nuna's last words, but he was satisfied with the new masturbation experience he had thanks to Sehee Nuna, and he returned home with Sehee Nuna with a proud feeling.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>"Mom~ I'm home~"</p>
+<p>"Mom I'm home"</p>
 
 <p>Sehee and Shiwoo entered the house.</p>
 

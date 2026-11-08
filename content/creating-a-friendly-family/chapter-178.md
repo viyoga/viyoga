@@ -6,7 +6,7 @@ chapter = 178
 +++
 <p>Sua was just as Shiwoo knew her to be.</p>
 
-<p>"Oppa~ Are you done talking with Seonju Imo? Come here and have some ice cream cake~ I took it out so Shiwoo Oppa and Seonju Imo can eat it together, hehe~"</p>
+<p>"Oppa Are you done talking with Seonju Imo? Come here and have some ice cream cake I took it out so Shiwoo Oppa and Seonju Imo can eat it together, hehe"</p>
 
 <p>Seyoung calls out cheerfully to Shiwoo as he comes down from the second floor.</p>
 
@@ -24,11 +24,11 @@ chapter = 178
 
 <p>Seyoung asks, handing Shiwoo a spoon with a piece of ice cream cake on it, as if she doesn't know anything about Seonju Imo.</p>
 
-<p>"Um... she'll be down soon~ Um um... Seonju Imo seems to have urgently needed the bathroom~"</p>
+<p>"Um... she'll be down soon Um um... Seonju Imo seems to have urgently needed the bathroom"</p>
 
 <p>Shiwoo puts the ice cream cake Seyoung offered into his mouth and mumbles, answering his younger sister's question evasively.</p>
 
-<p>"Really? I hope she comes quickly. Before the ice cream cake melts, hehe~"</p>
+<p>"Really? I hope she comes quickly. Before the ice cream cake melts, hehe"</p>
 
 <p>Seyoung says to Shiwoo, still wearing a happy expression.</p>
 
@@ -44,15 +44,15 @@ chapter = 178
 
 <p>Was Seyoung enjoying seeing Shiwoo's flustered expression, making him unsure how to react right away?</p>
 
-<p>"It seems more delicious because Seyoung is feeding me~ Next time, I'll go to the cafe with Seyoung and buy her everything she wants to eat~"</p>
+<p>"It seems more delicious because Seyoung is feeding me Next time, I'll go to the cafe with Seyoung and buy her everything she wants to eat"</p>
 
 <p>Shiwoo was now matching the atmosphere as his younger sisters did.</p>
 
-<p>"Wow~ really~?!"</p>
+<p>"Wow really?!"</p>
 
 <p>Seyoung reacts as if pleased by Shiwoo's words.</p>
 
-<p>"Yeah~! I want to feed Seyoung everything she likes."</p>
+<p>"Yeah! I want to feed Seyoung everything she likes."</p>
 
 <p>Shiwoo says to Seyoung, harboring lewd thoughts.</p>
 
@@ -64,7 +64,7 @@ chapter = 178
 
 <p>The small tremor is transmitted to Shiwoo's sensitive penis.</p>
 
-<p>"Yeah~ I like that~ I want to go with Sua and try everything Oppa buys me~!"</p>
+<p>"Yeah I like that I want to go with Sua and try everything Oppa buys me!"</p>
 
 <p>Seyoung, knowing or not knowing Shiwoo's feelings, leans back slightly without changing her expression, speaking while leaning back.</p>
 
@@ -92,7 +92,7 @@ chapter = 178
 
 <p>Shiwoo felt that Sua in front of him was feeling foreign.</p>
 
-<p>"Yeah! It's delicious too~ I wish I could taste all the different kinds if possible~"</p>
+<p>"Yeah! It's delicious too I wish I could taste all the different kinds if possible"</p>
 
 <p>Shiwoo sits next to Sua, nonchalantly talking to Sua as well.</p>
 
@@ -156,11 +156,11 @@ chapter = 178
 
 <p>Shiwoo asks carefully, stroking Sua's thigh.</p>
 
-<p>"U... Uh... I... I think I'm okay with it~"</p>
+<p>"U... Uh... I... I think I'm okay with it"</p>
 
 <p>Sua answers Shiwoo in a barely audible voice.</p>
 
-<p>"Don't worry. Oppa! I'll make sure you can eat Shiwoo Oppa all up~! Because I like doing that with Oppa~ Ahem~"</p>
+<p>"Don't worry. Oppa! I'll make sure you can eat Shiwoo Oppa all up! Because I like doing that with Oppa Ahem"</p>
 
 <p>Suddenly, Seyoung, who was sitting across from Shiwoo and listening to Shiwoo and Sua's conversation, smiles arrogantly and answers Shiwoo on Sua's behalf, as if deliberately joking.</p>
 
@@ -188,7 +188,7 @@ chapter = 178
 
 <p>Shiwoo tries to gloss over the lewd and obscene wordplay he was doing by inserting the word 'cafe' into the sentence as if emphasizing it.</p>
 
-<p>"Yeah~ with Sua~! Hehehe~"</p>
+<p>"Yeah with Sua! Hehehe"</p>
 
 <p>Seyoung answers Shiwoo's words, playfully laughing as if nothing were wrong.</p>
 
@@ -198,7 +198,7 @@ chapter = 178
 
 <p class="scene-break">· · ·</p>
 
-<p>"I'm going to take a shower~"</p>
+<p>"I'm going to take a shower"</p>
 
 <p>Shiwoo, who had been eating a few spoonfuls of ice cream cake and watching Seyoung and Sua's reactions, says as he gets up from his seat.</p>
 

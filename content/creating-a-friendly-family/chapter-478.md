@@ -146,7 +146,7 @@ chapter = 478
 
 <p>Mom's text was sent as if scolding Shiwoo.</p>
 
-<p>「Hehe~ I thought you could keep it as a memento~ It'd be nice to have it and look at it sometimes when you think of it later~ Or should I have uploaded it to the group chat so we could all enjoy it together?」</p>
+<p>「Hehe I thought you could keep it as a memento It'd be nice to have it and look at it sometimes when you think of it later Or should I have uploaded it to the group chat so we could all enjoy it together?」</p>
 
 <p>Shiwoo matched Mom's scolding, nonchalantly making a playful joke and replying to Mom's text.</p>
 
@@ -188,6 +188,6 @@ chapter = 478
 
 <p>Shiwoo conveyed the worries that Sehee Nuna had and added more questions, as if asking for specific impressions about the play that had happened in the kitchen.</p>
 
-<p>「It was so sudden, so I was out of it! What! When I think about what happened earlier, everything keeps going white in front of my eyes and my heart beats fast... Sigh~!」</p>
+<p>「It was so sudden, so I was out of it! What! When I think about what happened earlier, everything keeps going white in front of my eyes and my heart beats fast... Sigh!」</p>
 
 <p>Mom explained her detailed condition, as if responding to Shiwoo's request even in an embarrassing situation.</p>

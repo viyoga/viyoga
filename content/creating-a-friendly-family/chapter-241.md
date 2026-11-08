@@ -4,7 +4,7 @@ weight = 241
 [extra]
 chapter = 241
 +++
-<p>"Ugh....b-because it might get noisy all night~ on the f-first floor, I mean!"</p>
+<p>"Ugh....b-because it might get noisy all night on the f-first floor, I mean!"</p>
 
 <p>Shiwoo began to speak as if to clearly remind Sehee Nuna once again about his plan for sex with Mom tonight.</p>
 
@@ -14,7 +14,7 @@ chapter = 241
 
 <p>Shiwoo's hand lightly slid down Sehee Nuna's soft skin.</p>
 
-<p>"Still...my number one slave is S-Sehee, so don't worry~!"</p>
+<p>"Still...my number one slave is S-Sehee, so don't worry!"</p>
 
 <p>Shiwoo spoke, alternately stroking Sehee Nuna's back and buttocks as if to soothe her.</p>
 
@@ -34,13 +34,13 @@ chapter = 241
 
 <p>At the same time, Sehee Nuna's sharp teeth, which had been grinding and crushing his glans, dug even deeper into the sensitive flesh of Shiwoo's glans.</p>
 
-<p>"Aaaah!!! Sehee-ya~!!!"</p>
+<p>"Aaaah!!! Sehee-ya!!!"</p>
 
 <p>Shiwoo and Sehee Nuna continued their violent oral sex, as if sharing each other's pain.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>"Pusyuk~! Pusyuk~! Pusyuk~!"</p>
+<p>"Pusyuk! Pusyuk! Pusyuk!"</p>
 
 <p>The fellatio continued for a while.</p>
 
@@ -66,7 +66,7 @@ chapter = 241
 
 <p>Shiwoo scanned Sehee Nuna's beautiful face, holding his semen, and her alluring body curves up and down, then stroked her lustrous hair.</p>
 
-<p>"I sent the video Nuna took earlier to Mom~ So when Mom comes out!"</p>
+<p>"I sent the video Nuna took earlier to Mom So when Mom comes out!"</p>
 
 <p>Shiwoo seemed to have no intention of making Sehee Nuna swallow the semen she held in her mouth, which had swollen her cheeks.</p>
 
@@ -102,7 +102,7 @@ chapter = 241
 
 <p class="scene-break">· · ·</p>
 
-<p>"I'll go out first~~"</p>
+<p>"I'll go out first"</p>
 
 <p>Seyoung's voice was heard faintly from inside the changing room.</p>
 
@@ -110,21 +110,21 @@ chapter = 241
 
 <p>Following that, Mom's voice, as if urgently trying to stop Seyoung.</p>
 
-<p>"Why~? You said we could be comfortable now~"</p>
+<p>"Why? You said we could be comfortable now"</p>
 
 <p>The sound of a conversation between mother and daughter, seemingly bickering over wearing underwear, was heard from the changing room.</p>
 
-<p>"A-and your hair isn't even dry yet. What if you catch a cold~! A-and even so, you have to c-cover your chest before you go out...!"</p>
+<p>"A-and your hair isn't even dry yet. What if you catch a cold! A-and even so, you have to c-cover your chest before you go out...!"</p>
 
 <p>Mom seemed to be urgently stopping Seyoung, who was trying to go out to the living room without wearing a bra after finishing her shower.</p>
 
-<p>"You said we don't have to wear it after showering~ Mom already answered Shiwoo Oppa earlier~! Mom said it herself, so you have to keep your word~ Right!?"</p>
+<p>"You said we don't have to wear it after showering Mom already answered Shiwoo Oppa earlier! Mom said it herself, so you have to keep your word Right!?"</p>
 
-<p>"N-no...but if you suddenly go out like that...Oh~ really...Haa~"</p>
+<p>"N-no...but if you suddenly go out like that...Oh really...Haa"</p>
 
 <p>Perhaps because Shiwoo's name came out of Seyoung's mouth, Mom sighed, trailing off her words in an unclear tone, as if it was difficult to stop Seyoung any longer.</p>
 
-<p>"And I~ I'll dry my hair in my room~ So it's fine~ Hehe~"</p>
+<p>"And I I'll dry my hair in my room So it's fine Hehe"</p>
 
 <p>Seyoung was subtly being stubborn with Mom, speaking as if it didn't matter.</p>
 
@@ -142,7 +142,7 @@ chapter = 241
 
 <p>Shiwoo's middle finger was sucked into the split between Sehee Nuna's legs.</p>
 
-<p>"Hngh~! Heup! Hng~!"</p>
+<p>"Hngh! Heup! Hng!"</p>
 
 <p>Every time Shiwoo's finger wiggled inside Sehee Nuna's vagina hole, Sehee Nuna dutifully informed Shiwoo of her physical reaction with moans.</p>
 
@@ -182,11 +182,11 @@ chapter = 241
 
 <p>The front of Shiwoo's pants was swelling, but Shiwoo no longer felt the urge to hide it.</p>
 
-<p>"Seyoung, did you have a refreshing wash and come out~?"</p>
+<p>"Seyoung, did you have a refreshing wash and come out?"</p>
 
 <p>Shiwoo tried talking to Seyoung, who was returning from drinking water in the kitchen.</p>
 
-<p>"Yeah~~ It's refreshing~ Hehe~~"</p>
+<p>"Yeah It's refreshing Hehe"</p>
 
 <p>Seyoung answered Shiwoo with her usual bright expression.</p>
 
@@ -198,7 +198,7 @@ chapter = 241
 
 <p>Shiwoo spoke, scanning Seyoung's lovely body.</p>
 
-<p>"It felt good~~ but it's not 'after a long time'~"</p>
+<p>"It felt good but it's not 'after a long time'"</p>
 
 <p>Seyoung answered Shiwoo's question in a gentle tone.</p>
 
@@ -206,7 +206,7 @@ chapter = 241
 
 <p>Shiwoo asked, sounding slightly puzzled.</p>
 
-<p>"Yeah~ We often did it at Sua's house~ Because I'm close with Mom too~ Hehe~"</p>
+<p>"Yeah We often did it at Sua's house Because I'm close with Mom too Hehe"</p>
 
 <p>Seyoung answered nonchalantly, taking Shiwoo's joke from the dining table earlier.</p>
 

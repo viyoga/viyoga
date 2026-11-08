@@ -12,7 +12,7 @@ chapter = 696
 
 <p>Watching her, Shiwoo felt his penis swell even harder inside Seyoung's mouth.</p>
 
-<p>"Churub, chu-waaap~ chuuuub! Suub!"</p>
+<p>"Churub, chu-waaap chuuuub! Suub!"</p>
 
 <p>Seyoung seemed to be doing it on purpose, tightening her grip on Shiwoo's shaft while making loud, wet slurping and licking sounds.</p>
 

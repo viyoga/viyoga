@@ -14,19 +14,19 @@ chapter = 645
 
 <p>Shiwoo stammered, looking flustered, and glanced at Sua. Sua's face was dyed a deep crimson as she avoided Shiwoo's eyes. He recalled what Seyoung had said just moments ago on her way to order.</p>
 
-<p>'I wonder if one day is still too much~?' Seyoung had said while pressing her hand against Shiwoo's penis... Was she talking about the anal plug that Sua was wearing right now?</p>
+<p>'I wonder if one day is still too much?' Seyoung had said while pressing her hand against Shiwoo's penis... Was she talking about the anal plug that Sua was wearing right now?</p>
 
 <p>For a moment, Shiwoo imagined thrusting his massive item into Sua's tiny anus. The image of Sua wailing as her anus was pierced by his giant penis filled his mind. Every time he buried his massive penis to the root into Sua's anus, she would let out moans that were almost screams, her body convulsing in a frantic tremor. A dizzying sensation of bliss, enough to blur his vision for a moment, seemed to scrape against Shiwoo's brain.</p>
 
 <p>Seyoung, who was sitting next to him, leaned in and brought her lips to Shiwoo's ear.</p>
 
-<p>「I'm wearing one too... a cat-tail anal plug~ Hee-hee!」</p>
+<p>「I'm wearing one too... a cat-tail anal plug Hee-hee!」</p>
 
 <p>Seyoung whispered into Shiwoo's ear playfully, as if making a shy confession. A short, sharp burst of pleasure, enough to make his body tremble, grazed Shiwoo's ear and dug deep into the back of his head. Shiwoo wrapped his arm around Seyoung's back, pulling her body toward him in an embrace. His hand rested on her hips and buttocks. Her fairly fleshy hips were captured within Shiwoo's hand. He pulled her body toward him just like that.</p>
 
 <p>Seyoung's body tilted toward Shiwoo, pressing against him without a single gap.</p>
 
-<p>「What are you planning to do now? Hee-hee~」</p>
+<p>「What are you planning to do now? Hee-hee」</p>
 
 <p>Pulled toward Shiwoo, Seyoung spoke with a smile, her tone provocative. It was as if she were reminding him once again that Shiwoo wouldn't be able to do anything inside a cafe full of people... Shiwoo felt a surge of irritation at Seyoung's words. He pulled Seyoung's body even closer to his own.</p>
 
@@ -76,7 +76,7 @@ chapter = 645
 
 <p>A moment later, the female clerk who had been behind the display case approached the table where Shiwoo and his sisters were sitting, carrying the ice cream.</p>
 
-<p>「Here is the ice cream you ordered~」</p>
+<p>「Here is the ice cream you ordered」</p>
 
 <p>The female clerk placed the tray containing the ice cream on the table with a bright smile. She served each person's ice cream in glass bowls along with disposable napkins. As she set Shiwoo and Seyoung's ice cream down, she cast a suspicious glance at the blanket the two were sharing.</p>
 
@@ -84,7 +84,7 @@ chapter = 645
 
 <p>Unlike her usual cheerful expression, Seyoung's face was flushed red as if stained with shame. The hand gripping Shiwoo's penis was filled with strength. The clerk hesitated for a moment but soon began to move smoothly again as if nothing had happened, placing the ice cream in front of Sua.</p>
 
-<p>「Then, please enjoy~ Hu-hu!」</p>
+<p>「Then, please enjoy Hu-hu!」</p>
 
 <p>She spoke with a somewhat exaggerated expression and tone, then turned away quietly with a lingering smile.</p>
 

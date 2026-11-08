@@ -90,7 +90,7 @@ chapter = 338
 
 <p>Mom, Sehee noona, and Seonju Imo all checked the video Shiwoo sent right away.</p>
 
-<p>'So, you already did it with Sua? Even ejaculated inside? Congratulations~ Master~! Please take good care of our Sua in the future too~! Please come visit me at my house often too~! Hehe~'</p>
+<p>'So, you already did it with Sua? Even ejaculated inside? Congratulations Master! Please take good care of our Sua in the future too! Please come visit me at my house often too! Hehe'</p>
 
 <p>Seonju Imo sent a congratulatory message with a playful tone.</p>
 
@@ -158,13 +158,13 @@ chapter = 338
 
 <p>Seyoung seemed to be asking, conscious of Mom's red leather dog collar with a bell.</p>
 
-<p>"Only Seonmi needs a bell~! Now, the only thing that's bothering us at home is Seonmi~!"</p>
+<p>"Only Seonmi needs a bell! Now, the only thing that's bothering us at home is Seonmi!"</p>
 
 <p>-As if calling a dog's name...-</p>
 
 <p>Shiwoo spoke to Seyoung in a tone that seemed to regard Mom as a bothersome presence that interfered with the family's sex life.</p>
 
-<p>"Is that so? Then I think this one would be good too? Hehe~"</p>
+<p>"Is that so? Then I think this one would be good too? Hehe"</p>
 
 <p>Seyoung said, pointing to a dog collar with a different design than the one Shiwoo had chosen.</p>
 
@@ -174,7 +174,7 @@ chapter = 338
 
 <p>Shiwoo asked, with a satisfied expression that Seyoung had chosen a dog collar that she liked herself.</p>
 
-<p>"Yeah~ If it doesn't have to have a bell, then I'll get that one!"</p>
+<p>"Yeah If it doesn't have to have a bell, then I'll get that one!"</p>
 
 <p>Seyoung answered Shiwoo's question clearly.</p>
 
@@ -206,7 +206,7 @@ chapter = 338
 
 <p>Sua's face turned red again when Mom's name came up.</p>
 
-<p>"We have to buy one for Sae-a too! She's our family~! Hehe~"</p>
+<p>"We have to buy one for Sae-a too! She's our family! Hehe"</p>
 
 <p>Seyoung spoke as if she was scolding her brother for forgetting about Sae-a.</p>
 

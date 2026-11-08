@@ -76,7 +76,7 @@ chapter = 507
 
 <p>Sehee Nuna's gaze is directed towards where Shiwoo and Seyoung are connected.</p>
 
-<p>"Sehee~ You weren't sleeping?"</p>
+<p>"Sehee You weren't sleeping?"</p>
 
 <p>Shiwoo approaches the bed where Sehee Nuna is, and while still supporting and hugging Seyoung, he speaks nonchalantly as if nothing is wrong.</p>
 

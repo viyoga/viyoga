@@ -4,11 +4,11 @@ weight = 792
 [extra]
 chapter = 792
 +++
-<p>"I get it~ I'm not going to do anything right this second, so don't be so scared. We came here to have a nice chat and rest just the two of us, right?"</p>
+<p>"I get it I'm not going to do anything right this second, so don't be so scared. We came here to have a nice chat and rest just the two of us, right?"</p>
 
 <p>Shiwoo whispered secretly into her ear, blowing hot breath against it as if to soothe Mom, who was shrinking her shoulders in tension.</p>
 
-<p>"Instead, I'll handle things to this extent... so just stay still and let me do what I want~ okay?"</p>
+<p>"Instead, I'll handle things to this extent... so just stay still and let me do what I want okay?"</p>
 
 <p>Shiwoo seemed to let go of Mom's breasts which he had been gripping for a moment, only to slide his fingers through the gap in her one-piece dress by her armpit.</p>
 
@@ -40,7 +40,7 @@ chapter = 792
 
 <p>Although it felt lighter compared to the kisses they shared during sex, the two of them sank deep into each other's breath and warmth as if trying to share the very air from the depths of their lungs.</p>
 
-<p>"Ha-um ha-aaam.. ha-aaap~chyu-up"</p>
+<p>"Ha-um ha-aaam.. ha-aaapchyu-up"</p>
 
 <p>With her lips firmly pressed against Shiwoo's, Mom intermittently let out moans she couldn't control amidst her frantic breathing.</p>
 
@@ -90,7 +90,7 @@ chapter = 792
 
 <p class="scene-break">· · ·</p>
 
-<p>Jjiiiing~</p>
+<p>Jjiiiing</p>
 
 <p>The vibrating bell on the table let out a loud vibration and a red light, signaling that the ordered drinks were ready.</p>
 
@@ -110,7 +110,7 @@ chapter = 792
 
 <p>Mom was speaking to her son, Shiwoo, in a submissive manner, as if it were only natural that she should be the one to go get the drinks she ordered.</p>
 
-<p>"Where are you going~? I'll go this time, so just sit there! If you go like that, the clerk will think you're strange! They might think a son is being rude and bossing his mom around..."</p>
+<p>"Where are you going? I'll go this time, so just sit there! If you go like that, the clerk will think you're strange! They might think a son is being rude and bossing his mom around..."</p>
 
 <p>Shiwoo said this while carefully wiping the glistening traces from around Mom's lips.</p>
 
@@ -122,7 +122,7 @@ chapter = 792
 
 <p>Shiwoo leaned down and brought his lips close to Mom's face, then pressed them against her ear and whispered lowly.</p>
 
-<p>"Your breath is so ragged~ and you can't even walk comfortably because you're so wet down there, right~? Just sit and catch your breath! Wait here!"</p>
+<p>"Your breath is so ragged and you can't even walk comfortably because you're so wet down there, right? Just sit and catch your breath! Wait here!"</p>
 
 <p>Shiwoo spoke in a gentle voice, stroking her hair as if her previous attitude was commendable.</p>
 

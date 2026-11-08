@@ -152,13 +152,13 @@ chapter = 384
 
 <p>Shiwoo's penis, which was stiff and full of strength, showed no signs of loosening.</p>
 
-<p>"Unni's friends came to visit~? Hehe"</p>
+<p>"Unni's friends came to visit? Hehe"</p>
 
 <p>Seyoung, who was troubled and standing in the entrance hall behind Shiwoo, walked forward and greeted her Nunas in an innocent voice.</p>
 
 <p>The Nunas, who hadn't noticed the two of them because they were so engrossed in their conversation, greeted Shiwoo and Seyoung only then.</p>
 
-<p>"Oh? Shiwoo and Seyoung are here? I heard you went to the department store to buy dog supplies! You came early? You should have played with the kids a little while you were at the department store~!"</p>
+<p>"Oh? Shiwoo and Seyoung are here? I heard you went to the department store to buy dog supplies! You came early? You should have played with the kids a little while you were at the department store!"</p>
 
 <p>Sinbi Nuna got up from her seat first and greeted Shiwoo and Seyoung.</p>
 
@@ -168,7 +168,7 @@ chapter = 384
 
 <p>The appearance of Sehee Nuna, who had been obeying Shiwoo as a slave in the morning, could not be found.</p>
 
-<p>"Aish, I had the bulky stuff delivered!! And I went out early in the morning and had a good time~!"</p>
+<p>"Aish, I had the bulky stuff delivered!! And I went out early in the morning and had a good time!"</p>
 
 <p>Shiwoo said, as if replying to Sinbi Nuna and Sehee Nuna's words.</p>
 
@@ -186,12 +186,12 @@ chapter = 384
 
 <p>The wound on his face that he got from being beaten by the hyungs while saving Sehee Nuna at the group blind date a few days ago.</p>
 
-<p>"Ah, this... It's nothing. This kind of thing is common among us martial artists. I'm fine~"</p>
+<p>"Ah, this... It's nothing. This kind of thing is common among us martial artists. I'm fine"</p>
 
 <p>Shiwoo replied to Sora Nuna's words as if he was imitating someone and showing off for no reason.</p>
 
 <p>Shiwoo was secretly not happy that Sora Nuna, who had taken Sehee Nuna to a strange blind date, had come to visit with Sinbi Nuna while he was away from home.</p>
 
-<p>"Aigoo! Our handsome Shiwoo's face was hurt a lot because of those bad hyungs~ How upsetting! Are you disinfecting it properly? It's a big deal if the wound gets infected, so you have to disinfect it often!"</p>
+<p>"Aigoo! Our handsome Shiwoo's face was hurt a lot because of those bad hyungs How upsetting! Are you disinfecting it properly? It's a big deal if the wound gets infected, so you have to disinfect it often!"</p>
 
 <p>Sora Nuna was talking to Shiwoo in a tone that seemed to be sincerely sorry and worried, unlike her delinquent appearance.</p>

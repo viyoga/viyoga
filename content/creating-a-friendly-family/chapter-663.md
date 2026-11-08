@@ -76,7 +76,7 @@ chapter = 663
 
 <p>The salmon sushi, soaked in semen and soy sauce, entered Seyoung's parted mouth.</p>
 
-<p>"Aum am nyam aum um~"</p>
+<p>"Aum am nyam aum um"</p>
 
 <p>The salmon sushi that had been placed on Sua's body...</p>
 
@@ -114,7 +114,7 @@ chapter = 663
 
 <p>Shiwoo spoke as if explaining to someone beyond the screen, commanding her to pick up and eat another piece of sushi just as she had done before.</p>
 
-<p>"Ah~ I wondered what you meant~ You want me to eat another piece of sushi, right? Okay, Shiwoo-oppa! No... Juin-nim!"</p>
+<p>"Ah I wondered what you meant You want me to eat another piece of sushi, right? Okay, Shiwoo-oppa! No... Juin-nim!"</p>
 
 <p>Seyoung smiled brightly as if she understood Shiwoo's words and picked up another piece of sushi from Sua's belly with her hand.</p>
 
@@ -138,7 +138,7 @@ chapter = 663
 
 <p>As if to confirm her mouth was empty, she began to open her mouth toward the smartphone camera lens.</p>
 
-<p>"A-ang~!"</p>
+<p>"A-ang!"</p>
 
 <p>The smooth, moist, bright pink mucous membrane of the inside of her open mouth was revealed.</p>
 

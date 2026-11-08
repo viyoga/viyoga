@@ -118,7 +118,7 @@ chapter = 708
 
 <p>Putting all the strength of his waist and pelvis into it, Shiwoo plunged his penis deep into Seyoung's vaginal opening as if to cut through any hesitation.</p>
 
-<p>"Ha-aaaa-ang~!"</p>
+<p>"Ha-aaaa-ang!"</p>
 
 <p>Seyoung let out a loud moan, as if exploding with all the tension she had been holding back.</p>
 
@@ -126,7 +126,7 @@ chapter = 708
 
 <p>Shiwoo was now delivering merciless strokes deep into her vaginal opening, never looking back.</p>
 
-<p>"Ha-ang, ha-aaa-ang! Master.. ha-aaaa.. ha-aaaa.. it's too big... ha-aaaa, ha-aaa-ang... it feels good~ ha-aaaa-aaaa-ang~ more... ha-eut... ha-aaa-ang..."</p>
+<p>"Ha-ang, ha-aaa-ang! Master.. ha-aaaa.. ha-aaaa.. it's too big... ha-aaaa, ha-aaa-ang... it feels good ha-aaaa-aaaa-ang more... ha-eut... ha-aaa-ang..."</p>
 
 <p>Seyoung's loud cries seemed to echo through the house...</p>
 
@@ -144,13 +144,13 @@ chapter = 708
 
 <p>Successive strokes of the thick, hard penis hammered into her mercilessly, and Seyoung's insides were already burning with intense heat.</p>
 
-<p>"Ha-ang! Master... Master! Ha-eut... ha-aaaa... ha-eut.. ha-aaaa-at... ha-aaaa-aaa-ang~!"</p>
+<p>"Ha-ang! Master... Master! Ha-eut... ha-aaaa... ha-eut.. ha-aaaa-at... ha-aaaa-aaa-ang!"</p>
 
 <p>Seyoung's cries had now turned into a desperate, almost sobbing plea.</p>
 
 <p>As the sticky, wet flesh tightened around Shiwoo's penis like a grip, Shiwoo exhaled the breath he had been holding.</p>
 
-<p>"Aaa~! Seyoung... you fucking bitch!"</p>
+<p>"Aaa! Seyoung... you fucking bitch!"</p>
 
 <p>As he spoke, Shiwoo thrust his waist deep, and his body convulsed violently.</p>
 
@@ -162,7 +162,7 @@ chapter = 708
 
 <p>A sense of euphoria, as if floating in a void, swallowed Shiwoo's senses.</p>
 
-<p>"Ha-aaaa-eut... ha-aaaa-ang... ha-aaaa-aaaaa~"</p>
+<p>"Ha-aaaa-eut... ha-aaaa-ang... ha-aaaa-aaaaa"</p>
 
 <p>Seyoung's body, which had wrapped around Shiwoo with her limbs, also trembled and stiffened in a peak of climax.</p>
 

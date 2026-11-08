@@ -54,7 +54,7 @@ chapter = 85
 
 <p>Then, a loud, sobbing gasp escaped her.</p>
 
-<p>"Haaahhh~"</p>
+<p>"Haaahhh"</p>
 
 <p>Shiwoo painstakingly drenched Seonju Imo's entire back with his saliva for a long time.</p>
 
@@ -64,7 +64,7 @@ chapter = 85
 
 <p>Seonju Imo's body twisted in response to his tongue.</p>
 
-<p>"Heeugh~ Eughh~!!"</p>
+<p>"Heeugh Eughh!!"</p>
 
 <p>Exhaling agonizing breaths, Seonju Imo's upper body twitched and jerked intermittently.</p>
 
@@ -84,7 +84,7 @@ chapter = 85
 
 <p>Shiwoo raised his hand and mercilessly slapped the opposite side of her buttocks from where he had hit her earlier.</p>
 
-<p>-Cheol-sseok~!!</p>
+<p>-Cheol-sseok!!</p>
 
 <p>A thick, resonant smack.</p>
 
@@ -132,11 +132,11 @@ chapter = 85
 
 <p>Shiwoo, without hesitation, brought his tongue directly to that spot.</p>
 
-<p>"Chyureup Chyurureup Chyuup~"</p>
+<p>"Chyureup Chyurureup Chyuup"</p>
 
 <p>A vulgar sound emerged as Seonju Imo's anus was licked.</p>
 
-<p>"Haa~eum~"</p>
+<p>"Haaeum"</p>
 
 <p>A pitiful moaning sound grew in her mouth.</p>
 
@@ -210,7 +210,7 @@ chapter = 85
 
 <p>Shiwoo's chest and abdomen were pressed against Seonju Imo's back.</p>
 
-<p>"Seonju Imo~"</p>
+<p>"Seonju Imo"</p>
 
 <p>Shiwoo called Seonju Imo, almost whispering.</p>
 
@@ -230,13 +230,13 @@ chapter = 85
 
 <p>Shiwoo's playful words continued.</p>
 
-<p>"Then we can have one son and one daughter. Right? Sua would like having many younger siblings too~"</p>
+<p>"Then we can have one son and one daughter. Right? Sua would like having many younger siblings too"</p>
 
 <p>Shiwoo, seemingly delighted, answered his own questions.</p>
 
 <p>It seemed Shiwoo was deliberately choosing words that would intensely stimulate Seonju Imo, as if taking revenge for the overly suggestive jokes Seonju Imo had made earlier, teasing him.</p>
 
-<p>"Haaahhhhhh~"</p>
+<p>"Haaahhhhhh"</p>
 
 <p>As soon as Shiwoo finished speaking, a sudden, melting moaning sound escaped Seonju Imo's lips.</p>
 

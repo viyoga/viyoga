@@ -162,7 +162,7 @@ chapter = 508
 
 <p>Shiwoo's pre-cum, which had been flowing down in a line, splattered in droplets onto Sehee Nuna's face and Seyoung's breasts.</p>
 
-<p>,Then I'll go down to the first floor to sleep with Seonmi! Good night, Sehee and Seyoung~!"</p>
+<p>,Then I'll go down to the first floor to sleep with Seonmi! Good night, Sehee and Seyoung!"</p>
 
 <p>Shiwoo said, stroking the bodies of the two people lying on the bed as if saying goodbye.</p>
 

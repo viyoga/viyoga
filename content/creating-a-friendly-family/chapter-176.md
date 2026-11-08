@@ -128,7 +128,7 @@ chapter = 176
 
 <p>The small puppy attached to the inside of her thigh gradually approached Sua's crack and began to stick out its tongue and lick the protrusion on the petals.</p>
 
-<p>"Haeueut~ Heueu..."</p>
+<p>"Haeueut Heueu..."</p>
 
 <p>Sua's head was tilted back, and she let out a moan.</p>
 
@@ -142,7 +142,7 @@ chapter = 176
 
 <p>Shiwoo's arm, which was suppressing Seonju Imo's moans, was also tightening even more.</p>
 
-<p>"Aeeuk Aaa...Aaak... Haeueuk~ Heueu~"</p>
+<p>"Aeeuk Aaa...Aaak... Haeueuk Heueu"</p>
 
 <p>Seonju Imo, suffocating and having her lower hole relentlessly violated by Shiwoo's cock.</p>
 
@@ -150,7 +150,7 @@ chapter = 176
 
 <p>Shiwoo could no longer endure the tingling sensation of ejaculation that had risen to the top of his head.</p>
 
-<p>"T...Turn over~!!"</p>
+<p>"T...Turn over!!"</p>
 
 <p>Shiwoo released his grip on Seonju Imo's neck and quickly pulled his penis out of her hole.</p>
 
@@ -170,7 +170,7 @@ chapter = 176
 
 <p>Shiwoo gripped his pillar with both hands and shook it to release the remaining semen from his body.</p>
 
-<p>-Pusyuk~ Pusyuuk~ Pusyuuuuk~!</p>
+<p>-Pusyuk Pusyuuk Pusyuuuuk!</p>
 
 <p>Shiwoo barely managed to aim at Seonju Imo's face and ejaculated.</p>
 
@@ -182,7 +182,7 @@ chapter = 176
 
 <p>A few drops fell onto the hallway floor beyond Seonju Imo's head and onto the stairs leading to the first floor.</p>
 
-<p>"Huhaaaa~ Haaaa~ Heueue~~"</p>
+<p>"Huhaaaa Haaaa Heueue"</p>
 
 <p>Seonju Imo, having taken all of the enormous amount of semen that Shiwoo had squeezed out, was breathing heavily and loudly.</p>
 

@@ -34,17 +34,17 @@ chapter = 89
 
 <p>Sehee Nuna spoke to Shiwoo in a tone no different from usual.</p>
 
-<p>「Not yet... Oh, right. Seonju Imo bought us chicken porridge~ for Nuna and me to eat...」</p>
+<p>「Not yet... Oh, right. Seonju Imo bought us chicken porridge for Nuna and me to eat...」</p>
 
 <p>Shiwoo, still kneeling and covering his penis with both hands, said to Sehee Nuna as if he had just remembered.</p>
 
-<p>「Hmm~ Really? Chicken porridge? Seonju Imo~?」</p>
+<p>「Hmm Really? Chicken porridge? Seonju Imo?」</p>
 
 <p>Sehee Nuna's tone was somewhat sarcastic.</p>
 
 <p>「Uh... Seonju Imo... went to a restaurant with Mom and...」</p>
 
-<p>「With Mom~?」</p>
+<p>「With Mom?」</p>
 
 <p>Sehee Nuna's tone began to shift, mixing mockery with intimidation.</p>
 
@@ -54,17 +54,17 @@ chapter = 89
 
 <p>Shiwoo tried hard to quickly change the subject.</p>
 
-<p>「You told me to come early, didn't you~? I didn't even eat, and I brought my own food back~!!」</p>
+<p>「You told me to come early, didn't you? I didn't even eat, and I brought my own food back!!」</p>
 
 <p>Sehee Nuna glared at Shiwoo, speaking as if lightly annoyed.</p>
 
-<p>「No... I thought you'd be really late because Nuna sent a te... text telling me not to wait~」</p>
+<p>「No... I thought you'd be really late because Nuna sent a te... text telling me not to wait」</p>
 
 <p>Shiwoo spoke, shrinking his body as if intimidated by Sehee Nuna's glaring eyes.</p>
 
 <p>Sehee Nuna approached Shiwoo. Sehee Nuna subtly glanced around once more. Sehee Nuna 'tuk' poked Shiwoo's head, who was awkwardly kneeling, with the tip of her finger. Shiwoo flinched, closing his eyes and shrinking his body.</p>
 
-<p>「I'm going to go change, so clean all this up~!! And if you can take care of that , do it quickly!! I also have something to talk to you about, Shiwoo, after Seonju Imo leaves!」</p>
+<p>「I'm going to go change, so clean all this up!! And if you can take care of that , do it quickly!! I also have something to talk to you about, Shiwoo, after Seonju Imo leaves!」</p>
 
 <p>Sehee Nuna said that, pointing around the living room and at Shiwoo's towering dick, then glanced towards the shower room before heading to her room on the second floor.</p>
 
@@ -120,7 +120,7 @@ chapter = 89
 
 <p>Shiwoo reassured Seonju Imo.</p>
 
-<p>「Really?... That's a relief~」</p>
+<p>「Really?... That's a relief」</p>
 
 <p>「It seems we'll have to do the massage again next time.」</p>
 
@@ -132,7 +132,7 @@ chapter = 89
 
 <p>Shiwoo roughly wiped away the traces of the passionate affair he had with Imo in the living room using wet wipes. Meanwhile, Sehee Nuna came down from the second floor, having changed her clothes. Shiwoo glanced at Sehee Nuna. A tight-fitting pink t-shirt and grey dolphin shorts. A casual outfit that clearly revealed the curves of her body. Shiwoo found it difficult to look directly at Sehee Nuna.</p>
 
-<p>「Ehyu~」</p>
+<p>「Ehyu」</p>
 
 <p>Sehee Nuna sighed, looking at Shiwoo.</p>
 
@@ -146,7 +146,7 @@ chapter = 89
 
 <p>Only then, when Sehee Nuna spoke to him, did Shiwoo turn to look at her.</p>
 
-<p>「I bought hamburgers, so what should we do with these~!! Should we eat them tomorrow morning?」</p>
+<p>「I bought hamburgers, so what should we do with these!! Should we eat them tomorrow morning?」</p>
 
 <p>Sehee Nuna asked Shiwoo, holding up the white plastic bag she had placed on the dining table.</p>
 
@@ -162,14 +162,14 @@ chapter = 89
 
 <p>By the time Shiwoo finished tidying the living room, Seonju Imo emerged from the shower room. A black silk camisole and an apricot-colored suit skirt. She looked dressed exactly as she had when she arrived, except she wasn't wearing a jacket. Her hair seemed to have been dried in a hurry, as a little moisture remained. Was she wearing the semen-stained orange panties?</p>
 
-<p>「Oh my, Sehee, you were here~? I was showering and didn't even realize you'd arrived~?」</p>
+<p>「Oh my, Sehee, you were here? I was showering and didn't even realize you'd arrived?」</p>
 
 <p>Seonju Imo greeted Sehee Nuna, who was setting out side dishes on the dining table, with a sly, knowing air.</p>
 
-<p>「Yeah~ I just got here~ Seonju Imo.」</p>
+<p>「Yeah I just got here Seonju Imo.」</p>
 
 <p>Sehee Nuna exchanged greetings with Seonju Imo naturally.</p>
 
-<p>「It's a bit hot today, isn't it? I was just lying still getting a massage from Shiwoo earlier, but I still sweated a lot~ Kikik.」</p>
+<p>「It's a bit hot today, isn't it? I was just lying still getting a massage from Shiwoo earlier, but I still sweated a lot Kikik.」</p>
 
 <p>Seonju Imo brought up the weather, speaking to Sehee Nuna in a slightly provocative tone. As she spoke, Seonju Imo fluttered her apricot-colored skirt up and down as if creating a breeze. Beneath her skirt, her sleek thighs and the wet orange panties were revealed before Shiwoo's eyes. Seonju Imo was smiling with a mischievous expression. Sehee Nuna blushed and turned her head away. Shiwoo began to get aroused again. It seemed Shiwoo and Seonju Imo's lewd game would continue for a while.</p>

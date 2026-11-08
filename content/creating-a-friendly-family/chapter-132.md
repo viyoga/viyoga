@@ -10,13 +10,13 @@ chapter = 132
 
 <p>Cheoljin, too, seemed quite surprised, stopping for a moment and showing no movement.</p>
 
-<p>"What the~? Were you two secretly watching porn on the rooftop? I'm going to tell your homeroom teacher~!"</p>
+<p>"What the? Were you two secretly watching porn on the rooftop? I'm going to tell your homeroom teacher!"</p>
 
 <p>Seulgi spoke in an unreserved manner, as if teasing Shiwoo and Cheoljin.</p>
 
 <p>Cheoljin instantly bent down nimbly and picked up the smartphone. Cheoljin covered the screen and simultaneously lowered the volume. Gyuri Ajumma's moans, emanating from the smartphone, were gradually fading away.</p>
 
-<p>"Ah~ you startled me~ Oh, Seulgi? This bastard Shiwoo said he couldn't wait until school ended, you see! Shiwoo will buy you a drink later, so please don't tell the homeroom teacher~"</p>
+<p>"Ah you startled me Oh, Seulgi? This bastard Shiwoo said he couldn't wait until school ended, you see! Shiwoo will buy you a drink later, so please don't tell the homeroom teacher"</p>
 
 <p>Cheoljin cunningly made excuses to Seulgi, blaming Shiwoo and pretending the video they were watching was just regular porn.</p>
 
@@ -24,7 +24,7 @@ chapter = 132
 
 <p>Shiwoo also awkwardly tried to make excuses, matching Cheoljin's words.</p>
 
-<p>"Is that all you guys do all day? Honestly, I don't know what boys think about all the time~ Anyway, since you're buying, I'll enjoy the drink, Shiwoo~"</p>
+<p>"Is that all you guys do all day? Honestly, I don't know what boys think about all the time Anyway, since you're buying, I'll enjoy the drink, Shiwoo"</p>
 
 <p>Seulgi, approaching as if accustomed to such situations, spoke as if joking.</p>
 
@@ -36,7 +36,7 @@ chapter = 132
 
 <p>Cheoljin subtly handed the smartphone to Shiwoo and asked Seulgi as if nothing had happened.</p>
 
-<p>"Ah~ at school, where else would you guys go besides the snack bar or here? I need to borrow some money from Shiwoo! Shiwoo, can you lend me some money? I was supposed to go hang out with friends after school today, but I left my wallet at home."</p>
+<p>"Ah at school, where else would you guys go besides the snack bar or here? I need to borrow some money from Shiwoo! Shiwoo, can you lend me some money? I was supposed to go hang out with friends after school today, but I left my wallet at home."</p>
 
 <p>Seulgi answered Cheoljin's question simply, then, leaving Cheoljin aside, specifically pointed at Shiwoo and asked to borrow money.</p>
 
@@ -74,7 +74,7 @@ chapter = 132
 
 <p>Shiwoo answered evasively, trailing off his words.</p>
 
-<p>"You can lend me about 20,000 won, can't you? So, are you going to lend it or not~?"</p>
+<p>"You can lend me about 20,000 won, can't you? So, are you going to lend it or not?"</p>
 
 <p>Seulgi's voice, a mix of aegyo and intimidation.</p>
 
@@ -98,7 +98,7 @@ chapter = 132
 
 <p>Seulgi, seeing Shiwoo's troubled expression, spoke as if offering a new solution.</p>
 
-<p>"Ah~ Shiwoo and I have somewhere else to go after school today... If it's for hanging out, let's go together next time."</p>
+<p>"Ah Shiwoo and I have somewhere else to go after school today... If it's for hanging out, let's go together next time."</p>
 
 <p>Cheoljin, for reasons unknown, rejected Seulgi's offer midway.</p>
 
@@ -138,7 +138,7 @@ chapter = 132
 
 <p>Shiwoo reacted without thinking.</p>
 
-<p>"Birthday, I mean~! Last year, we even went to karaoke with Seulgi's friends, remember~!"</p>
+<p>"Birthday, I mean! Last year, we even went to karaoke with Seulgi's friends, remember!"</p>
 
 <p>Cheoljin spoke to Shiwoo as if slightly resentful.</p>
 
@@ -154,7 +154,7 @@ chapter = 132
 
 <p>Shiwoo raised his voice and expressed his annoyance, as if releasing the accumulated frustration and tension he felt towards Cheoljin.</p>
 
-<p>"Is that so~? Puhaha"</p>
+<p>"Is that so? Puhaha"</p>
 
 <p>Cheoljin laughed out loud as if it didn't matter.</p>
 
@@ -162,7 +162,7 @@ chapter = 132
 
 <p>Shiwoo spoke to Cheoljin with a complex mix of apologetic and pitying feelings.</p>
 
-<p>"Ah~ I'll go, I'll go. But if you're going to help me, why don't you go to my house instead of me after school?"</p>
+<p>"Ah I'll go, I'll go. But if you're going to help me, why don't you go to my house instead of me after school?"</p>
 
 <p>Cheoljin was saying something incomprehensible.</p>
 

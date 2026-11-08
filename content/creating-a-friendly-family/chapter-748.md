@@ -10,7 +10,7 @@ chapter = 748
 
 <p>Every time she tilted her head back to swallow the wine, the bell on the collar fastened around her neck let out a faint, fragile chime.</p>
 
-<p>"Haaaaaaa~"</p>
+<p>"Haaaaaaa"</p>
 
 <p>After draining the glass in one go, Mom let out a long, heavy sigh.</p>
 
@@ -54,7 +54,7 @@ chapter = 748
 
 <p>Shiwoo spoke in a slightly excited tone, as if intentionally making the lewd, illicit relationship with his Mom obvious to the female staff member.</p>
 
-<p>"Understood. If you need anything else, please let me know immediately, and please enjoy your meal leisurely with your girlfriend~"</p>
+<p>"Understood. If you need anything else, please let me know immediately, and please enjoy your meal leisurely with your girlfriend"</p>
 
 <p>As if reading Shiwoo's excited mood, the female staff member left with a polite but strangely lingering smile.</p>
 
@@ -70,7 +70,7 @@ chapter = 748
 
 <p>Opening the 1:1 chat room with Mom, Shiwoo uploaded and sent the photos he had just taken.</p>
 
-<p>[The clam soup is out~ They said it's best when it's hot, so come back quickly~!]</p>
+<p>[The clam soup is out They said it's best when it's hot, so come back quickly!]</p>
 
 <p>Shiwoo followed up immediately, speaking as if nagging her by informing her that the clam soup had arrived.</p>
 
@@ -90,7 +90,7 @@ chapter = 748
 
 <p>She was hiding behind the precarious authority of the name 'Mom,' desperately trying to maintain a hollow sense of dignity and justification in such a forced manner.</p>
 
-<p>[What~? I just took it so the clam soup would look good? Hehe.]</p>
+<p>[What? I just took it so the clam soup would look good? Hehe.]</p>
 
 <p>Shiwoo sent a reply, acting nonchalant as if to mock the hypocritical authority and shallow sense of ethics Mom was putting forward.</p>
 
@@ -98,7 +98,7 @@ chapter = 748
 
 <p>As if realizing that her admonition wasn't having any effect at all, Mom was pouring out a mix of resigned lamentation and surging resentment, disguised as a stubborn, flared-up temper.</p>
 
-<p>[Alright, alright~ I was just playing a joke. I'll delete the photo right away~! But I just suddenly had something I wanted to tell Mom quickly...]</p>
+<p>[Alright, alright I was just playing a joke. I'll delete the photo right away! But I just suddenly had something I wanted to tell Mom quickly...]</p>
 
 <p>Without wiping the fishy smirk from his lips, Shiwoo tapped on the keyboard of his smartphone screen.</p>
 
@@ -108,7 +108,7 @@ chapter = 748
 
 <p>However, it felt more like she was urging him to spit out whatever words he was going to say in return.</p>
 
-<p>[Fine, just listen~ Do you know what the female staff member said to me while serving the clam soup just now?]</p>
+<p>[Fine, just listen Do you know what the female staff member said to me while serving the clam soup just now?]</p>
 
 <p>Shiwoo checked the speed at which the 'read' mark disappeared from the screen, choosing his next sentence as if observing the cautious movement of a fish circling a bait.</p>
 
@@ -116,7 +116,7 @@ chapter = 748
 
 <p>As she always had, Mom bit into the hook Shiwoo held out, pretending she couldn't help herself.</p>
 
-<p>[She said Mom is my girlfriend~ Hehe. While she was bringing the clam soup while Mom went to the restroom.]</p>
+<p>[She said Mom is my girlfriend Hehe. While she was bringing the clam soup while Mom went to the restroom.]</p>
 
 <p>Shiwoo felt as if he were receiving Mom's embarrassment through the liquid crystal screen of the smartphone.</p>
 
@@ -130,13 +130,13 @@ chapter = 748
 
 <p>[She asked if my girlfriend had stepped away for a moment, and asked if she could clear the scallop salad we were eating...]</p>
 
-<p>[So I told her to just leave it because it seemed my girlfriend wasn't finished yet. And that she'd need more snacks for her wine~ Hehe.]</p>
+<p>[So I told her to just leave it because it seemed my girlfriend wasn't finished yet. And that she'd need more snacks for her wine Hehe.]</p>
 
 <p>Shiwoo made a playful expression, gauging internally how much the awkward situation and mischievous words he conveyed to Mom would be ridiculously crumbling her supposedly solid dignity.</p>
 
 <p>Mom remained silent, hiding behind the void of the '1' that had disappeared without a reply, seemingly embarrassed.</p>
 
-<p>[Ugh~! -_-^]</p>
+<p>[Ugh! -_-^]</p>
 
 <p>Then, a long while later, she sent a single angry emoticon and an onomatopoeia that seemed to suppress her surging embarrassment and fluster.</p>
 
@@ -150,7 +150,7 @@ chapter = 748
 
 <p>That warm taste, scent, and texture were somehow similar to 'that' of his Mom, who was likely at a loss for what to do at the audacious question her son had thrown at her.</p>
 
-<p>[Think whatever you want! Mom is going to stay here a bit longer before coming out! I came in here to sober up because you kept saying strange things, but you're making things even more awkward by exchanging weird words with the employee while Mom isn't there! Ugh~!]</p>
+<p>[Think whatever you want! Mom is going to stay here a bit longer before coming out! I came in here to sober up because you kept saying strange things, but you're making things even more awkward by exchanging weird words with the employee while Mom isn't there! Ugh!]</p>
 
 <p>Mom seemed to have watched Shiwoo's words for a moment as if chewing over them, before organizing her sentences and sending a reply a beat late.</p>
 
@@ -160,12 +160,12 @@ chapter = 748
 
 <p>As if anticipating the clumsy defense mechanism the flustered Mom would send, Shiwoo buried his body deep into the chair and leisurely waited for Mom's message.</p>
 
-<p>[Forget it~! I might make some kind of erratic mistake if I drink more, so I should stop... You should be careful too, Shiwoo!]</p>
+<p>[Forget it! I might make some kind of erratic mistake if I drink more, so I should stop... You should be careful too, Shiwoo!]</p>
 
 <p>Mom seemed to be trying to end the conversation quickly, pretending to draw a firm line.</p>
 
 <p>However, it was plain to see that she was struggling with all her might to hold onto her composure, which had already begun to waver.</p>
 
-<p>[Got it~ I won't order more alcohol... Come out after you've calmed your heart~ Hehehe.]</p>
+<p>[Got it I won't order more alcohol... Come out after you've calmed your heart Hehehe.]</p>
 
 <p>With the feeling of leisurely observing Mom's shame, Shiwoo sent the message filled with a mockery-laced tenderness.</p>

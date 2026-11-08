@@ -58,7 +58,7 @@ chapter = 430
 
 <p>At Shiwoo's words, Mom's firmly set expression softened awkwardly.</p>
 
-<p>"Rules are rules~ Ah! And... you're still making Sehee and Seyoung take their birth control pills, right? Did you say there were four weeks left?"</p>
+<p>"Rules are rules Ah! And... you're still making Sehee and Seyoung take their birth control pills, right? Did you say there were four weeks left?"</p>
 
 <p>Shiwoo followed up by asking about the second condition, the family's contraception.</p>
 
@@ -82,7 +82,7 @@ chapter = 430
 
 <p>After meticulously wiping one of Mom's breasts and nipples beneath the fabric of her one-piece top, Shiwoo pulled his hand out. He pulled a fresh wet wipe from the pack on Mom's lap.</p>
 
-<p>"Right... Let's do that for now. You'd know more about that than I would, Mom~"</p>
+<p>"Right... Let's do that for now. You'd know more about that than I would, Mom"</p>
 
 <p>Shiwoo said as he slid his hand under the swimsuit on the other breast.</p>
 
@@ -94,7 +94,7 @@ chapter = 430
 
 <p>Mom replied in a tense voice, her body flinching in response to the cold sensation of the wet wipe on her other breast.</p>
 
-<p>"Ah~! Right, the 1:1 messages! We were supposed to keep talking as mother and son in the chat room... right?"</p>
+<p>"Ah! Right, the 1:1 messages! We were supposed to keep talking as mother and son in the chat room... right?"</p>
 
 <p>Shiwoo said as if it were a shame, while pinching Mom's firmly protruding nipple between his fingers. He even called her by her name, as if speaking down to her...</p>
 
@@ -102,7 +102,7 @@ chapter = 430
 
 <p>This time, Mom couldn't answer, merely watching Shiwoo's reaction.</p>
 
-<p>"I'll have to be careful not to get aroused while talking to you via text from now on, Mom~"</p>
+<p>"I'll have to be careful not to get aroused while talking to you via text from now on, Mom"</p>
 
 <p>Shiwoo spoke to Mom as if casually brushing off his recent mistake.</p>
 

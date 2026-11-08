@@ -82,7 +82,7 @@ chapter = 683
 
 <p>In a sensation where anxiety and pleasure were mixed, Shiwoo hugged Seonju-imo's body and moved his waist violently.</p>
 
-<p>「Ha-aat ha-eut ha-aaa ha-ut ha~!」</p>
+<p>「Ha-aat ha-eut ha-aaa ha-ut ha!」</p>
 
 <p>Seonju-imo, seemingly flustered by Shiwoo's sudden movement of ramming his penis inside, wrapped her arms and legs around him and let out moans.</p>
 
@@ -90,7 +90,7 @@ chapter = 683
 
 <p>Shiwoo hammered into Seonju-imo's hole for a long time with the intensity and speed of a piston motion that felt like he would ejaculate at any moment.</p>
 
-<p>「Ha-ang ha-ang ha-aaa ha-ang ha-eung~! Hauuuuu~」</p>
+<p>「Ha-ang ha-ang ha-aaa ha-ang ha-eung! Hauuuuu」</p>
 
 <p>Ignoring her state as she trembled and poured out moans as if she had reached climax several times, Shiwoo thrust his massive penis all the way to the root into Seonju-imo's hole, as if trying to alleviate even a bit of the anxiety and desire rising from the abyss.</p>
 

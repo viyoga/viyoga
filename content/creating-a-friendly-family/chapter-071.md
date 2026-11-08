@@ -34,7 +34,7 @@ chapter = 71
 
 <p>The usual living room scene unfolded before Shiwoo's eyes as he descended the stairs. The underwear and blankets that had been scattered in the living room were neatly put away. -It seemed Sehee Nuna had cleaned everything up by herself- He sensed Sehee Nuna's presence from the kitchen. With a joyful heart, Shiwoo quickly ran down the stairs and spoke to Sehee Nuna in the kitchen.</p>
 
-<p>"Did Sehee clean all this up? You should have waited, we could have done it together~!" Shiwoo spoke, proudly thrusting his erect penis forward.</p>
+<p>"Did Sehee clean all this up? You should have waited, we could have done it together!" Shiwoo spoke, proudly thrusting his erect penis forward.</p>
 
 <p>Breakfast was being set on the table. -Fried rice and leftover side dishes that Seonju Imo had brought yesterday- Sehee Nuna's back view, wearing her uniform and an apron, frying eggs in a pan. It was a sight of Sehee Nuna not commonly seen.</p>
 
@@ -46,21 +46,21 @@ chapter = 71
 
 <p>"Ah... I guess I should have woken up a bit earlier?" Shiwoo said, scratching his head awkwardly at Sehee Nuna's tone.</p>
 
-<p>"Anyway, Sehee, you woke up early? Did you sleep well~? Did you go jogging at dawn?"</p>
+<p>"Anyway, Sehee, you woke up early? Did you sleep well? Did you go jogging at dawn?"</p>
 
 <p>Shiwoo sensed the awkward atmosphere from Sehee Nuna but deliberately ignored it, casually calling Sehee Nuna by her name.</p>
 
-<p>Sehee Nuna seemed to glare at Shiwoo for a moment. 'Haa~' Sehee Nuna let out a long sigh.</p>
+<p>Sehee Nuna seemed to glare at Shiwoo for a moment. 'Haa' Sehee Nuna let out a long sigh.</p>
 
-<p>"How could I go jogging~ Of course I couldn't!! And you, it's morning, put some clothes on~!!! Are you going to keep standing there like that?" Sehee Nuna spoke to Shiwoo as if harshly scolding him.</p>
+<p>"How could I go jogging Of course I couldn't!! And you, it's morning, put some clothes on!!! Are you going to keep standing there like that?" Sehee Nuna spoke to Shiwoo as if harshly scolding him.</p>
 
 <p>Shiwoo gradually began to feel embarrassed by Sehee Nuna's attitude.</p>
 
-<p>"Oh?...Ah....I thought Se...Sehee would be naked too~ Haha..."</p>
+<p>"Oh?...Ah....I thought Se...Sehee would be naked too Haha..."</p>
 
 <p>Shiwoo laughed awkwardly, trying to cover his penis with both hands, though it was too large to be fully concealed. Sehee Nuna stared at Shiwoo for a long time.</p>
 
-<p>"But you, how long are you going to keep calling Nuna's name so casually? I let you do whatever you wanted once, and now you're completely full of yourself~!! Do you want to die?!!"</p>
+<p>"But you, how long are you going to keep calling Nuna's name so casually? I let you do whatever you wanted once, and now you're completely full of yourself!! Do you want to die?!!"</p>
 
 <p>Sehee Nuna was now speaking to Shiwoo as if chiding him. Sehee Nuna's changed attitude was utterly incomprehensible.</p>
 
@@ -70,45 +70,45 @@ chapter = 71
 
 <p class="scene-break">· · ·</p>
 
-<p>"Sinbi Nuna is coming over in a bit, okay? Shiwoo, go put some clothes on, quick~!!!"</p>
+<p>"Sinbi Nuna is coming over in a bit, okay? Shiwoo, go put some clothes on, quick!!!"</p>
 
 <p>"What?"</p>
 
 <p>Shiwoo was flustered by the sudden mention of Sinbi Nuna's name.</p>
 
-<p>"Sinbi Nuna's coming, so be dressed~!!!" Sehee Nuna spoke, frying eggs with an utterly calm demeanor.</p>
+<p>"Sinbi Nuna's coming, so be dressed!!!" Sehee Nuna spoke, frying eggs with an utterly calm demeanor.</p>
 
 <p>"Why is Sinbi Nuna coming to our house in the morning?"</p>
 
 <p>Shiwoo spoke, his tone suddenly turning domineering, as if scolding a cheating lover.</p>
 
-<p>"Oh, so now you're even calling Nuna's friend by her name casually?! Do you really want to die? Sinbi Nuna is coming because I called her~!!!"</p>
+<p>"Oh, so now you're even calling Nuna's friend by her name casually?! Do you really want to die? Sinbi Nuna is coming because I called her!!!"</p>
 
 <p>Sehee Nuna spoke, clenching her fist and making a gesture as if to punch him.</p>
 
-<p>"Ah...no, I mean, why did you call Sinbi Nuna in the morning~!"</p>
+<p>"Ah...no, I mean, why did you call Sinbi Nuna in the morning!"</p>
 
 <p>Shiwoo, thoroughly intimidated by Sehee Nuna's gesture.</p>
 
-<p>"We're going to the academy together, why~!!!"</p>
+<p>"We're going to the academy together, why!!!"</p>
 
 <p>"The academy?"</p>
 
-<p>"It's academy day today~!!!"</p>
+<p>"It's academy day today!!!"</p>
 
 <p>"I-I know that... but weren't we going to the academy together?" Shiwoo asked, as if confirming a bitter situation.</p>
 
-<p>"You can't take me to the academy this afternoon anyway because of Seyoung's academy, right~? If that's the case, you might as well take the day off~!! I can just go with Sinbi Nuna from the morning~!!!"</p>
+<p>"You can't take me to the academy this afternoon anyway because of Seyoung's academy, right? If that's the case, you might as well take the day off!! I can just go with Sinbi Nuna from the morning!!!"</p>
 
 <p>It was Sehee Nuna, saying incredibly hurtful things as if they were nothing.</p>
 
-<p>"No, I was planning to definitely take Nuna in the morning~!! How can you suddenly change plans like that?! And two women together is just as dangerous~!!!"</p>
+<p>"No, I was planning to definitely take Nuna in the morning!! How can you suddenly change plans like that?! And two women together is just as dangerous!!!"</p>
 
 <p>Shiwoo was shouting as if struggling desperately, unwilling to lose his place to Sinbi Nuna.</p>
 
 <p>Sehee Nuna stared at her naked, erect younger brother with half-lidded eyes. Shiwoo felt a fresh wave of embarrassment and tried to cover his penis, which was too large to be concealed, by crossing his arms.</p>
 
-<p>"Then you can come along too~"</p>
+<p>"Then you can come along too"</p>
 
 <p>Sehee Nuna's words, as if testing Shiwoo. In the current situation, Sinbi Nuna was nothing short of Shiwoo's rival. Sehee Nuna was telling Shiwoo to accompany them, even to a three-way meeting with Sinbi Nuna.</p>
 
@@ -120,47 +120,47 @@ chapter = 71
 
 <p>"Yesterday..."</p>
 
-<p>"What about yesterday~!!!?"</p>
+<p>"What about yesterday!!!?"</p>
 
 <p>Sehee Nuna's voice rose, sounding slightly sharp.</p>
 
 <p>"At...at night..."</p>
 
-<p>"What about at night~!!!???"</p>
+<p>"What about at night!!!???"</p>
 
 <p>Sehee Nuna spoke irritably, her eyes wide open, as if threatening Shiwoo. Fortunately(?) Sehee Nuna didn't seem to have any intention of telling Sinbi Nuna about what had happened with Shiwoo yesterday. Though she didn't seem to want to have a deep conversation with Shiwoo, the person directly involved, either...</p>
 
-<p>"Ah...no~ nothing..."</p>
+<p>"Ah...no nothing..."</p>
 
 <p>Shiwoo couldn't understand the change in Sehee Nuna that had occurred overnight.</p>
 
-<p>"Shiwoo, if you ever tell Sinbi Nuna about that, you're really dead~!!!"</p>
+<p>"Shiwoo, if you ever tell Sinbi Nuna about that, you're really dead!!!"</p>
 
 <p>Sehee Nuna threatened Shiwoo.</p>
 
 <p>"W-why would I tell her that?" Shiwoo said, as if feeling wronged.</p>
 
-<p>"Shiwoo, you always say you won't tell, but you tell everything~!! Anyway, go to your room and put some clothes on, quick~!!!"</p>
+<p>"Shiwoo, you always say you won't tell, but you tell everything!! Anyway, go to your room and put some clothes on, quick!!!"</p>
 
 <p>Shiwoo became extremely dejected just from the brief conversation he had with Sehee Nuna... Shiwoo, his shoulders slumped, turned and walked towards his room to get dressed. Only his 'thing' remained proudly stiff and erect.</p>
 
 <p>Sehee Nuna, pretending not to notice, looked at Shiwoo with a pitiful gaze.</p>
 
-<p>"Ehyu~ Shiwoo-ya, wait a moment~!!!"</p>
+<p>"Ehyu Shiwoo-ya, wait a moment!!!"</p>
 
 <p>Sehee Nuna called out to Shiwoo as if she couldn't help herself. Sehee Nuna placed the soft-boiled fried eggs onto a plate, moved them to the dining table, and then approached Shiwoo.</p>
 
-<p>"Come here for a moment~!!!"</p>
+<p>"Come here for a moment!!!"</p>
 
 <p>And she took Shiwoo's hand, leading him to the changing room.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>"Nu...Nuna~ what are you doing?"</p>
+<p>"Nu...Nuna what are you doing?"</p>
 
 <p>Shiwoo, who had been led by the hand into the changing room, asked Sehee Nuna with a puzzled expression.</p>
 
-<p>"If you're coming with us, we have to take care of this before Sinbi Nuna arrives, don't we~!!!"</p>
+<p>"If you're coming with us, we have to take care of this before Sinbi Nuna arrives, don't we!!!"</p>
 
 <p>Saying that, Sehee Nuna immediately knelt before Shiwoo without giving him a chance to react, and took Shiwoo's penis into her mouth. Shiwoo's glans and the upper part of his shaft were instantly filled within Sehee Nuna's mouth.</p>
 

@@ -180,7 +180,7 @@ chapter = 136
 
 <p>Shiwoo pulled his hips back again, stopping with only his glans resting at the vaginal opening.</p>
 
-<p>「Haaaeuu~」</p>
+<p>「Haaaeuu」</p>
 
 <p>Gyuri Ajumma's breath sounded regretful.</p>
 
@@ -188,7 +188,7 @@ chapter = 136
 
 <p>Shiwoo asked Gyuri Ajumma, his tone different from the text message, as if the insertion and thrusting of his penis were part of a massage course.</p>
 
-<p>「Ah... un~ It... it feels good... Shiwoo-ya, c-can you... do it a little harder... there?」</p>
+<p>「Ah... un It... it feels good... Shiwoo-ya, c-can you... do it a little harder... there?」</p>
 
 <p>Gyuri Ajumma, her body aroused, closed her eyes tightly and spoke to Shiwoo as if urging him on.</p>
 
@@ -196,7 +196,7 @@ chapter = 136
 
 <p>Shiwoo spoke teasingly, recalling how he hadn't gotten an answer at lunchtime and had knocked Gyuri Ajumma out with his violent hip movements.</p>
 
-<p>「Heeueung~」</p>
+<p>「Heeueung」</p>
 
 <p>Gyuri Ajumma let out a pitiful moan, wiggling her buttocks slightly as if being coquettish.</p>
 
@@ -206,7 +206,7 @@ chapter = 136
 
 <p>Gyuri Ajumma, her face buried, glanced sideways to check the smartphone in her hand.</p>
 
-<p>「Haaaa~」</p>
+<p>「Haaaa」</p>
 
 <p>At Shiwoo's direct question, Gyuri Ajumma let out a long sigh, as if troubled.</p>
 
@@ -244,7 +244,7 @@ chapter = 136
 
 <p>His glans rested at the edge of her pussy again.</p>
 
-<p>「Haaaeuu~」</p>
+<p>「Haaaeuu」</p>
 
 <p>Gyuri Ajumma's breath sounded regretful.</p>
 

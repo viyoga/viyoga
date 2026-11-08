@@ -20,7 +20,7 @@ chapter = 25
 
 <p>Shiwoo spoke comfortably, after confirming Gyuri Ajumma's uniquely comforting, warm gaze.</p>
 
-<p>「You can come visit alone when Cheoljin-i isn't home... By the way, I really don't know what Cheoljin-i is up to these days~ He goes out at dawn and comes back late at night, you know? Shiwoo, have you heard anything from Cheoljin-i?」</p>
+<p>「You can come visit alone when Cheoljin-i isn't home... By the way, I really don't know what Cheoljin-i is up to these days He goes out at dawn and comes back late at night, you know? Shiwoo, have you heard anything from Cheoljin-i?」</p>
 
 <p>At Gyuri Ajumma's question, all Shiwoo could think of was the slave contract of Gyuri Ajumma that Cheoljin had sent him, but there was no way he could openly tell Gyuri Ajumma about it.</p>
 
@@ -78,7 +78,7 @@ chapter = 25
 
 <p>Seyoung, who had been quietly listening to Gyuri Ajumma and Shiwoo's conversation beside them, asked Shiwoo with a worried expression.</p>
 
-<p>「Cheoljin Oppa seems to be going through a rebellious phase these days~ Seyoung-i, you don't have to worry~」</p>
+<p>「Cheoljin Oppa seems to be going through a rebellious phase these days Seyoung-i, you don't have to worry」</p>
 
 <p>Gyuri Ajumma, with her unique reassuring eye-smile, answered Seyoung instead of Shiwoo.</p>
 
@@ -98,7 +98,7 @@ chapter = 25
 
 <p>Seonju Imo, looking at Mom, started the conversation again.</p>
 
-<p>「Of course! We already agreed to start next week~ We can't live forever just eating away at the insurance money.」</p>
+<p>「Of course! We already agreed to start next week We can't live forever just eating away at the insurance money.」</p>
 
 <p>Mom answered Seonju Imo's question as if something had already been decided.</p>
 
@@ -160,7 +160,7 @@ chapter = 25
 
 <p>-Anyway, since they had agreed to go together for two weeks-</p>
 
-<p>「Yes, the academy said Oppa is fine, and Mom might be busy with work during the day starting Monday, so she told me to ask Oppa once, didn't she? I also want Oppa to come with me this time, hehe~」</p>
+<p>「Yes, the academy said Oppa is fine, and Mom might be busy with work during the day starting Monday, so she told me to ask Oppa once, didn't she? I also want Oppa to come with me this time, hehe」</p>
 
 <p>Shiwoo was touched by Seyoung's last thoughtful words.</p>
 
@@ -192,7 +192,7 @@ chapter = 25
 
 <p>「If you're family, you see bare skin and live like that, don't you?」</p>
 
-<p>「I told you, that doesn't work in our house? Ugh~ How many times do I have to say it?」</p>
+<p>「I told you, that doesn't work in our house? Ugh How many times do I have to say it?」</p>
 
 <p>「Because of Shiwoo?」</p>
 

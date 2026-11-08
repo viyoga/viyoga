@@ -30,7 +30,7 @@ chapter = 617
 
 <p>Sejin Nuna scooped up with her fingertips the viscous fluid flowing between her thighs and buttocks crease as if wiping it.</p>
 
-<p>"You've cum a lot~ If Sae-a wasn't here, I would have gotten pregnant right away..."</p>
+<p>"You've cum a lot If Sae-a wasn't here, I would have gotten pregnant right away..."</p>
 
 <p>Looking at the thick, viscous fluid on her hand, Sejin Nuna spoke to Shiwoo in a playful tone.</p>
 
@@ -40,7 +40,7 @@ chapter = 617
 
 <p>Shiwoo was a little flustered by Sejin Nuna's words, as she had suddenly changed her attitude, but matching Sejin Nuna's playful tone, he spoke to her as if making a mischievous joke.</p>
 
-<p>"Hoot~! I wasn't specifically blaming you... Huhuhoot..."</p>
+<p>"Hoot! I wasn't specifically blaming you... Huhuhoot..."</p>
 
 <p>As if Shiwoo's joke was cute, she stepped back, Sejin Nuna let out a hollow laugh.</p>
 
@@ -96,7 +96,7 @@ chapter = 617
 
 <p>Spreading Shiwoo's legs, she moved closer on her knees, and Sejin Nuna positioned herself between his legs.</p>
 
-<p>"This time it's my turn~ Just stay still! Nuna will take care of everything~"</p>
+<p>"This time it's my turn Just stay still! Nuna will take care of everything"</p>
 
 <p>Sejin Nuna, as if about to start something, with a meaningful expression, spoke to Shiwoo.</p>
 
@@ -130,7 +130,7 @@ chapter = 617
 
 <p>From the throbbing shock, Shiwoo broke out in a cold sweat behind his neck and down his spine.</p>
 
-<p>"Did it hurt a lot? I told you~ You shouldn't fall asleep! Nuna is doing this so sincerely for you~ Now, spread them again!"</p>
+<p>"Did it hurt a lot? I told you You shouldn't fall asleep! Nuna is doing this so sincerely for you Now, spread them again!"</p>
 
 <p>Sejin Nuna, with a seemingly sympathetic expression and tone, spoke while spreading Shiwoo's closed legs again.</p>
 
@@ -156,7 +156,7 @@ chapter = 617
 
 <p>Shiwoo, in a thoroughly intimidated voice, as if pleading about the extreme throbbing pain that was rising, spoke to Sejin Nuna.</p>
 
-<p>"What's this~ You do whatever you want... Shiwoo, you hit Mom's nipples and clitoris! You just hit them whenever you feel like it, don't you?"</p>
+<p>"What's this You do whatever you want... Shiwoo, you hit Mom's nipples and clitoris! You just hit them whenever you feel like it, don't you?"</p>
 
 <p>Sejin Nuna, how she knew, mentioning the play Shiwoo had done with Mom, asked accusingly.</p>
 
@@ -186,7 +186,7 @@ chapter = 617
 
 <p>Then, Sejin Nuna kissed Shiwoo's ear.</p>
 
-<p>"And Seonju Imo is close with me, you see~"</p>
+<p>"And Seonju Imo is close with me, you see"</p>
 
 <p>Sejin Nuna, in a soft and sweet voice, mixed with her true voice and a whisper, in a coquettish tone, spoke to Shiwoo.</p>
 
@@ -216,6 +216,6 @@ chapter = 617
 
 <p>Sejin Nuna's tongue was sweeping over Shiwoo's testicles as if caressing them.</p>
 
-<p>"Ssu-rup Chyu-ap Su-up~"</p>
+<p>"Ssu-rup Chyu-ap Su-up"</p>
 
 <p>Perhaps because of the memory of the gut-wrenching pain, Shiwoo reacted to the lightly touching and sweeping tongue, twitching and trembling his entire body.</p>

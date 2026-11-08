@@ -4,7 +4,7 @@ weight = 226
 [extra]
 chapter = 226
 +++
-<p>-Tak~! Tak~! Tak~! Tak~! Tak~!</p>
+<p>-Tak! Tak! Tak! Tak! Tak!</p>
 
 <p>Shiwoo felt a tingling sensation as if he would soon ejaculate from the soft rubbing of the lingerie panties.</p>
 
@@ -28,7 +28,7 @@ chapter = 226
 
 <p>Shiwoo exited the settings window and pressed the vibrator operation button on the main screen.</p>
 
-<p>-Jiiiiiiing~!!!</p>
+<p>-Jiiiiiiing!!!</p>
 
 <p>Soon, the smartphone vibrated loudly with a strong buzzing sound.</p>
 
@@ -108,7 +108,7 @@ chapter = 226
 
 <p>On Sua's clitoris, which was pouring out water, Gyuri Ajumma's vibrator was still attached with skin tape and vibrating.</p>
 
-<p>"Haaat! Heut! Heuk! Heueut~ Heueeung~~"</p>
+<p>"Haaat! Heut! Heuk! Heueut Heueeung"</p>
 
 <p>Sua was moaning, trembling her body while holding her spread legs as if embracing them with her arms.</p>
 
@@ -220,8 +220,8 @@ chapter = 226
 
 <p>Soon, Seonju Imo-nim's body also twisted like Sua's body, creating a fierce and intense tremor.</p>
 
-<p>"Haaang~ Haeung~ Haaaaa~ Haeung~"</p>
+<p>"Haaang Haeung Haaaaa Haeung"</p>
 
-<p>"Haaat~ Haaaat~ Hat~ Heut~!"</p>
+<p>"Haaat Haaaat Hat Heut!"</p>
 
 <p>Unrestrained moans and cries of ecstasy from the two mothers and daughters were erupting in the screen.</p>

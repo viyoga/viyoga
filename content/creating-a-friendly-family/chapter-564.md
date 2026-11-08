@@ -26,7 +26,7 @@ chapter = 564
 
 <p>Mom's body trembled violently, startled by this new play she had never experienced before...</p>
 
-<p>"Do you remember the safe word Shiwoo Oppa set? Ah~ You can't speak right now because you have that in your mouth, can you?"</p>
+<p>"Do you remember the safe word Shiwoo Oppa set? Ah You can't speak right now because you have that in your mouth, can you?"</p>
 
 <p>Seyoung spoke with a mischievous smile playing on her lips, teasing Mom with feigned innocence.</p>
 
@@ -192,7 +192,7 @@ chapter = 564
 
 <p>Shiwoo awkwardly covered his prominently bulging penis with his arm and asked Seyoung.</p>
 
-<p>"Yeah~ I was waiting to go to the academy with Shiwoo Oppa and Sehee Eonni for the first time in a while."</p>
+<p>"Yeah I was waiting to go to the academy with Shiwoo Oppa and Sehee Eonni for the first time in a while."</p>
 
 <p>Seyoung glanced down at Shiwoo's penis, then replied nonchalantly as if it were nothing.</p>
 
@@ -200,6 +200,6 @@ chapter = 564
 
 <p>Shiwoo looked at Seyoung with a puzzled gaze and asked.</p>
 
-<p>"I just wanted to go together as far as the park~ Hehe~"</p>
+<p>"I just wanted to go together as far as the park Hehe"</p>
 
 <p>Seyoung smiled pleasantly and chuckled, speaking to Shiwoo.</p>

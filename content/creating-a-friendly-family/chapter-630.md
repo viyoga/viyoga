@@ -62,7 +62,7 @@ chapter = 630
 
 <p>Mom asked back, gauging Shiwoo's reaction.</p>
 
-<p>「I think we can do something more fun now~ Why don't you go back to the tattoo shop and ask if they have any ropes or restraints?」</p>
+<p>「I think we can do something more fun now Why don't you go back to the tattoo shop and ask if they have any ropes or restraints?」</p>
 
 <p>Shiwoo was now openly instructing Mom to go back to the tattoo shop and ask if they had the items he was looking for.</p>
 
@@ -78,7 +78,7 @@ chapter = 630
 
 <p>Then, Shiwoo immediately touched the vibrator's operation button and pressed the hold button.</p>
 
-<p>Jiiiiiiiiing~</p>
+<p>Jiiiiiiiiing</p>
 
 <p>Shiwoo's smartphone vibrated strongly and continuously.</p>
 
@@ -182,7 +182,7 @@ chapter = 630
 
 <p>Just enough that he could easily buy them with the allowance he currently receives...</p>
 
-<p>「Not bad~ Then should we just buy the handcuffs, ropes, whip, and restraints all at once?」</p>
+<p>「Not bad Then should we just buy the handcuffs, ropes, whip, and restraints all at once?」</p>
 
 <p>Shiwoo spoke slyly, as if asking for her opinion while testing Mom's reaction.</p>
 
@@ -190,7 +190,7 @@ chapter = 630
 
 <p>Mom reacted to Shiwoo's message as if swallowing some complex emotion.</p>
 
-<p>「Yeah, while we're buying them~ Let's buy blindfolds too, for Sehee and Seyoung...」</p>
+<p>「Yeah, while we're buying them Let's buy blindfolds too, for Sehee and Seyoung...」</p>
 
 <p>「Ah, and don't forget Sejin's! You pick the blindfold design, Mom!」</p>
 
@@ -200,7 +200,7 @@ chapter = 630
 
 <p>Mom replied as if submissively following Shiwoo's decision.</p>
 
-<p>「Right~ And since it'll be hard to carry them while shopping, tell them to send the items by courier!」</p>
+<p>「Right And since it'll be hard to carry them while shopping, tell them to send the items by courier!」</p>
 
 <p>Shiwoo followed up with calm instructions, conscious of Mom's reaction and state.</p>
 

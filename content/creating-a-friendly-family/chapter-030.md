@@ -12,7 +12,7 @@ chapter = 30
 
 <p>Seyoung was, as always, tightly hugging Mom's waist and wouldn't let go.</p>
 
-<p>"Aigoo~ When will our Seyoung grow up and live a little apart from Mom?"</p>
+<p>"Aigoo When will our Seyoung grow up and live a little apart from Mom?"</p>
 
 <p>Mom, who was looking at Seyoung, who was clinging to her waist, embracing her with one arm, was complaining to herself, as if Seyoung was too cute but also pitiful.</p>
 
@@ -58,7 +58,7 @@ chapter = 30
 
 <p>Seyoung, who was hugging Mom, asked worriedly, feeling Mom flinch.</p>
 
-<p>"Ah... no, Mom just had hiccups. Hic~!"</p>
+<p>"Ah... no, Mom just had hiccups. Hic!"</p>
 
 <p>Mom answered, feigning hiccups as if flustered.</p>
 
@@ -92,11 +92,11 @@ chapter = 30
 
 <p>Sehee Nuna seemed to have seen the clothes she wanted in the brand she wanted beforehand, and she was confidently leading Shiwoo's family and going ahead.</p>
 
-<p>"Sehee, walk a little slower, you're going to fall~"</p>
+<p>"Sehee, walk a little slower, you're going to fall"</p>
 
 <p>Mom said, worried that Sehee Nuna would bump into other people while being so lively.</p>
 
-<p>"Hurry, hurry~ This way~!"</p>
+<p>"Hurry, hurry This way!"</p>
 
 <p>Sehee Nuna urged her family from far ahead.</p>
 
@@ -130,7 +130,7 @@ chapter = 30
 
 <p>Such a shallow trick wouldn't work on Mom.</p>
 
-<p>"Heeing~ If you don't let me wear even this much, what am I supposed to choose~ All my friends wear this much comfortably~"</p>
+<p>"Heeing If you don't let me wear even this much, what am I supposed to choose All my friends wear this much comfortably"</p>
 
 <p>Sehee Nuna started to whine in front of Mom as if she was feeling wronged.</p>
 
@@ -158,7 +158,7 @@ chapter = 30
 
 <p>Shiwoo deliberately pointed to the first, more revealing dress.</p>
 
-<p>"That's... too low-cut and clingy~"</p>
+<p>"That's... too low-cut and clingy"</p>
 
 <p>Mom said, avoiding Shiwoo's gaze and sounding troubled.</p>
 
@@ -170,7 +170,7 @@ chapter = 30
 
 <p>Mom was stuttering, looking at Sehee Nuna and Seyoung as if she was genuinely flustered.</p>
 
-<p>"Even if it's covered with fabric, if the inside is lewd, it's lewd~!"</p>
+<p>"Even if it's covered with fabric, if the inside is lewd, it's lewd!"</p>
 
 <p>Shiwoo teased and cornered Mom, conscious of the state under her skirt.</p>
 
@@ -182,7 +182,7 @@ chapter = 30
 
 <p>Mom couldn't say anything and was listening to Shiwoo's words, her head lowered and her face flushed.</p>
 
-<p>"Nuna's body is inherited from Mom, so if Nuna's body is lewd, it's Mom's fault if you think about it~!!"</p>
+<p>"Nuna's body is inherited from Mom, so if Nuna's body is lewd, it's Mom's fault if you think about it!!"</p>
 
 <p>Shiwoo ended up scolding and condemning Mom as if he was cornering her.</p>
 
@@ -206,7 +206,7 @@ chapter = 30
 
 <p>And in front of Seyoung, he stroked Mom's hair again.</p>
 
-<p>"Mom is really obedient now~ It's cute how your face turns red, you know? I'll have to give you a reward again tonight."</p>
+<p>"Mom is really obedient now It's cute how your face turns red, you know? I'll have to give you a reward again tonight."</p>
 
 <p>After that night... this was the third time he had stroked Mom's hair.</p>
 
@@ -220,7 +220,7 @@ chapter = 30
 
 <p>Seyoung said in a small, creeping voice from the side.</p>
 
-<p>"Mom... Oppa... you're both weird~"</p>
+<p>"Mom... Oppa... you're both weird"</p>
 
 <p>Mom reacted to Seyoung's words and trembled.</p>
 

@@ -94,7 +94,7 @@ chapter = 529
 
 <p>As soon as he sees that Seyoung has checked the photos, Shiwoo sends her a text message and waits for her reply.</p>
 
-<p>[Shiwoo oppa can just come in without asking at home now... There's no one who will say anything to oppa anymore, right? Hehe~]</p>
+<p>[Shiwoo oppa can just come in without asking at home now... There's no one who will say anything to oppa anymore, right? Hehe]</p>
 
 <p>Seyoung sends Shiwoo a positive reply, smiling brightly even in the text message conversation.</p>
 

@@ -14,11 +14,11 @@ chapter = 52
 
 <p>"It seems it hasn't dried yet, has it?" Shiwoo asked, glancing at Sehee Nuna's lower body.</p>
 
-<p>"You idiot~!! It's because you keep rubbing like this!"</p>
+<p>"You idiot!! It's because you keep rubbing like this!"</p>
 
 <p>Sehee Nuna said to Shiwoo, her face flushed red, as if snapping at him.</p>
 
-<p>"I can't help it if I want to generate heat~!!"</p>
+<p>"I can't help it if I want to generate heat!!"</p>
 
 <p>Shiwoo now spoke boldly, as if rubbing Sehee Nuna's arm was a privilege he had earned. -As he spoke, he could feel his penis slightly hardening again-</p>
 
@@ -38,7 +38,7 @@ chapter = 52
 
 <p>"What kind of clothes? Didn't you already get your allowance from Mom to buy Seyoung's pajamas earlier and spend it all?"</p>
 
-<p>"Yeah... I already told Mom I'd borrow more money~"</p>
+<p>"Yeah... I already told Mom I'd borrow more money"</p>
 
 <p>"Mom said that's okay?"</p>
 
@@ -60,7 +60,7 @@ chapter = 52
 
 <p class="scene-break">· · ·</p>
 
-<p>"Let's buy underwear there too~! I'll buy it for you~!! Come here first~!!"</p>
+<p>"Let's buy underwear there too! I'll buy it for you!! Come here first!!"</p>
 
 <p>Shiwoo said, leading Sehee Nuna to a secluded blind spot in the emergency stairwell outside the department store, which was visible nearby and rarely frequented by people.</p>
 
@@ -70,13 +70,13 @@ chapter = 52
 
 <p>Shiwoo crouched down and wiped away the vaginal fluid flowing between Sehee Nuna's thighs, as if scooping it up with Seyoung's pajamas.</p>
 
-<p>"Haa~ Wh-what are you doing~?"</p>
+<p>"Haa Wh-what are you doing?"</p>
 
 <p>Sehee Nuna said, seemingly flustered by Shiwoo's actions, yet she didn't seem to think of avoiding him, like a child receiving punishment.</p>
 
 <p>Slightly hunched, Sehee Nuna stood with her legs spread, facing the wall, remarkably still.</p>
 
-<p>"You have to wipe it~!!"</p>
+<p>"You have to wipe it!!"</p>
 
 <p>Shiwoo said, addressing Sehee Nuna with a resolute tone, unlike his usual manner.</p>
 
@@ -84,7 +84,7 @@ chapter = 52
 
 <p>Shiwoo continued to move his hand upward, tracing the flesh of Sehee Nuna's thigh, confirming the wiped areas with his touch.</p>
 
-<p>"Haa~"</p>
+<p>"Haa"</p>
 
 <p>Sehee Nuna's long breath, as she stood with her legs spread shoulder-width apart, head bowed and turned away, reached Shiwoo's ear.</p>
 
@@ -122,7 +122,7 @@ chapter = 52
 
 <p>Shiwoo's confidence grew.</p>
 
-<p>"This way, it'll never end~"</p>
+<p>"This way, it'll never end"</p>
 
 <p>Shiwoo said, caressing Sehee Nuna's wet thigh, then pushed Seyoung's pajamas deep into her crotch.</p>
 
@@ -134,7 +134,7 @@ chapter = 52
 
 <p>Shiwoo lightly tapped Sehee Nuna's crotch with the pajamas, as if wiping away moisture.</p>
 
-<p>"Hooohmm~"</p>
+<p>"Hooohmm"</p>
 
 <p>Sehee Nuna exhaled deeply through her nose, as if holding something back with her mouth closed.</p>
 
@@ -188,7 +188,7 @@ chapter = 52
 
 <p>"Well, that can't be helped..." Sehee Nuna said, trying her best to sound calm.</p>
 
-<p>"But I wonder if it was okay~?"</p>
+<p>"But I wonder if it was okay?"</p>
 
 <p>Shiwoo suddenly changed his voice to a sly and playful tone.</p>
 
@@ -198,11 +198,11 @@ chapter = 52
 
 <p>Shiwoo teased Sehee Nuna, returning the playful jab he had received earlier in the park near their house.</p>
 
-<p>"Hah, really~ I wouldn't be like this anywhere else if I wasn't stuck to you like this, you know?"</p>
+<p>"Hah, really I wouldn't be like this anywhere else if I wasn't stuck to you like this, you know?"</p>
 
 <p>Sehee Nuna said, as if wronged, then thought for a moment before smacking Shiwoo on the head. Kong!! -This time, it seemed she hit him quite hard, with genuine intent-</p>
 
-<p>"You get hard just by looking at me~! You're hard right now, too!"</p>
+<p>"You get hard just by looking at me! You're hard right now, too!"</p>
 
 <p>Sehee Nuna snapped at Shiwoo.</p>
 

@@ -80,7 +80,7 @@ chapter = 731
 
 <p>Ignoring her broken moans, Shiwoo continued to hammer his penis into her vaginal opening as if he were trying to crush her.</p>
 
-<p>Ha-euuu-uk, ha-aaa-ak, ha-aaa-aaa-ang, ha-aaaaa~!</p>
+<p>Ha-euuu-uk, ha-aaa-ak, ha-aaa-aaa-ang, ha-aaaaa!</p>
 
 <p>At some point, her body vibrated violently.</p>
 

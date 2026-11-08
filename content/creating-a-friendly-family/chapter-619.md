@@ -6,7 +6,7 @@ chapter = 619
 +++
 <p>Sejin Nuna, hearing Shiwoo's words, smiles slightly lewdly.</p>
 
-<p>"Okay~!"</p>
+<p>"Okay!"</p>
 
 <p>Accepting her younger brother's request, whose position had been reversed, Sejin Nuna moved slowly.</p>
 
@@ -168,7 +168,7 @@ chapter = 619
 
 <p>Shiwoo answered, shrugging his shoulders at Sejin Nuna's provocative question.</p>
 
-<p>"Okay~ I just have to do everything as usual while being like this, right?"</p>
+<p>"Okay I just have to do everything as usual while being like this, right?"</p>
 
 <p>Sejin Nuna then spoke as if she clearly understood the rules of the new game that Shiwoo had proposed.</p>
 
@@ -176,7 +176,7 @@ chapter = 619
 
 <p>Shiwoo answered as if slightly awkward at Sejin Nuna's response, which was actively cooperating with his command.</p>
 
-<p>"By the way, this is already the third time, and you've shot so much outside... what a waste~!"</p>
+<p>"By the way, this is already the third time, and you've shot so much outside... what a waste!"</p>
 
 <p>Sejin Nuna knelt and straightened her back, touching Shiwoo's semen that had been shot on her chest with her hand, and spoke as if amazed.</p>
 

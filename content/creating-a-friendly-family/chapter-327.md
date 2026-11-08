@@ -4,11 +4,11 @@ weight = 327
 [extra]
 chapter = 327
 +++
-<p>"Ah, I think that's it! I see the sign~"</p>
+<p>"Ah, I think that's it! I see the sign"</p>
 
 <p>Shiwoo says, pointing to the sign of the fast-food hamburger restaurant visible ahead.</p>
 
-<p>"I'm hungry~ Let's eat hamburgers quickly and then go shopping~!"</p>
+<p>"I'm hungry Let's eat hamburgers quickly and then go shopping!"</p>
 
 <p>Seyoung responds to Shiwoo's words, putting down Shiwoo's bag she was holding and walking quickly towards the store.</p>
 
@@ -122,7 +122,7 @@ chapter = 327
 
 <p>Mom was asking Shiwoo for permission, as if deliberately ignoring the screenshot Shiwoo had sent.</p>
 
-<p>'After I check the video in a bit~ We're at a hamburger place right now, so it's a bit awkward to watch it here!'</p>
+<p>'After I check the video in a bit We're at a hamburger place right now, so it's a bit awkward to watch it here!'</p>
 
 <p>Shiwoo said, as if he would grant Mom's request after properly checking the video.</p>
 

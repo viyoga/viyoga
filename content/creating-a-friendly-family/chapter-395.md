@@ -152,7 +152,7 @@ chapter = 395
 
 <p>Sehee Nuna seemed speechless at the reality that all the family members were subservient to Shiwoo, her mouth slightly agape as she exhaled a choked breath.</p>
 
-<p>"Ah~ Sejin is left, so not everyone yet, huh?"</p>
+<p>"Ah Sejin is left, so not everyone yet, huh?"</p>
 
 <p>Shiwoo spoke as if correcting himself, as if one family member not yet subservient to him had belatedly come to mind.</p>
 
@@ -190,7 +190,7 @@ chapter = 395
 
 <p>Then Shiwoo alternately looked at the master bedroom where Sora Nuna was unconscious, and Sejin Nuna's room where Sinbi Nuna was collapsed.</p>
 
-<p>"But if I'd known this would happen, I should've bought a few more collars~"</p>
+<p>"But if I'd known this would happen, I should've bought a few more collars"</p>
 
 <p>Shiwoo spoke as if he was conscious of Sora Nuna and Sinbi Nuna.</p>
 

@@ -60,7 +60,7 @@ chapter = 690
 
 <p class="scene-break">· · ·</p>
 
-<p>"Go on, tell me~ It's okay now!"</p>
+<p>"Go on, tell me It's okay now!"</p>
 
 <p>While his penis was being sucked by Seyoung, Shiwoo shifted his gaze toward Mom and spoke in a low, firm voice.</p>
 
@@ -152,7 +152,7 @@ chapter = 690
 
 <p>Seeing that scene, Mom answered Shiwoo without any further hesitation.</p>
 
-<p>"Ah~ So if Sunmi, you and I have sex today, I should go easy? The female tattoo shop owner told you to tell me that?"</p>
+<p>"Ah So if Sunmi, you and I have sex today, I should go easy? The female tattoo shop owner told you to tell me that?"</p>
 
 <p>Shiwoo repeated Mom's words as if to emphasize them, speaking as if to provoke her shame.</p>
 
@@ -162,7 +162,7 @@ chapter = 690
 
 <p>As if satisfied with Mom's answer, the strength in Shiwoo's hands gripping Seyoung's hair loosened.</p>
 
-<p>"Alright~ When I have sex with you later, Sunmi, I'll ram you gently!"</p>
+<p>"Alright When I have sex with you later, Sunmi, I'll ram you gently!"</p>
 
 <p>Shiwoo said that in a lightly sarcastic tone, as if enjoying Mom's reaction.</p>
 
@@ -178,7 +178,7 @@ chapter = 690
 
 <p>Mom avoided reacting directly to Shiwoo's explicit words and trailed off, turning her gaze away.</p>
 
-<p>"Sure, well~ it's not like it's anything difficult~ right?"</p>
+<p>"Sure, well it's not like it's anything difficult right?"</p>
 
 <p>Shiwoo gave a playful laugh and deliberately brushed off Mom's words with ease.</p>
 
@@ -186,7 +186,7 @@ chapter = 690
 
 <p>Mom expressed her gratitude to Shiwoo once again.</p>
 
-<p>"Chu-up chu-ap chu-u-u-up~"</p>
+<p>"Chu-up chu-ap chu-u-u-up"</p>
 
 <p>While the conversation between Mom and Shiwoo continued, Seyoung kept rolling her tongue, persistently licking Shiwoo's penis.</p>
 

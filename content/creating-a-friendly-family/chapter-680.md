@@ -26,7 +26,7 @@ chapter = 680
 
 <p>Seonju pouted her lips, speaking to Shiwoo in a tone tangled with indignation and embarrassment.</p>
 
-<p>"Ah~ as expected... it was your first time? I thought since it's Seonju-imo, you might have done it in a group a few times before~"</p>
+<p>"Ah as expected... it was your first time? I thought since it's Seonju-imo, you might have done it in a group a few times before"</p>
 
 <p>Shiwoo spoke with a voice that was sly yet tinged with a hint of apology.</p>
 
@@ -104,7 +104,7 @@ chapter = 680
 
 <p>Shiwoo moved his waist gently, asking as if carefully considering Seonju's physical state.</p>
 
-<p>" Ha-ah~! Ha... r-right now... it's not exactly 'okay' either! You have to think about the size of your item! Just having it i-inserted and sitting there, huuuu... I feel like my head is going to go crazy... ha-ah... "</p>
+<p>" Ha-ah! Ha... r-right now... it's not exactly 'okay' either! You have to think about the size of your item! Just having it i-inserted and sitting there, huuuu... I feel like my head is going to go crazy... ha-ah... "</p>
 
 <p>"Really, how could you think of just shoving it in there before I was even prepared? I thought it would take at least two or three weeks even with the kids... honestly..."</p>
 

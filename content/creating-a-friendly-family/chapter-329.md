@@ -4,11 +4,11 @@ weight = 329
 [extra]
 chapter = 329
 +++
-<p>"That's amazing~ I didn't know there was such a thing? But we were supposed to go shopping first~"</p>
+<p>"That's amazing I didn't know there was such a thing? But we were supposed to go shopping first"</p>
 
 <p>Seyoung asks, sounding slightly puzzled.</p>
 
-<p>"I thought we could take a look around before shopping to digest a bit~ We still have plenty of time~!"</p>
+<p>"I thought we could take a look around before shopping to digest a bit We still have plenty of time!"</p>
 
 <p>Shiwoo answers Seyoung's question, making a simple excuse.</p>
 
@@ -22,7 +22,7 @@ chapter = 329
 
 <p>Shiwoo commands his younger sisters.</p>
 
-<p>"Okay~ I don't mind anything since it's what Shiwoo Oppa wants~ Hehe."</p>
+<p>"Okay I don't mind anything since it's what Shiwoo Oppa wants Hehe."</p>
 
 <p>Seyoung answers Shiwoo with a smile.</p>
 
@@ -30,7 +30,7 @@ chapter = 329
 
 <p>Seyoung carefully chews the food in her mouth and swallows it down her throat.</p>
 
-<p>"Sua is okay with it too, right~? Riding the amusement ride! Let's go get ready now~"</p>
+<p>"Sua is okay with it too, right? Riding the amusement ride! Let's go get ready now"</p>
 
 <p>After finishing all the food on the tray, Seyoung gestures to Sua.</p>
 
@@ -58,7 +58,7 @@ chapter = 329
 
 <p>Shiwoo stares at Seyoung with a slightly dazed expression.</p>
 
-<p>"Then wait a moment, Oppa~! I'll go with Sua~ Hehe."</p>
+<p>"Then wait a moment, Oppa! I'll go with Sua Hehe."</p>
 
 <p>Seyoung says to Shiwoo, putting on the usual tone and expression she uses.</p>
 

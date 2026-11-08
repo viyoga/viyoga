@@ -136,7 +136,7 @@ chapter = 769
 
 <p>"If Sehee and Seyoung see us living in the same room, they'll probably realize we're living like newlyweds even if we don't say anything..."</p>
 
-<p>"Well~ wouldn't it be easier to just confess everything in advance rather than being interrogated about the tattoos and everything later? Why don't you try talking to them, Mom?"</p>
+<p>"Well wouldn't it be easier to just confess everything in advance rather than being interrogated about the tattoos and everything later? Why don't you try talking to them, Mom?"</p>
 
 <p>Shiwoo spoke as if coaxing her about someone else's business, pressing his lips against her ear.</p>
 
@@ -150,7 +150,7 @@ chapter = 769
 
 <p>As her vaginal muscles tightened, her pelvis began to bounce wildly.</p>
 
-<p>"Why? Can't you stay still at the thought of telling your daughters? I knew you liked this kind of thing, but aren't you being a bit too honest~?"</p>
+<p>"Why? Can't you stay still at the thought of telling your daughters? I knew you liked this kind of thing, but aren't you being a bit too honest?"</p>
 
 <p>Shiwoo spoke with a mischievous smirk, as if enjoying teasing Mom.</p>
 
@@ -162,7 +162,7 @@ chapter = 769
 
 <p>Shiwoo's hand slapped Mom's buttocks once more.</p>
 
-<p>"Heu-eu-eu-eu-eut~!"</p>
+<p>"Heu-eu-eu-eu-eut!"</p>
 
 <p>After being struck on the buttocks by Shiwoo's hand, Mom's body trembled violently as if its safety locks had been released.</p>
 

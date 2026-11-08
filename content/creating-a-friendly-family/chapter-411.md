@@ -72,11 +72,11 @@ chapter = 411
 
 <p>Mom turns back to Shiwoo and says as if she won't back down on this.</p>
 
-<p>"Okay~? I just have to wait 4 weeks, right?"</p>
+<p>"Okay? I just have to wait 4 weeks, right?"</p>
 
 <p>Shiwoo says to Mom, changing the hand that was shaking his penis again.</p>
 
-<p>"If I do it 10 times a day, that's 280 in 4 weeks~? If I'm going to do it with Seonmi, Sehee, and Seyoung like that, I need to buy a lot of condoms first. Right?"</p>
+<p>"If I do it 10 times a day, that's 280 in 4 weeks? If I'm going to do it with Seonmi, Sehee, and Seyoung like that, I need to buy a lot of condoms first. Right?"</p>
 
 <p>Shiwoo says to Mom, calculating the number of condoms he will use for 4 weeks as if he is happy.</p>
 
@@ -108,7 +108,7 @@ chapter = 411
 
 <p>Mom was demanding Shiwoo for a life of obvious pretense and deception for all family members.</p>
 
-<p>"Yeah~ is that all?"</p>
+<p>"Yeah is that all?"</p>
 
 <p>Shiwoo asks Mom again as if confirming, taking his back off the wall and straightening his waist.</p>
 
@@ -138,7 +138,7 @@ chapter = 411
 
 <p>Seeing such Mom, Shiwoo seemed to have a sadistic desire boiling inside him.</p>
 
-<p>"Okay~ is that all?"</p>
+<p>"Okay is that all?"</p>
 
 <p>Shiwoo said, looking down at Mom's appearance with an attitude as if he was casually ignoring Mom's words.</p>
 
@@ -150,7 +150,7 @@ chapter = 411
 
 <p>Shiwoo brought the heated, huge piece of meat to Mom's lips and ordered.</p>
 
-<p>"Haaaaheeeeee~"</p>
+<p>"Haaaaheeeeee"</p>
 
 <p>Mom took a hot breath at Shiwoo's words and trembled slightly.</p>
 
@@ -210,7 +210,7 @@ chapter = 411
 
 <p>Mom looks up at Shiwoo and makes eye contact with Shiwoo with Shiwoo's penis in her mouth.</p>
 
-<p>"I'll try to keep the promises we made at first as much as possible~!"</p>
+<p>"I'll try to keep the promises we made at first as much as possible!"</p>
 
 <p>Shiwoo says, slowly moving his penis back and forth in Mom's mouth.</p>
 

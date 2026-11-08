@@ -64,15 +64,15 @@ chapter = 101
 
 <p>Shiwoo, feeling frustrated, spoke to Cheoljin.</p>
 
-<p>"Um~ It's delicious, of course~! Aren't you going to eat? Oh right, I think you said you don't like fish?"</p>
+<p>"Um It's delicious, of course! Aren't you going to eat? Oh right, I think you said you don't like fish?"</p>
 
 <p>Cheoljin said, putting a spoonful of rice into his mouth and chewing while speaking at the same time.</p>
 
-<p>"When did I say that? I didn't say I dislike it, I just said I don't actively seek it out~!"</p>
+<p>"When did I say that? I didn't say I dislike it, I just said I don't actively seek it out!"</p>
 
 <p>Shiwoo replied, correcting the information that was wrongly imprinted on Cheoljin.</p>
 
-<p>"Ah~ Was that it?"</p>
+<p>"Ah Was that it?"</p>
 
 <p>Cheoljin replied, chewing the rice in his mouth as if he didn't care much.</p>
 
@@ -148,7 +148,7 @@ chapter = 101
 
 <p>Cheoljin smirked with a slightly arrogant feeling.</p>
 
-<p>"Wait and see~ I'll send you something interesting~"</p>
+<p>"Wait and see I'll send you something interesting"</p>
 
 <p>Cheoljin said, fiddling with his smartphone.</p>
 
@@ -206,7 +206,7 @@ chapter = 101
 
 <p>It was Sehee Nuna.</p>
 
-<p>"Oh~ Sehee Nuna?"</p>
+<p>"Oh Sehee Nuna?"</p>
 
 <p>Shiwoo said, answering the phone and calling out to Sehee Nuna.</p>
 
@@ -214,11 +214,11 @@ chapter = 101
 
 <p>Sehee Nuna was asking abruptly as soon as Shiwoo answered the phone.</p>
 
-<p>"Uh?...Uh... I have it~ Why?"</p>
+<p>"Uh?...Uh... I have it Why?"</p>
 
 <p>Shiwoo answered in a daze.</p>
 
-<p>"Then come to the snack bar in front of the academy! I'll send you the address~! Hurry up and come!!"</p>
+<p>"Then come to the snack bar in front of the academy! I'll send you the address! Hurry up and come!!"</p>
 
 <p>Sehee Nuna spoke to Shiwoo in a cold tone.</p>
 
@@ -244,7 +244,7 @@ chapter = 101
 
 <p class="scene-break">· · ·</p>
 
-<p>"Sehee Nuna, I'm here~"</p>
+<p>"Sehee Nuna, I'm here"</p>
 
 <p>Shiwoo waved his hand at Sehee Nuna and Sinbi Nuna, then bowed politely to Sora Nuna.</p>
 
@@ -258,11 +258,11 @@ chapter = 101
 
 <p>Sehee Nuna's tone was more prickly than usual.</p>
 
-<p>'Sorry~'</p>
+<p>'Sorry'</p>
 
 <p>Shiwoo thought that she was still very angry about what happened in the morning, so he apologized first.</p>
 
-<p>"You have to pay for everything we ate here~!"</p>
+<p>"You have to pay for everything we ate here!"</p>
 
 <p>Sehee Nuna said to Shiwoo, who was about to sit down.</p>
 
@@ -274,6 +274,6 @@ chapter = 101
 
 <p>Sehee Nuna was talking to Shiwoo harshly, as if she was reminding him of what happened in the morning.</p>
 
-<p>"Ah... okay~ I understand~"</p>
+<p>"Ah... okay I understand"</p>
 
 <p>Shiwoo answered, intimidated, but deep down, he was glad to see his Nuna's familiar attitude.</p>

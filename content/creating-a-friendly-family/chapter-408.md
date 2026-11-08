@@ -20,7 +20,7 @@ chapter = 408
 
 <p>Since Mom's true feelings were already known, it might be a meaningless act in front of Shiwoo, who was planning to make Mom live her life covered in semen all day long...</p>
 
-<p>「Okay, I'll wait, so come quickly~!」</p>
+<p>「Okay, I'll wait, so come quickly!」</p>
 
 <p>Shiwoo sends a reply to Mom.</p>
 
@@ -132,7 +132,7 @@ chapter = 408
 
 <p>Rather than scolding Shiwoo, it was closer to complaining...</p>
 
-<p>"Ah~ is that so? You must have had a hard time~ Hehe."</p>
+<p>"Ah is that so? You must have had a hard time Hehe."</p>
 
 <p>Shiwoo leans back against the wall near the door, half-lying down, and cups his penis with his hand, pointing the tip of his glans towards Mom and reacting playfully.</p>
 

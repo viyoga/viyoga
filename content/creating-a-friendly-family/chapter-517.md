@@ -74,7 +74,7 @@ chapter = 517
 
 <p>Ssupeok ssupeok ssupeok! Peok! Peok! Peok! Peok!</p>
 
-<p>"Haeung haa-aang haa-aaang haa-aaaang! Haeueuk! Master-nim~! Master-nim!"</p>
+<p>"Haeung haa-aang haa-aaang haa-aaaang! Haeueuk! Master-nim! Master-nim!"</p>
 
 <p>The sound of flesh hitting flesh and seductive moaning sounds filled the living room.</p>
 
@@ -98,7 +98,7 @@ chapter = 517
 
 <p>Shiwoo thrust heavily and powerfully, as if shaking off the remnants of desire that had been lingering inside Mom's body for the last time.</p>
 
-<p>"Haeung~ Haa-aang... Haa-aang!"</p>
+<p>"Haeung Haa-aang... Haa-aang!"</p>
 
 <p>Mom wraps her limp arms around Shiwoo's back and shoulders again, helping Shiwoo's ceremonial piston movements.</p>
 
@@ -124,7 +124,7 @@ chapter = 517
 
 <p>Mom asks Shiwoo, tightening her vagina hole strongly as if she was nervous for a moment.</p>
 
-<p>"I mean the second floor~"</p>
+<p>"I mean the second floor"</p>
 
 <p>Shiwoo was telling the bewildered Mom that they were going up to the second floor, as if proceeding with a scheduled itinerary or plan.</p>
 
@@ -138,7 +138,7 @@ chapter = 517
 
 <p>Mom closes her eyes, throws her head back, and moans as if crying.</p>
 
-<p>"Don't worry~ Seonmi-ya! Because we're not going to the room where Sehee and Seyoung are!"</p>
+<p>"Don't worry Seonmi-ya! Because we're not going to the room where Sehee and Seyoung are!"</p>
 
 <p>Shiwoo says to her in a gentle voice, as if reassuring Mom.</p>
 
@@ -152,7 +152,7 @@ chapter = 517
 
 <p>Shiwoo's penis was pushing the mucous membrane of her vaginal wall inward, giving her a dull pressure and stimulation inside Mom's body.</p>
 
-<p>"Haeueung... Yes... I th...think it doesn't matter. Master-nim~ Haeueu... What to do..."</p>
+<p>"Haeueung... Yes... I th...think it doesn't matter. Master-nim Haeueu... What to do..."</p>
 
 <p>She wraps Shiwoo's waist tightly with her inner thighs and knees, hugs Shiwoo's back and shoulders tightly with her arms, and moans as if talking to herself.</p>
 

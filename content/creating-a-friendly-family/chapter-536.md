@@ -72,7 +72,7 @@ chapter = 536
 
 <p class="scene-break">· · ·</p>
 
-<p>"Now, you should finish tidying up the cooking~ and put on some clothes! It seems like it's almost time for Seyoung to come out too..."</p>
+<p>"Now, you should finish tidying up the cooking and put on some clothes! It seems like it's almost time for Seyoung to come out too..."</p>
 
 <p>Shiwoo put his hands into Mom's armpits, raising her up as he spoke.</p>
 
@@ -168,17 +168,17 @@ chapter = 536
 
 <p>With a clicking sound, as the leash was untied, her tension too seemed to slowly release.</p>
 
-<p>"Haaaaaaah~"</p>
+<p>"Haaaaaaah"</p>
 
 <p>Mom inhaled deeply and exhaled a long breath, as if taking a deep breath.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>"Wow~ Delicious smell~ Is it chicken curry today?"</p>
+<p>"Wow Delicious smell Is it chicken curry today?"</p>
 
 <p>At that moment, Seyoung's lively voice was heard from the changing room.</p>
 
-<p>"Yes~ Chicken curry with cream! There's rolled omelet too!"</p>
+<p>"Yes Chicken curry with cream! There's rolled omelet too!"</p>
 
 <p>Shiwoo turned to Seyoung and explained about the main dish and side dishes instead of Mom.</p>
 

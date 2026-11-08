@@ -100,7 +100,7 @@ chapter = 251
 
 <p>After pushing his cock into Mom's vagina hole, the air changed as if the two people's time had stopped for a moment.</p>
 
-<p>"Chyu-ru-up~ Chyu-reup~!"</p>
+<p>"Chyu-ru-up Chyu-reup!"</p>
 
 <p>Only the sound of Seyoung sucking on Mom's breasts was heard in the room, heightening the lewd mood.</p>
 
@@ -114,7 +114,7 @@ chapter = 251
 
 <p>Shiwoo moves his cock, which is hanging on the edge of her hole, back and forth little by little, matching the sound of Seyoung licking her breast.</p>
 
-<p>-Ssu-geo-eok~! Ssu-geo-eok~! Ssu-geo-eok~!</p>
+<p>-Ssu-geo-eok! Ssu-geo-eok! Ssu-geo-eok!</p>
 
 <p>Slowly, Shiwoo's penis goes in and out of Mom's pussy.</p>
 
@@ -124,7 +124,7 @@ chapter = 251
 
 <p>Mom was breathing heavily, letting out moaning sounds instead, with her buttocks pushed back.</p>
 
-<p>"Heuu-eum~!"</p>
+<p>"Heuu-eum!"</p>
 
 <p>Then, Mom inadvertently lets out a moan-mixed breath intermittently.</p>
 
@@ -168,7 +168,7 @@ chapter = 251
 
 <p>Mom's body, which had been holding its breath without moving, begins to tremble around her pelvis.</p>
 
-<p>"Seyoung must be suffocating because of the blanket~"</p>
+<p>"Seyoung must be suffocating because of the blanket"</p>
 
 <p>Shiwoo says to Mom nonchalantly, maintaining the pressure of his waist pushing in his cock.</p>
 
@@ -202,7 +202,7 @@ chapter = 251
 
 <p>That trembling soon spreads to Mom's entire body.</p>
 
-<p>"But since I lowered the blanket, Mom must be cold~! It seems like we have to warm her up instead of the blanket~?"</p>
+<p>"But since I lowered the blanket, Mom must be cold! It seems like we have to warm her up instead of the blanket?"</p>
 
 <p>Saying it again nonchalantly, Shiwoo puts his arm under Mom's armpit and embraces her body.</p>
 

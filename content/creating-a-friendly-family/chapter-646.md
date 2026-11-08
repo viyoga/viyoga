@@ -144,7 +144,7 @@ chapter = 646
 
 <p>A warm and cozy breath, leaking from between her parted lips, brushed against the skin of the forward-leaning penis.</p>
 
-<p>"Chyu-up, su-up~"</p>
+<p>"Chyu-up, su-up"</p>
 
 <p>Seyoung stuck out her tongue and moistened the skin on the back of Shiwoo's shaft.</p>
 

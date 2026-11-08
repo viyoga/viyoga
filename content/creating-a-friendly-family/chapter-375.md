@@ -104,7 +104,7 @@ chapter = 375
 
 <p>Shiwoo, with a satisfied expression on his face at Sua's surprisingly persistent mouth sounds, waits for Seonju Imo-nim's answer.</p>
 
-<p>'Haeueut...yes! I'll...I'll tell you everything, the site address, ID, and password~ Haeung haeung haaat'</p>
+<p>'Haeueut...yes! I'll...I'll tell you everything, the site address, ID, and password Haeung haeung haaat'</p>
 
 <p>Seonju Imo-nim was answering Shiwoo as if she had succumbed to the burning pleasure felt in her pussy, and the intense pain that followed that pleasure.</p>
 
@@ -166,7 +166,7 @@ chapter = 375
 
 <p>Shiwoo blankly admires Seyoung's soft skin, which had been hidden under her cute dress throughout the play in the master bedroom, for a moment.</p>
 
-<p>'Oppa~ I really need to pee right now... Can't I just pee here?'</p>
+<p>'Oppa I really need to pee right now... Can't I just pee here?'</p>
 
 <p>Seyoung peeks her face out and looks at Shiwoo, speaking as if whining.</p>
 
@@ -178,6 +178,6 @@ chapter = 375
 
 <p>Shiwoo says to Seyoung in a flustered voice.</p>
 
-<p>'Okay oppa... hehe~ I'll try to hold it for now since oppa said that... I was just asking just in case!'</p>
+<p>'Okay oppa... hehe I'll try to hold it for now since oppa said that... I was just asking just in case!'</p>
 
 <p>Seyoung answers as if making an excuse to her oppa, and quickly hides her body inside the shower room.</p>

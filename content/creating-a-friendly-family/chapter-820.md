@@ -4,7 +4,7 @@ weight = 820
 [extra]
 chapter = 820
 +++
-<p>"If the gown is uncomfortable, you can take it off~ There's only the two of us here anyway..."</p>
+<p>"If the gown is uncomfortable, you can take it off There's only the two of us here anyway..."</p>
 
 <p>Shin Yu-na continued to subtly caress Siu's penis with the back of her hand.</p>
 
@@ -144,7 +144,7 @@ chapter = 820
 
 <p>A presence far more overwhelming and voluptuous than what he had seen in photos or videos pressed dizzily against Siu's nerves.</p>
 
-<p>"Well, now that everything seems ready, shall I play the video for you~?"</p>
+<p>"Well, now that everything seems ready, shall I play the video for you?"</p>
 
 <p>Clad only in her underwear, she approached Siu and stroked his penis with the back of her hand again, asking as if seeking permission.</p>
 

@@ -4,7 +4,7 @@ weight = 751
 [extra]
 chapter = 751
 +++
-<p>[And since this is a secret room for now, if I set the password to Mom's birthday, there's no worry about anyone else finding out~!]</p>
+<p>[And since this is a secret room for now, if I set the password to Mom's birthday, there's no worry about anyone else finding out!]</p>
 
 <p>Shiwoo was suggesting that this meticulous security and isolation would serve as a clever fence, perfectly separating her from her daily life.</p>
 
@@ -14,11 +14,11 @@ chapter = 751
 
 <p>Mom tried hard to ignore the fact that she was stepping into the secret trap Shiwoo had dug. She attempted to refresh the situation by returning to her position as a 'Mother' scolding her clumsy son as usual. Her fastidious tone, seemingly trying to seize the initiative by rebuking Shiwoo's lax security awareness, appeared to be her own desperate defense mechanism to avoid being swayed on this bizarre stage her son had set.</p>
 
-<p>[Ah~ I obviously set a password on the smartphone too~! But Sehee-nuna set it to her own birthday without my permission, you know? She told me not to change it.]</p>
+<p>[Ah I obviously set a password on the smartphone too! But Sehee-nuna set it to her own birthday without my permission, you know? She told me not to change it.]</p>
 
 <p>[Since then, whenever I leave my phone somewhere and go somewhere else, I think she checks it on her own... The 1:1 conversations I've had with you, Seonmi, or texts I've sent to other people... hehehe.]</p>
 
-<p>[But it can't be helped, right? She said she wouldn't leave me alone if I changed my password~ hehe.]</p>
+<p>[But it can't be helped, right? She said she wouldn't leave me alone if I changed my password hehe.]</p>
 
 <p>Shiwoo nonchalantly reveals the fact that the secret conversations shared with Mom might have already been shared with Sehee-nuna, as if he were making a light joke.</p>
 
@@ -38,7 +38,7 @@ chapter = 751
 
 <p>With a precarious sense of being on the verge of breaking, Mom cautiously asks, as if gauging how far she should step into this bizarre order Shiwoo designed.</p>
 
-<p>[No~ Seonmi, you do whatever is comfortable for you. I'm going to call you Mom or Seonmi, whatever I feel like calling you!]</p>
+<p>[No Seonmi, you do whatever is comfortable for you. I'm going to call you Mom or Seonmi, whatever I feel like calling you!]</p>
 
 <p>Shiwoo acted relaxed, pretending to hand over the freedom of choice to Mom, making her decide the depth of this grotesque relationship herself.</p>
 
@@ -56,7 +56,7 @@ chapter = 751
 
 <p>In the face of the shameful insinuations involving Sehee-nuna and the irresistible, sensual proposals, all Mom could do was be gently swept into the order Shiwoo had designed.</p>
 
-<p>[Yeah~ I'll do that~ Sehee might be very disappointed though.... hehe. Ah! But I don't think I've heard the answer to my question yet?]</p>
+<p>[Yeah I'll do that Sehee might be very disappointed though.... hehe. Ah! But I don't think I've heard the answer to my question yet?]</p>
 
 <p>Shiwoo responded playfully to Mom's words, bringing back the topic Mom was trying to subtly gloss over.</p>
 
@@ -66,7 +66,7 @@ chapter = 751
 
 <p>Due to the bizarre flow of conversation designed by her son, the arrangement of titles, and even the circumstances of exposing all her weaknesses to Sehee-nuna pouring in all at once, she seemed to have even forgotten what question she had just received from Shiwoo.</p>
 
-<p>[The question I asked you as soon as you entered this room! I asked which of the photos I sent this morning you chose and set as your smartphone background~!]</p>
+<p>[The question I asked you as soon as you entered this room! I asked which of the photos I sent this morning you chose and set as your smartphone background!]</p>
 
 <p>Shiwoo asks persistently, pointing out the question as if he had been waiting for Mom's counter-question.</p>
 
@@ -130,7 +130,7 @@ chapter = 751
 
 <p>Mom carefully returned to her seat and sat down, fixing her gaze on the edge of the table while deliberately avoiding Shiwoo's eyes.</p>
 
-<p>"Mom, eat the clam soup! It's still warm, so it's worth eating. It'll be good if you swirl it around in your mouth before swallowing, just like you did before~"</p>
+<p>"Mom, eat the clam soup! It's still warm, so it's worth eating. It'll be good if you swirl it around in your mouth before swallowing, just like you did before"</p>
 
 <p>Shiwoo spoke nonchalantly with a faint smile on his lips, as if enjoying Mom's reaction.</p>
 

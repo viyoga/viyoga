@@ -76,7 +76,7 @@ chapter = 37
 
 <p>Jjigeok...jjigeok...</p>
 
-<p>"Uung eup eueueup... heueu~"</p>
+<p>"Uung eup eueueup... heueu"</p>
 
 <p>In the quiet stillness of the master bedroom, only the moist sounds of friction from their lips and genitals and Mom's subdued moaning sound could be heard faintly.</p>
 
@@ -84,7 +84,7 @@ chapter = 37
 
 <p>Without knowing how much of that ecstatic time had passed...</p>
 
-<p>"Haaak~~~!!!"</p>
+<p>"Haaak!!!"</p>
 
 <p>Shiwoo felt Mom's vagina contracting and spasming along with Mom's strongly exhaled breath.</p>
 
@@ -108,7 +108,7 @@ chapter = 37
 
 <p>Even after reaching her peak, Mom, who had taken off her eye mask, blushed as if she couldn't make eye contact with Shiwoo, closing her eyes tightly and catching her breath.</p>
 
-<p>"Haa haa~"</p>
+<p>"Haa haa"</p>
 
 <p>Shiwoo gently stroked Mom's cheek, then gave her a deep kiss on the lips and straightened his posture again.</p>
 
@@ -134,9 +134,9 @@ chapter = 37
 
 <p>Shiwoo's piston movement towards the climax had begun again.</p>
 
-<p>Jjigeok jjigeok jjigeoeok~</p>
+<p>Jjigeok jjigeok jjigeoeok</p>
 
-<p>"Haaak haa haat~"</p>
+<p>"Haaak haa haat"</p>
 
 <p>Every time Shiwoo thrust with force, Mom's head was thrown back and her upper body twisted as if convulsing.</p>
 
@@ -150,7 +150,7 @@ chapter = 37
 
 <p>Even though he had restrained and held Mom down and hadn't even started the full-fledged pounding yet, Mom, as if foreseeing her future fate, gripped the bed sheets tightly with both hands, trembling and letting out gasping moaning sound.</p>
 
-<p>"Haa-aaaa~"</p>
+<p>"Haa-aaaa"</p>
 
 <p>Shiwoo put strength into his waist again and thrust his massive pillar into Mom's deep, secret hole.</p>
 
@@ -170,7 +170,7 @@ chapter = 37
 
 <p>With the intention of thrusting his massive penis all the way to the source deep inside Mom's hole, he momentarily pulled his waist back greatly and then thrust it into Mom with all his might.</p>
 
-<p>Puk~!</p>
+<p>Puk!</p>
 
 <p>"Hat!!!"</p>
 
@@ -182,7 +182,7 @@ chapter = 37
 
 <p>Mom's hands, which had been gripping the sheets, had already gone around Shiwoo's back and were digging into his flesh as if they were going to tear his back apart.</p>
 
-<p>"Haa-aaaa~! Heuaaaak~~~!!!"</p>
+<p>"Haa-aaaa! Heuaaaak!!!"</p>
 
 <p>The cry of pleasure that burst out like a roar from Mom's open mouth belatedly.</p>
 
@@ -192,7 +192,7 @@ chapter = 37
 
 <p>A few more times...</p>
 
-<p>"Heuaaa~~~Shi...Shiwoo~~~Shiwoo-ya~~~Ah~"</p>
+<p>"HeuaaaShi...ShiwooShiwoo-yaAh"</p>
 
 <p>Mom's name finally burst out from Mom's mouth.</p>
 
@@ -212,7 +212,7 @@ chapter = 37
 
 <p>Shiwoo's merciless pounding, which thrust his thing all the way to the root, continued relentlessly even after a long time had passed, and Shiwoo and Mom's excitement was now racing towards its peak.</p>
 
-<p>"Ah-hang...Shi...Shiwoo-ya...Eo..eo...Mom...I..hiiek...At this rate...really....Heueueuk~ Re...really.....Haa-at eueueuk~ Heueueue~~~"</p>
+<p>"Ah-hang...Shi...Shiwoo-ya...Eo..eo...Mom...I..hiiek...At this rate...really....Heueueuk Re...really.....Haa-at eueueuk Heueueue"</p>
 
 <p>Mom's last cry of pleasure just before fainting.</p>
 
@@ -222,7 +222,7 @@ chapter = 37
 
 <p>Shiwoo thrust his massive cock into Mom's pussy, which had lost consciousness like that, dozens more times, then took his thing out of her pussy, took off the condom, and ejaculated on Mom's face, which was wriggling and unconscious.</p>
 
-<p>"Aaaa~~~Seonmi-ya!!"</p>
+<p>"AaaaSeonmi-ya!!"</p>
 
 <p>A huge amount of semen was sprayed all over Mom's face.</p>
 

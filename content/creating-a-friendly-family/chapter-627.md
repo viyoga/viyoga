@@ -164,7 +164,7 @@ chapter = 627
 
 <p>Mom replies as if Shiwoo's question is annoying, with a grumbling tone.</p>
 
-<p>「Well~ I wouldn't mind that, but would you be okay with it? Should I tell Sehee to grab someone passing by and have them retake the pictures inside Mom's skirt?」</p>
+<p>「Well I wouldn't mind that, but would you be okay with it? Should I tell Sehee to grab someone passing by and have them retake the pictures inside Mom's skirt?」</p>
 
 <p>Shiwoo responds nonchalantly, as if parrying Mom's grumbling text.</p>
 
@@ -192,6 +192,6 @@ chapter = 627
 
 <p>Unlike before, Mom seemed truly furious at Shiwoo's words, even mixing in harsh words and pouring out her emotions directly into the text.</p>
 
-<p>「I'm kidding, I'm kidding~ I'm just saying it came out pretty well~ Our Seonmi is very prickly today~ Hehehe. Did it hurt a lot when you got the tattoo?」</p>
+<p>「I'm kidding, I'm kidding I'm just saying it came out pretty well Our Seonmi is very prickly today Hehehe. Did it hurt a lot when you got the tattoo?」</p>
 
 <p>Shiwoo writes a text again, awkwardly trying to soothe Mom.</p>

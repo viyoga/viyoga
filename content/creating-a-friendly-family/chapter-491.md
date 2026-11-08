@@ -12,11 +12,11 @@ chapter = 491
 
 <p>Shiwoo nods and replies in a firm tone.</p>
 
-<p>,I'm super close with Mom, though? We sleep together every night, and we often take baths together~ I'm even sucking on Mom's boobs like this~,</p>
+<p>,I'm super close with Mom, though? We sleep together every night, and we often take baths together I'm even sucking on Mom's boobs like this,</p>
 
 <p>Seyoung retorts to Shiwoo's words, boasting about her and Mom's close bond.</p>
 
-<p>,That's not enough~! Because you're casually hanging out with an adult who's much older than you, calling them by their name, without any pretense~,</p>
+<p>,That's not enough! Because you're casually hanging out with an adult who's much older than you, calling them by their name, without any pretense,</p>
 
 <p>Shiwoo takes his hand off Mom's hand that was on Seyoung's breast, moves his hand to the opposite breast that Seyoung was sucking on, and says,</p>
 
@@ -44,7 +44,7 @@ chapter = 491
 
 <p>Shiwoo says to Seyoung with a feeling of superiority, showing off a little.</p>
 
-<p>,Heeuum~ You have to be able to strip them off whenever you feel like it?,</p>
+<p>,Heeuum You have to be able to strip them off whenever you feel like it?,</p>
 
 <p>Seyoung lifts her head slightly and brings her lips towards Mom's breast that Shiwoo is kneading, and says.</p>
 
@@ -64,11 +64,11 @@ chapter = 491
 
 <p>Mom's body was flinching every time the conversation progressed.</p>
 
-<p>,In the first place, things like cheating or living like a married couple, and calling each other by name are different issues though~! ,</p>
+<p>,In the first place, things like cheating or living like a married couple, and calling each other by name are different issues though! ,</p>
 
 <p>Shiwoo doesn't wait for Mom's answer and says to Seyoung, as if emphasizing his master-slave relationship with Mom.</p>
 
-<p>,Really~? That's hard... I'm jealous~! I want to make Mom do things like that too~ Can't you make me and Mom a little closer, Oppa?,</p>
+<p>,Really? That's hard... I'm jealous! I want to make Mom do things like that too Can't you make me and Mom a little closer, Oppa?,</p>
 
 <p>Seyoung answers as if she understands exactly what Shiwoo is saying.</p>
 
@@ -146,7 +146,7 @@ chapter = 491
 
 <p>Shiwoo orders Seyoung in a gentle yet firm tone.</p>
 
-<p>,Okay~ I'll take them off now as Shiwoo Oppa says!,</p>
+<p>,Okay I'll take them off now as Shiwoo Oppa says!,</p>
 
 <p>Seyoung, with the back of her head on Mom's arm that she was resting on, takes off the pajamas she is wearing, turning them inside out, following Shiwoo's order.</p>
 
@@ -160,7 +160,7 @@ chapter = 491
 
 <p>Seeing Seyoung taking off her clothes in front of Shiwoo and Mom, and her developed body, Shiwoo's penis throbs deep inside Mom's body as if ejaculating.</p>
 
-<p>,I took them off~ What should I do now? Should I suck on Mom's breasts again like this?,</p>
+<p>,I took them off What should I do now? Should I suck on Mom's breasts again like this?,</p>
 
 <p>After taking off her clothes, Seyoung asks Shiwoo with an awkward expression and tone, unlike her usual self.</p>
 
@@ -168,7 +168,7 @@ chapter = 491
 
 <p>Shiwoo was saying something somewhat ambiguous and vague, as if he didn't know who he was saying it to.</p>
 
-<p>,What? What are you talking about? What's that~?,</p>
+<p>,What? What are you talking about? What's that?,</p>
 
 <p>Seyoung reacts to Shiwoo's words as if bewildered.</p>
 

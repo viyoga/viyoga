@@ -28,7 +28,7 @@ chapter = 340
 
 <p>Shiwoo spoke to his sisters as if confirming.</p>
 
-<p>,Yeah~ I think we bought everything we need~ We bought a portable cage too~ We bought a food bowl too~ We bought potty pads and bath supplies too..."</p>
+<p>,Yeah I think we bought everything we need We bought a portable cage too We bought a food bowl too We bought potty pads and bath supplies too..."</p>
 
 <p>Seyoung, counting the types of items they purchased with her fingers, answers Shiwoo's words.</p>
 
@@ -36,7 +36,7 @@ chapter = 340
 
 <p>Shiwoo cautiously asks, as if testing his sisters.</p>
 
-<p>,Yeah~ a little~ I think I overdid it up there. Hehe~"</p>
+<p>,Yeah a little I think I overdid it up there. Hehe"</p>
 
 <p>Seyoung says to Shiwoo in a sly tone, as if reminding him of what happened on the contraption.</p>
 
@@ -50,7 +50,7 @@ chapter = 340
 
 <p>Shiwoo suggested stopping by the haunted house as if he were being considerate of Sua.</p>
 
-<p>,Really? I don't mind~~ Sua, what about you? Can you go now?"</p>
+<p>,Really? I don't mind Sua, what about you? Can you go now?"</p>
 
 <p>Seyoung left the answer to Shiwoo's suggestion to Sua.</p>
 
@@ -60,7 +60,7 @@ chapter = 340
 
 <p>Shiwoo says to his sisters as soon as he sees Sua nodding her head in agreement to his suggestion.</p>
 
-<p>,Okay~! Hehe "</p>
+<p>,Okay! Hehe "</p>
 
 <p>Seyoung answers in a tone full of energy, unlike when she said she was tired just a moment ago.</p>
 

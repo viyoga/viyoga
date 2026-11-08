@@ -24,13 +24,13 @@ chapter = 285
 
 <p>It was a text message conversation containing rules about maintaining a master-slave relationship at night, then reverting to a mother-son relationship in front of the family during the day.</p>
 
-<p>"It's okay to use informal speech during the day~! Mom and I decided to do that in front of the other family members from now on!"</p>
+<p>"It's okay to use informal speech during the day! Mom and I decided to do that in front of the other family members from now on!"</p>
 
 <p>Shiwoo spoke as if summarizing and explaining the content of the text conversation he had with Mom to Sehee.</p>
 
 <p>As if demanding that Sehee also follow the new master-slave rules that Mom and Shiwoo had set...</p>
 
-<p>"Instead, when it's just the two of us like this during the day, you can do whatever you want, Sehee~ I won't say anything."</p>
+<p>"Instead, when it's just the two of us like this during the day, you can do whatever you want, Sehee I won't say anything."</p>
 
 <p>Shiwoo additionally explained the exceptional circumstances to Sehee.</p>
 
@@ -42,11 +42,11 @@ chapter = 285
 
 <p>Shiwoo's tongue now focused its attack on Sehee's clitoris.</p>
 
-<p>"Churuup~ Chuap~! Churup! Chap! Chup!"</p>
+<p>"Churuup Chuap! Churup! Chap! Chup!"</p>
 
 <p>Shiwoo swept his tongue long and rubbing-like over the protruding nub.</p>
 
-<p>"Haa-eung~ Haa-at~ Haa-at~!!"</p>
+<p>"Haa-eung Haa-at Haa-at!!"</p>
 
 <p>Sehee's agitated moaning sound echoed as if from within the blanket.</p>
 
@@ -56,7 +56,7 @@ chapter = 285
 
 <p>Sehee's thighs, which had been spread wide, urgently wrapped around Shiwoo's head as if gripping it.</p>
 
-<p>"Haa-eut Haa-eung~ Haang~~!!"</p>
+<p>"Haa-eut Haa-eung Haang!!"</p>
 
 <p>Lubricant gushed out from Sehee's valley.</p>
 
@@ -76,11 +76,11 @@ chapter = 285
 
 <p>Sehee's pelvis intermittently bounced upwards.</p>
 
-<p>"Haeup~! Haat~! Haeut!... Haeup!..."</p>
+<p>"Haeup! Haat! Haeut!... Haeup!..."</p>
 
 <p>Each time her pelvis bounced, a shriek-like moaning sound escaped Sehee's lips.</p>
 
-<p>"Ha-eung~ Ma...Master-nim~! Heueut~ Sa...save me~!"</p>
+<p>"Ha-eung Ma...Master-nim! Heueut Sa...save me!"</p>
 
 <p>And a subservient address and a safe word, as if submitting to Shiwoo, were spewed from Sehee's mouth.</p>
 
@@ -138,7 +138,7 @@ chapter = 285
 
 <p>Shiwoo pushed his penis in, overlapping his body with Sehee's under the blanket.</p>
 
-<p>"Haa-euk~!"</p>
+<p>"Haa-euk!"</p>
 
 <p>As Shiwoo's massive and heavy penis slid deep into her vagina hole, Sehee let out a surprised moaning sound.</p>
 
@@ -152,7 +152,7 @@ chapter = 285
 
 <p>The sensation of her ample breasts and fine skin pressed against Shiwoo's body.</p>
 
-<p>"Do you remember where you got it done? Text me the shop name later~"</p>
+<p>"Do you remember where you got it done? Text me the shop name later"</p>
 
 <p>Shiwoo was asking Sehee for the name of the shop where she got the initial tattoo.</p>
 
@@ -174,7 +174,7 @@ chapter = 285
 
 <p>Sehee asked, as if confirming the matter between Shiwoo and Mom that she had learned about from Shiwoo's smartphone.</p>
 
-<p>"Ah~ On her mouth and face~ I was in a hurry in the dressing room and didn't have a condom~ I decided to punish her tonight~!"</p>
+<p>"Ah On her mouth and face I was in a hurry in the dressing room and didn't have a condom I decided to punish her tonight!"</p>
 
 <p>Shiwoo spoke to Sehee as if boasting of his achievement in repaying Mom for the humiliation he suffered this morning.</p>
 
@@ -190,11 +190,11 @@ chapter = 285
 
 <p>As he did so, Shiwoo moved the penis embedded in Sehee's vagina hole back and forth as if showing off.</p>
 
-<p>"Haat! Haa-eu... Haat~! Haa-aat~!!"</p>
+<p>"Haat! Haa-eu... Haat! Haa-aat!!"</p>
 
 <p>Sehee moaned in rhythm with Shiwoo's penis sweeping her vagina hole.</p>
 
-<p>"I'm not worried~ Haa-euh-heut... Haa-euh-euh-euh...!"</p>
+<p>"I'm not worried Haa-euh-heut... Haa-euh-euh-euh...!"</p>
 
 <p>Sehee answered, pulling Shiwoo's body into a difficult embrace with her arms and legs.</p>
 
@@ -204,7 +204,7 @@ chapter = 285
 
 <p>As if recalling the torture-not-torture she endured from Seyoung all night, Sehee's vagina hole clenched Shiwoo's penis tightly, as if biting it, while she spoke of Seyoung falling asleep suckling her nipple.</p>
 
-<p>"If it was that hard, you could've just slept in my room~ Why did you go back after cleaning my room?"</p>
+<p>"If it was that hard, you could've just slept in my room Why did you go back after cleaning my room?"</p>
 
 <p>Shiwoo asked, certain that it was Sehee who had cleaned up the traces of ejaculation Shiwoo had left in his room from masturbating early yesterday morning.</p>
 

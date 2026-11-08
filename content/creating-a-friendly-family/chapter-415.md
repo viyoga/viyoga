@@ -4,7 +4,7 @@ weight = 415
 [extra]
 chapter = 415
 +++
-<p>「I went to all the trouble of stripping you, why'd you leave your clothes there? Since you're already naked, I'm thinking of letting you go home like that~ Hehehe」</p>
+<p>「I went to all the trouble of stripping you, why'd you leave your clothes there? Since you're already naked, I'm thinking of letting you go home like that Hehehe」</p>
 
 <p>Shiwoo was teasing Mom with words that were hard to tell if they were serious or a joke, leaving her flustered.</p>
 
@@ -14,7 +14,7 @@ chapter = 415
 
 <p>「I'm not joking? Who said I was joking? Hehehe. I already finished preparing to go home and left that room, you know? Mom saw me grabbing my bag, right?</p>
 
-<p>I was just thinking about it, but seeing Mom like this, I guess I should just go home right away~! I'm going home now, so Mom can stay there for a bit and come slowly when you've calmed down~」</p>
+<p>I was just thinking about it, but seeing Mom like this, I guess I should just go home right away! I'm going home now, so Mom can stay there for a bit and come slowly when you've calmed down」</p>
 
 <p>Shiwoo spoke to Mom as if he was really about to head home, bluffing.</p>
 
@@ -24,7 +24,7 @@ chapter = 415
 
 <p>Mom frantically texted Shiwoo.</p>
 
-<p>「That's for Mom to figure out! I can't solve everything for you, can I? Anyway, I'm going home first, so be careful on your way back~ It's gonna be a bit cold walking around like that~」</p>
+<p>「That's for Mom to figure out! I can't solve everything for you, can I? Anyway, I'm going home first, so be careful on your way back It's gonna be a bit cold walking around like that」</p>
 
 <p>Shiwoo was talking to Mom as if he was really going to go back home.</p>
 
@@ -68,7 +68,7 @@ chapter = 415
 
 <p>Mom was speaking to Shiwoo with a voice that sounded like she was about to burst into tears at any moment.</p>
 
-<p>"What? Mom said everything you wanted to say, right? I thought you were done with your business, so I was just about to leave, why~?"</p>
+<p>"What? Mom said everything you wanted to say, right? I thought you were done with your business, so I was just about to leave, why?"</p>
 
 <p>Shiwoo spoke as if criticizing Mom's demands, attitude, and actions, which had been somewhat rebellious towards him.</p>
 
@@ -76,9 +76,9 @@ chapter = 415
 
 <p>Mom was saying as if she resented Shiwoo's actions of irresponsibly abandoning her after saying they would continue talking after going to the bathroom, and leaving her alone.</p>
 
-<p>"Ah~ that? I thought about it, but I didn't think Mom would listen to what I had to say even if we talked, so I decided not to."</p>
+<p>"Ah that? I thought about it, but I didn't think Mom would listen to what I had to say even if we talked, so I decided not to."</p>
 
-<p>"Uploading it to the group chat is something Mom said you didn't want, right? I thought it would be a bit much to have a petty argument with Mom about something like that~"</p>
+<p>"Uploading it to the group chat is something Mom said you didn't want, right? I thought it would be a bit much to have a petty argument with Mom about something like that"</p>
 
 <p>"Instead, it'll probably be faster to go home right now and show the videos to Sehee and Seyoung while Mom's not there and explain it to them directly. I have to tell Sehee and Seyoung about the new rules we made earlier, right?"</p>
 
@@ -86,7 +86,7 @@ chapter = 415
 
 <p>Shiwoo was provoking Mom with a sarcastic attitude, testing her.</p>
 
-<p>"Shi... Shiwoo-ya... I... I was wrong... Heueueue... I... I thought Shiwoo was going to c... consult with Mom... haaht... I won't say anything anymore... P, please~!"</p>
+<p>"Shi... Shiwoo-ya... I... I was wrong... Heueueue... I... I thought Shiwoo was going to c... consult with Mom... haaht... I won't say anything anymore... P, please!"</p>
 
 <p>Mom seemed to have realized that her humiliating appearance would inevitably be shown to her two daughters, regardless of whether Shiwoo uploaded the videos and photos he had taken of her to the group chat.</p>
 
@@ -94,7 +94,7 @@ chapter = 415
 
 <p>Shiwoo called Mom's name and spoke to her in a mocking tone.</p>
 
-<p>"Haaheuht.... Please come pick me up from where I am! M... Master-nim... I can't go home alone like this~ heueeuht... haaht!"</p>
+<p>"Haaheuht.... Please come pick me up from where I am! M... Master-nim... I can't go home alone like this heueeuht... haaht!"</p>
 
 <p>Mom was mixing honorifics and casual speech as if she was out of her mind, and was tearfully begging Shiwoo.</p>
 
@@ -132,7 +132,7 @@ chapter = 415
 
 <p>It seemed that Mom was checking the photos and videos that her son had sent.</p>
 
-<p>「Look~! Seyoung and Sua don't make crying sounds like Mom does while doing things like that~!」</p>
+<p>「Look! Seyoung and Sua don't make crying sounds like Mom does while doing things like that!」</p>
 
 <p>Shiwoo was speaking to Mom again in a text.</p>
 
@@ -152,7 +152,7 @@ chapter = 415
 
 <p>Shiwoo spent some time listening to Mom's rough breathing, as if giving her time to recover.</p>
 
-<p>"Mom~?"</p>
+<p>"Mom?"</p>
 
 <p>After some time had passed, Shiwoo carefully called Mom in a calm and friendly tone.</p>
 

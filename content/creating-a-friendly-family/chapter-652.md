@@ -4,7 +4,7 @@ weight = 652
 [extra]
 chapter = 652
 +++
-<p>"Sunju would eat it up without a word~ and Sua has already had it raw a few times, so it shouldn't matter, right? Hehe~"</p>
+<p>"Sunju would eat it up without a word and Sua has already had it raw a few times, so it shouldn't matter, right? Hehe"</p>
 
 <p>Seyeong gave Siwoo a meaningful smile, whispering as if to egg him on in the mischievous fantasy of drizzling 'special sauce' on the sushi and feeding it to Aunt Sunju and Sua.</p>
 
@@ -72,7 +72,7 @@ chapter = 652
 
 <p>Seah, the dog who had been guarding the house alone, welcomed Siwoo and the sisters happily.</p>
 
-<p>"I'll go wash up first and come out to get dinner ready, so Oppa and Sua can watch TV or go into the room and rest for a bit~ Okay?"</p>
+<p>"I'll go wash up first and come out to get dinner ready, so Oppa and Sua can watch TV or go into the room and rest for a bit Okay?"</p>
 
 <p>Seyeong spoke as she walked toward the shower after placing the sushi she was carrying on the dining table.</p>
 
@@ -84,7 +84,7 @@ chapter = 652
 
 <p>Sua asked Siwoo while looking at the items in the plastic bag.</p>
 
-<p>"Just leave it~ There's still some time before Sunju arrives."</p>
+<p>"Just leave it There's still some time before Sunju arrives."</p>
 
 <p>Siwoo spoke to Sua, intentionally mentioning Aunt Sunju's name.</p>
 
@@ -160,9 +160,9 @@ chapter = 652
 
 <p>It was likely a text the tattoo shop owner was sending using his mom's smartphone.</p>
 
-<p>[In fact, I think you can look forward to it~ Usually, people get very close after doing this~ I'll make Sunmi and Sehee inseparable before I send them home~]</p>
+<p>[In fact, I think you can look forward to it Usually, people get very close after doing this I'll make Sunmi and Sehee inseparable before I send them home]</p>
 
-<p>[They're still a bit tense with each other, but they'll get used to it soon~ Sehee is surprisingly good at leading. I think she has a talent for it~^^]</p>
+<p>[They're still a bit tense with each other, but they'll get used to it soon Sehee is surprisingly good at leading. I think she has a talent for it^^]</p>
 
 <p>It was a text from the female tattoo shop owner, explaining the delicate changes in the attitude and reactions between his mom and Sehee in a confident tone.</p>
 

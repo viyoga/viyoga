@@ -8,7 +8,7 @@ chapter = 57
 
 <p>Shiwoo meticulously licked Sehee Nuna's slippery vaginal fluid, which was soaking even her socks and flowing down, as if pushing it up with his tongue from below her calf.</p>
 
-<p>"Huum...eup..haa~ah...hak!"</p>
+<p>"Huum...eup..haaah...hak!"</p>
 
 <p>Sehee Nuna was breathing roughly, her breaths cut short, as if trying to suppress a moan.</p>
 
@@ -16,7 +16,7 @@ chapter = 57
 
 <p>The sour and salty taste of Sehee Nuna, mixed with sweat and fluid.</p>
 
-<p>"Ah..ah eup~....haaak~"</p>
+<p>"Ah..ah eup....haaak"</p>
 
 <p>Again, he heard Sehee Nuna's rough breathing, as if suppressing herself.</p>
 
@@ -26,7 +26,7 @@ chapter = 57
 
 <p>This time, Shiwoo placed his tongue on the upper part of Sehee Nuna's knee, pressed down, and then forcefully swept up along the inside of her thigh towards her crotch, as if trying to lick up all the vaginal fluid smeared on her skin.</p>
 
-<p>"Haa~ hueueum~eup!!"</p>
+<p>"Haa hueueumeup!!"</p>
 
 <p>Sehee Nuna momentarily used both hands to block her mouth, preventing the sound from leaking out.</p>
 
@@ -38,15 +38,15 @@ chapter = 57
 
 <p>And he gathered his lips and sucked strongly, as if inhaling.</p>
 
-<p>"Chuuuup~~"</p>
+<p>"Chuuuup"</p>
 
 <p>The fluid flowing down from Sehee Nuna's crotch was sucked into Shiwoo's mouth.</p>
 
-<p>"J-just a moment, what are you doing~~?"</p>
+<p>"J-just a moment, what are you doing?"</p>
 
 <p>Sehee Nuna, seemingly flustered by the sudden intense stimulation coming from just below her crotch, released her hands that were blocking her mouth and tried to push Shiwoo's head down.</p>
 
-<p>"Haa~~aaa~~!!! Aht~~...haa~~~"</p>
+<p>"Haaaaa!!! Aht...haa"</p>
 
 <p>As Sehee Nuna's hands fell from her mouth, the volume of her moaning sound seemed to increase even further.</p>
 
@@ -54,7 +54,7 @@ chapter = 57
 
 <p>Shiwoo, holding onto Sehee Nuna's buttocks and one thigh tightly with both hands to prevent being pushed away, sucked and licked the skin of her intimate area.</p>
 
-<p>"Haa~ really!! ~~It's always like this~~!! In the...in the bathroom~~......Even though I said it was my first time...I was going to go~~!?!?"</p>
+<p>"Haa really!! It's always like this!! In the...in the bathroom......Even though I said it was my first time...I was going to go!?!?"</p>
 
 <p>Sehee Nuna, leaning against the wall while wriggling her tense body slightly, was standing there, letting out a long stream of moans and complaints that were difficult to understand, as if feeling wronged.</p>
 
@@ -114,11 +114,11 @@ chapter = 57
 
 <p>Sehee Nuna shuddered momentarily at Shiwoo's words, which seemed to be declaring that he would continue what he had done next to the park bathroom in the house where Mom and Seyoung were not.</p>
 
-<p>"Haa~~"</p>
+<p>"Haa"</p>
 
 <p>Sehee Nuna, perhaps embarrassed, lowered her head deeply without answering and let out a hot sigh.</p>
 
-<p>"Just... don't be surprised~"</p>
+<p>"Just... don't be surprised"</p>
 
 <p>Shiwoo said in a quiet and gentle tone, as if trying to soothe Sehee Nuna, who was nervous.</p>
 
@@ -162,7 +162,7 @@ chapter = 57
 
 <p>A moment of silence...</p>
 
-<p>"O-Mom and Seyoung must have come back~! Did they contact you that they were coming?"</p>
+<p>"O-Mom and Seyoung must have come back! Did they contact you that they were coming?"</p>
 
 <p>Sehee Nuna spoke as if trying to deliberately put on a straight face, as if to cover up her rising excitement/arousal, shame, and awkwardness.</p>
 
@@ -198,7 +198,7 @@ chapter = 57
 
 <p>While Shiwoo was checking the shoes and trying to remember whose shoes they were, a voice came from the living room.</p>
 
-<p>"Sehee~ Shiwoo! Welcome~~ You're a little late, aren't you? I almost left without seeing you~! kikik"</p>
+<p>"Sehee Shiwoo! Welcome You're a little late, aren't you? I almost left without seeing you! kikik"</p>
 
 <p>Seonju Imo's loud and cheerful voice, sitting comfortably on the living room sofa, drinking beer and laughing.</p>
 

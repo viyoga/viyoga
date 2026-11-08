@@ -94,7 +94,7 @@ chapter = 100
 
 <p>Shiwoo stared at the chat window for a long time, then, as if making a decision, he deleted the words he had just typed and sent Mom's name in the chat window.</p>
 
-<p>'Seonmi-ya~'</p>
+<p>'Seonmi-ya'</p>
 
 <p>Shiwoo sent the text and waited for Mom's reply.</p>
 
@@ -116,7 +116,7 @@ chapter = 100
 
 <p>'I guess I have to wait until I get a job. Shiwoo, what are you doing?'</p>
 
-<p>'I was just on my way to the academy, thought of Mom, and texted to see what you were up to~'</p>
+<p>'I was just on my way to the academy, thought of Mom, and texted to see what you were up to'</p>
 
 <p>A seemingly ordinary conversation between mother and son, except for the son casually calling his mother by her name.</p>
 
@@ -126,19 +126,19 @@ chapter = 100
 
 <p>'What could have come up this morning? Shiwoo, did you oversleep again today?'</p>
 
-<p>'No~ I really did have something come up this morning~'</p>
+<p>'No I really did have something come up this morning'</p>
 
-<p>'If you're lying about oversleeping and being late, you're on your own!! Because I'll check with Sehee~!'</p>
+<p>'If you're lying about oversleeping and being late, you're on your own!! Because I'll check with Sehee!'</p>
 
 <p>Mom seemed not to have forgotten her duties as a mother, even in the humiliating situation of being called by Shiwoo's name.</p>
 
 <p>Mom's attitude subtly excited Shiwoo.</p>
 
-<p>'It's true~ Seonmi, don't you trust me?'</p>
+<p>'It's true Seonmi, don't you trust me?'</p>
 
 <p>Shiwoo replied, subtly inserting Mom's name.</p>
 
-<p>'You can't even wake up properly unless Seyoung wakes you up~ What's there to trust or not trust?!'</p>
+<p>'You can't even wake up properly unless Seyoung wakes you up What's there to trust or not trust?!'</p>
 
 <p>Mom chided Shiwoo but accepted him calling her by her name in the chat without questioning it.</p>
 
@@ -158,7 +158,7 @@ chapter = 100
 
 <p>Shiwoo spoke to Mom as if talking down to her, just as he had last night.</p>
 
-<p>'You have to go to the academy now~!!'</p>
+<p>'You have to go to the academy now!!'</p>
 
 <p>Mom tried to find an excuse to evade Shiwoo's words.</p>
 
@@ -172,7 +172,7 @@ chapter = 100
 
 <p>Shiwoo urged Mom for an answer.</p>
 
-<p>'Alright~ Do as you please!'</p>
+<p>'Alright Do as you please!'</p>
 
 <p>Mom reluctantly accepted Shiwoo's proposal again.</p>
 
@@ -186,7 +186,7 @@ chapter = 100
 
 <p>As soon as he stepped into the classroom, a lively girl's voice, as if she had been waiting, reached him.</p>
 
-<p>"Shiwoo-ya~ You're a bit late today? What were you doing, coming now?"</p>
+<p>"Shiwoo-ya You're a bit late today? What were you doing, coming now?"</p>
 
 <p>The owner of the voice was Seulgi.</p>
 
@@ -200,11 +200,11 @@ chapter = 100
 
 <p>Shiwoo recalled her unfamiliar appearance, at first not recognizing her properly due to his surprise, but remembering her captivatingly curvaceous body for an intermediate student.</p>
 
-<p>"With Sehee Nuna~?"</p>
+<p>"With Sehee Nuna?"</p>
 
 <p>Seulgi asked Shiwoo in a friendly, casual tone.</p>
 
-<p>"Huh?~ Ah... uh-huh..."</p>
+<p>"Huh? Ah... uh-huh..."</p>
 
 <p>Shiwoo replied, slightly flustered, recalling the conversations they had had while looking at the modification points yesterday.</p>
 
@@ -214,7 +214,7 @@ chapter = 100
 
 <p>Whether she had heard it directly from Sinbi Nuna or overheard their secret conversations, Shiwoo couldn't help but think so.</p>
 
-<p>"Was there anything special last night~?"</p>
+<p>"Was there anything special last night?"</p>
 
 <p>Seulgi asked about last night's events as if it were an ordinary conversation.</p>
 
@@ -248,13 +248,13 @@ chapter = 100
 
 <p>Shiwoo pulled his body back with a bewildered expression, staring at Seulgi warily.</p>
 
-<p>"Just kidding, just kidding~~ kkareureu"</p>
+<p>"Just kidding, just kidding kkareureu"</p>
 
 <p>Seulgi patted Shiwoo's arm and laughed brightly.</p>
 
 <p>Just then, the class bell rang.</p>
 
-<p>"That was fun~ Shiwoo-ya! See you later~~"</p>
+<p>"That was fun Shiwoo-ya! See you later"</p>
 
 <p>Seulgi said goodbye cheerfully and returned to her own classroom.</p>
 

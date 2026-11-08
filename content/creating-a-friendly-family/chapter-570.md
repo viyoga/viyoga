@@ -130,7 +130,7 @@ chapter = 570
 
 <p>Cheoljin's attitude was as if he was not going to press for details and was going to let it pass, mixed with cynicism, superiority, and sarcasm.</p>
 
-<p>"Well, there are many places looking for me here and there~ I must be quite popular! People just won't leave me alone~"</p>
+<p>"Well, there are many places looking for me here and there I must be quite popular! People just won't leave me alone"</p>
 
 <p>Cheoljin shrugged his shoulders and answered Shiwoo with a swaggering attitude.</p>
 
@@ -140,7 +140,7 @@ chapter = 570
 
 <p>Matching Cheoljin's familiar attitude, Shiwoo lightly dismissed him and threw a joke with a feeling of looking down on him.</p>
 
-<p>"Keke... Ah~ I have plenty of time today, so don't worry~ It's not a problem to buy it later, but are you really going to be okay with that kind of taste?"</p>
+<p>"Keke... Ah I have plenty of time today, so don't worry It's not a problem to buy it later, but are you really going to be okay with that kind of taste?"</p>
 
 <p>Cheoljin laughed as if he was dumbfounded, as if accepting Shiwoo's joke, and teased him as if worried about Shiwoo's simple taste.</p>
 
@@ -160,7 +160,7 @@ chapter = 570
 
 <p>Shiwoo reacted with a chilling sense of déjà vu from Cheoljin's playful words that seemed to have been thrown out lightly.</p>
 
-<p>"Anyway, just wait a bit~ You might have to buy the bread later!"</p>
+<p>"Anyway, just wait a bit You might have to buy the bread later!"</p>
 
 <p>Without giving Shiwoo a chance to retort, Cheoljin spoke again with a swaggering tone mixed with playfulness and provocation.</p>
 

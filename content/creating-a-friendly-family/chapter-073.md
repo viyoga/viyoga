@@ -4,7 +4,7 @@ weight = 73
 [extra]
 chapter = 73
 +++
-<p>"I'm home~~Sehee-ya!!~~!! Shiwoo~ how have you been?"</p>
+<p>"I'm homeSehee-ya!!!! Shiwoo how have you been?"</p>
 
 <p>Sinbi Nuna, as soon as she entered the house, offered a warm smile and greeted Sehee and Shiwoo.</p>
 
@@ -46,11 +46,11 @@ chapter = 73
 
 <p>Shiwoo felt a slight pang in his chest at Sehee Nuna's tenderness towards Sinbi Nuna, which he might have overlooked on any other day.</p>
 
-<p>"No, it's okay! I ate a lot~ But Mom and Seyoung really aren't here, are they?"</p>
+<p>"No, it's okay! I ate a lot But Mom and Seyoung really aren't here, are they?"</p>
 
 <p>Sinbi Nuna, setting down the bag she had carried, looked around as she spoke.</p>
 
-<p>"Yeah... Mom went to Auntie's house for a bit because of work~"</p>
+<p>"Yeah... Mom went to Auntie's house for a bit because of work"</p>
 
 <p>Shiwoo returned to his seat and answered Sinbi Nuna's words.</p>
 
@@ -64,7 +64,7 @@ chapter = 73
 
 <p>"What?"</p>
 
-<p>"That Mom wasn't here, so it must have been nice~"</p>
+<p>"That Mom wasn't here, so it must have been nice"</p>
 
 <p>"Ah... well, something like that..."</p>
 
@@ -74,9 +74,9 @@ chapter = 73
 
 <p>Sinbi Nuna spoke as if she knew Shiwoo's schedule, having apparently heard it from Sehee Nuna.</p>
 
-<p>"Ah~ yeah! I have to go right after the academy ends, so that's how it turned out~"</p>
+<p>"Ah yeah! I have to go right after the academy ends, so that's how it turned out"</p>
 
-<p>"Really? That's a shame~ It would be nice if you could hang out with us after the academy~~"</p>
+<p>"Really? That's a shame It would be nice if you could hang out with us after the academy"</p>
 
 <p>Sinbi Nuna spoke to Shiwoo as if genuinely disappointed.</p>
 
@@ -96,15 +96,15 @@ chapter = 73
 
 <p>"About what?"</p>
 
-<p>"Ah~ I guess you don't know yet~!"</p>
+<p>"Ah I guess you don't know yet!"</p>
 
 <p>Sinbi Nuna, amused by something, spoke to Shiwoo in a playful tone, as if deliberately trying to pique his curiosity.</p>
 
-<p>"No~ what don't I know?! Why is Seulgi's name suddenly coming up?! Are you plotting something behind my back again?!"</p>
+<p>"No what don't I know?! Why is Seulgi's name suddenly coming up?! Are you plotting something behind my back again?!"</p>
 
 <p>Annoyed by Sinbi Nuna's teasing tone, Shiwoo frowned and looked back and forth between Sinbi Nuna and Sehee Nuna as he spoke.</p>
 
-<p>"Heh heh~ It's nothing like that~ It wouldn't be fun if I told you beforehand~!!"</p>
+<p>"Heh heh It's nothing like that It wouldn't be fun if I told you beforehand!!"</p>
 
 <p>Sinbi Nuna spoke with a soothing smile, as if pacifying Shiwoo.</p>
 
@@ -116,7 +116,7 @@ chapter = 73
 
 <p>Shiwoo asked, prompted by a vague, ominous premonition that something was amiss.</p>
 
-<p>"Just for a few reasons~ I came to see your face, Shiwoo~!! Didn't you miss me, Shiwoo?"</p>
+<p>"Just for a few reasons I came to see your face, Shiwoo!! Didn't you miss me, Shiwoo?"</p>
 
 <p>Sinbi Nuna spoke playfully, as if she had no intention of telling him immediately this time either.</p>
 
@@ -136,7 +136,7 @@ chapter = 73
 
 <p>-Sehee Nuna seemed to have finished eating while Shiwoo and Sinbi Nuna were talking-</p>
 
-<p>"Yes~ I brought it~!!"</p>
+<p>"Yes I brought it!!"</p>
 
 <p>"Can you give it to me now?"</p>
 
@@ -144,11 +144,11 @@ chapter = 73
 
 <p>Sinbi Nuna glanced at Shiwoo, as if they were talking about something that couldn't be taken out in front of him.</p>
 
-<p>"Yeah~ give it to me now~ so I can take it right away~"</p>
+<p>"Yeah give it to me now so I can take it right away"</p>
 
 <p>Sehee Nuna spoke calmly, as if it didn't matter if Shiwoo saw.</p>
 
-<p>"Alright~ just a moment~!"</p>
+<p>"Alright just a moment!"</p>
 
 <p>Sinbi Nuna took a small, palm-sized box from the bag she was carrying and handed it to Sehee Nuna.</p>
 
@@ -156,7 +156,7 @@ chapter = 73
 
 <p>Sinbi Nuna spoke, again glancing at Shiwoo.</p>
 
-<p>"Damn it~ what is it? Are you trying to exclude me again?!"</p>
+<p>"Damn it what is it? Are you trying to exclude me again?!"</p>
 
 <p>Shiwoo spoke as if he disliked the secret conversation that only Sinbi Nuna and Sehee Nuna were sharing.</p>
 
@@ -166,7 +166,7 @@ chapter = 73
 
 <p>Then she stood up, went to the water dispenser, poured water into a cup, and drank it.</p>
 
-<p>'Ol-gak Ol-gak~!!'</p>
+<p>'Ol-gak Ol-gak!!'</p>
 
 <p>Even while saying he didn't need to know, Sehee Nuna stretched her body and tilted her head back to drink water, as if deliberately showing off to Shiwoo.</p>
 
@@ -188,25 +188,25 @@ chapter = 73
 
 <p>While Sehee Nuna was away, Shiwoo lowered his voice and secretly asked Sinbi Nuna.</p>
 
-<p>"Curious~?"</p>
+<p>"Curious?"</p>
 
 <p>Sinbi Nuna's tone and expression were still teasing Shiwoo.</p>
 
-<p>"Damn it~~ what is it?!"</p>
+<p>"Damn it what is it?!"</p>
 
 <p>Shiwoo spoke, frowning and frustrated.</p>
 
-<p>"Kkareureu~ I think you're cutest when you make that face, Shiwoo~"</p>
+<p>"Kkareureu I think you're cutest when you make that face, Shiwoo"</p>
 
 <p>Sinbi Nuna was teasing Shiwoo again.</p>
 
-<p>"Stop messing around~ Sinbi Nuna!! I'm really serious right now~!!"</p>
+<p>"Stop messing around Sinbi Nuna!! I'm really serious right now!!"</p>
 
 <p>Shiwoo's voice, distorted and pleading in his desperation.</p>
 
 <p>Sinbi Nuna wore a troubled, thoughtful expression at Shiwoo's plea.</p>
 
-<p>"Hmm~~ Sehee doesn't seem to be trying to hide it, so I guess I could tell you~"</p>
+<p>"Hmm Sehee doesn't seem to be trying to hide it, so I guess I could tell you"</p>
 
 <p>Sinbi Nuna spoke as if pausing and stalling for time.</p>
 
@@ -214,7 +214,7 @@ chapter = 73
 
 <p>Shiwoo urged her, wanting an answer before his Nuna came back down.</p>
 
-<p>"Well, what should I do? Will it be okay~?"</p>
+<p>"Well, what should I do? Will it be okay?"</p>
 
 <p>Sinbi Nuna continued to speak annoyingly, as if teasing Shiwoo.</p>
 
@@ -224,7 +224,7 @@ chapter = 73
 
 <p>Sinbi Nuna stared at Shiwoo for a while, as if amused, then spoke.</p>
 
-<p>"Funny~!! What kind of relationship do we have?"</p>
+<p>"Funny!! What kind of relationship do we have?"</p>
 
 <p>Sinbi Nuna's words pierced his chest, making him feel hurt.</p>
 
@@ -232,15 +232,15 @@ chapter = 73
 
 <p>The awareness of Sinbi Nuna as a romantic rival for Sehee Nuna had vanished, and Shiwoo spoke to Sinbi Nuna as if whining.</p>
 
-<p>"Haha~~ Alright, alright~~ It was a joke!! Why are you getting so upset~?"</p>
+<p>"Haha Alright, alright It was a joke!! Why are you getting so upset?"</p>
 
 <p>Sinbi Nuna, seemingly pleased with the reaction she had finally elicited from Shiwoo, smiled contentedly and soothed him.</p>
 
-<p>"Then~ I'll tell you, but in return, can you grant me one favor?"</p>
+<p>"Then I'll tell you, but in return, can you grant me one favor?"</p>
 
 <p>"What favor?"</p>
 
-<p>"If you promise to grant it, I'll tell you later~"</p>
+<p>"If you promise to grant it, I'll tell you later"</p>
 
 <p>Sinbi Nuna suddenly proposed a deal.</p>
 
@@ -248,11 +248,11 @@ chapter = 73
 
 <p>Shiwoo began to grow wary again, looking worried.</p>
 
-<p>"It's nothing strange~~ You'll probably even thank me later once you know?"</p>
+<p>"It's nothing strange You'll probably even thank me later once you know?"</p>
 
 <p>At Sinbi Nuna's words, Shiwoo seemed to ponder for a moment before answering.</p>
 
-<p>"Okay... alright... if it's something I can grant, I will~"</p>
+<p>"Okay... alright... if it's something I can grant, I will"</p>
 
 <p>Shiwoo added a meaningless caveat.</p>
 
@@ -264,6 +264,6 @@ chapter = 73
 
 <p>Shiwoo felt his mind go blank.</p>
 
-<p>"You really have to keep it a secret this time~!!?"</p>
+<p>"You really have to keep it a secret this time!!?"</p>
 
 <p>Sinbi Nuna's words echoed in Shiwoo's ears like an aftersound.</p>

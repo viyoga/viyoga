@@ -122,7 +122,7 @@ chapter = 718
 
 <p>Without missing her reaction, Shiwoo dug into the hole strongly once more, pouring out a pressure that even snatched away her consciousness.</p>
 
-<p>"Ha-heu-eut Ju... Juin-nim~! Jeo... ha-ang... ha-a... heu-eu-eung.... heu-eu.... heu-eut... heu-eu-eu-eu... eu-eu..."</p>
+<p>"Ha-heu-eut Ju... Juin-nim! Jeo... ha-ang... ha-a... heu-eu-eung.... heu-eu.... heu-eut... heu-eu-eu-eu... eu-eu..."</p>
 
 <p>Seonju-imo's crumbling body was now shaking as if collapsing, becoming limp as if she could no longer control herself. She had lost consciousness and let herself go, shaking helplessly and defenselessly under Shiwoo's pounding.</p>
 

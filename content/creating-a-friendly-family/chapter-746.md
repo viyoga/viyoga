@@ -24,7 +24,7 @@ chapter = 746
 
 <p>A playful smirk spread across Shiwoo's face as he watched Mom's embarrassment.</p>
 
-<p>"Certainly~ I'll recommend a sweet white wine, a Moscato sparkling."</p>
+<p>"Certainly I'll recommend a sweet white wine, a Moscato sparkling."</p>
 
 <p>"If you have a schedule after your meal, a light and low-alcohol white Moscato would be an excellent choice."</p>
 
@@ -32,7 +32,7 @@ chapter = 746
 
 <p>The waitress spoke with a smile, seemingly not caring much about the titles while confirming Mom's wine order.</p>
 
-<p>"Yeah~ the price is fine! Give us that one."</p>
+<p>"Yeah the price is fine! Give us that one."</p>
 
 <p>Shiwoo answered the waitress immediately on Mom's behalf.</p>
 
@@ -46,7 +46,7 @@ chapter = 746
 
 <p>Shiwoo nodded and finished the order with a good mood.</p>
 
-<p>"I'll bring the drinks out right away then~"</p>
+<p>"I'll bring the drinks out right away then"</p>
 
 <p>The waitress gave another polite bow and turned back toward the hall with an elegant stride.</p>
 
@@ -58,7 +58,7 @@ chapter = 746
 
 <p>Mom spoke as if she were flabbergasted, glaring at Shiwoo fiercely.</p>
 
-<p>"Huh? What's the matter~?"</p>
+<p>"Huh? What's the matter?"</p>
 
 <p>Shiwoo laughed nonchalantly, reacting shamelessly as if he were completely unaware of what he had just done.</p>
 
@@ -70,7 +70,7 @@ chapter = 746
 
 <p>Soon, Mom gave a long sigh as if she had given up, shaking her head...</p>
 
-<p>"Why? Are you worried that waitress will think we're weird? She'll probably just think I'm a son who calls his mother by her name to be friendly or some shit~"</p>
+<p>"Why? Are you worried that waitress will think we're weird? She'll probably just think I'm a son who calls his mother by her name to be friendly or some shit"</p>
 
 <p>"Or maybe she'll think we're an affair couple clumsily pretending to be mother and son..."</p>
 
@@ -78,7 +78,7 @@ chapter = 746
 
 <p>Shiwoo brushed it off with an irritatingly calm tone, teasing Mom to put her at ease.</p>
 
-<p>"Haaaaaaaah~"</p>
+<p>"Haaaaaaaah"</p>
 
 <p>Mom glanced up at Shiwoo without responding and let out another deep, heavy sigh.</p>
 
@@ -96,7 +96,7 @@ chapter = 746
 
 <p>Mom gave an awkward, sulky excuse, glossing over the matter.</p>
 
-<p>"Is that so~? Then if you keep wearing the egg-shaped vibrator and the tail-shaped anal plug, will that become a habit too?"</p>
+<p>"Is that so? Then if you keep wearing the egg-shaped vibrator and the tail-shaped anal plug, will that become a habit too?"</p>
 
 <p>"We're going to the tattoo shop later to make a dildo molded from my cock, right? If you keep that in all day and make it a habit, won't you be in real trouble later, Seonmi?"</p>
 
@@ -112,7 +112,7 @@ chapter = 746
 
 <p>When she heard the waitress approaching, she immediately released her lip and looked up, staring straight ahead as if nothing had happened.</p>
 
-<p>"I'll prepare the white wine you ordered~"</p>
+<p>"I'll prepare the white wine you ordered"</p>
 
 <p>She spoke while placing the glasses and wine on the table.</p>
 
@@ -128,7 +128,7 @@ chapter = 746
 
 <p>Once she was gone, Mom immediately picked up the glass and began to gulp it down with her eyes shut tight.</p>
 
-<p>"Haaaaaaaah~"</p>
+<p>"Haaaaaaaah"</p>
 
 <p>Mom set the glass down after a long exhale, as if she were vomiting out something that had built up inside her.</p>
 

@@ -86,17 +86,17 @@ chapter = 399
 
 <p>In a tone mixed with annoyance, Mom was speaking to Shiwoo.</p>
 
-<p>「Alright~ alright~ But why have you been so annoyed with me since earlier~?」</p>
+<p>「Alright alright But why have you been so annoyed with me since earlier?」</p>
 
 <p>Shiwoo spoke to Mom as if unjustly accused.</p>
 
 <p>For a moment, Mom turned her head back and glared at Shiwoo.</p>
 
-<p>「I just need to heat this up for about 5 minutes, right~?」</p>
+<p>「I just need to heat this up for about 5 minutes, right?」</p>
 
 <p>As if avoiding Mom's gaze, Shiwoo spoke slyly, holding the pizza, and left for the karaoke room's main hall.</p>
 
-<p>「Heu-yu~!」</p>
+<p>「Heu-yu!」</p>
 
 <p>From behind Shiwoo as he left the room, a suppressed, hot sigh from Mom could be heard.</p>
 
@@ -178,7 +178,7 @@ chapter = 399
 
 <p>While Shiwoo was out, Mom had opened her second can of beer and was gulping it down.</p>
 
-<p>「You could have eaten it with the pizza~ What's the rush?」</p>
+<p>「You could have eaten it with the pizza What's the rush?」</p>
 
 <p>On the table, placing the pizza he had just heated, Shiwoo spoke in an innocent tone.</p>
 

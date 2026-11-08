@@ -6,7 +6,7 @@ chapter = 454
 +++
 <p>The vaginal fluid and filth smeared on penis were being applied to Sehee Nuna's lips.</p>
 
-<p>,How can I wear it? Just put it on~ You were practically wearing just that while coming home earlier, right? Seonmi, don't you remember? Should we go out for a walk again? This time, should we put a proper leash on you and go far away?"</p>
+<p>,How can I wear it? Just put it on You were practically wearing just that while coming home earlier, right? Seonmi, don't you remember? Should we go out for a walk again? This time, should we put a proper leash on you and go far away?"</p>
 
 <p>Shiwoo speaks as if reminding Mom of the time when she returned home wearing only a bikini swimsuit and a cardigan.</p>
 
@@ -76,7 +76,7 @@ chapter = 454
 
 <p>Shiwoo finds Mom's contradictory attitude and tendencies really annoying and hateful, but on the other hand, it makes Shiwoo's mood very satisfied and excited.</p>
 
-<p>,Why can't you go out~? Seyoung always takes off all her underwear when she breastfeeds and sleeps, right? And if I let you wear underwear at home, you should be grateful to me, so what are you so dissatisfied about?"</p>
+<p>,Why can't you go out? Seyoung always takes off all her underwear when she breastfeeds and sleeps, right? And if I let you wear underwear at home, you should be grateful to me, so what are you so dissatisfied about?"</p>
 
 <p>Shiwoo speaks in a brazen tone, teasing Mom.</p>
 
@@ -174,7 +174,7 @@ chapter = 454
 
 <p>The number next to the photo uploaded to the chat window disappears almost immediately.</p>
 
-<p>,You have to say it clearly for me to know, Mom~ It's annoying, so should we just take off all our clothes and have dinner? Sehee and I just have to go downstairs in this state..."</p>
+<p>,You have to say it clearly for me to know, Mom It's annoying, so should we just take off all our clothes and have dinner? Sehee and I just have to go downstairs in this state..."</p>
 
 <p>As soon as Shiwoo confirms that Mom is looking at the photo he sent, he speaks to her as if teasing her.</p>
 

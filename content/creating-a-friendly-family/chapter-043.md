@@ -52,7 +52,7 @@ chapter = 43
 
 <p>'Really?'</p>
 
-<p>'Yeah~ It was a little awkward at first, but now it's getting easier. Since I can't see your face, I can share my inner thoughts with my son like a friend.'</p>
+<p>'Yeah It was a little awkward at first, but now it's getting easier. Since I can't see your face, I can share my inner thoughts with my son like a friend.'</p>
 
 <p>A conversation with Mom that might not have much meaning between a typical mother and son.</p>
 
@@ -78,7 +78,7 @@ chapter = 43
 
 <p>Mom asked, wondering if she had said something wrong.</p>
 
-<p>'No, I'm just happy~ But then, can I save Mom's number as</p>
+<p>'No, I'm just happy But then, can I save Mom's number as</p>
 
 <p>"Girlfriend"</p>
 
@@ -98,7 +98,7 @@ chapter = 43
 
 <p>Mom seemed to be taking Shiwoo's words more seriously than expected, given that he said he was serious.</p>
 
-<p>'They wouldn't know even if they saw it~ Or should I write</p>
+<p>'They wouldn't know even if they saw it Or should I write</p>
 
 <p>"Seonmi"</p>
 
@@ -110,7 +110,7 @@ chapter = 43
 
 <p>Eventually, Mom replied as if she was a little angry.</p>
 
-<p>'Okay, okay~ Hehe. Mom's reaction is cute when I tease you like this.'</p>
+<p>'Okay, okay Hehe. Mom's reaction is cute when I tease you like this.'</p>
 
 <p>Through the conversation with Mom this morning, Shiwoo realized that Mom's true feelings were very different from her outwardly visible reactions.</p>
 
@@ -126,7 +126,7 @@ chapter = 43
 
 <p>Shiwoo nonchalantly started talking to Mom again via text.</p>
 
-<p>'Good excuse~ Tell Sehee to stop snacking with her friends all the time.'</p>
+<p>'Good excuse Tell Sehee to stop snacking with her friends all the time.'</p>
 
 <p>Another conversation with Mom disguised as everyday life began.</p>
 
@@ -146,7 +146,7 @@ chapter = 43
 
 <p>Shiwoo was texting as if he was introducing his girlfriend to Mom and showing her off for some reason.</p>
 
-<p>'She's pretty~ But isn't she showing too much of her chest? Is she like that outside too?'</p>
+<p>'She's pretty But isn't she showing too much of her chest? Is she like that outside too?'</p>
 
 <p>Mom seemed worried about Sehee Nuna and asked Shiwoo about Sehee Nuna's state.</p>
 
@@ -160,7 +160,7 @@ chapter = 43
 
 <p>Shiwoo asked, provoking Mom.</p>
 
-<p>'Ha~ Why would Mom be jealous of her daughter? Seriously.'</p>
+<p>'Ha Why would Mom be jealous of her daughter? Seriously.'</p>
 
 <p>Mom replied, sounding dumbfounded.</p>
 

@@ -16,7 +16,7 @@ chapter = 123
 
 <p>Shiwoo called out to Seonju Imo as if checking the connection status.</p>
 
-<p>"Yes, Honey~ I'm listening. I think I'm incredibly wet right now. Did you cum inside Sehee twice?"</p>
+<p>"Yes, Honey I'm listening. I think I'm incredibly wet right now. Did you cum inside Sehee twice?"</p>
 
 <p>Seonju Imo asked Shiwoo as if confirming that she hadn't missed a single sound of the lewd copulation created by the siblings.</p>
 
@@ -24,7 +24,7 @@ chapter = 123
 
 <p>Shiwoo was saying to Seonju Imo with a smug feeling.</p>
 
-<p>"Really? Just thinking about putting your thing inside me makes my insides ache already~ What if I really get pregnant then?"</p>
+<p>"Really? Just thinking about putting your thing inside me makes my insides ache already What if I really get pregnant then?"</p>
 
 <p>Seonju Imo's excited voice.</p>
 
@@ -42,23 +42,23 @@ chapter = 123
 
 <p>"Oh? But what kind of date?"</p>
 
-<p>"To get some medicine. Sehee must have been tormented by you all night, so she must be out of her mind~ Also to give her a change of pace. Is that okay?"</p>
+<p>"To get some medicine. Sehee must have been tormented by you all night, so she must be out of her mind Also to give her a change of pace. Is that okay?"</p>
 
 <p>"Ah... well, I don't care, but what are you going to tell Mom to come out?"</p>
 
 <p>Shiwoo was asking to confirm the events with Seonju Imo tonight without any changes.</p>
 
-<p>"Hmm~? Should I get Unni's permission to date you~?"</p>
+<p>"Hmm? Should I get Unni's permission to date you?"</p>
 
 <p>Seonju Imo making a joke that didn't sound like a joke, with a playful tone.</p>
 
 <p>"Wh-What are you talking about!?" Shiwoo exclaimed as if flustered.</p>
 
-<p>"Just kidding, just kidding~ Kikik. You told me to pretend I don't know anything to Unni, right?"</p>
+<p>"Just kidding, just kidding Kikik. You told me to pretend I don't know anything to Unni, right?"</p>
 
 <p>Seonju Imo was speaking as if remembering Shiwoo's instructions from the previous day.</p>
 
-<p>"Don't worry~ Honey. I'll tell Unni I'm late because of work, so I'll come out. Is there anything you want for dinner? I'll buy it on the way in with Sehee~"</p>
+<p>"Don't worry Honey. I'll tell Unni I'm late because of work, so I'll come out. Is there anything you want for dinner? I'll buy it on the way in with Sehee"</p>
 
 <p>Following that, Seonju Imo was reassuring Shiwoo and having him choose the dinner menu. Shiwoo ordered the chicken porridge he had eaten the previous day from Seonju Imo. Shiwoo had been slightly uncomfortable with Seonju Imo's playful joke, but imagining Seonju Imo scooping up his semen, sprinkled on the chicken porridge, with a spoon and eating it along with the porridge, he suppressed his excitement and brushed off Seonju Imo's joke.</p>
 
@@ -76,11 +76,11 @@ chapter = 123
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo-ya, wake up~ We need to get up now if we're going to wash."</p>
+<p>"Shiwoo-ya, wake up We need to get up now if we're going to wash."</p>
 
 <p>Sehee Nuna was lying beneath Shiwoo's body, with his genitals still inside her. Shiwoo's eyes opened with a refreshed feeling at Sehee Nuna's slightly tired, languid voice. Sehee Nuna's soft and warm skin sensation clung to Shiwoo's entire body anew. Looking at the wall clock, it was a tight schedule for them to wash separately and leave. -Ssug-geok Ssug-geok Peok! As soon as he woke up, Shiwoo thrust his hips strongly two or three times, as if confirming the sensation and presence of his thing inside Sehee Nuna's body, piston-like.</p>
 
-<p>"Haaah~ Haak Haaat"</p>
+<p>"Haaah Haak Haaat"</p>
 
 <p>Sehee Nuna's sensitive body was twisting, not knowing what to do.</p>
 
@@ -122,9 +122,9 @@ chapter = 123
 
 <p>"Wh-What are you doing all of a sudden!?" Sehee Nuna spoke as if displeased with Shiwoo's actions.</p>
 
-<p>"Well, I thought it might flow out better like this~ Since you're wearing a sanitary pad anyway. Hehehe" Shiwoo laughed pervertedly, speaking as if teasing Sehee Nuna.</p>
+<p>"Well, I thought it might flow out better like this Since you're wearing a sanitary pad anyway. Hehehe" Shiwoo laughed pervertedly, speaking as if teasing Sehee Nuna.</p>
 
-<p>"Aish, really~ Why are you suddenly doing such a thing!?"</p>
+<p>"Aish, really Why are you suddenly doing such a thing!?"</p>
 
 <p>Sehee Nuna, seemingly embarrassed, spoke to Shiwoo, squeezing out a tiny voice.</p>
 
@@ -136,6 +136,6 @@ chapter = 123
 
 <p>"Pregnancy! Hihi" Shiwoo said, smiling with a happy expression.</p>
 
-<p>"Oh... I'm taking medicine today, so how could that happen?! You idiot~! Why are you even saying such things? Really!"</p>
+<p>"Oh... I'm taking medicine today, so how could that happen?! You idiot! Why are you even saying such things? Really!"</p>
 
 <p>Sehee Nuna spoke, her flushed face turning even redder, like a traffic light's red signal. Shiwoo found Sehee Nuna, shyly holding his semen inside her body, incredibly lovely. Shiwoo pushed Sehee Nuna against the wall and kissed her as she was. Shiwoo rubbed his erect thing against Sehee Nuna's belly and groin, mixing his saliva into Sehee Nuna's mouth. The gazes of those around them no longer mattered. Shiwoo felt as if Sehee Nuna had now become his partner.</p>

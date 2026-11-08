@@ -4,11 +4,11 @@ weight = 275
 [extra]
 chapter = 275
 +++
-<p>"Oppa~ Did you sleep well? The food's almost ready~ Just wait a little bit, hehe~"</p>
+<p>"Oppa Did you sleep well? The food's almost ready Just wait a little bit, hehe"</p>
 
 <p>Seyoung greeted Shiwoo with a bright voice, just like always, turning to look at him.</p>
 
-<p>"Shiwoo, you're up early~? I was going to go up to wake you when the food was ready~"</p>
+<p>"Shiwoo, you're up early? I was going to go up to wake you when the food was ready"</p>
 
 <p>Mom also turned around, glancing at Shiwoo's face as she matched her words to the greeting between Shiwoo and Seyoung.</p>
 
@@ -22,15 +22,15 @@ chapter = 275
 
 <p>Imagining the lewd phrases Shiwoo had written remaining beneath her gray top and purple skirt made Shiwoo's penis swell as if it would burst.</p>
 
-<p>"Where's Sehee Unni~? Is she still asleep?"</p>
+<p>"Where's Sehee Unni? Is she still asleep?"</p>
 
 <p>Seyoung smiled brightly as she asked Shiwoo, who was approaching the kitchen with his penis fully erect.</p>
 
-<p>"Sehee? Yeah~ I just went to check on her, and she was still sleeping~!"</p>
+<p>"Sehee? Yeah I just went to check on her, and she was still sleeping!"</p>
 
 <p>Shiwoo answered Seyoung's question with a smile on his face.</p>
 
-<p>"I was going to wake her, but I thought it might be a little noisy, so I just left her alone~ Mom~"</p>
+<p>"I was going to wake her, but I thought it might be a little noisy, so I just left her alone Mom"</p>
 
 <p>Shiwoo deliberately turned his head towards Mom and made a sexually charged joke.</p>
 
@@ -40,7 +40,7 @@ chapter = 275
 
 <p class="scene-break">· · ·</p>
 
-<p>"Ah, that's right~! Oppa, have you seen my smartphone by any chance?"</p>
+<p>"Ah, that's right! Oppa, have you seen my smartphone by any chance?"</p>
 
 <p>Seyoung asked Shiwoo about the whereabouts of her smartphone, as if she had suddenly remembered.</p>
 
@@ -48,7 +48,7 @@ chapter = 275
 
 <p>Shiwoo looked at Seyoung with a questioning gaze as she searched for her smartphone.</p>
 
-<p>"Yeah, I'm sure I left it in my room~ But it wasn't there when I looked this morning~ I thought I might have left it somewhere else~ Have you seen it by any chance?"</p>
+<p>"Yeah, I'm sure I left it in my room But it wasn't there when I looked this morning I thought I might have left it somewhere else Have you seen it by any chance?"</p>
 
 <p>Seyoung was looking at Shiwoo with an expectant look in her eyes.</p>
 
@@ -60,11 +60,11 @@ chapter = 275
 
 <p>Mom had probably hidden Seyoung's smartphone before Seyoung woke up and saw the photos Shiwoo had sent.</p>
 
-<p>"Hmm? I don't think I've seen it? Do we have a thief in our house~? That can't be right~~ Hehe~"</p>
+<p>"Hmm? I don't think I've seen it? Do we have a thief in our house? That can't be right Hehe"</p>
 
 <p>Shiwoo said in a nonchalant tone, as if mocking Mom's actions for her to hear.</p>
 
-<p>"W...Well, Mom said she'd look for it~! If it's gone, you can just buy a new one~!"</p>
+<p>"W...Well, Mom said she'd look for it! If it's gone, you can just buy a new one!"</p>
 
 <p>Mom answered, trying to soothe Seyoung as if she was flustered by Shiwoo's words.</p>
 
@@ -72,7 +72,7 @@ chapter = 275
 
 <p>Seyoung replied to Mom's words as if she was feeling a little sad.</p>
 
-<p>"If it's in the house, Mom will find it for you later~ Don't worry too much~ Seyoung-ah~!"</p>
+<p>"If it's in the house, Mom will find it for you later Don't worry too much Seyoung-ah!"</p>
 
 <p>Shiwoo said, trying to comfort Seyoung.</p>
 
@@ -86,43 +86,43 @@ chapter = 275
 
 <p class="scene-break">· · ·</p>
 
-<p>"Smells good~ What were you making?"</p>
+<p>"Smells good What were you making?"</p>
 
 <p>Shiwoo approached Mom, who was near the gas stove, and asked her with a curious tone.</p>
 
-<p>"Yeah! I'm making rolled omelet and egg drop soup~! All things that Oppa likes~! I'm making the rolled omelet~!"</p>
+<p>"Yeah! I'm making rolled omelet and egg drop soup! All things that Oppa likes! I'm making the rolled omelet!"</p>
 
 <p>Seyoung cut in and answered the question that Shiwoo had asked Mom, as if intercepting it.</p>
 
-<p>"Oh~ Sounds delicious~ Did you learn how to make rolled omelet from Mom?"</p>
+<p>"Oh Sounds delicious Did you learn how to make rolled omelet from Mom?"</p>
 
 <p>Shiwoo said, looking at Seyoung, who was cooking next to Mom.</p>
 
-<p>"Yeah! I learned it from Mom to make it for Oppa~! Sausage rolled omelet~!!"</p>
+<p>"Yeah! I learned it from Mom to make it for Oppa! Sausage rolled omelet!!"</p>
 
 <p>Seyoung stopped stirring the egg mixture with the spoon and held out the bowl, as if showing Shiwoo the contents.</p>
 
-<p>"Oh, I see~ So it has sausage and vegetables in it~? Sounds delicious~ You did a good job~ Seyoung can get married now as long as she has a man~!"</p>
+<p>"Oh, I see So it has sausage and vegetables in it? Sounds delicious You did a good job Seyoung can get married now as long as she has a man!"</p>
 
 <p>Shiwoo stroked Seyoung's hair, praising her as if he was proud of her.</p>
 
-<p>"Really~? I feel so good when Oppa praises me like that~ Hehe"</p>
+<p>"Really? I feel so good when Oppa praises me like that Hehe"</p>
 
 <p>Seyoung answered with a languid voice, like when Shiwoo had caressed her side last night.</p>
 
-<p>"Be a pretty and obedient wife like Mom~!! Got it?!"</p>
+<p>"Be a pretty and obedient wife like Mom!! Got it?!"</p>
 
 <p>Shiwoo made a joke as if he was conscious of Mom, who had called him 'Yeobo' during sex last night.</p>
 
-<p>"Yeah~ I will~ Like Mom~ Hehe~"</p>
+<p>"Yeah I will Like Mom Hehe"</p>
 
 <p>Seyoung answered as if she was simply happy with the praise Shiwoo was giving her.</p>
 
-<p>"I haven't seen that dress before? It looks so cute on Seyoung~ When did you buy it~?"</p>
+<p>"I haven't seen that dress before? It looks so cute on Seyoung When did you buy it?"</p>
 
 <p>Shiwoo looked at Seyoung's sleeveless dress, which he was seeing for the first time, and spoke as if he was subtly flirting with his younger sister.</p>
 
-<p>"Seonju Imo bought it for me~ Last week~ Isn't it pretty~?"</p>
+<p>"Seonju Imo bought it for me Last week Isn't it pretty?"</p>
 
 <p>Seyoung put down the bowl and spoon filled with egg mixture and answered Shiwoo's question, twirling her body around as if showing off her dress.</p>
 
@@ -132,7 +132,7 @@ chapter = 275
 
 <p>Shiwoo said, gently pulling on the sleeveless strap that was tied in a ribbon shape on one of Seyoung's shoulders with his hand.</p>
 
-<p>"Yeah~ It comes undone if you pull it~ You can also adjust the length~"</p>
+<p>"Yeah It comes undone if you pull it You can also adjust the length"</p>
 
 <p>Seyoung answered Shiwoo's question with a bright smile, without particularly resisting what Shiwoo was doing.</p>
 
@@ -150,7 +150,7 @@ chapter = 275
 
 <p>Shiwoo said, looking at Seyoung's exposed skin as if he was amazed.</p>
 
-<p>Seyoung didn't try to cover the bare skin that had been exposed by Shiwoo, and she looked up at Shiwoo like a puppy, smiling with her mouth open in a 'hehe~' shape.</p>
+<p>Seyoung didn't try to cover the bare skin that had been exposed by Shiwoo, and she looked up at Shiwoo like a puppy, smiling with her mouth open in a 'hehe' shape.</p>
 
 <p>She looked like a pet that had sworn obedience to its owner.</p>
 
@@ -162,7 +162,7 @@ chapter = 275
 
 <p>Shiwoo stared blatantly at Seyoung's growing breasts and pink nipples and stroked her hair.</p>
 
-<p>"Hehe~ I feel good~"</p>
+<p>"Hehe I feel good"</p>
 
 <p>Seyoung tilted her head forward as if asking for more strokes and moved her head in time with Shiwoo's touch.</p>
 
@@ -176,7 +176,7 @@ chapter = 275
 
 <p>At that moment, Mom urgently called Seyoung's name from the side.</p>
 
-<p>"Yeah? Why? Mom~?"</p>
+<p>"Yeah? Why? Mom?"</p>
 
 <p>Seyoung nonchalantly turned her chest and nipples, which were exposed with the shoulder strap undone, towards Mom as she answered.</p>
 
@@ -186,7 +186,7 @@ chapter = 275
 
 <p>There was no mention of the sleeveless dress strap that Shiwoo had undone.</p>
 
-<p>"Okay~ Mom~ You mean the cut green onions and carrots~?"</p>
+<p>"Okay Mom You mean the cut green onions and carrots?"</p>
 
 <p>Seyoung walked towards the refrigerator without a care in the world, with one of her breasts still exposed.</p>
 
@@ -210,11 +210,11 @@ chapter = 275
 
 <p>Mom kept looking towards the refrigerator door, worried that Seyoung might catch her.</p>
 
-<p>"S...Shiwoo-ya...I...I'll call you when the food's ready~"</p>
+<p>"S...Shiwoo-ya...I...I'll call you when the food's ready"</p>
 
 <p>Mom was speaking in a flustered voice.</p>
 
-<p>"Isn't there anything I can help with~?"</p>
+<p>"Isn't there anything I can help with?"</p>
 
 <p>Shiwoo ignored Mom's words and brought his body close to Mom's.</p>
 

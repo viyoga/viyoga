@@ -102,7 +102,7 @@ chapter = 730
 
 <p>Shiwoo leaned toward Seulgi, pouring out his resentment and twisted emotions, speaking with ragged breath.</p>
 
-<p>"Heu-eu... heu-eu-eung~ heu-eu-eu-eut... Shi... Shiwoo-ya..."</p>
+<p>"Heu-eu... heu-eu-eung heu-eu-eu-eut... Shi... Shiwoo-ya..."</p>
 
 <p>Seulgi moaned, breathing heavily at the heavy stimulation and pulsation rising from below.</p>
 
@@ -146,7 +146,7 @@ chapter = 730
 
 <p>Shiwoo asked Seulgi in a voice mixed with a bit of surprise and guilt.</p>
 
-<p>"Haa... You just realized that now~? I told you!"</p>
+<p>"Haa... You just realized that now? I told you!"</p>
 
 <p>Seulgi replied to Shiwoo as if forcing a hollow, bitter smile.</p>
 

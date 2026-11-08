@@ -80,7 +80,7 @@ chapter = 5
 
 <p>As he was having such thoughts, Shiwoo's door suddenly swung open with a deolkeok.</p>
 
-<p>"Oppa, it's morning, wake up~ You need to eat and go to school~"</p>
+<p>"Oppa, it's morning, wake up You need to eat and go to school"</p>
 
 <p>Seyoung's bright voice could be heard.</p>
 
@@ -88,7 +88,7 @@ chapter = 5
 
 <p>Seyoung, whether she saw Shiwoo's enormous 'thing' or not, was approaching him directly.</p>
 
-<p>"Oppa~ Oppa?"</p>
+<p>"Oppa Oppa?"</p>
 
 <p>Seyoung gently shook Shiwoo's shoulder and chest with both hands.</p>
 
@@ -116,7 +116,7 @@ chapter = 5
 
 <p>As he was thinking that, Seyoung straightened up and spoke brightly, as usual.</p>
 
-<p>"Oppa, you have to get up~ I'll come back in 10 minutes, and if you're still sleeping, I'll torment you again like yesterday~~ Got it?"</p>
+<p>"Oppa, you have to get up I'll come back in 10 minutes, and if you're still sleeping, I'll torment you again like yesterday Got it?"</p>
 
 <p>After saying that, Seyoung soon left the room.</p>
 
@@ -140,7 +140,7 @@ chapter = 5
 
 <p>Shiwoo, seemingly conscious of Seyoung, spoke to Mom, strongly implying that he had no recollection of Seyoung coming to wake him earlier.</p>
 
-<p>"Oppa, welcome~~ Hehe, today's side dish is jangjorim, your favorite."</p>
+<p>"Oppa, welcome Hehe, today's side dish is jangjorim, your favorite."</p>
 
 <p>Seyoung also greeted Shiwoo as usual.</p>
 
@@ -150,7 +150,7 @@ chapter = 5
 
 <p>Shiwoo also feigned nonchalance to appear unaffected, responding to Seyoung's words.</p>
 
-<p>"Yeah, I'm learning to cook a little from Mom~ I'll make lots of dishes you like later, Oppa~"</p>
+<p>"Yeah, I'm learning to cook a little from Mom I'll make lots of dishes you like later, Oppa"</p>
 
 <p>Seyoung said something admirable again.</p>
 
@@ -174,7 +174,7 @@ chapter = 5
 
 <p>Seyoung praised Sehee-nim upon seeing her.</p>
 
-<p>"Thanks~ Seyoung, you really know a bit about fashion, don't you?"</p>
+<p>"Thanks Seyoung, you really know a bit about fashion, don't you?"</p>
 
 <p>Sehee-nim smiled contentedly, happily accepting Seyoung's compliment.</p>
 
@@ -230,13 +230,13 @@ chapter = 5
 
 <p>Mom, who had already finished serving the rice and returned to her seat, approached Shiwoo, placed a hand on his shoulder, and spoke worriedly.</p>
 
-<p>"No~ Sehee-nim just said something weird."</p>
+<p>"No Sehee-nim just said something weird."</p>
 
 <p>Shiwoo pulled his chair even closer to the table, trying to hide his erection from Mom, and said.</p>
 
 <p>"Ah, damn it! Sehee-nim, stop picking fights for no reason!"</p>
 
-<p>"Haaah~"</p>
+<p>"Haaah"</p>
 
 <p>Sehee-nim stretched, then deliberately clasped her hands behind her head and exaggeratedly rotated her arms to stretch, making her breasts protrude.</p>
 
@@ -252,7 +252,7 @@ chapter = 5
 
 <p>"Hahaha!! You know you're hilarious right now, don't you? You shouldn't have sassed me from the start!"</p>
 
-<p>"What are you two doing first thing in the morning? Sehee, stop tormenting your brother! Shiwoo, eat your rice quickly! Sehee, you need to change your clothes after you finish eating~ You have to get ready for cram school!"</p>
+<p>"What are you two doing first thing in the morning? Sehee, stop tormenting your brother! Shiwoo, eat your rice quickly! Sehee, you need to change your clothes after you finish eating You have to get ready for cram school!"</p>
 
 <p>Perhaps feeling sorry for Shiwoo, who was being subjected to strange teasing from Sehee-nim, Mom intervened to mediate.</p>
 

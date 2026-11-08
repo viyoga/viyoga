@@ -26,7 +26,7 @@ chapter = 768
 
 <p>Mom called Shiwoo's name in a piteous tone.</p>
 
-<p>"Yeah~?"</p>
+<p>"Yeah?"</p>
 
 <p>Shiwoo responded while intentionally feigning ignorance of her desperation.</p>
 
@@ -88,7 +88,7 @@ chapter = 768
 
 <p>In a precarious sensation on the verge of crumbling, she trembled while lifting her pelvis.</p>
 
-<p>"Haeuuut haaaang~"</p>
+<p>"Haeuuut haaaang"</p>
 
 <p>Her pelvis, thrust into the air, curled inward as if preparing for the massive collision soon to come, and only an abnormal trembling leaked from her lips instead of a scream.</p>
 
@@ -98,7 +98,7 @@ chapter = 768
 
 <p>Every time the heavy presence filling her inside throbbed and stretched her inner walls, Mom took short breaths and looked up at Shiwoo with unfocused eyes.</p>
 
-<p>"I could stay like this until the room rental time is over... As for me~ I'm perfectly satisfied just being inside Mom~"</p>
+<p>"I could stay like this until the room rental time is over... As for me I'm perfectly satisfied just being inside Mom"</p>
 
 <p>Shiwoo replied slyly, leisurely enjoying Mom's reaction as she fell apart helplessly in his arms.</p>
 
@@ -106,7 +106,7 @@ chapter = 768
 
 <p>Mom flinched her pelvis and clung to Shiwoo's firm body piteously, as if asking him to break this terrible silence.</p>
 
-<p>"Please what~?"</p>
+<p>"Please what?"</p>
 
 <p>Shiwoo spoke in a low voice, as if forcing her to use specific words of submission.</p>
 
@@ -198,13 +198,13 @@ chapter = 768
 
 <p>At the final destination of the taboo they had finally reached, Shiwoo gasped for breath as if his lungs were burning, and fell heavily onto Mom's body, which was soaked in shame, as if pouring his entire life into her.</p>
 
-<p>Cheol-pueok~!!</p>
+<p>Cheol-pueok!!</p>
 
 <p>Like mercilessly falling artillery fire, Shiwoo compressed her, as if crushing her existence in an instant.</p>
 
 <p>Shiwoo's penis tore through Mom's vaginal flesh and thrust deep inside, as if pushing up her intestines.</p>
 
-<p>"Haaa-eueueueuk~!"</p>
+<p>"Haaa-eueueueuk!"</p>
 
 <p>Mom tilted her head back from Shiwoo's chest and shoulders and let out a moan as if vomiting up the lump inside her body.</p>
 

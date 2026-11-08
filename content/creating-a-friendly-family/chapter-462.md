@@ -10,9 +10,9 @@ chapter = 462
 
 <p>Seyoung-i doesn't mention Shiwoo's smartphone vibrating on the table, as if she isn't even aware of it.</p>
 
-<p>,No~ Sehee will be down soon. And Seyoung-i has been working hard preparing dinner this whole time."</p>
+<p>,No Sehee will be down soon. And Seyoung-i has been working hard preparing dinner this whole time."</p>
 
-<p>,If Sehee really doesn't come down, I'll tell Mom to go up and check on her later, so Seyoung-i don't worry and just sit there~"</p>
+<p>,If Sehee really doesn't come down, I'll tell Mom to go up and check on her later, so Seyoung-i don't worry and just sit there"</p>
 
 <p>Shiwoo, with his toes inserted between the split seams of Mom's lingerie panties, speaks as if it's natural for him to make Mom do such things.</p>
 
@@ -20,7 +20,7 @@ chapter = 462
 
 <p>Mom clenches her thighs tightly inward again, leaning her upper body even further forward than before, making strained, empty gasps.</p>
 
-<p>,Okay! Then I'll just sit here as Oppa says~ Since Shiwoo Oppa said so, if Sehee Unni-nim still doesn't come down, Mom, please go up for me~ Hehe"</p>
+<p>,Okay! Then I'll just sit here as Oppa says Since Shiwoo Oppa said so, if Sehee Unni-nim still doesn't come down, Mom, please go up for me Hehe"</p>
 
 <p>Seyoung-i, even after hearing Shiwoo's words that he'll send Mom instead of her, agrees with Shiwoo's words as if there's nothing strange about it, and repeats the words telling Mom to go up for her one more time.</p>
 
@@ -60,7 +60,7 @@ chapter = 462
 
 <p>Seyoung-i, who was struggling to pick up a quail egg from the braised beef side dish next to her, turns to Mom and asks as if curious.</p>
 
-<p>,Yeah~ There are places that are hard to reach and wipe, right? Apparently, there's some kind of feminine product that helps you wipe those places! I found out today for the first time that they sell things like that at the pharmacy~"</p>
+<p>,Yeah There are places that are hard to reach and wipe, right? Apparently, there's some kind of feminine product that helps you wipe those places! I found out today for the first time that they sell things like that at the pharmacy"</p>
 
 <p>Shiwoo explains to Seyoung-i as if boasting about the new knowledge he has learned.</p>
 
@@ -68,13 +68,13 @@ chapter = 462
 
 <p>Seyoung-i puts the spoon she was holding on top of her rice and concentrates as if trying to listen closely to Shiwoo's words.</p>
 
-<p>,Earlier, I did something to Mom at the karaoke, so... Mom went to the pharmacy and asked me to buy it for her, so I bought it~"</p>
+<p>,Earlier, I did something to Mom at the karaoke, so... Mom went to the pharmacy and asked me to buy it for her, so I bought it"</p>
 
 <p>,I bought several, so ask Mom how to use it later! You might need to use it soon, Seyoung-i"</p>
 
 <p>Shiwoo didn't directly mention that he peed inside Mom's vagina at the karaoke, but he was talking to Mom as if implying to Seyoung-i that he could do the same thing to her.</p>
 
-<p>,Okay~ Mom, teach me how to use the cleanser later~"</p>
+<p>,Okay Mom, teach me how to use the cleanser later"</p>
 
 <p>Seyoung-i turns to Mom and says.</p>
 
@@ -94,7 +94,7 @@ chapter = 462
 
 <p>Shiwoo's words seemed to have been thrown out without thinking, but they must have been taken in a different meaning by Mom.</p>
 
-<p>,I like it~! I like Sejeong-i! I hope we have a lot of younger siblings besides Sae-a soon~ Hehe~"</p>
+<p>,I like it! I like Sejeong-i! I hope we have a lot of younger siblings besides Sae-a soon Hehe"</p>
 
 <p>Seyoung-i answers lively as if matching her Oppa's words.</p>
 

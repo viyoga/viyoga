@@ -20,7 +20,7 @@ chapter = 404
 
 <p>Mom didn't know what to say, so she hesitated and seemed flustered, as if she was about to say something but stopped.</p>
 
-<p>,But isn't that Sehee's clothes? Why did you change into Sehee's clothes? I liked the purple outfit I picked out too~"</p>
+<p>,But isn't that Sehee's clothes? Why did you change into Sehee's clothes? I liked the purple outfit I picked out too"</p>
 
 <p>Shiwoo asks as if he's curious about why Mom changed her clothes.</p>
 
@@ -196,7 +196,7 @@ chapter = 404
 
 <p>Mom answers Shiwoo's question as if she's a student being scolded by a teacher after being dragged to the faculty office.</p>
 
-<p>,Sit down and drink comfortably~!"</p>
+<p>,Sit down and drink comfortably!"</p>
 
 <p>Shiwoo takes out a can of beer from the shopping basket on the floor, opens the lid, and hands it to Mom.</p>
 

@@ -4,7 +4,7 @@ weight = 197
 [extra]
 chapter = 197
 +++
-<p>"I told you not to leave your partner and Sehee Nuna alone~ Shiwoo, did you really have to create such a situation?!"</p>
+<p>"I told you not to leave your partner and Sehee Nuna alone Shiwoo, did you really have to create such a situation?!"</p>
 
 <p>Cheoljin, who had roughly finished explaining the circumstances of what happened at the karaoke room and room cafe to the police, approached Shiwoo and spoke in a tone as if scolding him.</p>
 
@@ -20,7 +20,7 @@ chapter = 197
 
 <p>Shiwoo had many questions, but first, as if reconfirming the fact that Cheoljin had reported it, he was asking Cheoljin.</p>
 
-<p>"I reported it right after you and Sinbi Nuna left! Well~ just looking at it, it seemed like you two were getting ready to run away! And Sehee Nuna is like that! You crazy bastard!"</p>
+<p>"I reported it right after you and Sinbi Nuna left! Well just looking at it, it seemed like you two were getting ready to run away! And Sehee Nuna is like that! You crazy bastard!"</p>
 
 <p>"And then you called me separately, telling me to come out behind the building, so I thought you had some grand plan, but was your plan to just blindly rush in and get beaten up? Puhihit!"</p>
 
@@ -62,7 +62,7 @@ chapter = 197
 
 <p>Shiwoo was speaking, naturally thinking that Seonju Imo would grant his request.</p>
 
-<p>"I'm sorry, Shiwoo-ya~ Imo doesn't think I can go now. It's a bit difficult to leave my spot~"</p>
+<p>"I'm sorry, Shiwoo-ya Imo doesn't think I can go now. It's a bit difficult to leave my spot"</p>
 
 <p>Seonju Imo was answering Shiwoo, expressing her difficulty in coming to the police station with the words that it was difficult to leave her spot.</p>
 
@@ -70,7 +70,7 @@ chapter = 197
 
 <p>"Oh... really? Then there's nothing we can do... Okay..." Shiwoo said to Seonju Imo as if disappointed.</p>
 
-<p>"It's really because it's hard to leave my spot. Don't be too disappointed~ Shiwoo-ya~ Instead, Imo thinks I know someone who can pick you and Sehee up from there~ I'll try asking them~"</p>
+<p>"It's really because it's hard to leave my spot. Don't be too disappointed Shiwoo-ya Instead, Imo thinks I know someone who can pick you and Sehee up from there I'll try asking them"</p>
 
 <p>Seonju Imo, perhaps feeling sorry for having refused Shiwoo's request outright, brought up the idea of asking someone else instead of herself.</p>
 
@@ -78,9 +78,9 @@ chapter = 197
 
 <p>Shiwoo, worrying that Seonju Imo might call Mom or Shiwoo's academy homeroom teacher, asked urgently.</p>
 
-<p>"Because both Mom and the academy teacher would be awkward, that's why you called me, right? Don't worry~! Imo isn't that tactless of a person~! It'll be someone Shiwoo and Sehee don't have to worry much about in that regard!"</p>
+<p>"Because both Mom and the academy teacher would be awkward, that's why you called me, right? Don't worry! Imo isn't that tactless of a person! It'll be someone Shiwoo and Sehee don't have to worry much about in that regard!"</p>
 
-<p>"Or, after taking you two out of there, should I tell them to just leave you alone afterwards~? That'll work, right?"</p>
+<p>"Or, after taking you two out of there, should I tell them to just leave you alone afterwards? That'll work, right?"</p>
 
 <p>Seonju Imo was speaking as if she knew all of Shiwoo's feelings.</p>
 
@@ -120,7 +120,7 @@ chapter = 197
 
 <p>And then, Cheoljin's voice came from beside him.</p>
 
-<p>"Look closely~! They're all the slave bitches we have to take one by one from now on!"</p>
+<p>"Look closely! They're all the slave bitches we have to take one by one from now on!"</p>
 
 <p>Cheoljin was speaking to Shiwoo, staring intently at the faces of the beautiful middle-aged women who had just entered, as if engraving them into his eyes.</p>
 

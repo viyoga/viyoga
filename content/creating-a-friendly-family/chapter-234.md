@@ -6,7 +6,7 @@ chapter = 234
 +++
 <p>While speaking as if coaxing her to take off her clothes, Shiwoo subtly stretched out his leg and touched Mom's shin with his foot.</p>
 
-<p>"...No...uh...Mom is still fine for now~"</p>
+<p>"...No...uh...Mom is still fine for now"</p>
 
 <p>Mom flinched slightly and answered, seemingly tense at Shiwoo's surprise touch.</p>
 
@@ -14,7 +14,7 @@ chapter = 234
 
 <p>Mom, from the start, was not in a situation where she could follow Shiwoo's command or instruction to take off her clothes.</p>
 
-<p>"Really? That's a shame~ Mom taking off her clothes this morning was really good to see~"</p>
+<p>"Really? That's a shame Mom taking off her clothes this morning was really good to see"</p>
 
 <p>Shiwoo said, stroking Mom's shin with his foot.</p>
 
@@ -26,7 +26,7 @@ chapter = 234
 
 <p>Even so, she didn't withdraw or move away her leg that was touching Shiwoo's foot.</p>
 
-<p>"Okay~ Take them off when you're comfortable next time~ What's decided is decided anyway~ Now let's eat, Mom~"</p>
+<p>"Okay Take them off when you're comfortable next time What's decided is decided anyway Now let's eat, Mom"</p>
 
 <p>Shiwoo said to Mom, picking up his spoon in a tone as if coaxing a younger sibling.</p>
 
@@ -38,7 +38,7 @@ chapter = 234
 
 <p class="scene-break">· · ·</p>
 
-<p>"I'll take them off now~! Hehe~"</p>
+<p>"I'll take them off now! Hehe"</p>
 
 <p>Seyoung, who was sitting next to Mom, broke the tension of that strange silence and busily opened her mouth.</p>
 
@@ -48,7 +48,7 @@ chapter = 234
 
 <p>Over Seyoung's breasts, which had just begun to swell slightly, a white, thin, wire-free fabric was covering them.</p>
 
-<p>"Wow~ Seyoung was wearing pretty underwear today too, wasn't she?"</p>
+<p>"Wow Seyoung was wearing pretty underwear today too, wasn't she?"</p>
 
 <p>Shiwoo said as if pleased, openly staring at Seyoung's breasts.</p>
 
@@ -58,7 +58,7 @@ chapter = 234
 
 <p>Below Seyoung's plump and adorable breasts, which were gradually developing, gentle slopes and shadows were cast.</p>
 
-<p>"Yeah~ I kept doing it even while I was at Seonju Imo-nim's house~"</p>
+<p>"Yeah I kept doing it even while I was at Seonju Imo-nim's house"</p>
 
 <p>Seyoung straightened her shoulders, pushing her chest forward as if to emphasize it, and proudly said to Shiwoo.</p>
 
@@ -84,15 +84,15 @@ chapter = 234
 
 <p>Mom reacted as if she hadn't properly understood Shiwoo's words, shrinking her body.</p>
 
-<p>"It seems like it's just a layer of fabric, so I wonder if there's a need to wear something so constricting already~"</p>
+<p>"It seems like it's just a layer of fabric, so I wonder if there's a need to wear something so constricting already"</p>
 
 <p>Shiwoo looked at Mom and said, making an innocent expression as if he truly thought that way.</p>
 
-<p>"Th-these days, many do it early~ Seyoung also seems more comfortable wearing it..."</p>
+<p>"Th-these days, many do it early Seyoung also seems more comfortable wearing it..."</p>
 
 <p>Mom still couldn't meet Shiwoo's eyes and was speaking, trailing off her words as if making a final defense while cornered.</p>
 
-<p>"Surely it's not as comfortable as being naked~? Isn't it better to just be naked at home?"</p>
+<p>"Surely it's not as comfortable as being naked? Isn't it better to just be naked at home?"</p>
 
 <p>Shiwoo was speaking to Mom in a subtly stubborn tone.</p>
 
@@ -120,7 +120,7 @@ chapter = 234
 
 <p class="scene-break">· · ·</p>
 
-<p>"Our family decided to wear clothes comfortably from now on~ but how far is that okay?"</p>
+<p>"Our family decided to wear clothes comfortably from now on but how far is that okay?"</p>
 
 <p>While eating for a while, Shiwoo asked Mom, whose pupils seemed to have unfocused.</p>
 
@@ -130,7 +130,7 @@ chapter = 234
 
 <p>Due to Shiwoo's foot caress and the alcohol's influence, Mom, whose mind was hazy, barely reacted to Shiwoo's question.</p>
 
-<p>"Sejin Nuna used to walk around naked after showering, didn't she? I wonder if that much is okay sometimes now~"</p>
+<p>"Sejin Nuna used to walk around naked after showering, didn't she? I wonder if that much is okay sometimes now"</p>
 
 <p>Shiwoo was recalling and speaking of the sight of Sejin Nuna walking around naked in front of the family after showering in the past.</p>
 
@@ -138,11 +138,11 @@ chapter = 234
 
 <p>Mom, even while dazed, tried to answer with a troubled expression, as if that alone was something that shouldn't happen.</p>
 
-<p>"Well~ I guess everyone can just do as they please with that~?"</p>
+<p>"Well I guess everyone can just do as they please with that?"</p>
 
 <p>Shiwoo cut her off and was speaking triumphantly, as if he was arbitrarily setting new rules for himself.</p>
 
-<p>"I like it~! Because the shower room and my room are close~! Hehe~"</p>
+<p>"I like it! Because the shower room and my room are close! Hehe"</p>
 
 <p>Seyoung was the first to answer with a bright smile, as if responding to Shiwoo's words.</p>
 
@@ -154,13 +154,13 @@ chapter = 234
 
 <p>Sehee Nuna was speaking as if trying to reconfirm with Mom about the fact that Mom's authority as a mother had now been completely lost in front of Shiwoo.</p>
 
-<p>"Right~ Sometimes I forget to bring a change of clothes and go into the shower room to wash, and it's a bit inconvenient to put the clothes I was wearing back on every time~! Especially late at night when everyone's asleep, it feels strange to be doing that alone, doesn't it~?"</p>
+<p>"Right Sometimes I forget to bring a change of clothes and go into the shower room to wash, and it's a bit inconvenient to put the clothes I was wearing back on every time! Especially late at night when everyone's asleep, it feels strange to be doing that alone, doesn't it?"</p>
 
 <p>Taking Sehee Nuna's words, Shiwoo was speaking as if demanding an answer from Mom.</p>
 
 <p>Shiwoo's toes, nestled between Mom's thighs, positioned themselves even deeper into her crotch.</p>
 
-<p>"Uh...th-then...that's right....Haa~"</p>
+<p>"Uh...th-then...that's right....Haa"</p>
 
 <p>Mom, after answering, steadied her ragged breath and adjusted her posture.</p>
 
@@ -172,7 +172,7 @@ chapter = 234
 
 <p>Mom trembled her body humiliatingly and reluctantly answered Shiwoo's question.</p>
 
-<p>"That's great~!"</p>
+<p>"That's great!"</p>
 
 <p>Seyoung, whether she knew Mom's feelings or not, held up the spoon she was holding upside down and said happily.</p>
 

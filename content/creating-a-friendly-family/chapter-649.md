@@ -32,7 +32,7 @@ chapter = 649
 
 <p>The rupturing sounds of spanking were followed by her short, sharp breaths.</p>
 
-<p>"Heup... ha-eup... eum~"</p>
+<p>"Heup... ha-eup... eum"</p>
 
 <p>Like a lie, she stood there, exhaling breaths that seemed to oscillate between pain and pleasure.</p>
 

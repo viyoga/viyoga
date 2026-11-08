@@ -24,7 +24,7 @@ chapter = 418
 
 <p>Mom answered, conscious of Shiwoo's hand that continued to stroke her.</p>
 
-<p>"Really~? It seems bearable? Then if nothing special happens from now on, you can just keep being naked like this?"</p>
+<p>"Really? It seems bearable? Then if nothing special happens from now on, you can just keep being naked like this?"</p>
 
 <p>Shiwoo was speaking to Mom in a teasing manner, as if lording it over her.</p>
 
@@ -46,7 +46,7 @@ chapter = 418
 
 <p>Mom looked at Shiwoo with anxious eyes and asked cautiously.</p>
 
-<p>"Ah~ I threw them away while coming back from the bathroom just now? Why?"</p>
+<p>"Ah I threw them away while coming back from the bathroom just now? Why?"</p>
 
 <p>Shiwoo conveyed that he had thrown away the clothes Mom was wearing with a calm and brazen tone, as if wondering why she was asking such a thing.</p>
 
@@ -54,7 +54,7 @@ chapter = 418
 
 <p>Mom reacted with wide eyes, as if shocked by Shiwoo's words that he had thrown away her clothes.</p>
 
-<p>"I said I threw them away because it seems like Mom won't need clothes anymore~!!"</p>
+<p>"I said I threw them away because it seems like Mom won't need clothes anymore!!"</p>
 
 <p>Shiwoo was speaking to Mom with a smooth and nonchalant tone and attitude, as if he had done something perfectly justifiable.</p>
 
@@ -62,7 +62,7 @@ chapter = 418
 
 <p>Mom asked Shiwoo urgently with a despairing expression, as if she was about to burst into tears at any moment.</p>
 
-<p>"What would you do if I told you?! It's not like you can go get them now anyway?! If you're going to go get them, tell me~"</p>
+<p>"What would you do if I told you?! It's not like you can go get them now anyway?! If you're going to go get them, tell me"</p>
 
 <p>Shiwoo spoke in a tone as if scolding Mom, who wasn't properly facing her situation.</p>
 

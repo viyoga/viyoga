@@ -24,7 +24,7 @@ chapter = 173
 
 <p>-Not as master and slave, but as aunt and nephew-</p>
 
-<p>"What...what do you want to ask~?"</p>
+<p>"What...what do you want to ask?"</p>
 
 <p>Seonju Imo closed her eyes, tilted her head back, and answered her nephew Shiwoo while receiving the pre-ejaculate on her face.</p>
 
@@ -42,7 +42,7 @@ chapter = 173
 
 <p>Seonju Imo stopped breathing and cowered, feeling the sensation of the flesh touching and then falling away in an instant.</p>
 
-<p>"Haaa~"</p>
+<p>"Haaa"</p>
 
 <p>Seonju Imo soon realized that Shiwoo's massive flesh was bumping against her face, and she relaxed her cowered body and exhaled.</p>
 
@@ -50,7 +50,7 @@ chapter = 173
 
 <p>Shiwoo omitted the subject and asked Seonju Imo.</p>
 
-<p>"Wrote what~?"</p>
+<p>"Wrote what?"</p>
 
 <p>Seonju Imo slightly raised the corners of her mouth and asked back as if she knew what Shiwoo wanted to know.</p>
 
@@ -68,7 +68,7 @@ chapter = 173
 
 <p>As if urging Seonju Imo, his cock strongly struck Seonju Imo's chin and cheeks, which were raised, alternately.</p>
 
-<p>"Haaht~! Wrote...wrote it~ a long time ago~!"</p>
+<p>"Haaht! Wrote...wrote it a long time ago!"</p>
 
 <p>Seonju Imo answered, twitching her body.</p>
 
@@ -92,7 +92,7 @@ chapter = 173
 
 <p>Shiwoo began to ask Seonju Imo about the facts related to his younger sisters.</p>
 
-<p>"She knows~ I've told her who her dad is since she was little~ Even to keep it a secret from others!"</p>
+<p>"She knows I've told her who her dad is since she was little Even to keep it a secret from others!"</p>
 
 <p>Seonju Imo answered Shiwoo as if it were natural.</p>
 
@@ -104,7 +104,7 @@ chapter = 173
 
 <p>Shiwoo was trying to confirm the specific facts by using explicit words.</p>
 
-<p>"No~ Sua didn't do that with her dad! She hasn't written a slave contract yet either!"</p>
+<p>"No Sua didn't do that with her dad! She hasn't written a slave contract yet either!"</p>
 
 <p>An answer different from Shiwoo's expectations was coming from Seonju Imo's mouth.</p>
 
@@ -112,7 +112,7 @@ chapter = 173
 
 <p>Shiwoo brought up the story of what happened at the pension last year, which he had inferred based on the data Seonju Imo had sent him, and asked Seonju Imo as if he were questioning her.</p>
 
-<p>"That's what I was going to do~ But it didn't happen! Your dad said he would wait until Sua started her period."</p>
+<p>"That's what I was going to do But it didn't happen! Your dad said he would wait until Sua started her period."</p>
 
 <p>Seonju Imo was answering Shiwoo's question with her eyes tightly closed.</p>
 
@@ -152,7 +152,7 @@ chapter = 173
 
 <p>-Still with her eyes closed-</p>
 
-<p>"...Weren't you asking because you knew~?"</p>
+<p>"...Weren't you asking because you knew?"</p>
 
 <p>Seonju Imo answered, playfully smiling.</p>
 
@@ -160,7 +160,7 @@ chapter = 173
 
 <p>Shiwoo asked as if he were flustered by Seonju Imo's playfully changed expression and tone.</p>
 
-<p>"It seems Shiwoo still doesn't know~? I thought you had confirmed everything today! Well, will you find out soon?"</p>
+<p>"It seems Shiwoo still doesn't know? I thought you had confirmed everything today! Well, will you find out soon?"</p>
 
 <p>Seonju Imo was saying as if Shiwoo had to confirm something.</p>
 
@@ -172,11 +172,11 @@ chapter = 173
 
 <p>Shiwoo's intonation and tone, which had become somewhat coercive.</p>
 
-<p>"No~ I didn't do that to Seyoung. I'm not someone who can make Seyoung do that kind of thing~"</p>
+<p>"No I didn't do that to Seyoung. I'm not someone who can make Seyoung do that kind of thing"</p>
 
 <p>Seonju Imo said as if definitely denying the suspicion Shiwoo had.</p>
 
-<p>"Anyway, just like her older sister, our Seyoung also likes Shiwoo so much~!?"</p>
+<p>"Anyway, just like her older sister, our Seyoung also likes Shiwoo so much!?"</p>
 
 <p>Seonju Imo's soliloquy, the meaning of which could not be known, continued.</p>
 
@@ -186,7 +186,7 @@ chapter = 173
 
 <p>Shiwoo was flustered by Seonju Imo's sudden touch.</p>
 
-<p>"Who knows~? Kikik"</p>
+<p>"Who knows? Kikik"</p>
 
 <p>Seonju Imo was stroking Shiwoo's thigh as if urging Shiwoo to do something for her quickly.</p>
 

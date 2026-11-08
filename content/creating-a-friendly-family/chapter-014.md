@@ -32,11 +32,11 @@ chapter = 14
 
 <p>Then, when she made eye contact with Shiwoo, who was blankly staring at her, she scoffed derisively and sat down in the seat opposite him.</p>
 
-<p>"Seyoung-ah~ How do I look today?"</p>
+<p>"Seyoung-ah How do I look today?"</p>
 
 <p>Nuna, sitting down, looked at Seyoung and asked.</p>
 
-<p>"Pretty~ You look like a celebrity, Unnie hehe~"</p>
+<p>"Pretty You look like a celebrity, Unnie hehe"</p>
 
 <p>Seyoung, who was generous with her compliments, praised Sehee Nuna.</p>
 
@@ -56,7 +56,7 @@ chapter = 14
 
 <p>Mom's nagging continued.</p>
 
-<p>"I'm organizing them little by little, geez~"</p>
+<p>"I'm organizing them little by little, geez"</p>
 
 <p>Sehee Nuna, shrinking her body as if she was being suppressed, answered in a subdued voice.</p>
 
@@ -70,7 +70,7 @@ chapter = 14
 
 <p>Sehee Nuna glanced at Shiwoo, then straightened her body and spoke to Mom in a tone that seemed to be trying to act cute.</p>
 
-<p>"Mom~ Aunt Seonju said she's going to have me over to her place after academy today."</p>
+<p>"Mom Aunt Seonju said she's going to have me over to her place after academy today."</p>
 
 <p>"Seonju? Why?"</p>
 
@@ -180,7 +180,7 @@ chapter = 14
 
 <p>Mom said to Sehee Nuna, who had a satisfied expression, with a tone of disbelief.</p>
 
-<p>"Pretty, right? Aunt chose it for me hehe~"</p>
+<p>"Pretty, right? Aunt chose it for me hehe"</p>
 
 <p>Nuna, knowing she would be scolded by Mom's disbelieving tone, tried to gloss over it somehow, but she was putting on an act that wouldn't work.</p>
 
@@ -218,7 +218,7 @@ chapter = 14
 
 <p>Mom, her anger almost at its limit.</p>
 
-<p>"I'm going to eat~ I can just get up after eating quickly."</p>
+<p>"I'm going to eat I can just get up after eating quickly."</p>
 
 <p>Nuna's defiance.</p>
 
@@ -226,7 +226,7 @@ chapter = 14
 
 <p>Mom was probably referring to Shiwoo's erection, and Shiwoo felt as if he was feeling a twinge of chest pain.</p>
 
-<p>"Geez, why can't I wear what I want at home just because Shiwoo's uncomfortable? And Shiwoo said he's okay with it~"</p>
+<p>"Geez, why can't I wear what I want at home just because Shiwoo's uncomfortable? And Shiwoo said he's okay with it"</p>
 
 <p>Sehee Nuna, almost whining, said everything she wanted to say to Mom.</p>
 
@@ -234,7 +234,7 @@ chapter = 14
 
 <p>Shiwoo's mind went blank at Mom's meaningful words that pierced him like an awl.</p>
 
-<p>"Geez~ What the hell does that mean? I'm wearing what I want at home, what does it have to do with me if Shiwoo's a pervert!!"</p>
+<p>"Geez What the hell does that mean? I'm wearing what I want at home, what does it have to do with me if Shiwoo's a pervert!!"</p>
 
 <p>At Sehee Nuna's final outburst, Shiwoo's vision went white.</p>
 

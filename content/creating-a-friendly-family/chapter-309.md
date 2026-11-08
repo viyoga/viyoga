@@ -148,7 +148,7 @@ chapter = 309
 
 <p>Shiwoo replied to Sehee Nuna's words asking for permission, and additionally instructed her to put Mom's clothes back on as Shiwoo had put them on.</p>
 
-<p>'Okay. After washing Seonmi, I just need to put her in the purple T-shirt like before, right? I'll do that~'</p>
+<p>'Okay. After washing Seonmi, I just need to put her in the purple T-shirt like before, right? I'll do that'</p>
 
 <p>Sehee Nuna replied as if she was going to follow Shiwoo's instructions.</p>
 
@@ -168,19 +168,19 @@ chapter = 309
 
 <p>"Son and Daughter's Exclusive Whore Pussy"</p>
 
-<p>! And this time, a red permanent marker would be better than lipstick. So it lasts longer~'</p>
+<p>! And this time, a red permanent marker would be better than lipstick. So it lasts longer'</p>
 
 <p>Shiwoo playfully told Sehee Nuna the sentence and tool to write on Mom's stomach, as if choosing them for her.</p>
 
-<p>'Okay~ I'll do that! Is there anything else?'</p>
+<p>'Okay I'll do that! Is there anything else?'</p>
 
 <p>Sehee Nuna replied to Shiwoo's command like a faithful slave, then sent a text message as if checking if there were any other additional instructions.</p>
 
-<p>'I'll tell you in a text message if I think of anything else, so for now, just do that~!'</p>
+<p>'I'll tell you in a text message if I think of anything else, so for now, just do that!'</p>
 
 <p>Shiwoo told Sehee Nuna to execute the things he had instructed for now.</p>
 
-<p>'Okay~!'</p>
+<p>'Okay!'</p>
 
 <p>Sehee Nuna simply replied to Shiwoo as if she understood.</p>
 

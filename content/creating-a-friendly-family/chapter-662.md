@@ -4,7 +4,7 @@ weight = 662
 [extra]
 chapter = 662
 +++
-<p>"Hehe~ But usually, you and Sei-unni do all the dishes and the cleaning up, right? I do it because I like cooking, so you don't have to worry about it that much~!"</p>
+<p>"Hehe But usually, you and Sei-unni do all the dishes and the cleaning up, right? I do it because I like cooking, so you don't have to worry about it that much!"</p>
 
 <p>Seyoung answered shyly, gently wiping her wet hair with the towel draped over her shoulder.</p>
 
@@ -32,7 +32,7 @@ chapter = 662
 
 <p>Shiwoo answered calmly, though feeling a bit of unfamiliarity at Seyoung's inquiry.</p>
 
-<p>"I see~? You haven't decided exactly what to do yet, right~?"</p>
+<p>"I see? You haven't decided exactly what to do yet, right?"</p>
 
 <p>Seyoung asked Shiwoo lightly and naturally, as if it were just a passing remark in their conversation. Shiwoo hesitated for a moment, as if he immediately recognized the meaning behind her words. She was clearly asking about the sacrifice, something he had learned about while having his tarot cards read at the academy's basement cafe.</p>
 
@@ -40,7 +40,7 @@ chapter = 662
 
 <p>Shiwoo answered Seyoung slowly, as if steadying his mind.</p>
 
-<p>"Yeah~ There's still plenty of time~ Think about it slowly~!"</p>
+<p>"Yeah There's still plenty of time Think about it slowly!"</p>
 
 <p>Seyoung spoke in a kind voice, as if to soothe Shiwoo.</p>
 
@@ -50,7 +50,7 @@ chapter = 662
 
 <p>Seyoung looked at Shiwoo as if she felt sorry for him, then smiled slightly to change the atmosphere.</p>
 
-<p>"But shouldn't you wash up too, Oppa? It's all dripping on the floor~?"</p>
+<p>"But shouldn't you wash up too, Oppa? It's all dripping on the floor?"</p>
 
 <p>Then, she continued speaking with eyes full of mischief as she looked down at Shiwoo's penis.</p>
 
@@ -102,7 +102,7 @@ chapter = 662
 
 <p>At one point, Seyoung stopped her tongue's movement and sucked on Shiwoo's glans with strong suction, swallowing the filth that had pooled in her mouth. Without losing her upward gaze, she gathered the filth in her mouth and pulled her head back.</p>
 
-<p>"Huaaaa~!"</p>
+<p>"Huaaaa!"</p>
 
 <p>Then, letting go of the penis she held in her mouth, Seyoung took a deep breath. From her lips, which had exhaled a long breath, thin, viscous traces like transparent threads connected to the crack at the tip of his penis, drawing a subtle parabola. That sticky parabola pointing downward seemed to reflect on the erotic communion and the sensation of pleasure from a moment ago like a lingering afterglow.</p>
 

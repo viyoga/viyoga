@@ -16,7 +16,7 @@ chapter = 131
 
 <p>「Uh...? Uh... uh...」 Shiwoo was answering as if trying not to upset Cheoljin, matching his intentions.</p>
 
-<p>「Puhaha! Well, that's fine then~」 Cheoljin laughed heartily, dismissing what Shiwoo had done with his mother as if it were nothing.</p>
+<p>「Puhaha! Well, that's fine then」 Cheoljin laughed heartily, dismissing what Shiwoo had done with his mother as if it were nothing.</p>
 
 <p>What was his game? Shiwoo racked his brain, trying to figure it out, but Cheoljin's true intentions remained utterly inscrutable.</p>
 
@@ -28,11 +28,11 @@ chapter = 131
 
 <p>「W-were you watching?」 Shiwoo stammered, flustered, as he asked Cheoljin.</p>
 
-<p>「I was secretly listening to everything with my earphones during class~」 Cheoljin said, pointing to his ear with his finger, as if it were obvious.</p>
+<p>「I was secretly listening to everything with my earphones during class」 Cheoljin said, pointing to his ear with his finger, as if it were obvious.</p>
 
 <p>「Ah...」 Shiwoo's voice came out with a regrettable, almost despairing tone, in a situation where there was no room for excuses.</p>
 
-<p>「Still, if you ever start dating my Mom, tell me~ That way, we won't make any mistakes, right? Got it?」 Cheoljin was saying something truly outrageous to his friend Shiwoo, as if it were nothing, something that would twist the very bonds of kinship.</p>
+<p>「Still, if you ever start dating my Mom, tell me That way, we won't make any mistakes, right? Got it?」 Cheoljin was saying something truly outrageous to his friend Shiwoo, as if it were nothing, something that would twist the very bonds of kinship.</p>
 
 <p>「Uh...」 Shiwoo replied reluctantly, forcing an awkward smile.</p>
 
@@ -48,7 +48,7 @@ chapter = 131
 
 <p>Shiwoo recalled the moment he had made Gyuri Ajumma urinate in an abnormal way, then crushed her head with his urine-stained foot.</p>
 
-<p>「Hmm~ For just that, it seemed to take quite a while, didn't it?」 Cheoljin said, sounding suspicious.</p>
+<p>「Hmm For just that, it seemed to take quite a while, didn't it?」 Cheoljin said, sounding suspicious.</p>
 
 <p>「G-Gyuri Ajumma seemed to have sweated a lot, so I just washed her off with water!」 Shiwoo tried his best to conceal what had happened in the bathroom, so as not to upset Cheoljin.</p>
 
@@ -70,11 +70,11 @@ chapter = 131
 
 <p>Cheoljin touched the screen again, fast-forwarding the video to the scene where Shiwoo was feeding bread and milk to Gyuri Ajumma.</p>
 
-<p>「This is it, this is it~!」 Cheoljin, excited as if he had found the scene he wanted.</p>
+<p>「This is it, this is it!」 Cheoljin, excited as if he had found the scene he wanted.</p>
 
 <p>In the video, Shiwoo and Gyuri Ajumma's conversation continued. Shiwoo's question about adultery and Gyuri Ajumma's absurd misunderstanding. And her embarrassed, moaning confession.</p>
 
-<p>「Isn't my Mom really cute when she's like this? Mom makes it so obvious when she likes someone~ Every time I see this, I just want to fuck her so hard she can't even make a sound... Though it's impossible for me now... puhikhik.」 Cheoljin said, looking at Gyuri Ajumma on screen, sounding genuinely aroused.</p>
+<p>「Isn't my Mom really cute when she's like this? Mom makes it so obvious when she likes someone Every time I see this, I just want to fuck her so hard she can't even make a sound... Though it's impossible for me now... puhikhik.」 Cheoljin said, looking at Gyuri Ajumma on screen, sounding genuinely aroused.</p>
 
 <p>Cheoljin's incomprehensibly friendly attitude only intensified Shiwoo's anxiety. This was because Shiwoo implicitly thought that if the roles were reversed and the two people on screen were his Mom and Cheoljin, he might kill Cheoljin.</p>
 
@@ -92,23 +92,23 @@ chapter = 131
 
 <p>「Uh...? Uh...」 Shiwoo replied nervously, feeling as if all the secrets he thought would remain hidden had been completely exposed.</p>
 
-<p>「Puhaha~ You really don't need to worry about me~ Now that things are like this, you can do whatever your heart desires~」 Cheoljin said to Shiwoo, laughing freely.</p>
+<p>「Puhaha You really don't need to worry about me Now that things are like this, you can do whatever your heart desires」 Cheoljin said to Shiwoo, laughing freely.</p>
 
 <p>「W-what... what?」 Shiwoo asked Cheoljin, as if he didn't understand.</p>
 
-<p>「Dating my Mom, I mean~ Mom seems to secretly want it too... If you're okay with it, I really don't care, so don't worry about it~」 Cheoljin uttered a line that would truly make one's head spin, as if it were nothing.</p>
+<p>「Dating my Mom, I mean Mom seems to secretly want it too... If you're okay with it, I really don't care, so don't worry about it」 Cheoljin uttered a line that would truly make one's head spin, as if it were nothing.</p>
 
 <p>Just becoming sex partners would be enough to drive one insane, but Cheoljin was now saying he would permit a romantic relationship between Gyuri Ajumma and Shiwoo.</p>
 
 <p>An official romantic relationship, sanctioned by her son.</p>
 
-<p>「Ah~ Anyway, it's still adultery with a married woman, right? Even if you start dating, whether you officially get another girlfriend or have one-night stands, that's your freedom, so don't worry about that for now~」 Cheoljin added, explaining further.</p>
+<p>「Ah Anyway, it's still adultery with a married woman, right? Even if you start dating, whether you officially get another girlfriend or have one-night stands, that's your freedom, so don't worry about that for now」 Cheoljin added, explaining further.</p>
 
 <p>Shiwoo's mind seemed to go blank for a moment at Cheoljin's conveniently insane words.</p>
 
 <p>「Y-you... what about you?」 Shiwoo, half out of his mind, was asking Cheoljin what he was most concerned about right now.</p>
 
-<p>「Me? Hehe, well... if you two want to fuck, and I'm in the way, I should step aside~」 Cool Cheoljin, as expected.</p>
+<p>「Me? Hehe, well... if you two want to fuck, and I'm in the way, I should step aside」 Cool Cheoljin, as expected.</p>
 
 <p>「Are you sure about that?」 Shiwoo asked, genuinely worried about Cheoljin, who seemed far from normal.</p>
 
@@ -120,7 +120,7 @@ chapter = 131
 
 <p>「What promise?! Fucking bitch! Aren't you going to answer properly?!」 -Challssak! -Challssak! -Challssak! The screen showed Shiwoo spanking and cursing Gyuri Ajumma, who was just reaching orgasm.</p>
 
-<p>「I like this part, fucking bitch... seeing it on screen makes me even harder~! Puhikhik!」 Cheoljin's line, which seemed genuine.</p>
+<p>「I like this part, fucking bitch... seeing it on screen makes me even harder! Puhikhik!」 Cheoljin's line, which seemed genuine.</p>
 
 <p>Emptying his complicated and confused mind for a moment, Shiwoo decided to watch the alluring female dog and male dog on screen with Cheoljin.</p>
 
@@ -140,7 +140,7 @@ chapter = 131
 
 <p>Suddenly, a clear, ringing girl's voice came from behind them.</p>
 
-<p>「What are you two doing here? I've been looking for you for ages~?!」 Shiwoo, startled by the familiar voice, dropped the smartphone he was holding onto the floor.</p>
+<p>「What are you two doing here? I've been looking for you for ages?!」 Shiwoo, startled by the familiar voice, dropped the smartphone he was holding onto the floor.</p>
 
 <p>Shiwoo's smartphone fell to the floor, screen-side up.</p>
 

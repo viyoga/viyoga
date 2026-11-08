@@ -14,7 +14,7 @@ chapter = 712
 
 <p>Shiwoo followed up with a mischievous joke directed at Mom, his tone subtly evoking the events of the previous night. Within his voice lingered a strange, heavy resonance that was difficult to simply laugh off.</p>
 
-<p>"That's right~ If it's Seonmi-eonni, she could totally do that! It's not just once or twice she's lost her mind and fallen asleep while doing it~"</p>
+<p>"That's right If it's Seonmi-eonni, she could totally do that! It's not just once or twice she's lost her mind and fallen asleep while doing it"</p>
 
 <p>Seonju-imo added with a playful grin, her tone full of certainty as if she wanted everyone to hear.</p>
 
@@ -22,7 +22,7 @@ chapter = 712
 
 <p>Mom raised her voice, her face flushing red. By emphasizing the fact that it was morning, she tried to maintain her authority and face, but there was a clear sense of urgency in her attempt to cut off the conversation.</p>
 
-<p>"Sure, well~ since it's morning now...! When night comes... Seyoung-ie will take care of it, right?"</p>
+<p>"Sure, well since it's morning now...! When night comes... Seyoung-ie will take care of it, right?"</p>
 
 <p>Shiwoo muttered as if to himself, yet loud enough for Mom to clearly understand. The sneer hanging on the corner of Shiwoo's lips was delivered like a sharp mockery, shaking the very foundation of Mom's authority.</p>
 
@@ -46,7 +46,7 @@ chapter = 712
 
 <p>Mom answered, trying her best to act composed while avoiding Shiwoo's eyes. Seeing Mom's reaction, Shiwoo felt a sensation as if a corner of his heart was swelling up.</p>
 
-<p>"Really? Well, that's a relief~ By the way, the eggs and sausages are really delicious~ Did you make them with Seyoung-ie?"</p>
+<p>"Really? Well, that's a relief By the way, the eggs and sausages are really delicious Did you make them with Seyoung-ie?"</p>
 
 <p>Shiwoo continued to talk to Mom, blurring the lines between the ordinary and the extraordinary.</p>
 
@@ -58,7 +58,7 @@ chapter = 712
 
 <p>Shiwoo asked, looking at Seonju-imo and Sua as he picked up a sausage with his chopsticks.</p>
 
-<p>"Yeah~ I fell asleep just like that, so as soon as I woke up, I washed with Sua~"</p>
+<p>"Yeah I fell asleep just like that, so as soon as I woke up, I washed with Sua"</p>
 
 <p>Unlike Mom, Seonju-imo answered Shiwoo while mentioning yesterday's events as if they were no big deal.</p>
 
@@ -66,11 +66,11 @@ chapter = 712
 
 <p>Shiwoo asked, seemingly curious about how they had washed out the sushi he had shoved deep inside Seonju-imo and Sua's vaginal openings.</p>
 
-<p>"There were plenty of cleaners in the shower room. Didn't you buy that many just to do that to us~?"</p>
+<p>"There were plenty of cleaners in the shower room. Didn't you buy that many just to do that to us?"</p>
 
 <p>Seonju-imo shrugged her shoulders seductively and answered with a playful smile.</p>
 
-<p>"I bought them for various reasons, but if Seonju-imo and Sua used them like that, it was a good purchase~"</p>
+<p>"I bought them for various reasons, but if Seonju-imo and Sua used them like that, it was a good purchase"</p>
 
 <p>Shiwoo responded with a smirk, playing along with Seonju-imo's playful words. It felt as though everyone except Mom didn't place much meaning on or consciously care about the rule of returning to a normal family in the morning. They were merely maintaining a formal attitude, reverting their titles and speech patterns to match Mom's mood or avoiding direct mentions.</p>
 
@@ -92,7 +92,7 @@ chapter = 712
 
 <p>At Shiwoo's question, which brought back the shameful memories of yesterday, Mom answered in a flustered, rambling voice. Seonju-imo and Seyoung-ie watched the scene from the side with satisfied smiles...</p>
 
-<p>"Shiwoo-ya probably asked on her behalf in case Seyoung-ie was looking for it~"</p>
+<p>"Shiwoo-ya probably asked on her behalf in case Seyoung-ie was looking for it"</p>
 
 <p>Seonju-imo added words that put Mom in a difficult spot, as if siding with Shiwoo.</p>
 
@@ -102,15 +102,15 @@ chapter = 712
 
 <p>Perhaps finding it hard to respond to the family's pincer attack any longer, Mom spoke up again with an annoyed expression.</p>
 
-<p>"Got it, got it~ I'll eat quickly... Nom, nom, nom... Is this okay?"</p>
+<p>"Got it, got it I'll eat quickly... Nom, nom, nom... Is this okay?"</p>
 
 <p>Shiwoo spoke while pretending to shovel rice into his mouth, as if trying not to upset Mom further. At Shiwoo's exaggerated words and humorous actions, Mom stopped nagging and began to eat her rice. For a moment, only the sounds of chewing and spoons clinking echoed quietly in the living room.</p>
 
-<p>"But thinking about it, if Seyoung-ie is okay with it, I think it would be good if Mom kept wearing it from now on~?"</p>
+<p>"But thinking about it, if Seyoung-ie is okay with it, I think it would be good if Mom kept wearing it from now on?"</p>
 
 <p>Shiwoo, who had been eating quietly, opened his mouth again, murmuring as if the thought had just occurred to him.</p>
 
-<p>"I don't mind~ If Mom wants to use it, use it~"</p>
+<p>"I don't mind If Mom wants to use it, use it"</p>
 
 <p>Seyoung-ie picked up on Shiwoo's murmur and spoke as if she willingly consented to Mom using her item. Shiwoo cast a glance at Mom, feigning indifference while harboring a lewd expectation.</p>
 

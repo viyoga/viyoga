@@ -12,9 +12,9 @@ chapter = 70
 
 <p>Sehee crossed her legs, cowering, and tried to take the wet wipe Shiwoo was holding. Shiwoo brushed her hand away, spread her legs, and wiped the blood flowing beneath her crotch.</p>
 
-<p>「Oh, come on~ I said I'd do it~ If you touch it like that now~!! Hheu-eut~ Haaaah~~」 Sehee seemed to feel Shiwoo's touch acutely, flinching and letting out a long moaning sound every time the wet wipe touched her sensitive flesh.</p>
+<p>「Oh, come on I said I'd do it If you touch it like that now!! Hheu-eut Haaaah」 Sehee seemed to feel Shiwoo's touch acutely, flinching and letting out a long moaning sound every time the wet wipe touched her sensitive flesh.</p>
 
-<p>「Sehee, you wiped mine with your mouth too~!!」 Shiwoo spoke in a coercive tone, as if being unreasonable, but with gentle hands, he cleaned Sehee's crotch.</p>
+<p>「Sehee, you wiped mine with your mouth too!!」 Shiwoo spoke in a coercive tone, as if being unreasonable, but with gentle hands, he cleaned Sehee's crotch.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -38,17 +38,17 @@ chapter = 70
 
 <p>A shopping bag lay in a corner of the living room. Inside the shopping bag were a red leather dog collar and leash for Mom, and an incredibly explicit white lingerie set, one of each. Shiwoo took the dog collar, leash, and lingerie into the master bedroom. Beside the bed, he opened the nightstand drawer and placed the dog collar and leash inside. Next to them, he neatly folded and stacked the white lingerie set.</p>
 
-<p>Then Shiwoo sent a text message to Mom. 「Mom~!」</p>
+<p>Then Shiwoo sent a text message to Mom. 「Mom!」</p>
 
 <p>Late at night. A text sent hoping she might be awake, though she might already be asleep. Shiwoo waited for a reply, his heart pounding. Soon, the '1' next to the message disappeared, and a reply came from Mom. 「Why?」</p>
 
 <p>Shiwoo felt his heart ease at Mom's reply. 「Just curious what Mom's doing right now...」</p>
 
-<p>This was their first conversation since the intimidating text message at the department store lingerie shop earlier in the day. 「What would I be doing at bedtime~ I was sleeping~! Shiwoo, what are you doing up at this hour?」 Mom and Shiwoo seemed to have returned to their usual mother-son relationship.</p>
+<p>This was their first conversation since the intimidating text message at the department store lingerie shop earlier in the day. 「What would I be doing at bedtime I was sleeping! Shiwoo, what are you doing up at this hour?」 Mom and Shiwoo seemed to have returned to their usual mother-son relationship.</p>
 
-<p>「Just thinking of Mom, so I came into the master bedroom for a bit~」 「Master bedroom?」 「Yeah」 「What are you doing in the master bedroom? You have to go to cram school tomorrow! You'll oversleep again~ Go to your room and sleep quickly!! Mom has to sleep now too!!」 Mom was nagging Shiwoo as usual.</p>
+<p>「Just thinking of Mom, so I came into the master bedroom for a bit」 「Master bedroom?」 「Yeah」 「What are you doing in the master bedroom? You have to go to cram school tomorrow! You'll oversleep again Go to your room and sleep quickly!! Mom has to sleep now too!!」 Mom was nagging Shiwoo as usual.</p>
 
-<p>「Is Seyoung next to you right now?」 「Seyoung's sleeping next to Mom~」 「Oh? Then just a moment~」</p>
+<p>「Is Seyoung next to you right now?」 「Seyoung's sleeping next to Mom」 「Oh? Then just a moment」</p>
 
 <p>The mischievous thought Shiwoo had just had in his room while rubbing his penis against Sehee Nuna's buttocks. As if the mention of Seyoung sleeping was a trigger, Shiwoo was boldly about to put that mischievous thought into action.</p>
 
@@ -60,33 +60,33 @@ chapter = 70
 
 <p>「You said you weren't mad anyway? Haha」 Shiwoo retorted playfully.</p>
 
-<p>「Still, how can you do this to Mom? I asked Mom for some time to think~ and you're just making strange threats!!」 「Since you're Mom, you should have at least one photo of your son~ 」 「What?」 「And from what Auntie said, Mom was just holding her smartphone blankly all day today?! Weren't you thinking about me enough?」 Shiwoo was parrying Mom's words one by one, trying to seize control of the conversation.</p>
+<p>「Still, how can you do this to Mom? I asked Mom for some time to think and you're just making strange threats!!」 「Since you're Mom, you should have at least one photo of your son 」 「What?」 「And from what Auntie said, Mom was just holding her smartphone blankly all day today?! Weren't you thinking about me enough?」 Shiwoo was parrying Mom's words one by one, trying to seize control of the conversation.</p>
 
-<p>「Seonju said that?」 「Yeah~!! Said Mom seemed to have a man! You should've been careful!! You almost got caught!! Hahaha」 「Ugh~ What caught?~! I asked Mom for some time to think~ What do you do if you keep playing around like this?」</p>
+<p>「Seonju said that?」 「Yeah!! Said Mom seemed to have a man! You should've been careful!! You almost got caught!! Hahaha」 「Ugh What caught?! I asked Mom for some time to think What do you do if you keep playing around like this?」</p>
 
-<p>「Time to think is time to think, and this is this~! If Mom really looked like she hated it, I wouldn't do this!! Mom and I both know that now!! So how am I supposed to hold back when I keep thinking about Mom even more?!!」 Shiwoo spoke as if pouring out his frustrated feelings. Mom was silent again for a while.</p>
+<p>「Time to think is time to think, and this is this! If Mom really looked like she hated it, I wouldn't do this!! Mom and I both know that now!! So how am I supposed to hold back when I keep thinking about Mom even more?!!」 Shiwoo spoke as if pouring out his frustrated feelings. Mom was silent again for a while.</p>
 
 <p>「Mom, you said you like chatting like friends, right? In chat, can't Mom just be honest with me and do whatever she wants?」 Shiwoo, seizing the momentum, sent another text.</p>
 
-<p>「Mom, you said you don't dislike me doing this~?!! I feel like I can't live without Mom now~!!!」 Shiwoo sent the text to Mom as if squeezing out his true feelings.</p>
+<p>「Mom, you said you don't dislike me doing this?!! I feel like I can't live without Mom now!!!」 Shiwoo sent the text to Mom as if squeezing out his true feelings.</p>
 
-<p>「You must've done it a lot with Dad, like a game, right!?」 Shiwoo continued to push, as if testing Mom. 「You could just try it with me too, thinking of it as a game, like playing around~!」 Finally, Shiwoo sent a text to Mom as if pleading.</p>
+<p>「You must've done it a lot with Dad, like a game, right!?」 Shiwoo continued to push, as if testing Mom. 「You could just try it with me too, thinking of it as a game, like playing around!」 Finally, Shiwoo sent a text to Mom as if pleading.</p>
 
 <p>Mom was silent again for a long time. A long period of silence.</p>
 
 <p>「Shiwoo, do you really want to do that with Mom?」 And then, a reply came from Mom, as if she had suddenly made up her mind. Shiwoo felt uncertain upon seeing Mom's reply.</p>
 
-<p>「Of course~!!」 Shiwoo quickly replied, lest he miss the opportunity.</p>
+<p>「Of course!!」 Shiwoo quickly replied, lest he miss the opportunity.</p>
 
 <p>「Mom might really become strange, you know?」 Mom asked Shiwoo, seemingly worried.</p>
 
-<p>「What if you get strange? It's just chat anyway~~!!」 Shiwoo spoke as if whining and pestering.</p>
+<p>「What if you get strange? It's just chat anyway!!」 Shiwoo spoke as if whining and pestering.</p>
 
 <p>Mom was silent again for a moment. 「Just a moment!!」</p>
 
 <p>Shiwoo typed and sent that message, then immediately used his smartphone camera to photograph the inside of the open nightstand drawer. -Chalkak! On the smartphone screen, the dog collar, leash, and lingerie placed inside the drawer were clearly visible.</p>
 
-<p>Instead of a proper explanation or persuasion, Shiwoo sent the photo he had just taken to Mom. 「I put them in here~!! Check them when you get home later.」 And then, Shiwoo's text was sent, pushing things forward recklessly, as if forcing her attitude.</p>
+<p>Instead of a proper explanation or persuasion, Shiwoo sent the photo he had just taken to Mom. 「I put them in here!! Check them when you get home later.」 And then, Shiwoo's text was sent, pushing things forward recklessly, as if forcing her attitude.</p>
 
 <p>Mom was silent again for a while. Perhaps contemplating, Mom let a long time pass without replying. And then, Mom replied as if she had finally made up her mind. 「Alright...Mom will go home and check.」</p>
 
@@ -96,27 +96,27 @@ chapter = 70
 
 <p>After a long while, what Shiwoo sent to Mom via text was a photo of the nightstand drawer, now covered in semen. A considerably large amount of semen, too much to be called a 7th ejaculation, was profusely sprayed over the dog collar, leash, and lingerie. 「I'll close this as is, so Mom has to come and clean it all up later, okay?! Got it? It's punishment for running away with Seyoung!!」 Shiwoo's demand seemed somewhat unreasonable.</p>
 
-<p>「Okay! Mom will go and clean up everything Shiwoo messed up~」 Mom replied with a submissive attitude, as if accommodating Shiwoo.</p>
+<p>「Okay! Mom will go and clean up everything Shiwoo messed up」 Mom replied with a submissive attitude, as if accommodating Shiwoo.</p>
 
-<p>「Good! Our Mom is good~ As a souvenir, will you take a picture of Mom's breasts and send it? Bare breasts~!!」 Praise for her submission, and Shiwoo's new demand. Mom was silent again, seemingly contemplating for a long time.</p>
+<p>「Good! Our Mom is good As a souvenir, will you take a picture of Mom's breasts and send it? Bare breasts!!」 Praise for her submission, and Shiwoo's new demand. Mom was silent again, seemingly contemplating for a long time.</p>
 
 <p class="scene-break">· · ·</p>
 
 <p>For a while, Shiwoo savored the chat with Mom, intoxicated by a proud sense of accomplishment. Since he had thoroughly confirmed Mom's feelings, Shiwoo no longer worried or rushed her. Shiwoo returned to his room where Sehee was, and just like before, he supported Sehee's head with his arm and spooned her from behind, settling down for a pleasant sleep.</p>
 
-<p>Just then, Mom's text message notification rang. 「Shiwoo, make sure you keep things clear~!! This is just playing around in chat!! And if Sehee ever finds out about this, Mom will just die on the spot!!」 Mom, perhaps feeling uneasy and anxious, sent a text demanding clarification from Shiwoo.</p>
+<p>Just then, Mom's text message notification rang. 「Shiwoo, make sure you keep things clear!! This is just playing around in chat!! And if Sehee ever finds out about this, Mom will just die on the spot!!」 Mom, perhaps feeling uneasy and anxious, sent a text demanding clarification from Shiwoo.</p>
 
-<p>「Haha, our Mom is cute~ Alright~!! Only in chat~ Hahaha」 Shiwoo replied, treating Mom like a child.</p>
+<p>「Haha, our Mom is cute Alright!! Only in chat Hahaha」 Shiwoo replied, treating Mom like a child.</p>
 
-<p>「Ugh~ Really!! Make sure you keep your promise!!」 「Yeah!! Of course~! Thank you, Mom! I love you~ Good night~」 Shiwoo replied immediately, saying thank you, I love you, and bidding good night.</p>
+<p>「Ugh Really!! Make sure you keep your promise!!」 「Yeah!! Of course! Thank you, Mom! I love you Good night」 Shiwoo replied immediately, saying thank you, I love you, and bidding good night.</p>
 
-<p>「Okay. Mom knows now too! Good night to our son too~ I love you ^ ^*」 Only then did Mom seem to relax, changing her tone, bidding good night, and sending a new kind of emoticon.</p>
+<p>「Okay. Mom knows now too! Good night to our son too I love you ^ ^*」 Only then did Mom seem to relax, changing her tone, bidding good night, and sending a new kind of emoticon.</p>
 
 <p>Shiwoo felt a strange mix of awkwardness and satisfaction. And then, Mom's text message notification rang again.</p>
 
 <p>What was sent from Mom was a photo of her bare breasts. As if declaring her clear intention to participate in the master-slave game with Shiwoo... A photo of luscious breasts exposed, taken by pulling up the top she was wearing above her chest, while carefully watching sleeping Seyoung.</p>
 
-<p>Upon seeing the photo of Mom's breasts, Shiwoo began to get erect again. 「Seonmi's breasts are really beautiful~!!」 His last text message to Mom.</p>
+<p>Upon seeing the photo of Mom's breasts, Shiwoo began to get erect again. 「Seonmi's breasts are really beautiful!!」 His last text message to Mom.</p>
 
 <p>Shiwoo put down his smartphone, gently parted Sehee's legs as she lay on her side, and inserted his engorged 'thing' between her crotch. Shiwoo carefully lowered Sehee's parted legs. With a perfectly pleasant, moderate weight, Sehee's legs were clenching Shiwoo's 'thing'. Shiwoo moved his free arm forward, cupping and kneading Sehee's breasts.</p>
 

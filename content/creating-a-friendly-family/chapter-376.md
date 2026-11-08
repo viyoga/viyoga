@@ -88,7 +88,7 @@ chapter = 376
 
 <p>Shiwoo's body is trembling with excitement, as if it is about to explode at any moment.</p>
 
-<p>"Huuuuuuuu~"</p>
+<p>"Huuuuuuuu"</p>
 
 <p>Shiwoo takes a long, hot breath as if trying to calm down the excitement that is gradually building up to the point where he can't control it.</p>
 

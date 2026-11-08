@@ -42,7 +42,7 @@ chapter = 263
 
 <p>Shiwoo climbed onto the bed and stood, extending his erect penis towards Sehee nuna, with Seyoung between them.</p>
 
-<p>"Eung~! She seems okay for now~ See?"</p>
+<p>"Eung! She seems okay for now See?"</p>
 
 <p>Shiwoo was showing his stiffly erect penis, pushing it towards Sehee nuna as if proving his innocence.</p>
 
@@ -50,7 +50,7 @@ chapter = 263
 
 <p>Sehee nuna glanced at Shiwoo's extended thing and Seyoung's panties hanging on it, and answered as if tense.</p>
 
-<p>"With Seonmi, we talked about going back to normal when we wake up in the morning~"</p>
+<p>"With Seonmi, we talked about going back to normal when we wake up in the morning"</p>
 
 <p>Shiwoo was speaking to Sehee nuna as if trying to explain the current situation of the household.</p>
 
@@ -60,11 +60,11 @@ chapter = 263
 
 <p>Sehee nuna seemed to have thought that Shiwoo and Mom would live in a complete master-slave relationship after spending tonight together.</p>
 
-<p>"Since Seyoung-i is here too~ for now, during the day... well~"</p>
+<p>"Since Seyoung-i is here too for now, during the day... well"</p>
 
 <p>Standing on the bed, looking down at Seyoung's face, who was lying down, Shiwoo answered Sehee nuna's bewildered question, slightly trailing off his words.</p>
 
-<p>"Instead, I'll make sure to nail it down today so Seonmi can't say anything to you, Sehee~!"</p>
+<p>"Instead, I'll make sure to nail it down today so Seonmi can't say anything to you, Sehee!"</p>
 
 <p>Shiwoo brought his thing in front of Sehee nuna's lowered face and continued with a confident tone, as if making a promise.</p>
 
@@ -72,17 +72,17 @@ chapter = 263
 
 <p>Shiwoo's extended penis was, before she knew it, placed on Sehee nuna's forehead.</p>
 
-<p>"You can sleep with Seyoung-i tonight, right? Seyoung-i, once she falls asleep, usually doesn't wake up easily, but sometimes she wakes up in the early morning and goes back to Mom's room~"</p>
+<p>"You can sleep with Seyoung-i tonight, right? Seyoung-i, once she falls asleep, usually doesn't wake up easily, but sometimes she wakes up in the early morning and goes back to Mom's room"</p>
 
 <p>Shiwoo spoke, rubbing the cock placed on Sehee nuna's forehead, spreading Seyoung's vaginal fluid and his own pre-cum widely.</p>
 
-<p>"It might get a little noisy downstairs today~ I plan to pound Seonmi until she passes out at the end of our play~!"</p>
+<p>"It might get a little noisy downstairs today I plan to pound Seonmi until she passes out at the end of our play!"</p>
 
 <p>Shiwoo, foreshadowing intense sex with Mom that would happen downstairs.</p>
 
 <p>In front of Sehee nuna, he no longer showed any courtesy or respectful speech towards Mom.</p>
 
-<p>"They say Seyoung-i sleeps well even when sucking on Seonju's breast~ It seems she can sleep peacefully if anyone in the family gives her a breast to suck, not necessarily Mom~ You understand what I mean, right~?"</p>
+<p>"They say Seyoung-i sleeps well even when sucking on Seonju's breast It seems she can sleep peacefully if anyone in the family gives her a breast to suck, not necessarily Mom You understand what I mean, right?"</p>
 
 <p>Shiwoo then spoke as if urging Sehee nuna to put Seyoung's breast in her mouth and sleep, as he had warned her.</p>
 
@@ -102,7 +102,7 @@ chapter = 263
 
 <p>Shiwoo rubbed the slick fluid on his cock as if smearing it all over Sehee nuna's face, as if marking his territory.</p>
 
-<p>"Before I go downstairs, I'd like Sehee to clean up what's smeared here~"</p>
+<p>"Before I go downstairs, I'd like Sehee to clean up what's smeared here"</p>
 
 <p>Shiwoo spoke, pushing the penis he held in his hand towards Sehee nuna's lips.</p>
 
@@ -120,7 +120,7 @@ chapter = 263
 
 <p>As Shiwoo pushed his hips forward, Sehee nuna's lips parted.</p>
 
-<p>"Hu-ap~!"</p>
+<p>"Hu-ap!"</p>
 
 <p>Shiwoo's penis, wet with Seyoung's vaginal fluid, entered Sehee nuna's mouth.</p>
 
@@ -132,7 +132,7 @@ chapter = 263
 
 <p>Shiwoo placed a hand on Sehee nuna's head as if proud.</p>
 
-<p>"But~ you fucking slave bitch, you've been speaking informally since a while ago~? Do you want to be punished by your master-nim!?"</p>
+<p>"But you fucking slave bitch, you've been speaking informally since a while ago? Do you want to be punished by your master-nim!?"</p>
 
 <p>Shiwoo spoke playfully, putting strength into his hips and pushing his penis towards Sehee nuna's throat.</p>
 
@@ -168,7 +168,7 @@ chapter = 263
 
 <p>As if piercing a hymen, Shiwoo's massive penis naturally began to be inserted into her throat.</p>
 
-<p>"Woo-up~ Woo-wook~! Hu-up~!!"</p>
+<p>"Woo-up Woo-wook! Hu-up!!"</p>
 
 <p>Sehee nuna kept gagging, accepting Shiwoo's thing down her throat.</p>
 
@@ -184,13 +184,13 @@ chapter = 263
 
 <p>Seyoung's panties, hanging on Shiwoo's cock pillar, were pressed against Sehee nuna's lips and nose.</p>
 
-<p>"Ha-uk~! Ha-ak! Keu-euk!"</p>
+<p>"Ha-uk! Ha-ak! Keu-euk!"</p>
 
 <p>Sehee nuna's stomach acid, rising as if refluxing.</p>
 
 <p>With her eyes fixed on the smartphone camera lens, Sehee nuna trembled violently.</p>
 
-<p>"Since Seyoung-i is here~ well~! Whether it's Seyoung-i or in front of other people, we have to act like siblings for now~ So you spoke informally, right?"</p>
+<p>"Since Seyoung-i is here well! Whether it's Seyoung-i or in front of other people, we have to act like siblings for now So you spoke informally, right?"</p>
 
 <p>With his penis shoved all the way to the root into Sehee nuna's mouth, her head fixed in place.</p>
 
@@ -204,11 +204,11 @@ chapter = 263
 
 <p>Intense constriction and trembling, filling Sehee nuna's throat, were fully transmitted to Shiwoo's penis.</p>
 
-<p>"To Seyoung-i too, I wish I could do this soon~"</p>
+<p>"To Seyoung-i too, I wish I could do this soon"</p>
 
 <p>Shiwoo spoke his wish to Sehee nuna with a leisurely, relaxed tone.</p>
 
-<p>"Woo-up Woo-up Woo-woo-up~"</p>
+<p>"Woo-up Woo-up Woo-woo-up"</p>
 
 <p>Sehee nuna's eyes, continuing to gag, were becoming moist.</p>
 
@@ -230,7 +230,7 @@ chapter = 263
 
 <p>Shiwoo's long penis slid out of Sehee nuna's mouth like a snake crawling out of a cave.</p>
 
-<p>"Keo-heok~ Ku-leok! Heu-euk! Haaa-a Haeu-euk~!!"</p>
+<p>"Keo-heok Ku-leok! Heu-euk! Haaa-a Haeu-euk!!"</p>
 
 <p>Coughing violently, Sehee nuna barely caught her breath again.</p>
 

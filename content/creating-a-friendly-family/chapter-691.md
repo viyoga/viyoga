@@ -62,7 +62,7 @@ chapter = 691
 
 <p>Seyoung nodded and answered Shiwoo. Then, Seyoung whipped around to look at Sehee-nuna and Mom.</p>
 
-<p>"...So now Sehee-eonni is going to suckle Seonmi's breast and sleep too~?"</p>
+<p>"...So now Sehee-eonni is going to suckle Seonmi's breast and sleep too?"</p>
 
 <p>Seyoung asked the two of them in a playful voice, as if to confirm. Around Seyoung's mouth and jaw, the sticky saliva marks left from licking Shiwoo's penis just moments ago remained vividly.</p>
 
@@ -70,7 +70,7 @@ chapter = 691
 
 <p>Sehee-nuna answered, appearing a bit flustered by Seyoung's question as she turned toward them.</p>
 
-<p>"Hmph! Seonmi's breasts are mine~! How can you two just decide whatever you want between yourselves without even asking my permission? After I put in all that work to tame her all by myself so she couldn't move~"</p>
+<p>"Hmph! Seonmi's breasts are mine! How can you two just decide whatever you want between yourselves without even asking my permission? After I put in all that work to tame her all by myself so she couldn't move"</p>
 
 <p>Seyoung spoke while looking at Mom and Sehee-nuna with a tone mixed with disappointment and a jealous expression.</p>
 
@@ -110,7 +110,7 @@ chapter = 691
 
 <p>Mom and Sehee-nuna answered cautiously with flustered expressions, as if trying to soothe Seyoung's mood. Seyoung, who was leading the flow with a confident and composed attitude as if she had already been delegated authority by Shiwoo...</p>
 
-<p>"Alright~ I'll give you special permission~!"</p>
+<p>"Alright I'll give you special permission!"</p>
 
 <p>Unexpectedly and without hesitation, Seyoung smoothly approved the two's request.</p>
 

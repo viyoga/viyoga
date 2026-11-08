@@ -24,7 +24,7 @@ chapter = 624
 
 <p>It seemed to be breast milk collected relatively early.</p>
 
-<p>"I'll take this one! Seyoung-i yang seems like she wants to taste it? Since we're going to eat it anyway, it's good for the other family members to taste it beforehand~ Right?"</p>
+<p>"I'll take this one! Seyoung-i yang seems like she wants to taste it? Since we're going to eat it anyway, it's good for the other family members to taste it beforehand Right?"</p>
 
 <p>Shiwoo shook the breast milk container at Sejin Nuna and asked playfully.</p>
 
@@ -50,7 +50,7 @@ chapter = 624
 
 <p class="scene-break">· · ·</p>
 
-<p>"Well then, I'll be going... I enjoyed the pasta today~"</p>
+<p>"Well then, I'll be going... I enjoyed the pasta today"</p>
 
 <p>Shiwoo said, putting on his shoes at the entrance and turning to look at Sejin Nuna.</p>
 

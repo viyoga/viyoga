@@ -42,7 +42,7 @@ chapter = 111
 
 <p>Along with the ammonia smell that stung his nose, the salty and sour umami of her female body was felt on the tip of Shiwoo's tongue.</p>
 
-<p>"It's so salty!? And it smells~! Fishy and sour!!"</p>
+<p>"It's so salty!? And it smells! Fishy and sour!!"</p>
 
 <p>Shiwoo's impressions, spat out to inflict embarrassing humiliation on Sehee Nuna.</p>
 
@@ -54,7 +54,7 @@ chapter = 111
 
 <p>Each time she twisted her body, Sehee Nuna's breasts shook elastically in all directions, like a huge, overturned pudding jelly.</p>
 
-<p>"But I really like this smell~ When you're jogging in the morning and you sweat and come back with this smell, I really feel like I'm going crazy wanting to ram it in."</p>
+<p>"But I really like this smell When you're jogging in the morning and you sweat and come back with this smell, I really feel like I'm going crazy wanting to ram it in."</p>
 
 <p>Shiwoo's vulgar lines, continuing as if confessing a perverted taste.</p>
 
@@ -62,7 +62,7 @@ chapter = 111
 
 <p>From her sides to the depths of her armpits where the sweat glands were...</p>
 
-<p>"Haat~ Heut~ Haa-euuu-eut!! Heueuk!!"</p>
+<p>"Haat Heut Haa-euuu-eut!! Heueuk!!"</p>
 
 <p>Each time Shiwoo's tongue licked up as if slipping, Sehee Nuna's abs contracted as if she was becoming rigid, and her upper body was filled with strength.</p>
 
@@ -72,7 +72,7 @@ chapter = 111
 
 <p>Shiwoo licked the sensitive skin of her body as if tormenting her, then briefly removed his tongue from Sehee Nuna's body and watched her condition.</p>
 
-<p>"Haa~ Haa~ Haaa-ah~"</p>
+<p>"Haa Haa Haaa-ah"</p>
 
 <p>Sehee Nuna, trembling intermittently, gasped roughly for breath.</p>
 
@@ -100,11 +100,11 @@ chapter = 111
 
 <p>Sehee Nuna's gaze and lips, wandering and unsure of what to answer as her penis rubbed against her, feeling crushed.</p>
 
-<p>"You have to answer~?!"</p>
+<p>"You have to answer?!"</p>
 
 <p>Shiwoo said, pretending to lightly choke Sehee Nuna's neck with his hand.</p>
 
-<p>"Heueuk~!"</p>
+<p>"Heueuk!"</p>
 
 <p>Sehee Nuna's moaning sound, as if flustered.</p>
 
@@ -112,7 +112,7 @@ chapter = 111
 
 <p>Shiwoo, roughly rubbing his penis against her as he spoke in a gentle, coaxing voice.</p>
 
-<p>"Haa~ Shi... Shiwoo-ya, please~"</p>
+<p>"Haa Shi... Shiwoo-ya, please"</p>
 
 <p>Sehee Nuna said, tightly closing her eyes.</p>
 
@@ -120,7 +120,7 @@ chapter = 111
 
 <p>Shiwoo asked mischievously.</p>
 
-<p>"Pu... Put it in~"</p>
+<p>"Pu... Put it in"</p>
 
 <p>Sehee Nuna's plea.</p>
 
@@ -142,7 +142,7 @@ chapter = 111
 
 <p>Shiwoo said, whispering to Sehee Nuna.</p>
 
-<p>"Heueeung~~"</p>
+<p>"Heueeung"</p>
 
 <p>Sehee Nuna was trembling and moaning, her body pierced through the center by the massive pillar.</p>
 
@@ -162,7 +162,7 @@ chapter = 111
 
 <p>Sehee Nuna, trembling and gasping for breath, stopped breathing on the inhale.</p>
 
-<p>"Haa-euuu-eung~ Ple... Please now, fu... fuck me, Master!!"</p>
+<p>"Haa-euuu-eung Ple... Please now, fu... fuck me, Master!!"</p>
 
 <p>Sehee Nuna's voice, spewed out as if in heat amidst the precarious madness and excitement, echoed for a long time.</p>
 
@@ -238,7 +238,7 @@ chapter = 111
 
 <p>Shiwoo began to shake his penis madly and ejaculate towards Sehee Nuna's face.</p>
 
-<p>-Pushyuuk Pushyuuk~Pushyuuu-uuk!!</p>
+<p>-Pushyuuk PushyuukPushyuuu-uuk!!</p>
 
 <p>Shiwoo's semen, pouring down onto Sehee Nuna's face.</p>
 

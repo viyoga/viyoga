@@ -70,7 +70,7 @@ chapter = 160
 
 <p>Sehee-nuna's head was entwined by Seonju Imo's thighs, pressed towards her crotch.</p>
 
-<p>「Chyureup~! Chyureureup! Chyuap!」</p>
+<p>「Chyureup! Chyureureup! Chyuap!」</p>
 
 <p>Sehee-nuna's tongue play, enveloping Seonju Imo's clitoris with her lips and sucking it, continued without end.</p>
 
@@ -86,7 +86,7 @@ chapter = 160
 
 <p class="scene-break">· · ·</p>
 
-<p>「Heuaaa~~! Heueueueuk~ Haa-aaat」</p>
+<p>「Heuaaa! Heueueueuk Haa-aaat」</p>
 
 <p>A moaning sound, like a shout, burst from Seonju Imo's mouth.</p>
 
@@ -116,7 +116,7 @@ chapter = 160
 
 <p>Shiwoo pulled Sehee-nuna's panties out of Seonju Imo's mouth.</p>
 
-<p>「Haa-aa~ Haa-aa~ Haeueung~!」</p>
+<p>「Haa-aa Haa-aa Haeueung!」</p>
 
 <p>Seonju Imo's ragged breaths, as if she was exhausted, came in gasps.</p>
 
@@ -130,7 +130,7 @@ chapter = 160
 
 <p>-Looking at Shiwoo with a regretful expression, as if her toy had been taken away-</p>
 
-<p>「Sehee, come here~!」</p>
+<p>「Sehee, come here!」</p>
 
 <p>Shiwoo slightly twisted his body diagonally in front of Seonju Imo's face and commanded Sehee-nuna.</p>
 
@@ -186,13 +186,13 @@ chapter = 160
 
 <p>Shiwoo pushed his massive penis, held within Seonju Imo's mouth, almost to her closed throat, inducing dry heaves.</p>
 
-<p>「Uuuk Ha-uk~! Huu-uk!」</p>
+<p>「Uuuk Ha-uk! Huu-uk!」</p>
 
 <p>Seonju Imo endured, dry heaving to prevent the swallowed filth from regurgitating.</p>
 
 <p>Shiwoo held Seonju Imo's head with one hand, then thrust his hips a little further forward, making the tip of his glans force open Seonju Imo's closed throat.</p>
 
-<p>「Uuuk~! Kek! Kulluk!」</p>
+<p>「Uuuk! Kek! Kulluk!」</p>
 
 <p>Unable to bear it any longer, Seonju Imo finally gagged and vomited.</p>
 

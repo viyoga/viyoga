@@ -78,7 +78,7 @@ chapter = 485
 
 <p>Mom answered obediently to Shiwoo's words, whispering as if doing her a favor, while giving a warning.</p>
 
-<p>"But I probably can't guarantee that either... Seonmi-ya, you also have to stay sharp so you don't pass out~! Got it?"</p>
+<p>"But I probably can't guarantee that either... Seonmi-ya, you also have to stay sharp so you don't pass out! Got it?"</p>
 
 <p>After hearing Mom's obedient answer, this time Shiwoo spoke lightly as if joking, in a playful tone.</p>
 
@@ -140,7 +140,7 @@ chapter = 485
 
 <p>Shiwoo was pouring condensed energy into Mom's hole, bouncing his pelvis with a sensation as if spanking Mom's buttocks without using his hands.</p>
 
-<p>"Haa-euuung haa-aaaa haa-euuung Yeobo...Yeobot! Haaa-ak! Yeobo~"</p>
+<p>"Haa-euuung haa-aaaa haa-euuung Yeobo...Yeobot! Haaa-ak! Yeobo"</p>
 
 <p>Mom, bending her upper body forward, put her head on the bed mattress and burst out the moaning sounds she had been suppressing.</p>
 
@@ -180,7 +180,7 @@ chapter = 485
 
 <p>Shiwoo, as if not caring about Mom's desperate pleas or appeals, shook his waist madly with the intention of sending her away.</p>
 
-<p>Haa-eung haa-aang haa-aa-ap haa-uup haaa~!</p>
+<p>Haa-eung haa-aang haa-aa-ap haa-uup haaa!</p>
 
 <p>The rising sensation of climax was rushing to the tip of Shiwoo's penis.</p>
 

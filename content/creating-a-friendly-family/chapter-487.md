@@ -32,11 +32,11 @@ chapter = 487
 
 <p>As if knowing in advance the attire and formality of the important ritual that would take place today, Seyoung was standing in front of the master bedroom door, exuding a prepared smile and atmosphere.</p>
 
-<p>"Welcome~ Seyoung-ah~ You came a bit early?"</p>
+<p>"Welcome Seyoung-ah You came a bit early?"</p>
 
 <p>Shiwoo said to Seyoung while his center was connected with Mom.</p>
 
-<p>"Yeah~ Today, for some reason, I wanted to see Mom's face quickly~"</p>
+<p>"Yeah Today, for some reason, I wanted to see Mom's face quickly"</p>
 
 <p>Seyoung replied to Shiwoo in a subtle tone, as if containing some hidden meaning.</p>
 
@@ -62,7 +62,7 @@ chapter = 487
 
 <p>Mom's body only slightly flinched, and as if there was nothing she could do about Shiwoo's harassment now, she continued to maintain that shameful posture, raising both arms in front of her face.</p>
 
-<p>"There's some of that too~ Hehe~"</p>
+<p>"There's some of that too Hehe"</p>
 
 <p>Seyoung smiled innocently and approached the bed where Mom and Shiwoo were.</p>
 
@@ -74,15 +74,15 @@ chapter = 487
 
 <p>Seyoung, with one knee raised as if about to lie down on the bed, looked down at Mom's breasts that Shiwoo was holding and spoke as if confirming.</p>
 
-<p>"Yeah, she's on the 2nd floor~ Should we call Sehee here too?"</p>
+<p>"Yeah, she's on the 2nd floor Should we call Sehee here too?"</p>
 
 <p>Shiwoo said, playfully receiving Seyoung's question.</p>
 
-<p>"Sehee Unni? Why~?"</p>
+<p>"Sehee Unni? Why?"</p>
 
 <p>Seyoung asked back in a playful tone, as if doing a comedy routine with Shiwoo, with Mom in between.</p>
 
-<p>"No, I just thought it would be nice to lie down together for the first time in a while~ To catch up with each other~"</p>
+<p>"No, I just thought it would be nice to lie down together for the first time in a while To catch up with each other"</p>
 
 <p>Shiwoo answered Seyoung, holding Mom's pelvis and slightly inserting his penis into her body.</p>
 
@@ -92,7 +92,7 @@ chapter = 487
 
 <p>Perhaps Seyoung was looking down at Mom's condition and roughly understanding the situation that was already unfolding in the room.</p>
 
-<p>"But it's too cramped to sleep with four people here~ Let's call Sehee Unni to a wider place next time and sleep together~ Hehe"</p>
+<p>"But it's too cramped to sleep with four people here Let's call Sehee Unni to a wider place next time and sleep together Hehe"</p>
 
 <p>Seyoung said, touching the tips of Mom's swaying breasts with her fingertips.</p>
 
@@ -126,7 +126,7 @@ chapter = 487
 
 <p>Shiwoo, gaining conviction and confidence from Seyoung, said while gently pushing Mom's buttocks with his pelvis.</p>
 
-<p>"Yeah~ In a wider place~ Hehe~"</p>
+<p>"Yeah In a wider place Hehe"</p>
 
 <p>Seyoung, as if very satisfied with the conversation with Shiwoo, who was promising the next time, answered with a bright smile.</p>
 
@@ -166,7 +166,7 @@ chapter = 487
 
 <p>Now, Shiwoo was also saying direct words related to harassing Mom to Seyoung without hesitation.</p>
 
-<p>"Yeah~ It's delicious~ Did Oppa put it here? To feed me?"</p>
+<p>"Yeah It's delicious Did Oppa put it here? To feed me?"</p>
 
 <p>Seyoung briefly took her mouth off Mom's chest and asked playfully.</p>
 
@@ -176,7 +176,7 @@ chapter = 487
 
 <p>Shiwoo was sweeping Seyoung's body, seemingly trying to check whether she was wearing underwear inside her pajamas.</p>
 
-<p>"You have to brush your teeth before sleeping after eating ice cream or snacks~ What should I do if I fall asleep like this? Hehe..."</p>
+<p>"You have to brush your teeth before sleeping after eating ice cream or snacks What should I do if I fall asleep like this? Hehe..."</p>
 
 <p>Seyoung said, showing a bright and flawless smile, as if Shiwoo's touch on her body was nothing.</p>
 

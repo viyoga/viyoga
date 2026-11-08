@@ -112,13 +112,13 @@ chapter = 425
 
 <p>Shiwoo is talking to Mom, making a fuss for no reason, without seeming too worried.</p>
 
-<p>"I...I told you, didn't I?! That the floor would get dirty~! And the smell won't go away right away! What are we going to do if customers come in right after we leave?!"</p>
+<p>"I...I told you, didn't I?! That the floor would get dirty! And the smell won't go away right away! What are we going to do if customers come in right after we leave?!"</p>
 
 <p>Mom answers Shiwoo as if she has come out of the immersive play.</p>
 
 <p>Shiwoo feels a strange sense of relief and comfort at Mom's usual nagging complaints.</p>
 
-<p>"There was a mop in the bathroom, I should bring it and wipe it up~ Just wait a little!"</p>
+<p>"There was a mop in the bathroom, I should bring it and wipe it up Just wait a little!"</p>
 
 <p>Shiwoo says, recalling the mop in the cleaning supply cabinet he had glimpsed in the bathroom.</p>
 
@@ -130,7 +130,7 @@ chapter = 425
 
 <p>It seemed that she wanted to wipe away the traces of ejaculation and filth on her body before going home...</p>
 
-<p>"Yeah~ I got it, I'll bring some while I'm getting the mop~ Just tissue and wet wipes, right?"</p>
+<p>"Yeah I got it, I'll bring some while I'm getting the mop Just tissue and wet wipes, right?"</p>
 
 <p>Before he knew it, Shiwoo was talking to her as if he had returned to being Mom and son.</p>
 
@@ -152,7 +152,7 @@ chapter = 425
 
 <p>Looking at her facial expression, she still doesn't seem to completely believe Shiwoo's words that he threw away her clothes.</p>
 
-<p>"What do you mean by that~?! How am I supposed to get home, Mom~?! Don't joke around and bring it quickly!"</p>
+<p>"What do you mean by that?! How am I supposed to get home, Mom?! Don't joke around and bring it quickly!"</p>
 
 <p>Mom was talking to Shiwoo with a slightly annoyed tone.</p>
 

@@ -56,7 +56,7 @@ chapter = 212
 
 <p>Perhaps Mom missed the timing to nag because of Shiwoo's unexpected molestation in the master bedroom just now.</p>
 
-<p>,I'm going to go change my clothes~!</p>
+<p>,I'm going to go change my clothes!</p>
 
 <p>Shiwoo said, looking at Seonju Imo-nim and making an awkward expression.</p>
 
@@ -120,7 +120,7 @@ chapter = 212
 
 <p class="scene-break">· · ·</p>
 
-<p>,Shiwoo Oppa~! Mom said she's finished setting the table~! She told me to come down for dinner~!</p>
+<p>,Shiwoo Oppa! Mom said she's finished setting the table! She told me to come down for dinner!</p>
 
 <p>At that moment, Shiwoo's door burst open, and Seyoung's voice was heard loudly.</p>
 
@@ -128,7 +128,7 @@ chapter = 212
 
 <p>Shiwoo, who was organizing his thoughts while sitting on the bed, was startled by Seyoung's voice and turned towards the door where Seyoung was.</p>
 
-<p>,You were awake~?! I thought Oppa had gone into the room and was sleeping again, so Sua and I came to wake you up together~ Hehe~,</p>
+<p>,You were awake?! I thought Oppa had gone into the room and was sleeping again, so Sua and I came to wake you up together Hehe,</p>
 
 <p>Seyoung said to Shiwoo with a bright smile, entering the room with the door wide open as if it were natural.</p>
 
@@ -142,15 +142,15 @@ chapter = 212
 
 <p>Shiwoo's penis, with a rapidly surging excitement, was starting to become slightly erect.</p>
 
-<p>,No! You...you should knock~!! You're a grown woman coming into a man's room~!!,</p>
+<p>,No! You...you should knock!! You're a grown woman coming into a man's room!!,</p>
 
 <p>Shiwoo said to Seyoung, crossing his legs and leaning forward to subtly cover his growing penis.</p>
 
-<p>,Yeah~~ But Oppa doesn't wake up easily even if it's noisy when you're asleep~!!,</p>
+<p>,Yeah But Oppa doesn't wake up easily even if it's noisy when you're asleep!!,</p>
 
 <p>Seyoung was answering as if refuting Shiwoo's words.</p>
 
-<p>,Is it because our family all takes after Mom~?,</p>
+<p>,Is it because our family all takes after Mom?,</p>
 
 <p>And Seyoung's words continued as if to herself.</p>
 
@@ -162,7 +162,7 @@ chapter = 212
 
 <p>Shiwoo raised his voice as if flustered.</p>
 
-<p>,Okay~ I'll do that from now on~ Hehe~ Are you coming down now? Today's side dishes are frankfurter sausages and fried eggs, which Oppa likes~,</p>
+<p>,Okay I'll do that from now on Hehe Are you coming down now? Today's side dishes are frankfurter sausages and fried eggs, which Oppa likes,</p>
 
 <p>Seyoung, as if not caring much about Shiwoo's embarrassment, said what she wanted to say and left the room with Sua.</p>
 
@@ -188,7 +188,7 @@ chapter = 212
 
 <p>Shiwoo said, sitting in the seat across from Mom and looking at the white puppy circling around Seyoung's seat.</p>
 
-<p>,Yeah~ Mom said I've completely returned home now~ Sae-a will live here now too~!!,</p>
+<p>,Yeah Mom said I've completely returned home now Sae-a will live here now too!!,</p>
 
 <p>Seyoung, as if excited, answered Shiwoo's question to Mom on her own.</p>
 
@@ -196,11 +196,11 @@ chapter = 212
 
 <p>Shiwoo looked at Seyoung and asked, as if puzzled by the unfamiliar name he was hearing for the first time.</p>
 
-<p>,Yeah! Sae-a~ Our youngest sibling we adopted this time~! She's a girl~ Look~~ Hehe~!!,</p>
+<p>,Yeah! Sae-a Our youngest sibling we adopted this time! She's a girl Look Hehe!!,</p>
 
 <p>Seyoung said to Shiwoo happily, holding up the puppy that was circling around her chair with both hands and showing it to Shiwoo.</p>
 
-<p>,Oh... really? You even named her~,</p>
+<p>,Oh... really? You even named her,</p>
 
 <p>Shiwoo said, looking at Seyoung, who was holding the puppy as if showing it off to Shiwoo.</p>
 

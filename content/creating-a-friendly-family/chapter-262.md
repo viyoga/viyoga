@@ -108,7 +108,7 @@ chapter = 262
 
 <p>Shiwoo approached the bed where Sehee -nuna was lying.</p>
 
-<p>"Can you pull the blanket back a bit? I need to put Seyoung to sleep here~!"</p>
+<p>"Can you pull the blanket back a bit? I need to put Seyoung to sleep here!"</p>
 
 <p>Shiwoo demanded to Sehee -nuna, who was lying down, as if it were obvious.</p>
 
@@ -124,7 +124,7 @@ chapter = 262
 
 <p>Sehee -nuna's eyes widened as if she was surprised to see Shiwoo and Seyoung connected, and she let out a gasp.</p>
 
-<p>"You weren't asleep? Aren't you tired~?"</p>
+<p>"You weren't asleep? Aren't you tired?"</p>
 
 <p>Shiwoo was speaking as if it were nothing, with Seyoung's buttocks facing Sehee -nuna.</p>
 
@@ -134,7 +134,7 @@ chapter = 262
 
 <p>Perhaps because she was flustered by the sight of Shiwoo and Seyoung connected, or because they weren't alone, Sehee -nuna's tone had changed to informal, unlike what it had been during the day.</p>
 
-<p>"Seonmi is downstairs~ I left her to rest for a bit, but I don't know if she'll be able to last all night~"</p>
+<p>"Seonmi is downstairs I left her to rest for a bit, but I don't know if she'll be able to last all night"</p>
 
 <p>Shiwoo was speaking as if showing off his stamina, calling Mom's name carelessly in front of Sehee -nuna.</p>
 
@@ -150,7 +150,7 @@ chapter = 262
 
 <p>Sehee -nuna reacted as if startled and asked Shiwoo back.</p>
 
-<p>"Pictures~ Of me like this with Seyoung~! Heu-heu~!"</p>
+<p>"Pictures Of me like this with Seyoung! Heu-heu!"</p>
 
 <p>Shiwoo once again presented his thing forward as if showing off to Sehee -nuna, and then spoke.</p>
 
@@ -166,7 +166,7 @@ chapter = 262
 
 <p>Shiwoo's smartphone camera, with the flash going off due to the automatic adjustment function according to brightness.</p>
 
-<p>"I'm going to lay her down now, so the blanket~!"</p>
+<p>"I'm going to lay her down now, so the blanket!"</p>
 
 <p>Shiwoo said as if asking Sehee -nuna to make room, taking out the cock that had been slightly inserted into the outer part of Seyoung's crack after taking the pictures.</p>
 
@@ -188,7 +188,7 @@ chapter = 262
 
 <p>The scene of the glistening honey water flowing from inside that vagina hole onto Shiwoo's cock pillar was captured on the smartphone as it was.</p>
 
-<p>"What do you think Seonmi will say if I show her this later? I'll say Sehee took it~ Heu-heu-heu"</p>
+<p>"What do you think Seonmi will say if I show her this later? I'll say Sehee took it Heu-heu-heu"</p>
 
 <p>Shiwoo looked at the picture that Sehee -nuna had taken just now and smiled contentedly, speaking playfully.</p>
 
@@ -204,7 +204,7 @@ chapter = 262
 
 <p>Sehee -nuna asked Shiwoo worriedly, checking on Seyoung's condition.</p>
 
-<p>"Who knows~~? Did I? Do you want to check yourself, Sehee~?"</p>
+<p>"Who knows? Did I? Do you want to check yourself, Sehee?"</p>
 
 <p>Shiwoo gave such an ambiguous answer and grabbed Seyoung's panties, pulling them down.</p>
 

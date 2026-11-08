@@ -28,7 +28,7 @@ chapter = 310
 
 <p>Shiwoo sits next to Seonju Imo, puts his arm around her shoulder, and helps her drink the water.</p>
 
-<p>,All-gak! All-gak~! All-gak~!,</p>
+<p>,All-gak! All-gak! All-gak!,</p>
 
 <p>Seonju Imo, with the water cup to her mouth in Shiwoo's arms, lifts her head and swallows the water as Shiwoo does.</p>
 
@@ -62,7 +62,7 @@ chapter = 310
 
 <p>Shiwoo was somehow speaking as if trying to soothe and reassure Seonju Imo.</p>
 
-<p>,Yes~ Master-nim, please do whatever you want~,</p>
+<p>,Yes Master-nim, please do whatever you want,</p>
 
 <p>Seonju Imo, having regained some energy after drinking all the water, tries to lower her voice and answers as usual.</p>
 
@@ -72,7 +72,7 @@ chapter = 310
 
 <p>Seonju Imo doesn't answer right away and opens her mouth, staring at Shiwoo for a moment as if gazing at him.</p>
 
-<p>,I have no complaints~ And even if I did, I can't say anything now~ Because we're all Master-nim's~ Kikik.,</p>
+<p>,I have no complaints And even if I did, I can't say anything now Because we're all Master-nim's Kikik.,</p>
 
 <p>Seonju Imo answered Shiwoo in a tone that was appropriately balanced with seriousness and playfulness.</p>
 
@@ -82,7 +82,7 @@ chapter = 310
 
 <p>Shiwoo was asking Seonju Imo as if he was trying to consider the realistic problem only now.</p>
 
-<p>,You said you wouldn't take responsibility, right? You told me to do as I please~ Kikik~!,</p>
+<p>,You said you wouldn't take responsibility, right? You told me to do as I please Kikik!,</p>
 
 <p>Seonju Imo said, teasing Shiwoo, who was seriously asking as if he had only now become aware of reality.</p>
 
@@ -90,7 +90,7 @@ chapter = 310
 
 <p>Shiwoo was reacting as if he was embarrassed by Seonju Imo's words teasing him.</p>
 
-<p>,If I get pregnant~ I can just take Sua abroad for a while and come back, so don't worry~ When I come back, I'll just insist to people that it's my child~ Kikik.,</p>
+<p>,If I get pregnant I can just take Sua abroad for a while and come back, so don't worry When I come back, I'll just insist to people that it's my child Kikik.,</p>
 
 <p>It was Seonju Imo who was reassuring Shiwoo, presenting a specific solution even though she still had a playful tone.</p>
 
@@ -98,7 +98,7 @@ chapter = 310
 
 <p>Shiwoo asks Seonju Imo as if he is still worried.</p>
 
-<p>,The business will run well even without me~ Master-nim, just focus on getting us pregnant~! Kikik.,</p>
+<p>,The business will run well even without me Master-nim, just focus on getting us pregnant! Kikik.,</p>
 
 <p>Seonju Imo was answering as if there was nothing to worry about, cutting off Shiwoo's question filled with concern.</p>
 
@@ -110,7 +110,7 @@ chapter = 310
 
 <p>Shiwoo's thing swelled up firmly as if it could start reproductive activities right away.</p>
 
-<p>,The kids must be waiting a lot~ You should go out now~,</p>
+<p>,The kids must be waiting a lot You should go out now,</p>
 
 <p>Seonju Imo looks at Shiwoo's swollen thing and speaks in a mix of casual speech to herself and honorifics to Shiwoo.</p>
 
@@ -126,7 +126,7 @@ chapter = 310
 
 <p>Seonju Imo, as if she realized what Shiwoo was thinking and why he was touching her breasts like that, deliberately lets out a long, sobbing moan.</p>
 
-<p>,I...I hope it's a son who looks like Master-nim~ ...I don't mind if it's a daughter either~!\ But if it's a daughter, will she have to serve Master-nim like Sua~? Kikik~!,</p>
+<p>,I...I hope it's a son who looks like Master-nim ...I don't mind if it's a daughter either!\ But if it's a daughter, will she have to serve Master-nim like Sua? Kikik!,</p>
 
 <p>Seonju Imo leans her face gently on Shiwoo's shoulder and says playfully as if whispering.</p>
 
@@ -160,7 +160,7 @@ chapter = 310
 
 <p>As Shiwoo opened the door and came out, Seyoung and Sua, who were watching the smartphone, took their eyes off it and turned to Shiwoo.</p>
 
-<p>,Did you finish talking well with Seonju Imo? Hehe~,</p>
+<p>,Did you finish talking well with Seonju Imo? Hehe,</p>
 
 <p>It was before Shiwoo even said anything.</p>
 
@@ -170,7 +170,7 @@ chapter = 310
 
 <p>Shiwoo reacted as if he was flustered by Seyoung, who was talking to him in a friendly manner without showing any awkwardness.</p>
 
-<p>,You said you had something to talk about with Seonju Imo and dragged her inside~! Did you finish talking well inside~!,</p>
+<p>,You said you had something to talk about with Seonju Imo and dragged her inside! Did you finish talking well inside!,</p>
 
 <p>Seyoung was looking at Shiwoo with the same tone and expression as usual.</p>
 
@@ -188,7 +188,7 @@ chapter = 310
 
 <p>Shiwoo confirms that the things that happened just now were definitely not a dream or delusion and looks at Seyoung again.</p>
 
-<p>,Then let's leave quickly~ Shiwoo Oppa~! It'll be lunchtime when we arrive~! We have to go to the amusement park and the aquarium today~! Hehe~!,</p>
+<p>,Then let's leave quickly Shiwoo Oppa! It'll be lunchtime when we arrive! We have to go to the amusement park and the aquarium today! Hehe!,</p>
 
 <p>Seyoung says, smiling brightly and urging Shiwoo, who is flustered.</p>
 

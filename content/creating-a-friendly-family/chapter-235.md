@@ -4,7 +4,7 @@ weight = 235
 [extra]
 chapter = 235
 +++
-<p>"But, Shiwoo oppa~ There's something I've been wanting to ask you since earlier~!"</p>
+<p>"But, Shiwoo oppa There's something I've been wanting to ask you since earlier!"</p>
 
 <p>Seyoung says to Shiwoo as the food on the table is almost all gone.</p>
 
@@ -18,21 +18,21 @@ chapter = 235
 
 <p>Seyoung was looking at Shiwoo with an expression as if she was finally asking something she had been wondering about for a while.</p>
 
-<p>"Ah~ We decided to do that while Seyoung was at Seonju Imo-nim's~ We've gotten pretty close in the meantime~! Right, Sehee-ya?"</p>
+<p>"Ah We decided to do that while Seyoung was at Seonju Imo-nim's We've gotten pretty close in the meantime! Right, Sehee-ya?"</p>
 
 <p>Shiwoo says, rolling his finger on Sehee's clitoris again, as if asking for agreement.</p>
 
-<p>"Y-yes... That's right... As Shiwoo says... W-we decided to call each other comfortably without being conscious of it... Haa~"</p>
+<p>"Y-yes... That's right... As Shiwoo says... W-we decided to call each other comfortably without being conscious of it... Haa"</p>
 
 <p>Sehee Nuna was giving Seyoung a strained smile, answering in accordance with Shiwoo's words.</p>
 
 <p>Seyoung looked at Sehee Nuna and tilted her head slightly to the side.</p>
 
-<p>"It's weird~ Suddenly calling her by her name after calling her 'Nuna' until now~ Sehee Unni is older than Shiwoo oppa, too~ Hehe~"</p>
+<p>"It's weird Suddenly calling her by her name after calling her 'Nuna' until now Sehee Unni is older than Shiwoo oppa, too Hehe"</p>
 
 <p>Seyoung says, as if it's awkward that Shiwoo is calling Sehee Nuna by her name without the title of 'Nuna'.</p>
 
-<p>"You can do that when you get really close~ Basically, it's like a game~! When Seyoung and Mom weren't home, Sehee and I got super close~ Even though you were only gone for about a week~ You never know what might happen~ Isn't that right, Mom?"</p>
+<p>"You can do that when you get really close Basically, it's like a game! When Seyoung and Mom weren't home, Sehee and I got super close Even though you were only gone for about a week You never know what might happen Isn't that right, Mom?"</p>
 
 <p>Shiwoo asks, stroking Mom's crotch with his toes up and down again, as if teasing her again in a natural way.</p>
 
@@ -40,19 +40,19 @@ chapter = 235
 
 <p>Mom was startled by Shiwoo's sudden question, unable to answer, and shrinking her body.</p>
 
-<p>"Mom also knew that Shiwoo oppa and Sehee Unni were doing this~?"</p>
+<p>"Mom also knew that Shiwoo oppa and Sehee Unni were doing this?"</p>
 
 <p>Seyoung says, turning to Mom with a slightly surprised expression.</p>
 
-<p>"Yeah~ Mom knew too~ I got permission from Mom to call Sehee by her name~"</p>
+<p>"Yeah Mom knew too I got permission from Mom to call Sehee by her name"</p>
 
 <p>Shiwoo is answering Seyoung's question instead of Mom.</p>
 
-<p>"Really~?"</p>
+<p>"Really?"</p>
 
 <p>Seyoung asks, looking at Shiwoo as if confirming once again.</p>
 
-<p>"Of course~!"</p>
+<p>"Of course!"</p>
 
 <p>Shiwoo was scratching the protrusion that stuck out like a bean at the top of Mom's split crevice with his big toe.</p>
 
@@ -64,7 +64,7 @@ chapter = 235
 
 <p>But judging from her attitude, he thinks that he has obtained tacit consent.</p>
 
-<p>"Hehe~ Then if I get close to Shiwoo oppa, can I call him whatever I want too?"</p>
+<p>"Hehe Then if I get close to Shiwoo oppa, can I call him whatever I want too?"</p>
 
 <p>Seyoung looks back at Mom and asks with an innocent expression.</p>
 
@@ -72,11 +72,11 @@ chapter = 235
 
 <p>Mom's face was flushed, as if she was burdened by Seyoung's gaze, and she was unable to say anything properly, rambling as if trying to find an excuse.</p>
 
-<p>"Well~ There's no reason why it can't be done at home, right~? Who's going to say anything if Mom's okay with it?"</p>
+<p>"Well There's no reason why it can't be done at home, right? Who's going to say anything if Mom's okay with it?"</p>
 
 <p>Shiwoo says again, ignoring Mom's words, as if cutting her off, as if it's obvious.</p>
 
-<p>"That's right~? If Mom's okay with it, there's no one who's going to say anything at home now, right~?"</p>
+<p>"That's right? If Mom's okay with it, there's no one who's going to say anything at home now, right?"</p>
 
 <p>Seyoung has an expression as if she agrees with Shiwoo's words and is speaking as if subtly ignoring Mom's words.</p>
 
@@ -84,25 +84,25 @@ chapter = 235
 
 <p>A pleasant resonance of joy slowly crawls up to the tip of Shiwoo's glans, wriggling.</p>
 
-<p>"But you have to get super close, though~ To the point where we can shower together and sleep together~!"</p>
+<p>"But you have to get super close, though To the point where we can shower together and sleep together!"</p>
 
 <p>Shiwoo was saying as a joke, as if blatantly revealing to the two women what he had been doing with Sehee Nuna while Mom and Seyoung were away.</p>
 
-<p>"Really~? Then I guess I can't call Oppa whatever I want yet~? Too bad~!"</p>
+<p>"Really? Then I guess I can't call Oppa whatever I want yet? Too bad!"</p>
 
 <p>Seyoung responds with a playful tone, as if receiving Shiwoo's joke, as if she's disappointed.</p>
 
-<p>"We can all get close in the future and live like that~ There's plenty of time~"</p>
+<p>"We can all get close in the future and live like that There's plenty of time"</p>
 
 <p>Shiwoo says to Seyoung like that and looks at Mom's embarrassed face with a satisfied expression.</p>
 
-<p>"Yeah~! I like it~ Shiwoo oppa, Sehee Unni, and Mom getting close in the future~!"</p>
+<p>"Yeah! I like it Shiwoo oppa, Sehee Unni, and Mom getting close in the future!"</p>
 
 <p>Seyoung responds to Shiwoo's words energetically, as if she's enjoying the conversation with Shiwoo.</p>
 
 <p>A conversation flowing as if Shiwoo and Seyoung are exchanging jokes.</p>
 
-<p>"But me~! I already sleep with Mom and shower with her these days, so we're already super close~ Hehe~!"</p>
+<p>"But me! I already sleep with Mom and shower with her these days, so we're already super close Hehe!"</p>
 
 <p>Seyoung suddenly puts her arm around Mom, who is sitting next to her, and says to Shiwoo as if boasting.</p>
 
@@ -128,23 +128,23 @@ chapter = 235
 
 <p>As they are almost done eating, Shiwoo says as if talking to himself, looking at Seyoung, who is leaning against Mom and rubbing against her.</p>
 
-<p>"I saw it earlier, and there was a lot left~ Why the cake~?"</p>
+<p>"I saw it earlier, and there was a lot left Why the cake?"</p>
 
 <p>Seyoung answers Shiwoo's question, which was like a soliloquy, as if she's excited.</p>
 
-<p>"Ah~ Just~ I keep thinking about that cool and sweet taste~ I was wondering if I could taste it again~"</p>
+<p>"Ah Just I keep thinking about that cool and sweet taste I was wondering if I could taste it again"</p>
 
 <p>Shiwoo tries to say it to his younger sister in a light, passing tone.</p>
 
-<p>"Yeah~ It's delicious, right? I knew Oppa would like that cake~ Hehe~ Wait a minute~ I'll bring it to you~"</p>
+<p>"Yeah It's delicious, right? I knew Oppa would like that cake Hehe Wait a minute I'll bring it to you"</p>
 
 <p>Seyoung said, straightening up from leaning against Mom.</p>
 
-<p>"Okay~ Thanks~ Seyoung-ah~"</p>
+<p>"Okay Thanks Seyoung-ah"</p>
 
 <p>Shiwoo says, looking at Seyoung as if she's admirable.</p>
 
-<p>"Yeah~ Hehe~ Sehee Unni, do you want to eat ice cream too?"</p>
+<p>"Yeah Hehe Sehee Unni, do you want to eat ice cream too?"</p>
 
 <p>Seyoung, who is getting up from her seat in a manner that seems to be complying with Shiwoo, asks Sehee Nuna if she wants to eat ice cream too.</p>
 
@@ -162,7 +162,7 @@ chapter = 235
 
 <p>Mom, who seems exhausted from Shiwoo's continued caresses and Seyoung's touch, is answering her youngest daughter with a listless expression.</p>
 
-<p>"Okay~ Then Oppa and I will have to eat it by ourselves~ Hehe~"</p>
+<p>"Okay Then Oppa and I will have to eat it by ourselves Hehe"</p>
 
 <p>Seyoung puts her hand on Mom's shoulder and strokes the dog collar around her neck backwards, passing by Mom as if brushing against her.</p>
 
@@ -184,7 +184,7 @@ chapter = 235
 
 <p class="scene-break">· · ·</p>
 
-<p>"Mom and Sehee must be really full from the snacks they ate earlier, huh~?"</p>
+<p>"Mom and Sehee must be really full from the snacks they ate earlier, huh?"</p>
 
 <p>Shiwoo says in a playful tone, raising his voice so that Mom, Sehee Nuna, and Seyoung can all hear.</p>
 
@@ -208,7 +208,7 @@ chapter = 235
 
 <p>Mom immediately reaches out her hand and grabs the evidence of lust and degradation placed on the table, as if snatching it away, and hides them.</p>
 
-<p>"Haa-aaaa~"</p>
+<p>"Haa-aaaa"</p>
 
 <p>Mom was looking down with a face as if she was about to cry, exhaling a hot breath.</p>
 

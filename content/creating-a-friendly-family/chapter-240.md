@@ -34,7 +34,7 @@ chapter = 240
 
 <p>Shiwoo spreads Mom's and Seyoung's bras, covering his cock entirely, and starts shaking it up and down with his hand.</p>
 
-<p>-Tak!! Tak!! Tak!! Tak~!! Tak~!!-</p>
+<p>-Tak!! Tak!! Tak!! Tak!! Tak!!-</p>
 
 <p>Seyoung's smooth and soft pink bra fabric, with little curvature or resistance, and Mom's lacy, curvy white lingerie bra fabric.</p>
 
@@ -92,7 +92,7 @@ chapter = 240
 
 <p>Shiwoo fondles Sehee Nuna's large breast, using his index finger to flick the erect pink nipple up and down as if teasing it.</p>
 
-<p>"Heuup~"</p>
+<p>"Heuup"</p>
 
 <p>A faint moaning sound coming from Sehee Nuna, who is filled with semen.</p>
 
@@ -134,7 +134,7 @@ chapter = 240
 
 <p>Sehee Nuna had punched Shiwoo in the abdomen and disappeared inside the academy door without saying anything else after putting the key in Shiwoo's pocket.</p>
 
-<p>"Heueup~ Heueueup~ Heueum..."</p>
+<p>"Heueup Heueueup Heueum..."</p>
 
 <p>Sehee Nuna was making a moaning sound as if she was flustered in front of her younger brother, who had declared his submission, as if she was making excuses, perhaps recalling the events of that morning.</p>
 
@@ -174,7 +174,7 @@ chapter = 240
 
 <p>As his thoughts reached that point, Shiwoo's heart started beating as if it was going to explode.</p>
 
-<p>"Tonight, after putting Seyoung to sleep in the master bedroom, I'll move her to Sehee Nuna's room~"</p>
+<p>"Tonight, after putting Seyoung to sleep in the master bedroom, I'll move her to Sehee Nuna's room"</p>
 
 <p>Shiwoo says to Sehee Nuna, who is sucking on his object, as if notifying her.</p>
 

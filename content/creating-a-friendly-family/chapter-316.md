@@ -132,11 +132,11 @@ chapter = 316
 
 <p>Shiwoo showed his sisters the lewd photo of Sua's panties he had just taken under her dress skirt, asking naturally as if choosing the color of a gift of clothing.</p>
 
-<p>"That color, it would really suit Sua~ Hehe~"</p>
+<p>"That color, it would really suit Sua Hehe"</p>
 
 <p>Seyoung looked at the photo of Sua's panties that Shiwoo had taken and answered nonchalantly, just like Shiwoo.</p>
 
-<p>"But does this color look darker because it's wet? Does it not matter much~? How does it look to you, Sua?"</p>
+<p>"But does this color look darker because it's wet? Does it not matter much? How does it look to you, Sua?"</p>
 
 <p>Shiwoo added mischievously, asking Sua.</p>
 
@@ -144,7 +144,7 @@ chapter = 316
 
 <p>Sua's face was flushed crimson as she answered shyly.</p>
 
-<p>"Alright~! Then let's ask for Sua's in this color~"</p>
+<p>"Alright! Then let's ask for Sua's in this color"</p>
 
 <p>Shiwoo pointed to the color of Sua's panties visible on the screen and said.</p>
 
@@ -174,7 +174,7 @@ chapter = 316
 
 <p>Shiwoo immediately touched the vibrator's operation button displayed on the smartphone screen with his finger.</p>
 
-<p>"Jiiiiiiing~! Jiiiiing~! Jiiiiiiing~!"</p>
+<p>"Jiiiiiiing! Jiiiiing! Jiiiiiiing!"</p>
 
 <p>Shiwoo's smartphone began to vibrate, muffled by the sound of the fan.</p>
 
@@ -200,19 +200,19 @@ chapter = 316
 
 <p>Seyoung was watching all the lewd actions Shiwoo and Sua were engaged in, with wide, curious eyes and a flushed face.</p>
 
-<p>"Seyoung-a~ Can you hold this for a bit?"</p>
+<p>"Seyoung-a Can you hold this for a bit?"</p>
 
 <p>Shiwoo handed the smartphone to Seyoung and said.</p>
 
 <p>Shiwoo's smartphone was handed over with the vibrator's operation app turned on.</p>
 
-<p>"Yeah~!"</p>
+<p>"Yeah!"</p>
 
 <p>Seyoung took the smartphone from Shiwoo and answered in a calm voice.</p>
 
 <p>Now, Shiwoo placed his hands on Seyoung's and Sua's buttocks, concentrating his mind on the pleasure of his penis that Sua was creating.</p>
 
-<p>"Jiiiiiiing~"</p>
+<p>"Jiiiiiiing"</p>
 
 <p>"Heu-eum..."</p>
 

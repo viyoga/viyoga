@@ -6,11 +6,11 @@ chapter = 297
 +++
 <p>Above Seyoung's knees, her fair-skinned thighs are revealed from beneath her skirt, as if rising up.</p>
 
-<p>,Uh... pretty~! It looks really good on Seyoung~! ,</p>
+<p>,Uh... pretty! It looks really good on Seyoung! ,</p>
 
 <p>Shiwoo answers Seyoung's question, scanning her body from top to bottom.</p>
 
-<p>,Right? Hehe~ I like it too~,</p>
+<p>,Right? Hehe I like it too,</p>
 
 <p>Seyoung was acting as if the light blue skirt, the orange socks, and even the orange striped panties she was wearing underneath, were all clothes she had chosen herself.</p>
 
@@ -20,7 +20,7 @@ chapter = 297
 
 <p>Then, she scurries to the kitchen where Mom is, and places the items she was holding on the table.</p>
 
-<p>,Mom~ Dry my hair~ Hehe~,</p>
+<p>,Mom Dry my hair Hehe,</p>
 
 <p>Seyoung turns the dining chair so that it faces the TV in the living room, positioning it, and speaks to Mom in a friendly tone.</p>
 
@@ -36,7 +36,7 @@ chapter = 297
 
 <p>Mom was asking Seyoung what hairstyle she wanted.</p>
 
-<p>,Braid it like you did when we went to the department store last week~ Hehe~,</p>
+<p>,Braid it like you did when we went to the department store last week Hehe,</p>
 
 <p>Seyoung answers Mom's question in a tone no different from usual.</p>
 
@@ -44,7 +44,7 @@ chapter = 297
 
 <p>Seyoung's body shakes adorably and charmingly.</p>
 
-<p>-Wiiiiiiing~!</p>
+<p>-Wiiiiiiing!</p>
 
 <p>Soon, the sound of the hair dryer starts to be heard from the kitchen.</p>
 
@@ -74,7 +74,7 @@ chapter = 297
 
 <p class="scene-break">· · ·</p>
 
-<p>,I'm off~ Mom!,</p>
+<p>,I'm off Mom!,</p>
 
 <p>Having finished all the preparations for going out, Shiwoo greets Mom simply.</p>
 
@@ -92,11 +92,11 @@ chapter = 297
 
 <p>The red collar worn around her neck and the red leash attached to the collar were passed behind Mom's back as if hiding them.</p>
 
-<p>,Mom~! The clothes and necklace really suit Mom~ Hehe~!,</p>
+<p>,Mom! The clothes and necklace really suit Mom Hehe!,</p>
 
 <p>Seyoung scans Mom's figure from top to bottom, praising her attire.</p>
 
-<p>,I'm going to the department store with Oppa, so Mom, take good care of the house with Sehee Unnie~!,</p>
+<p>,I'm going to the department store with Oppa, so Mom, take good care of the house with Sehee Unnie!,</p>
 
 <p>Then, Seyoung speaks as if giving instructions to a pet she is raising.</p>
 
@@ -146,7 +146,7 @@ chapter = 297
 
 <p>Shiwoo starts telling Sehee Nuna the detailed actions and precautions.</p>
 
-<p>,...But I'm a little scared. What if Mom gets angry at me for doing that when you're not here? I'm so scared of being scolded by Mom~ Can't we do this next time when you're here?,</p>
+<p>,...But I'm a little scared. What if Mom gets angry at me for doing that when you're not here? I'm so scared of being scolded by Mom Can't we do this next time when you're here?,</p>
 
 <p>Sehee Nuna was asking Shiwoo with a crying voice, as if she was uncomfortable and worried about sharing sexual intimacy with Mom when Shiwoo was not there.</p>
 

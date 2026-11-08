@@ -94,7 +94,7 @@ chapter = 682
 
 <p>Shiwoo looked at Seonju-imo, blinking once more as if he couldn't believe it.</p>
 
-<p>"Yeah... you have to use various expedients like immigration... or adoption... but it's fully possible... for someone around Shiwoo's age, it's easier than for adults... hau~"</p>
+<p>"Yeah... you have to use various expedients like immigration... or adoption... but it's fully possible... for someone around Shiwoo's age, it's easier than for adults... hau"</p>
 
 <p>Seonju-imo was hugging Shiwoo tightly while tightening her vaginal hole as she said that.</p>
 

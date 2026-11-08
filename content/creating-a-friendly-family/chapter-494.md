@@ -6,7 +6,7 @@ chapter = 494
 +++
 <p>While Seyoung was watching intently, Shiwoo, feeling an abnormal pleasure, was inserting his penis into Mom's body.</p>
 
-<p>"Shiwoo Oppa~ Should I get inside and film it for you?"</p>
+<p>"Shiwoo Oppa Should I get inside and film it for you?"</p>
 
 <p>Seyoung suddenly spoke to Shiwoo with a playful tone and expression, as if teasing him.</p>
 
@@ -14,7 +14,7 @@ chapter = 494
 
 <p>Shiwoo seemed to show a slightly flustered reaction.</p>
 
-<p>"I said I'll get inside the blanket and film it for you~! With Shiwoo Oppa's smartphone~!"</p>
+<p>"I said I'll get inside the blanket and film it for you! With Shiwoo Oppa's smartphone!"</p>
 
 <p>Seyoung was once again making a proposal as if it were nothing, suggesting that she would get inside the blanket and film the two of them having sex.</p>
 
@@ -108,7 +108,7 @@ chapter = 494
 
 <p>Seyoung, who seemed to be flustered this time by the enormous size and majesty that could not fit entirely in one hand.</p>
 
-<p>"Haaa~!"</p>
+<p>"Haaa!"</p>
 
 <p>Seyoung momentarily let out a hollow breath mixed with laughter from inside the blanket.</p>
 

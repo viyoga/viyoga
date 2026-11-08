@@ -168,7 +168,7 @@ chapter = 626
 
 <p>At the same time, there was also a destructive impulse to further distort that distorted bond...</p>
 
-<p>[Yeah, well~ I entrusted you with managing Seonmi today, so do whatever you want!]</p>
+<p>[Yeah, well I entrusted you with managing Seonmi today, so do whatever you want!]</p>
 
 <p>Shiwoo seemed to be unexpectedly and readily handing over the decision-making power to Sehee Nuna.</p>
 

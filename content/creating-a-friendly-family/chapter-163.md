@@ -10,7 +10,7 @@ chapter = 163
 
 <p>The vibration of the vibrator was still echoing inside Seonju Imo's body.</p>
 
-<p>"I'm...I'm okay...Sehee-ya...Imo is now...heu-eueut~"</p>
+<p>"I'm...I'm okay...Sehee-ya...Imo is now...heu-eueut"</p>
 
 <p>Seonju Imo, twisting her thighs together, barely answered Sehee-nuna's words.</p>
 
@@ -66,7 +66,7 @@ chapter = 163
 
 <p>Shiwoo reacted hesitantly to Sehee-nuna's tone and appearance, which seemed out of place.</p>
 
-<p>"Send the pictures by text~ You know, the ones you took earlier?!"</p>
+<p>"Send the pictures by text You know, the ones you took earlier?!"</p>
 
 <p>Sehee-nuna was holding her smartphone in one hand and demanding the photos that Shiwoo had taken during the sexual intercourse that had just ended.</p>
 
@@ -82,15 +82,15 @@ chapter = 163
 
 <p>Shiwoo said, pointing with his finger towards the kitchen area where his smartphone was, as if there was no problem.</p>
 
-<p>"Aish~ Just send them without arguing!"</p>
+<p>"Aish Just send them without arguing!"</p>
 
 <p>Sehee-nuna, as if dissatisfied, stretched out her legs while sitting on the bed and kicked Shiwoo's shin, expressing her annoyance.</p>
 
-<p>"A-ouch! Okay~ okay! I'll send them later."</p>
+<p>"A-ouch! Okay okay! I'll send them later."</p>
 
 <p>Shiwoo blocked Sehee-nuna's outstretched leg with his hand and said with a wronged expression.</p>
 
-<p>"Send them right now~! You idiot!"</p>
+<p>"Send them right now! You idiot!"</p>
 
 <p>Sehee-nuna said, stretching out her leg as if to kick Shiwoo's shin again, speaking in an indignant tone.</p>
 
@@ -98,7 +98,7 @@ chapter = 163
 
 <p>Was it because she didn't like Shiwoo's attitude of interrogating and treating Seonju Imo recklessly, even though it was a play?</p>
 
-<p>"Okay...okay...I'll send them right now~! I got it~ I got it~"</p>
+<p>"Okay...okay...I'll send them right now! I got it I got it"</p>
 
 <p>Shiwoo said to Sehee-nuna, as if urgently appeasing a young child.</p>
 
@@ -158,7 +158,7 @@ chapter = 163
 
 <p>Shiwoo touched the chat window labeled 'Legal Wife &amp; Female Slave [SM]' in the list of text conversation windows.</p>
 
-<p>'Seonmi-ya~ What are you doing?'</p>
+<p>'Seonmi-ya What are you doing?'</p>
 
 <p>Shiwoo, now calling Mom's name without any hesitation or reluctance, sent a text.</p>
 
@@ -176,7 +176,7 @@ chapter = 163
 
 <p>Mom answered as if it was natural to listen to Shiwoo's orders.</p>
 
-<p>'You've been listening well~ Our Seonmi~ Hehe. But why aren't you sending a picture? I need to confirm that you're naked!'</p>
+<p>'You've been listening well Our Seonmi Hehe. But why aren't you sending a picture? I need to confirm that you're naked!'</p>
 
 <p>Shiwoo said to Mom, teasing and finding fault as if joking around.</p>
 
@@ -188,7 +188,7 @@ chapter = 163
 
 <p>Shiwoo scolded Mom as if such a system or right had existed from the beginning.</p>
 
-<p>'How can I do that when Seyoung is awake? Seyoung keeps asking me why I'm sleeping with all my clothes off anyway. She says it seems strange~!'</p>
+<p>'How can I do that when Seyoung is awake? Seyoung keeps asking me why I'm sleeping with all my clothes off anyway. She says it seems strange!'</p>
 
 <p>Mom was explaining the situation to Shiwoo, conveying a valid reason why she couldn't follow Shiwoo's orders.</p>
 
@@ -212,7 +212,7 @@ chapter = 163
 
 <p>Then, a text from Mom arrived, as if after much deliberation.</p>
 
-<p>'Seyoung seems like she'll notice. Master-nim, I'll do anything, so please~'</p>
+<p>'Seyoung seems like she'll notice. Master-nim, I'll do anything, so please'</p>
 
 <p>Mom's tone and title had changed, as if matching Shiwoo's master-slave play.</p>
 
@@ -220,7 +220,7 @@ chapter = 163
 
 <p>Shiwoo, as if seizing the opportunity, quickly took Mom's words.</p>
 
-<p>'Yes. I'll do anything as long as Seyoung doesn't hear. So please~'</p>
+<p>'Yes. I'll do anything as long as Seyoung doesn't hear. So please'</p>
 
 <p>Mom, while setting conditions, was begging as if acting coy.</p>
 

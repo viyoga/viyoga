@@ -30,7 +30,7 @@ chapter = 293
 
 <p>Shiwoo then sends the picture of his penis, filling the entire screen, to Mom.</p>
 
-<p>'How did you know~? My cock has been like this since earlier while I was talking to Seonmi, hehe.'</p>
+<p>'How did you know? My cock has been like this since earlier while I was talking to Seonmi, hehe.'</p>
 
 <p>Shiwoo teases Mom with a brazen and smooth-talking attitude.</p>
 
@@ -42,11 +42,11 @@ chapter = 293
 
 <p>Now, Shiwoo finds such a Mom cute and lovely, like a younger woman.</p>
 
-<p>'Alright, alright~ I'll be careful here as you say, Mom~ I'll definitely treat you like Mom! So, are you feeling better now? I need to get dressed now!'</p>
+<p>'Alright, alright I'll be careful here as you say, Mom I'll definitely treat you like Mom! So, are you feeling better now? I need to get dressed now!'</p>
 
 <p>Shiwoo speaks as if appeasing Mom and tries to end the conversation.</p>
 
-<p>'-_-^ Ugh~!'</p>
+<p>'-_-^ Ugh!'</p>
 
 <p>Mom sends Shiwoo her unique emoticon and exclamation as if she's annoyed by her son trying to end the conversation like that.</p>
 
@@ -64,7 +64,7 @@ chapter = 293
 
 <p>Shiwoo picks up his smartphone again and starts typing a text.</p>
 
-<p>'Oh right~! Before I get dressed, there's something I need to show Mom... I think Mom needs to know about this too...'</p>
+<p>'Oh right! Before I get dressed, there's something I need to show Mom... I think Mom needs to know about this too...'</p>
 
 <p>Shiwoo acts as if he just remembered something and sends the text to Mom.</p>
 
@@ -72,7 +72,7 @@ chapter = 293
 
 <p>Mom assumes that Shiwoo is going to send another picture to tease her, following the penis picture he sent just now, and reacts as if she's annoyed.</p>
 
-<p>'Wait and see~!'</p>
+<p>'Wait and see!'</p>
 
 <p>Shiwoo, feeling excited again, switches the screen to the chat window with Seyoung.</p>
 
@@ -160,7 +160,7 @@ chapter = 293
 
 <p>It seems Sehee Nuna went back to her room while Shiwoo was texting Mom.</p>
 
-<p>"Mom~ Did Sehee go up to her room?"</p>
+<p>"Mom Did Sehee go up to her room?"</p>
 
 <p>Shiwoo asks Mom, who is doing the dishes with her back turned, as if casually tossing the question.</p>
 
@@ -188,7 +188,7 @@ chapter = 293
 
 <p>Mom is answering as if she doesn't even remember the vulgar lines or complaints she wrote in the chat window with Shiwoo.</p>
 
-<p>"Then there's plenty of time~?"</p>
+<p>"Then there's plenty of time?"</p>
 
 <p>Shiwoo watches such a Mom and speaks as if he's being deliberately relaxed.</p>
 
@@ -196,7 +196,7 @@ chapter = 293
 
 <p>Mom seems uncomfortable having a one-on-one conversation with Shiwoo while Sehee Nuna and Seyoung are not around, so she makes up something to say.</p>
 
-<p>"Ah~ That's right! But I think I need to stop by Seyoung's room first. I need to pick out the clothes Seyoung will wear today! Did you forget what we talked about in the text just now?"</p>
+<p>"Ah That's right! But I think I need to stop by Seyoung's room first. I need to pick out the clothes Seyoung will wear today! Did you forget what we talked about in the text just now?"</p>
 
 <p>Shiwoo deliberately mentions the contents of the text he exchanged with Mom.</p>
 

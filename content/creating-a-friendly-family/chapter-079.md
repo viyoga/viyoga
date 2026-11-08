@@ -12,7 +12,7 @@ chapter = 79
 
 <p>** Shiwoo opened the glass door, slightly lifted the thick blackout curtain fabric to make a path, and then entered the room. A dark room, blocked from external light. Dim lighting. In the center of the narrow room, a chair and a table were placed. A shining crystal ball was visible on the table. And in the seat opposite, a person was sitting. A wide-brimmed orange conical hat and a hooded dress... Seulgi was sitting, fully dressed in what looked like a Halloween costume set, as if she had been moved there at some point.</p>
 
-<p>"Welcome~! Come and sit~!" Seulgi pointed to the chair opposite and spoke to Shiwoo.</p>
+<p>"Welcome! Come and sit!" Seulgi pointed to the chair opposite and spoke to Shiwoo.</p>
 
 <p>"Oh? Seulgi, you're doing the reading?"</p>
 
@@ -32,23 +32,23 @@ chapter = 79
 
 <p>Seulgi gave Shiwoo a general introduction to crystal gazing. Although to a mild degree, Shiwoo had always had some interest in the field of mind-reading. Shiwoo nodded.</p>
 
-<p>"Alright~ From now on, all conversations we have will be buried as secrets within this room!"</p>
+<p>"Alright From now on, all conversations we have will be buried as secrets within this room!"</p>
 
 <p>Seulgi spoke as if reciting a pre-written script, seemingly ready to begin the crystal gazing in earnest.</p>
 
 <p>"Oh? Are we starting right away?"</p>
 
-<p>"Shhh~!! This is a room for divining fate~ A gap in space, cut off from the world! The time you can stay is very short, so no unnecessary talk!!!"</p>
+<p>"Shhh!! This is a room for divining fate A gap in space, cut off from the world! The time you can stay is very short, so no unnecessary talk!!!"</p>
 
 <p>Seulgi spoke to Shiwoo, creating a somewhat solemn atmosphere, as if warning about the allocated time for the event running out.</p>
 
-<p>"Ah, yeah~"</p>
+<p>"Ah, yeah"</p>
 
 <p>Shiwoo felt awkward at Seulgi's solemn words but secretly thought it was a rather good atmosphere. Listening to Seulgi's words, he almost felt as if he had actually entered a space temporarily cut off from the world. A role-play where he sat alone in a dark room with a middle school girl dressed as a witch, confiding his inner thoughts... For any normal, healthy man, this would be a service they'd pay to experience.</p>
 
 <p>**</p>
 
-<p>"Looks like you have a concern~?!"</p>
+<p>"Looks like you have a concern?!"</p>
 
 <p>Seulgi opened her mouth, intently gazing into the crystal ball.</p>
 
@@ -56,15 +56,15 @@ chapter = 79
 
 <p>Shiwoo looked at Seulgi, who seemed to be subtly cutting off the context and proceeding with the crystal gazing, and asked back.</p>
 
-<p>"You came because you have a concern, didn't you?! The second page of the survey~!! Didn't you fill it out?!"</p>
+<p>"You came because you have a concern, didn't you?! The second page of the survey!! Didn't you fill it out?!"</p>
 
 <p>Seulgi spoke with a straight face, as if dealing with a difficult customer who couldn't read the room, reminding Shiwoo about the survey he had filled out. -It seemed like a method to save time by pre-determining the consultation topic and guiding the conversation.-</p>
 
-<p>"Ah~ ah~ right... yeah. I forgot. My bad."</p>
+<p>"Ah ah right... yeah. I forgot. My bad."</p>
 
 <p>Shiwoo apologized awkwardly.</p>
 
-<p>"Snap out of it~!!"</p>
+<p>"Snap out of it!!"</p>
 
 <p>Seulgi spoke to Shiwoo in a tone like a teacher scolding a student. Shiwoo intended to go along with the atmosphere and experience the crystal gazing. It was true that he had concerns, and Shiwoo, thinking there was no need to explain everything in detail, had written about his recent concerns regarding incestuous relationships with his family on the survey. Naturally, he omitted all specific details and wrote about general conflict situations that could arise between family members, using them as metaphors.</p>
 
@@ -98,13 +98,13 @@ chapter = 79
 
 <p>"Oh, really?"</p>
 
-<p>"Yeah~! But after spending yesterday with Sehee Nuna, I felt like we became really close. Right up until I fell asleep!"</p>
+<p>"Yeah! But after spending yesterday with Sehee Nuna, I felt like we became really close. Right up until I fell asleep!"</p>
 
 <p>Shiwoo said this, recalling how he had slept embracing Sehee Nuna from behind, naked, last night.</p>
 
 <p>"Right up until you fell asleep?"</p>
 
-<p>"Yeah~!"</p>
+<p>"Yeah!"</p>
 
 <p>"Did you two sleep together?"</p>
 
@@ -114,7 +114,7 @@ chapter = 79
 
 <p>Shiwoo denied it strongly, his face serious.</p>
 
-<p>"You said 'right up until you fell asleep'... just in case... Anyway, continue~"</p>
+<p>"You said 'right up until you fell asleep'... just in case... Anyway, continue"</p>
 
 <p>Seulgi continued the conversation with an expression that seemed to ask what the problem was. Shiwoo felt a slight chill but continued talking without minding it.</p>
 
@@ -122,11 +122,11 @@ chapter = 79
 
 <p>"Sehee Eonni is treating you coldly?"</p>
 
-<p>"No... I mean, she's doing everything as usual, but it's weird, isn't it, for someone who was so friendly yesterday to change without knowing why~!"</p>
+<p>"No... I mean, she's doing everything as usual, but it's weird, isn't it, for someone who was so friendly yesterday to change without knowing why!"</p>
 
 <p>"Really?"</p>
 
-<p>"I really don't know what happened in just one day~"</p>
+<p>"I really don't know what happened in just one day"</p>
 
 <p>Shiwoo confided the story with Sehee Nuna. Seulgi seemed to ponder for a moment.</p>
 
@@ -134,7 +134,7 @@ chapter = 79
 
 <p>Seulgi summarized the question to ask the crystal into one sentence and confirmed it with Shiwoo.</p>
 
-<p>"Ah~ uh~ that's right~! Can you find out?"</p>
+<p>"Ah uh that's right! Can you find out?"</p>
 
 <p>Shiwoo asked Seulgi, half out of curiosity and half with a certain expectation, just in case. Perhaps Seulgi knew about the relationship between Sehee Nuna and Shinbi Nuna. If so, being a woman herself, she would naturally know more about the intimate circumstances between them than Shiwoo. -Perhaps she could use the guise of fortune-telling to reveal their intimate secrets to Shiwoo...- Seulgi began to gaze into the crystal ball with deep eyes.</p>
 
@@ -144,15 +144,15 @@ chapter = 79
 
 <p>Seulgi, who had been looking into the crystal ball, spoke as if she could actually see something.</p>
 
-<p>"Oh, well... we just went out to have fun~"</p>
+<p>"Oh, well... we just went out to have fun"</p>
 
 <p>Shiwoo was slightly bothered by Seulgi's expression 'looks like you enjoyed yourself,' but he didn't react much and let it pass.</p>
 
-<p>"The department store is really big, isn't it? Hee~ You even went to places like this?"</p>
+<p>"The department store is really big, isn't it? Hee You even went to places like this?"</p>
 
 <p>Seulgi was talking in front of Shiwoo as if she had actually seen yesterday's events.</p>
 
-<p>"Wow~ You'd give something like this as a gift?" Seulgi's words continued.</p>
+<p>"Wow You'd give something like this as a gift?" Seulgi's words continued.</p>
 
 <p>Shiwoo flinched when the word 'gift' came out of Seulgi's mouth. Seyoung's pajamas, Sehee Nuna's lingerie, and a black mesh top instantly came to mind. -Followed by Mom's dog collar and sexy underwear...-</p>
 
@@ -160,15 +160,15 @@ chapter = 79
 
 <p>Shiwoo, having no memory of writing about gifts on the survey, asked Seulgi in a flustered manner.</p>
 
-<p>"Even if you didn't write it, I can see everything~!! Because this is real~!!" Seulgi spoke with a playful smile, pleased with Shiwoo's reaction.</p>
+<p>"Even if you didn't write it, I can see everything!! Because this is real!!" Seulgi spoke with a playful smile, pleased with Shiwoo's reaction.</p>
 
-<p>"Wow~ It's big... but you did something like this in front of Seyoung?" Seulgi's monologue continued.</p>
+<p>"Wow It's big... but you did something like this in front of Seyoung?" Seulgi's monologue continued.</p>
 
 <p>Seulgi spoke as if she were truly seeing yesterday's events through the crystal. The size of the 'thing' was something Seulgi would know if she had heard it from Shiwoo's friends. The phrase 'you did something like this in front of Seyoung' could apply to anything Shiwoo did in front of Seyoung. Shiwoo had heard of 'micro-expressions' before. A technique to read someone's mind by observing subtle facial expressions or gestures. A psychological trick of throwing out any keyword, observing the subject's reaction, and fitting it into the story.</p>
 
 <p>Until then, Shiwoo was amazed by this magical experience but was convinced of Seulgi's fake performance. He thought that the keywords matching were merely a probabilistic coincidence.</p>
 
-<p>"Oh my~ Where did you get videos like this?~ Did you get them from Cheoljin?"</p>
+<p>"Oh my Where did you get videos like this? Did you get them from Cheoljin?"</p>
 
 <p>"Huh?"</p>
 

@@ -104,7 +104,7 @@ chapter = 321
 
 <p>After a moment of hesitation, as if biding her time, Seyoung's text message arrived for Shiwoo.</p>
 
-<p>'We just got in~ with Sua! Are you in the restroom too, Oppa?'</p>
+<p>'We just got in with Sua! Are you in the restroom too, Oppa?'</p>
 
 <p>Seyoung responded to Shiwoo as if not caring much about his penis photo, in her usual way of speaking to her older brother.</p>
 
@@ -148,7 +148,7 @@ chapter = 321
 
 <p>With a feeling as if exploring an unknown territory, after taking and sending a photo of an obscene indecent act to Seyoung, Shiwoo was waiting for her reaction.</p>
 
-<p>'Just wait a moment~!'</p>
+<p>'Just wait a moment!'</p>
 
 <p>Seyoung's text message was sent to Shiwoo, who was staring intently at his smartphone screen.</p>
 

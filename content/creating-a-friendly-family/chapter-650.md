@@ -86,7 +86,7 @@ chapter = 650
 
 <p>Sua and Seyoung waved their hands at Shiwoo, welcoming him back.</p>
 
-<p>"Then, please come again~"</p>
+<p>"Then, please come again"</p>
 
 <p>The clerk noona, who said her name was Soeun, smiled at Shiwoo and gave a light greeting.</p>
 
@@ -128,7 +128,7 @@ chapter = 650
 
 <p>Shiwoo expressed his regret about not being able to ejaculate inside Soeun noona in a roundabout way, as if it were just casual conversation.</p>
 
-<p>"Is that so? Then the next time you visit, we'll have to help you so that you can finish properly~"</p>
+<p>"Is that so? Then the next time you visit, we'll have to help you so that you can finish properly"</p>
 
 <p>She took Shiwoo's words with a suggestive smile, as if she knew the hidden meaning behind what he was saying.</p>
 

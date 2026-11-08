@@ -4,11 +4,11 @@ weight = 793
 [extra]
 chapter = 793
 +++
-<p>「If you sit next to me, I'll be too busy sucking and licking and groping you to focus, right? We have things to talk about, so let's look each other in the eye and have a serious conversation for once~」</p>
+<p>「If you sit next to me, I'll be too busy sucking and licking and groping you to focus, right? We have things to talk about, so let's look each other in the eye and have a serious conversation for once」</p>
 
 <p>Shiwoo sat at an angle, resting his chin on his hand with his elbow on the table, as if enjoying the flustered and troubled expression spreading across Mom-nim's face.</p>
 
-<p>「It's been a while since I've properly admired Mom-nim's beautiful face, anyway~ Why do you look like that? Is something wrong?」</p>
+<p>「It's been a while since I've properly admired Mom-nim's beautiful face, anyway Why do you look like that? Is something wrong?」</p>
 
 <p>Shiwoo wore a sly smile, pretending to be oblivious, as his gaze locked onto hers tenaciously, scanning her trembling eyes as if searching every inch.</p>
 
@@ -16,7 +16,7 @@ chapter = 793
 
 <p>Mom-nim shook her head hurriedly, as if her shameful inner thoughts had been laid bare to Shiwoo.</p>
 
-<p>「Anyway, the chocolate latte is here, so have a sip first~ It's hot, so be careful~」</p>
+<p>「Anyway, the chocolate latte is here, so have a sip first It's hot, so be careful」</p>
 
 <p>Shiwoo added, gently pushing the tray with the chocolate latte toward Mom-nim.</p>
 
@@ -46,7 +46,7 @@ chapter = 793
 
 <p>Even though they were in a master-slave relationship, Mom-nim now let out answers that would never have easily crossed her lips in a normal daily conversation, her words trailing off shyly.</p>
 
-<p>「Is that so? Well, the taste will still be there, so take your time and wash it down well~ Now, let's talk about what we're going to do from now on~」</p>
+<p>「Is that so? Well, the taste will still be there, so take your time and wash it down well Now, let's talk about what we're going to do from now on」</p>
 
 <p>Shiwoo wore a satisfied expression, as if he were savoring the embarrassment and shame Mom-nim was feeling like a delicious side dish.</p>
 
@@ -62,7 +62,7 @@ chapter = 793
 
 <p>Mom-nim asked back, searching Shiwoo's expression as if she didn't immediately understand what he was trying to say.</p>
 
-<p>「I'm talking about us deciding to live as a married couple starting today~ We have to tell Sehee and Seyoung, don't we?」</p>
+<p>「I'm talking about us deciding to live as a married couple starting today We have to tell Sehee and Seyoung, don't we?」</p>
 
 <p>「I'm going to be living in the master bedroom with Mom-nim like newlyweds now, so I'll have to move my room... and we need to settle on how we'll address each other in front of the kids!」</p>
 
@@ -74,11 +74,11 @@ chapter = 793
 
 <p>Shiwoo looked into her eyes, tenaciously demanding a firm answer.</p>
 
-<p>「...That... haaa~」</p>
+<p>「...That... haaa」</p>
 
 <p>Mom-nim let out a deep sigh, looking troubled.</p>
 
-<p>「Why~? Do you suddenly regret deciding to live as a couple with me? So much that you'd sigh like that just because I suggested telling your daughters?」</p>
+<p>「Why? Do you suddenly regret deciding to live as a couple with me? So much that you'd sigh like that just because I suggested telling your daughters?」</p>
 
 <p>Shiwoo shrugged his shoulders with an exaggerated tone, pouting his lips as if he were hurt.</p>
 
@@ -86,7 +86,7 @@ chapter = 793
 
 <p>Mom-nim hung her head as if she were submerged in deep sorrow.</p>
 
-<p>「Then why are you sighing like the world is coming to an end~?」</p>
+<p>「Then why are you sighing like the world is coming to an end?」</p>
 
 <p>Shiwoo asked mischievously, peering tenaciously at Mom-nim's lowered face.</p>
 
@@ -94,7 +94,7 @@ chapter = 793
 
 <p>Mom-nim asked Shiwoo, as if seeking permission.</p>
 
-<p>「Why are you asking? We're sitting here to talk about this, aren't we? Go ahead and speak~!」</p>
+<p>「Why are you asking? We're sitting here to talk about this, aren't we? Go ahead and speak!」</p>
 
 <p>Shiwoo said, urging Mom-nim's next words.</p>
 
@@ -104,9 +104,9 @@ chapter = 793
 
 <p>Mom-nim added in a crawling voice, anxiously fidgeting with her fingertips.</p>
 
-<p>「Of course we have to tell them~ Why would a mother hide her marriage from her children and not say anything?」</p>
+<p>「Of course we have to tell them Why would a mother hide her marriage from her children and not say anything?」</p>
 
-<p>「What's the matter~? Now that you actually have to tell Sehee and Seyoung, do you want to pretend it never happened? Just like with the slave contract, are you trying to brush it off as a game and sneak away~?」</p>
+<p>「What's the matter? Now that you actually have to tell Sehee and Seyoung, do you want to pretend it never happened? Just like with the slave contract, are you trying to brush it off as a game and sneak away?」</p>
 
 <p>Shiwoo spoke to Mom-nim, lightly showing his playful dissatisfaction.</p>
 
@@ -124,7 +124,7 @@ chapter = 793
 
 <p>「So what? Sehee and Seyoung have already had sex with me, and we all know about each other's situations anyway...」</p>
 
-<p>「Our whole family already understands that Mom-nim has entered into a master-slave relationship with me, right? If you're going to call it strange, it was already strange from that point on~!」</p>
+<p>「Our whole family already understands that Mom-nim has entered into a master-slave relationship with me, right? If you're going to call it strange, it was already strange from that point on!」</p>
 
 <p>「And didn't you and Sehee get a lot closer while going out yesterday? Why are you trying to hide things now?」</p>
 

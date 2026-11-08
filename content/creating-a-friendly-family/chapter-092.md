@@ -8,9 +8,9 @@ chapter = 92
 
 <p>Shiwoo, concealing a dizzying sense of bewilderment, decided to deny anything regarding Mom or Sehee Nuna for now.</p>
 
-<p>「Well, it's like this~ your Mom suddenly showed up with Seyoung-yi yesterday morning without a word, didn't explain what happened, and has been staying at our house ever since~」</p>
+<p>「Well, it's like this your Mom suddenly showed up with Seyoung-yi yesterday morning without a word, didn't explain what happened, and has been staying at our house ever since」</p>
 
-<p>「She spent all day staring at her smartphone, sighing deeply as if the world had ended, but today she's completely giddy, giggling like a different person~ Didn't Shiwoo make her like that?」</p>
+<p>「She spent all day staring at her smartphone, sighing deeply as if the world had ended, but today she's completely giddy, giggling like a different person Didn't Shiwoo make her like that?」</p>
 
 <p>Seonju Imo began to unravel and explain each suspicious circumstance.</p>
 
@@ -18,9 +18,9 @@ chapter = 92
 
 <p>Despite Seonju Imo's explanation, Shiwoo stubbornly pretended not to know.</p>
 
-<p>「And if you look at how Sehee treats Shiwoo yesterday and today, it's definitely suspicious~ She must have clearly figured out what kind of relationship Shiwoo and I have, but she's acting so nonchalant, kekeke."」</p>
+<p>「And if you look at how Sehee treats Shiwoo yesterday and today, it's definitely suspicious She must have clearly figured out what kind of relationship Shiwoo and I have, but she's acting so nonchalant, kekeke."」</p>
 
-<p>「I might be able to teach Shiwoo many more pleasurable things... Won't you just tell Imo the truth~?」</p>
+<p>「I might be able to teach Shiwoo many more pleasurable things... Won't you just tell Imo the truth?」</p>
 
 <p>Seonju Imo was pleading with Shiwoo, acting coyly.</p>
 
@@ -34,7 +34,7 @@ chapter = 92
 
 <p>Shiwoo was asking with the intention of subtly probing Seonju Imo's true feelings.</p>
 
-<p>「I'll have to sort out the hierarchy between Eonni and Sehee~ kekeke. They still don't know about each other, right?」</p>
+<p>「I'll have to sort out the hierarchy between Eonni and Sehee kekeke. They still don't know about each other, right?」</p>
 
 <p>Seonju Imo spoke playfully.</p>
 
@@ -42,7 +42,7 @@ chapter = 92
 
 <p>Shiwoo sent a message, calling Seonju Imo's name in a severely scolding tone.</p>
 
-<p>「Whyyy~? Heeing~ Are you just going to keep pretending not to know me, darling?」</p>
+<p>「Whyyy? Heeing Are you just going to keep pretending not to know me, darling?」</p>
 
 <p>As soon as Shiwoo called Seonju Imo's name, Seonju Imo subtly addressed him as 'darling,' as if pouting.</p>
 
@@ -50,7 +50,7 @@ chapter = 92
 
 <p>Shiwoo was worried that his already precarious relationships with Mom and Sehee Nuna might worsen even further with Seonju Imo's intervention.</p>
 
-<p>「I felt so good today, I think I already know? What's going to happen~?! At this point, Eonni probably knows too, kekeke.」</p>
+<p>「I felt so good today, I think I already know? What's going to happen?! At this point, Eonni probably knows too, kekeke.」</p>
 
 <p>Seonju Imo was talking about the sex she had with Shiwoo today as if it were a joke.</p>
 
@@ -68,7 +68,7 @@ chapter = 92
 
 <p>Shiwoo had already dropped the honorific 'Imo'.</p>
 
-<p>「What does it matter? Eonni and I aren't really in a position to get angry at each other now~ And you might not know this, but Seonmi Eonni, Gyuri Eonni, and I usually talk about men quite freely, you know?」</p>
+<p>「What does it matter? Eonni and I aren't really in a position to get angry at each other now And you might not know this, but Seonmi Eonni, Gyuri Eonni, and I usually talk about men quite freely, you know?」</p>
 
 <p>Seonju Imo brought up aspects of the mothers that Shiwoo didn't know about.</p>
 
@@ -112,7 +112,7 @@ chapter = 92
 
 <p>Shiwoo, pressing Seonju Imo for an answer again, asked in a depraved, disrespectful tone.</p>
 
-<p>「Well~? Before that, won't my darling somehow take care of it? kekeke」</p>
+<p>「Well? Before that, won't my darling somehow take care of it? kekeke」</p>
 
 <p>Indeed, Seonju Imo skillfully parried even coercive and malicious jokes using her daughter as a subject, employing the seductive charm of an adult woman.</p>
 

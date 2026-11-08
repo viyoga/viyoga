@@ -94,7 +94,7 @@ chapter = 512
 
 <p>Normally, Mom would have gone on and on with her nagging about Shiwoo eating something separately late at night...</p>
 
-<p>,No~ I want to feed it to Mom and Sae-a! Can you scoop up just enough for Mom and that puppy in a bowl?"</p>
+<p>,No I want to feed it to Mom and Sae-a! Can you scoop up just enough for Mom and that puppy in a bowl?"</p>
 
 <p>Shiwoo asked Mom in a soft and natural tone.</p>
 

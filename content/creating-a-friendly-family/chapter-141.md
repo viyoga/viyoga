@@ -10,7 +10,7 @@ chapter = 141
 
 <p>An intense pleasure seemed to erupt throughout his entire body, centered on his penis.</p>
 
-<p>,Haaang! Haa-eut! Haaa-aaht! Yeobo! Haaa~!,</p>
+<p>,Haaang! Haa-eut! Haaa-aaht! Yeobo! Haaa!,</p>
 
 <p>Gyuri's arms were locked around Shiwoo's shoulders and neck, embracing him tightly.</p>
 
@@ -146,7 +146,7 @@ chapter = 141
 
 <p>-Peok! Peok! Peok! Peok! Peok!-</p>
 
-<p>"Haa-eu-euk! Haa-at! Haa-aak~ Yeobo! Yeobo!"</p>
+<p>"Haa-eu-euk! Haa-at! Haa-aak Yeobo! Yeobo!"</p>
 
 <p>The sounds of intercourse and moaning echoed lewdly in the living room again.</p>
 
@@ -256,11 +256,11 @@ chapter = 141
 
 <p>Mom's reply came back after some time had passed after she checked the message.</p>
 
-<p>'I love you~!'</p>
+<p>'I love you!'</p>
 
 <p>Shiwoo was suddenly confessing his love to Mom.</p>
 
-<p>'Mom also loves our Shiwoo~'</p>
+<p>'Mom also loves our Shiwoo'</p>
 
 <p>Mom also replied without any fuss, as if it were a normal thing to share between mother and son.</p>
 
@@ -268,7 +268,7 @@ chapter = 141
 
 <p>Shiwoo called Mom by her name and confessed again as if joking.</p>
 
-<p>'What's that~?'</p>
+<p>'What's that?'</p>
 
 <p>Mom sent a reply as if she found it strange.</p>
 

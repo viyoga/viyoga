@@ -40,7 +40,7 @@ chapter = 150
 
 <p>Shiwoo's thrusting continued relentlessly, heedless of Seonju Imo's seemingly pain-filled moaning sounds.</p>
 
-<p>「Ha-eut! Ha-aang~! Shi...Shiwoo-ya...just a little...g...gentler~! Haa-eung!!」</p>
+<p>「Ha-eut! Ha-aang! Shi...Shiwoo-ya...just a little...g...gentler! Haa-eung!!」</p>
 
 <p>Seonju Imo, bewildered by Shiwoo's ungentle thrusting, which was different from before, desperately called out Shiwoo's name, pleading for him to be gentler. Perhaps her mind was reeling from the pain-laced pleasure that surged like a broken dam, as Seonju Imo seemed to have no time to use respectful speech or act composed with Shiwoo.</p>
 
@@ -70,15 +70,15 @@ chapter = 150
 
 <p>Shiwoo had no intention of stopping, moving his penis back and forth, thrusting towards climax.</p>
 
-<p>「Haa-aang! Haa-eung! Haa-eut! Heu-eung~!」</p>
+<p>「Haa-aang! Haa-eung! Haa-eut! Heu-eung!」</p>
 
 <p>Seonju Imo's vaginal muscles seemed to tense and narrow, clenching Shiwoo's penis, which had been mercilessly scraping the inside of her vagina. A tingling sensation of ejaculation wrapped around Shiwoo's penis along with the pressure from her vaginal muscles. Shiwoo made no effort to suppress that sensation of ejaculation. He simply spewed out the knotted unpleasantness and twisted lust, along with thick semen, as if vomiting them into Seonju Imo's body.</p>
 
-<p>-Pu-syuk! Pu-syuk! Pu-shuuuk! Pu-shuuuuk~!</p>
+<p>-Pu-syuk! Pu-syuk! Pu-shuuuk! Pu-shuuuuk!</p>
 
 <p>Shiwoo's semen surged fully into Seonju Imo's vagina and uterus.</p>
 
-<p>「Ma...Master-nim...! Ha-eung~!」</p>
+<p>「Ma...Master-nim...! Ha-eung!」</p>
 
 <p>Seonju Imo, as if completely drained of strength, slowly sank and collapsed forward. Seonju Imo lay sprawled on the bathroom floor as if entrusting her body to it. Seonju Imo lay sprawled on the floor, repeatedly trembling. After finishing his ejaculation, Shiwoo approached the exhausted, sprawled Seonju Imo. Shiwoo placed his hand on Seonju Imo's back, stroking it as if comforting her. Shiwoo helped Seonju Imo, who was lying on the floor, to sit up and lightly embraced her. Kneeling, Shiwoo held Seonju Imo close, their bodies pressed together, sharing warmth.</p>
 
@@ -92,17 +92,17 @@ chapter = 150
 
 <p>Shiwoo helped Seonju Imo to her feet and led her to the shower. Shiwoo turned on the shower water to wash Seonju Imo's body.</p>
 
-<p>-Swaaa-aaa-aa~!</p>
+<p>-Swaaa-aaa-aa!</p>
 
 <p>The sound of cool water began to spray from the showerhead. The water spraying from the showerhead, warm to the touch, enveloped and drenched Seonju Imo's fair skin. As Seonju Imo received the shower water, Shiwoo briefly stroked her body with his hands as if tracing its contours. Shiwoo turned off the shower water.</p>
 
 <p>From behind Seonju Imo, Shiwoo gently bent her body forward.</p>
 
-<p>-Su-uuk~</p>
+<p>-Su-uuk</p>
 
 <p>Shiwoo, with the tip of his glans, once again found Seonju Imo's vagina hole and attempted a gentle insertion into her body.</p>
 
-<p>「Haa-aa-aa-a~」</p>
+<p>「Haa-aa-aa-a」</p>
 
 <p>The stimulation of insertion, as Shiwoo's massive cock softly slid in, filling her body completely. Seonju Imo fully felt the stiff yet gentle stimulation of that insertion, letting out a moaning sound like a deep sigh. Shiwoo maintained the insertion and reached out his hand. With his extended hand, Shiwoo applied body wash and cupped Seonju Imo's breasts. Shiwoo rubbed Seonju Imo's breasts as if massaging them. Seonju Imo's vagina hole delicately contracted and relaxed repeatedly in response to Shiwoo's touch and movements.</p>
 

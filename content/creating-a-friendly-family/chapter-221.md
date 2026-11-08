@@ -72,7 +72,7 @@ chapter = 221
 
 <p>Shiwoo tried to strike up a conversation, pretending not to know, towards the three people sitting around the puppy.</p>
 
-<p>,Yeah~ Sae-a will be raised inside the house~ and sleep in the living room~! Because she's part of our family now~ Hehe~,</p>
+<p>,Yeah Sae-a will be raised inside the house and sleep in the living room! Because she's part of our family now Hehe,</p>
 
 <p>Seyoung answered Shiwoo's question, smiling innocently.</p>
 
@@ -82,7 +82,7 @@ chapter = 221
 
 <p>That tiny puppy's pink tongue, which had been licking Sua's pussy the previous day, was flicking and licking Seyoung's finger.</p>
 
-<p>,I think we'll have to do that for now, Shiwoo Oppa~ But we do need to buy everything~ Originally, we planned to prepare it while we were at Sua's house, but because we suddenly came back home~ Hehe~,</p>
+<p>,I think we'll have to do that for now, Shiwoo Oppa But we do need to buy everything Originally, we planned to prepare it while we were at Sua's house, but because we suddenly came back home Hehe,</p>
 
 <p>Seyoung was explaining in detail to Shiwoo why the puppy supplies weren't ready.</p>
 
@@ -94,7 +94,7 @@ chapter = 221
 
 <p>Although she was told it was because of Mom's work preparations with Seonju Imo, it probably wasn't such a busy or hectic job to warrant taking Seyoung out of the house to stay at Seonju Imo's house...</p>
 
-<p>,Alright~ Since we're back, we can prepare from now on~,</p>
+<p>,Alright Since we're back, we can prepare from now on,</p>
 
 <p>While lying down, Shiwoo stretched out his arm, placed his hand on Seyoung's head, and spoke to his younger sister as if encouraging her.</p>
 
@@ -116,7 +116,7 @@ chapter = 221
 
 <p>A contradictory sense of depravity seemed to spread through Shiwoo's hand as he stroked his younger sister's head.</p>
 
-<p>,Shiwoo Oppa~ Are you free tomorrow, by any chance?,</p>
+<p>,Shiwoo Oppa Are you free tomorrow, by any chance?,</p>
 
 <p>Seyoung, with a satisfied expression as she received Shiwoo's touch, was asking Shiwoo.</p>
 
@@ -124,45 +124,45 @@ chapter = 221
 
 <p>Shiwoo took his hand off Seyoung's head and asked her.</p>
 
-<p>,Tomorrow, Sua and I are going to the department store to buy puppy supplies~ like food, bowls, and potty pads~ We could have the cage delivered, but that would take too long~ So I was hoping Oppa could help us~ Hehe~,</p>
+<p>,Tomorrow, Sua and I are going to the department store to buy puppy supplies like food, bowls, and potty pads We could have the cage delivered, but that would take too long So I was hoping Oppa could help us Hehe,</p>
 
 <p>Seyoung, with a crescent-eyed smile, was charming Shiwoo and asking for a favor.</p>
 
-<p>,Alright, well~ We were going to go to the department store to hang out anyway~ So tomorrow, while we're getting puppy supplies, how about we also visit an amusement park or aquarium together?,</p>
+<p>,Alright, well We were going to go to the department store to hang out anyway So tomorrow, while we're getting puppy supplies, how about we also visit an amusement park or aquarium together?,</p>
 
 <p>In addition to Seyoung's request, Shiwoo was asking, recalling the entertainment facilities attached to the department store.</p>
 
-<p>,Great~ Hehe~ Then tomorrow, we should get ready early and leave~,</p>
+<p>,Great Hehe Then tomorrow, we should get ready early and leave,</p>
 
 <p>Seyoung, seemingly in a good mood, looked back at Sua and said.</p>
 
 <p>Sua, watching Shiwoo's expression, shyly nodded her head.</p>
 
-<p>,Ah~ What time were you originally planning to leave?,</p>
+<p>,Ah What time were you originally planning to leave?,</p>
 
 <p>Shiwoo asked, as if confirming, to coordinate with his younger sisters.</p>
 
-<p>,We were going to go after lunch in the afternoon~ But if we're going to the amusement park and aquarium tomorrow too, I think we'll have to leave right after breakfast~ Since Sua's house is close to the station, we can go pick her up at Sua's house~ Is that okay?,</p>
+<p>,We were going to go after lunch in the afternoon But if we're going to the amusement park and aquarium tomorrow too, I think we'll have to leave right after breakfast Since Sua's house is close to the station, we can go pick her up at Sua's house Is that okay?,</p>
 
 <p>Seyoung was asking Shiwoo, as if confirming the schedule for tomorrow morning.</p>
 
-<p>,Yeah~~ okay~ On the way back, shall we stop by the cafe in the basement of the magic academy? We said we'd buy ice cream there before, didn't we?,</p>
+<p>,Yeah okay On the way back, shall we stop by the cafe in the basement of the magic academy? We said we'd buy ice cream there before, didn't we?,</p>
 
 <p>While he was thinking about it, Shiwoo also planned to stop by that cafe at the magic academy that he and Seyoung had planned to go to before, and buy ice cream with his younger sisters.</p>
 
-<p>,No way~! Shiwoo Oppa~ They're closed on Sundays~ Let's go get ice cream another time~,</p>
+<p>,No way! Shiwoo Oppa They're closed on Sundays Let's go get ice cream another time,</p>
 
 <p>Seyoung was speaking as if admonishing Shiwoo, though it was unclear what kind of imitation she was doing.</p>
 
-<p>,Oh? Oh... right~ They're closed on weekends? That's unusual, isn't it? Then tomorrow, after shopping, shall we just go to the amusement park and aquarium?,</p>
+<p>,Oh? Oh... right They're closed on weekends? That's unusual, isn't it? Then tomorrow, after shopping, shall we just go to the amusement park and aquarium?,</p>
 
 <p>Shiwoo was speaking, feeling a slight awkwardness at Seyoung's tone.</p>
 
-<p>,Yeah~ Oppa, can you get Mom's permission? Mom listens to what Shiwoo Oppa says more than what I say~ Hehe,</p>
+<p>,Yeah Oppa, can you get Mom's permission? Mom listens to what Shiwoo Oppa says more than what I say Hehe,</p>
 
 <p>Again, with a bright expression, Seyoung was speaking to Shiwoo.</p>
 
-<p>,Alright~ I got it~! Oppa will talk to Mom for you.,</p>
+<p>,Alright I got it! Oppa will talk to Mom for you.,</p>
 
 <p>Seyoung's last words bothered Shiwoo somewhat, but he reacted as if it were nothing.</p>
 

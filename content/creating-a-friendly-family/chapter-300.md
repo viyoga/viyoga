@@ -26,13 +26,13 @@ chapter = 300
 
 <p class="scene-break">· · ·</p>
 
-<p>,Seonju Imo-nim~ We're here~! ,</p>
+<p>,Seonju Imo-nim We're here! ,</p>
 
 <p>Shiwoo calls out in a loud voice towards the house, calling out to Seonju Imo-nim, whose figure is not visible.</p>
 
 <p>Hearing the sound of the puppies' busy movements and Shiwoo's voice coming from the living room, Seonju Imo-nim walks out from the direction of Sua's room.</p>
 
-<p>,Welcome~! Shiwoo-ya~ Seyoung-ah~! ,</p>
+<p>,Welcome! Shiwoo-ya Seyoung-ah! ,</p>
 
 <p>Seonju Imo-nim greets Shiwoo and Seyoung with a languid expression and voice, as if she hasn't been awake for long.</p>
 
@@ -44,7 +44,7 @@ chapter = 300
 
 <p>Seyoung was petting the puppies, but when she saw Seonju Imo-nim, she immediately took off her shoes and ran to Seonju Imo-nim.</p>
 
-<p>,Seonju Imo-nim~! ,</p>
+<p>,Seonju Imo-nim! ,</p>
 
 <p>Seyoung hugs Seonju Imo-nim's slender waist tightly with both arms, burying her face in Seonju Imo-nim's voluptuous breasts.</p>
 
@@ -60,15 +60,15 @@ chapter = 300
 
 <p>After confirming Shiwoo's figure, who is covering his front with a crossbody bag, Seonju Imo-nim gives a lewd smile as if she understands something.</p>
 
-<p>,Seyoung's clothes are pretty~! The weather has gotten much cooler, hasn't it~?,</p>
+<p>,Seyoung's clothes are pretty! The weather has gotten much cooler, hasn't it?,</p>
 
 <p>Seonju Imo-nim covers Seyoung's buttocks with her palm and pats them loudly as if showing them to Shiwoo, while asking.</p>
 
-<p>,Hehe~ This dress is pretty, right? I like it too~,</p>
+<p>,Hehe This dress is pretty, right? I like it too,</p>
 
 <p>Seyoung seems to be in a good mood with Seonju Imo-nim's embrace and patting, and rubs her face against Seonju Imo-nim's chest as if acting spoiled, while saying.</p>
 
-<p>,Our Seyoung~ Did anything happen on the way here~?,</p>
+<p>,Our Seyoung Did anything happen on the way here?,</p>
 
 <p>Seonju Imo-nim looks at Shiwoo and asks in a playful tone.</p>
 
@@ -80,11 +80,11 @@ chapter = 300
 
 <p>Shiwoo says to Seonju Imo-nim in an irritated tone, as if trying to change the subject urgently.</p>
 
-<p>,She's getting ready now~ She'll be out soon~ While Sua is coming out, would you like to have a drink, Shiwoo-ya~?,</p>
+<p>,She's getting ready now She'll be out soon While Sua is coming out, would you like to have a drink, Shiwoo-ya?,</p>
 
 <p>Seonju Imo-nim loosens her arms that were embracing Seyoung, and offers Shiwoo a drink as if trying to soothe his irritation.</p>
 
-<p>,Yeah~ Should we drink something while we wait~! Hehe~,</p>
+<p>,Yeah Should we drink something while we wait! Hehe,</p>
 
 <p>Seyoung answers Seonju Imo-nim as if trying to smooth things over on behalf of Shiwoo.</p>
 
@@ -94,7 +94,7 @@ chapter = 300
 
 <p>While sitting at the table, Shiwoo, who was receiving the cola that Seonju Imo-nim was pouring into his cup, asks Seonju Imo-nim as if curious.</p>
 
-<p>,Ah~ You mean Ben? He's too active on his own, so I thought I wouldn't be able to control him if I kept him inside, so I moved him outside for a while~ Because there are kids too~ Anyway... Kikik!,</p>
+<p>,Ah You mean Ben? He's too active on his own, so I thought I wouldn't be able to control him if I kept him inside, so I moved him outside for a while Because there are kids too Anyway... Kikik!,</p>
 
 <p>Seonju Imo-nim pours cola for Shiwoo, gives an inexplicable laugh, and explains about the dog tied up in the yard.</p>
 
@@ -110,7 +110,7 @@ chapter = 300
 
 <p>Seonju Imo-nim saw Shiwoo's expression and chuckled, then brought her lips to Shiwoo's ear.</p>
 
-<p>,The babies' dad is as vigorous as Master-nim... I can't handle it at all~ Kikik,</p>
+<p>,The babies' dad is as vigorous as Master-nim... I can't handle it at all Kikik,</p>
 
 <p>Seonju Imo-nim says in a low voice as if whispering in Shiwoo's ear, and laughs playfully.</p>
 
@@ -150,7 +150,7 @@ chapter = 300
 
 <p class="scene-break">· · ·</p>
 
-<p>,Seonju Imo-nim! I'm just going to go to the bathroom for a moment~,</p>
+<p>,Seonju Imo-nim! I'm just going to go to the bathroom for a moment,</p>
 
 <p>Shiwoo gets up from his seat and heads to the bathroom to check the video file that arrived from Sehee Nuna.</p>
 

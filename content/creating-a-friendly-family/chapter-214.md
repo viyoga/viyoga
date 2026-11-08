@@ -10,21 +10,21 @@ chapter = 214
 
 <p>It was hard to tell if Mom's ragged breathing was from anger or arousal.</p>
 
-<p>"Unni, stop being angry~! Shiwoo and Sehee are old enough to make their own decisions about that kind of thing now, aren't they~?!"</p>
+<p>"Unni, stop being angry! Shiwoo and Sehee are old enough to make their own decisions about that kind of thing now, aren't they?!"</p>
 
 <p>Seonju Imo, sensing her chance, subtly stroked Mom's arms and back as if offering an apology.</p>
 
 <p>Seonju Imo's touch seemed somewhat different from a normal caress.</p>
 
-<p>"Wh...what are you saying~! They're still kids who can't even tell right from wrong~!!"</p>
+<p>"Wh...what are you saying! They're still kids who can't even tell right from wrong!!"</p>
 
 <p>Mom, flustered by Shiwoo's provocative and sensual toe job, followed by Seonju Imo's suggestive touch, retorted.</p>
 
-<p>"Think back to when you were young, Unni~~ We caused even more trouble~, didn't we~? Compared to then, these kids are incredibly well-behaved~."</p>
+<p>"Think back to when you were young, Unni We caused even more trouble, didn't we? Compared to then, these kids are incredibly well-behaved."</p>
 
 <p>Seonju Imo slipped her hand from Mom's back to her side, as if sliding it in, as she spoke.</p>
 
-<p>"Wa...wait a minute!! Seonju, you~! Are you...are you going to keep talking nonsense like that?"</p>
+<p>"Wa...wait a minute!! Seonju, you! Are you...are you going to keep talking nonsense like that?"</p>
 
 <p>Mom, already sensitive from Shiwoo's stimulating toe caresses, seemed burdened by Seonju Imo's touch and turned her body to the side, speaking sternly.</p>
 
@@ -32,11 +32,11 @@ chapter = 214
 
 <p>Shiwoo's foot pressed even harder into Mom's crotch.</p>
 
-<p>"Ssuk-geo-ck~!"</p>
+<p>"Ssuk-geo-ck!"</p>
 
 <p>Shiwoo's big toe slid into Mom's slick, wet vagina hole, making a wet, fleshy sound.</p>
 
-<p>"Haa-euuu~ Geez...! Hooo..."</p>
+<p>"Haa-euuu Geez...! Hooo..."</p>
 
 <p>Mom groaned, trying to suppress the sound as much as possible, as if annoyed.</p>
 
@@ -52,7 +52,7 @@ chapter = 214
 
 <p>Mom leaned over the table as if collapsing, trembling as if in a shudder.</p>
 
-<p>"See! Isn't it hard on Unni too, getting so worked up and angry at the kids~?!"</p>
+<p>"See! Isn't it hard on Unni too, getting so worked up and angry at the kids?!"</p>
 
 <p>Seonju Imo's hand dug even deeper into Mom's crotch as she said that.</p>
 
@@ -62,11 +62,11 @@ chapter = 214
 
 <p>Shiwoo's foot and Seonju Imo's hand seemed to be connected, touching through Mom's secretly parted petals.</p>
 
-<p>"Haa-euuu...I...I don't know why these...these kids keep doing this~!!"</p>
+<p>"Haa-euuu...I...I don't know why these...these kids keep doing this!!"</p>
 
 <p>Mom spoke as if complaining to herself, then closed her eyes.</p>
 
-<p>"Isn't that enough now? Shiwoo and Sehee seem to have understood everything now~, right?! Isn't Unni the only one getting worked up? Kikik~"</p>
+<p>"Isn't that enough now? Shiwoo and Sehee seem to have understood everything now, right?! Isn't Unni the only one getting worked up? Kikik"</p>
 
 <p>Seonju Imo whispered, bringing her body close to Mom's, as if seducing her.</p>
 
@@ -74,13 +74,13 @@ chapter = 214
 
 <p>A faint tremor, as if barely enduring an orgasm, was transmitted from Mom's body to Shiwoo's toes.</p>
 
-<p>"...Anyway, Unni~ you can't do anything Shiwoo tells you to do..."</p>
+<p>"...Anyway, Unni you can't do anything Shiwoo tells you to do..."</p>
 
 <p>Seonju Imo brought her lips to Mom's ear and spoke in a small voice, just loud enough for Shiwoo to hear.</p>
 
 <p>Mom closed her eyes tightly at Seonju Imo's words and trembled, burying her face on the table.</p>
 
-<p>"Haa-eu~ Geez~! Uuu...haaa..."</p>
+<p>"Haa-eu Geez! Uuu...haaa..."</p>
 
 <p>Mom's vagina hole constricted around Shiwoo's toe with a suppressed moan.</p>
 
@@ -102,7 +102,7 @@ chapter = 214
 
 <p>And Sehee Nuna, sitting next to Shiwoo, blushed.</p>
 
-<p>"Stop getting so angry at home~! Unni! The kids are intimidated by Mom and can't even talk to her comfortably~, kikik~."</p>
+<p>"Stop getting so angry at home! Unni! The kids are intimidated by Mom and can't even talk to her comfortably, kikik."</p>
 
 <p>Seonju Imo, having taken her hand out from under the table after Mom's orgasm, wore a satisfied expression.</p>
 
@@ -132,7 +132,7 @@ chapter = 214
 
 <p>Shiwoo had been keeping his toe inside Mom's hole the entire time he was eating.</p>
 
-<p>"U...uh? ...Haa...n...no...I can do it myself~."</p>
+<p>"U...uh? ...Haa...n...no...I can do it myself."</p>
 
 <p>Mom answered Shiwoo, exhaling shamefully.</p>
 
@@ -154,7 +154,7 @@ chapter = 214
 
 <p>Shiwoo spoke to Seonju Imo in a commanding tone.</p>
 
-<p>"Yeah...I got it~ I'll go up and wait~."</p>
+<p>"Yeah...I got it I'll go up and wait."</p>
 
 <p>Seonju Imo answered with an excited and flushed face, as if she knew what it meant to be called to Shiwoo's room.</p>
 
@@ -162,13 +162,13 @@ chapter = 214
 
 <p>Then, he raised his big toenail and scratched Mom's clitoris as if clawing at it.</p>
 
-<p>"Heu-at~! Hat!!"</p>
+<p>"Heu-at! Hat!!"</p>
 
 <p>Mom, caught off guard by Shiwoo's action of pulling out his toe,</p>
 
 <p>Mom was startled by Shiwoo's sudden attack and flinched, letting out a moan.</p>
 
-<p>"Now you should go do the dishes~, Mom!"</p>
+<p>"Now you should go do the dishes, Mom!"</p>
 
 <p>Shiwoo was assigning Mom her tasks, taking his toe away from her crotch.</p>
 
@@ -186,7 +186,7 @@ chapter = 214
 
 <p>Sehee Nuna answered Shiwoo's instructions with a bewildered expression.</p>
 
-<p>"Seonju Imo and I might take a while, so talk to each other after you finish the dishes~!"</p>
+<p>"Seonju Imo and I might take a while, so talk to each other after you finish the dishes!"</p>
 
 <p>Shiwoo was giving instructions to Mom and Sehee Nuna even for what to do after they finished the dishes.</p>
 

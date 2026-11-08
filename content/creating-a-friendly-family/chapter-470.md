@@ -160,17 +160,17 @@ chapter = 470
 
 <p>Sehee Nuna's hand, located in her crotch, moves more and more violently up and down.</p>
 
-<p>"Chyu-u-up jju-u-up chyu-ru-u-up~ssu-uu-u-up"</p>
+<p>"Chyu-u-up jju-u-up chyu-ru-u-upssu-uu-u-up"</p>
 
 <p>Shiwoo strongly sucks Sehee Nuna's nipple into his mouth, along with the mesh t-shirt smeared with saliva, as if trying to leave a kiss mark around her nipple.</p>
 
-<p>"Haa-eung~ Master...Haa-eut... Seon...Seonmi-ya...Haa-eu...I...now...Haa-eung~"</p>
+<p>"Haa-eung Master...Haa-eut... Seon...Seonmi-ya...Haa-eu...I...now...Haa-eung"</p>
 
 <p>Sehee Nuna stiffens her body and moans as if reaching her climax.</p>
 
 <p>Sehee Nuna squeezes the hand between her thighs and trembles, twisting her pelvis back.</p>
 
-<p>"Haa-eung~ Haa-aang~ Haaa-aaa~Haa-eung~!"</p>
+<p>"Haa-eung Haa-aang Haaa-aaaHaa-eung!"</p>
 
 <p>Sehee Nuna was arching her pelvis back, twisting her body, and letting out a climactic moan.</p>
 

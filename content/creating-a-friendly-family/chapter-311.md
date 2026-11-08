@@ -78,7 +78,7 @@ chapter = 311
 
 <p>Sua turned her head forward, avoiding Shiwoo's gaze, and mumbled her answer, echoing Shiwoo's words.</p>
 
-<p>"Then Sua needs to cool down with her fan~"</p>
+<p>"Then Sua needs to cool down with her fan"</p>
 
 <p>Shiwoo said to Sua, fiddling with the smartphone he had just taken out.</p>
 
@@ -88,11 +88,11 @@ chapter = 311
 
 <p>After answering, Sua laboriously turned on the portable mini-fan hanging around her neck.</p>
 
-<p>-Wiiiiiing~!</p>
+<p>-Wiiiiiing!</p>
 
 <p>Sua's fan began to spin, making a whirring sound at maximum speed.</p>
 
-<p>"Hold on a moment, kids~"</p>
+<p>"Hold on a moment, kids"</p>
 
 <p>Shiwoo released Seyoung-i's arm and paused for a moment, asking for his sisters' understanding as if trying to concentrate on something.</p>
 
@@ -102,7 +102,7 @@ chapter = 311
 
 <p>Shiwoo set the vibrator's intensity to the weakest setting and touched the operation button.</p>
 
-<p>-Jiiiiiing~!</p>
+<p>-Jiiiiiing!</p>
 
 <p>Along with the smartphone, a vibrating sound, slightly different in quality from the fan's whir, began to resonate from Sua's core.</p>
 
@@ -114,13 +114,13 @@ chapter = 311
 
 <p>Seyoung-i, standing beside him with her arm released, watched each step of Shiwoo operating the smartphone screen with curious eyes.</p>
 
-<p>"While I was talking with Seonju in the yard, nothing happened outside, right~?"</p>
+<p>"While I was talking with Seonju in the yard, nothing happened outside, right?"</p>
 
 <p>Shiwoo again spoke to his sisters in a casual, passing tone.</p>
 
 <p>Now, Shiwoo was calling Seonju Imo's name freely in front of Sua and Seyoung-i, without any hesitation.</p>
 
-<p>"Nope~ Nothing happened~"</p>
+<p>"Nope Nothing happened"</p>
 
 <p>Seyoung-i immediately replied, as if there was no awkwardness or strangeness in Shiwoo calling Seonju Imo's name so casually.</p>
 
@@ -148,11 +148,11 @@ chapter = 311
 
 <p>Shiwoo said, walking forward with his sisters embraced on both sides.</p>
 
-<p>"Yeah~! I'd love to~ Hehe~! I want to eat a chicken burger set for lunch today~!!"</p>
+<p>"Yeah! I'd love to Hehe! I want to eat a chicken burger set for lunch today!!"</p>
 
 <p>Seyoung-i, excited by the mention of food, leaned towards Shiwoo and shouted out her desired menu.</p>
 
-<p>"Really~? Then maybe I'll have a hamburger set for the first time in a while too? How about you, Sua? Is that okay?"</p>
+<p>"Really? Then maybe I'll have a hamburger set for the first time in a while too? How about you, Sua? Is that okay?"</p>
 
 <p>Shiwoo subtly lowered the hand that had been resting on Seyoung-i's and Sua's pelvis, and turned his head towards Sua, pretending not to notice.</p>
 
@@ -170,15 +170,15 @@ chapter = 311
 
 <p>Shiwoo, momentarily lost in thought, felt the vibrating sensation in both hands transforming into pleasure, as if intoxicated by ecstasy.</p>
 
-<p>"But Shiwoo Oppa~! If your smartphone keeps vibrating like that, won't the battery drain quickly?"</p>
+<p>"But Shiwoo Oppa! If your smartphone keeps vibrating like that, won't the battery drain quickly?"</p>
 
 <p>Just then, Seyoung-i suddenly asked Shiwoo a question, as if peeking into a precarious gap in their shared space.</p>
 
-<p>"Huh? Uh... I... I fully charged it, so it should be fine. If it runs out, we can just stop by a convenience store or a cafe to charge it... so... no need to worry right now~"</p>
+<p>"Huh? Uh... I... I fully charged it, so it should be fine. If it runs out, we can just stop by a convenience store or a cafe to charge it... so... no need to worry right now"</p>
 
 <p>Shiwoo, who had been momentarily lost, intoxicated by the sensation of his sisters' vibrating bodies, answered Seyoung-i's sudden, piercing question.</p>
 
-<p>"Really? So we can just stop by a cafe or something to charge it later~ Then it doesn't matter~! Oppa will take care of it later, I guess~ Hehe~"</p>
+<p>"Really? So we can just stop by a cafe or something to charge it later Then it doesn't matter! Oppa will take care of it later, I guess Hehe"</p>
 
 <p>Seyoung-i continued to speak to Shiwoo with an innocent expression.</p>
 

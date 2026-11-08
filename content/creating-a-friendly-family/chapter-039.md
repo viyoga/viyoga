@@ -100,7 +100,7 @@ chapter = 39
 
 <p>Shiwoo starts ejaculating as if squeezing out towards Sehee Nuna's clothes in the basket.</p>
 
-<p>"Eueueu~~Ah~Nuna~"</p>
+<p>"EueueuAhNuna"</p>
 
 <p>At the last moment of climax, Shiwoo does not suppress the moaning sound that comes out and spits it out as if actually calling Nuna.</p>
 
@@ -196,11 +196,11 @@ chapter = 39
 
 <p>Shiwoo, who seems to be flustered by the awkward embarrassment as if he had been subjected to shame play.</p>
 
-<p>'Hmph, if Mom was going to block your number, would she have left you with the card? Are you that short-sighted~?!'</p>
+<p>'Hmph, if Mom was going to block your number, would she have left you with the card? Are you that short-sighted?!'</p>
 
 <p>Mom, feeling dumbfounded, scolds Shiwoo as if rebuking him.</p>
 
-<p>'Ah, that's right~ It was a bit strange that she left the card with me when Sehee Nuna is here too'</p>
+<p>'Ah, that's right It was a bit strange that she left the card with me when Sehee Nuna is here too'</p>
 
 <p>Shiwoo was sending a reply, feeling a somewhat empty sense of relief at Mom's message.</p>
 
@@ -210,7 +210,7 @@ chapter = 39
 
 <p>Shiwoo asks, feeling very grateful that Mom is answering him even now, but also with a slightly resentful and complaining feeling.</p>
 
-<p>'Mom just woke up~!'</p>
+<p>'Mom just woke up!'</p>
 
 <p>'Sleeping in?'</p>
 
@@ -244,17 +244,17 @@ chapter = 39
 
 <p>'I don't know how to face your face in the morning'</p>
 
-<p>'Just look at it~! '</p>
+<p>'Just look at it! '</p>
 
 <p>Again, there is no answer for a long time, and then Mom sends a message.</p>
 
-<p>'It's hard for Mom to do that~'</p>
+<p>'It's hard for Mom to do that'</p>
 
 <p>'Why?'</p>
 
 <p>Shiwoo was constantly asking Mom like a troublesome, immature child.</p>
 
-<p>'Mom's hands are still shaking when I think about yesterday, and I couldn't sleep a wink all night because my heart was pounding~'</p>
+<p>'Mom's hands are still shaking when I think about yesterday, and I couldn't sleep a wink all night because my heart was pounding'</p>
 
 <p>Mom is trying to explain to Shiwoo about her feelings and state from then until now.</p>
 
@@ -274,11 +274,11 @@ chapter = 39
 
 <p>Mom was silent again for a long time.</p>
 
-<p>'You have to clean up before you leave -_-^ Seyoung sometimes wakes up and comes in the middle of the night, so you have to be careful~'</p>
+<p>'You have to clean up before you leave -_-^ Seyoung sometimes wakes up and comes in the middle of the night, so you have to be careful'</p>
 
 <p>Mom's words, subtly hinting at what's to come.</p>
 
-<p>'Yeah~ I know, Mom, I'll be careful'</p>
+<p>'Yeah I know, Mom, I'll be careful'</p>
 
 <p>Shiwoo, answering in accordance with the flow that is both knowable and unknowable.</p>
 

@@ -6,7 +6,7 @@ chapter = 766
 +++
 <p>Mom kept her head bowed, unable to say anything, simply letting Shiwoo do as he pleased.</p>
 
-<p>"Shall we head in now~?"</p>
+<p>"Shall we head in now?"</p>
 
 <p>Shiwoo spoke while explicitly groping her body.</p>
 
@@ -106,7 +106,7 @@ chapter = 766
 
 <p>As expected of an unmanned motel where more than half the rooms were occupied on a weekday afternoon, the ripe moans of lovers could be heard from beyond the hallway walls here and there.</p>
 
-<p>"At this rate, no one will even know if you moan as loud as you want~ No one will know who's making what sound in which room..."</p>
+<p>"At this rate, no one will even know if you moan as loud as you want No one will know who's making what sound in which room..."</p>
 
 <p>Shiwoo spoke to himself while continuing to grope Mom's body.</p>
 
@@ -172,7 +172,7 @@ chapter = 766
 
 <p>Mom asked cautiously, her eyes darting around anxiously.</p>
 
-<p>"What do you mean 'what for'~! I have to let Sehee know. That we're currently in the motel room I came to with her."</p>
+<p>"What do you mean 'what for'! I have to let Sehee know. That we're currently in the motel room I came to with her."</p>
 
 <p>Shiwoo spoke to her in a firm tone while taking out his phone, as if there were no need for further explanation.</p>
 
@@ -180,7 +180,7 @@ chapter = 766
 
 <p>Mom spoke as if to stop Shiwoo's actions, covering her face with her arms in panic.</p>
 
-<p>"Because... you need to properly realize... your position, Mom~!"</p>
+<p>"Because... you need to properly realize... your position, Mom!"</p>
 
 <p>Shiwoo continued to mutter enigmatic words under his breath.</p>
 
@@ -188,7 +188,7 @@ chapter = 766
 
 <p>Mom asked back with a dazed expression, unable to follow the context of Shiwoo's words.</p>
 
-<p>"Didn't you say you didn't want to think about other things when picking the room? That's why you tried to pick another room, wasn't it? But why~?"</p>
+<p>"Didn't you say you didn't want to think about other things when picking the room? That's why you tried to pick another room, wasn't it? But why?"</p>
 
 <p>"It's a fact that you're my mother and I've had sex with all of your daughters, so why are you trying not to think about it?! Who gave you permission?!"</p>
 
@@ -200,7 +200,7 @@ chapter = 766
 
 <p>With a helpless expression, Mom slowly approached the bed.</p>
 
-<p>"Just think of it as a punishment! That way it'll be easier, won't it~? And if Sehee finds out from somewhere else later that we came here, it'll only be harder for you, Mom. Aren't you worried about that?"</p>
+<p>"Just think of it as a punishment! That way it'll be easier, won't it? And if Sehee finds out from somewhere else later that we came here, it'll only be harder for you, Mom. Aren't you worried about that?"</p>
 
 <p>Shiwoo spoke in a playful voice as if persuading and coaxing Mom.</p>
 

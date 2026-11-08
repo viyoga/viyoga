@@ -74,7 +74,7 @@ chapter = 324
 
 <p>The screen shook slightly, but the scene of Mom being beaten was captured on the screen.</p>
 
-<p>"Haa! Hngh~! Haaang!"</p>
+<p>"Haa! Hngh! Haaang!"</p>
 
 <p>Mom's waist and buttocks, being beaten by Sehee, are lifted as if twisting.</p>
 

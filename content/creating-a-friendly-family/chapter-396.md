@@ -78,7 +78,7 @@ chapter = 396
 
 <p>On the contrary, along with an inexplicable sense of anticipation, Shiwoo's penis was expanding even larger in Sehee Nuna's mouth.</p>
 
-<p>\[Okay~ I'll get dressed and leave right away!\]</p>
+<p>\[Okay I'll get dressed and leave right away!\]</p>
 
 <p>Shiwoo, slowly rubbing his penis, which was fully swollen in Sehee Nuna's mouth, back and forth, replied to Mom's message.</p>
 
@@ -132,7 +132,7 @@ chapter = 396
 
 <p>Shiwoo, as if wiping his penis, which was smeared with damp saliva, rubbed it against Sehee Nuna's face.</p>
 
-<p>"Mom really must have gone grocery shopping at the mart~ She's telling me to come out to the mart in front of the station now, you know?"</p>
+<p>"Mom really must have gone grocery shopping at the mart She's telling me to come out to the mart in front of the station now, you know?"</p>
 
 <p>"I'm going to go talk to Mom and come back, so while I'm gone, Sehee, you clean this place up! Understood?"</p>
 

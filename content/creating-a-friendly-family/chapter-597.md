@@ -10,7 +10,7 @@ chapter = 597
 
 <p>Sejin Nuna pauses her cooking and checks the direction Shiwoo is pointing.</p>
 
-<p>"Oh, this~? It's for expressing breast milk. It's called a breast pump, and I started producing colostrum a few days ago..."</p>
+<p>"Oh, this? It's for expressing breast milk. It's called a breast pump, and I started producing colostrum a few days ago..."</p>
 
 <p>Sejin Nuna answers Shiwoo's question casually, as if it's no big deal.</p>
 
@@ -18,9 +18,9 @@ chapter = 597
 
 <p>Shiwoo, hearing the unfamiliar word, raises an eyebrow slightly and asks with a puzzled expression.</p>
 
-<p>"Yeah~ That's what they call the breast milk that comes out briefly in the early stages after a baby is born. They say it sometimes comes out before the baby is born~ like me..."</p>
+<p>"Yeah That's what they call the breast milk that comes out briefly in the early stages after a baby is born. They say it sometimes comes out before the baby is born like me..."</p>
 
-<p>"If the baby drinks it, their immunity improves, and it has more nutrients compared to regular breast milk, so it'd be a waste to throw it away~ So I'm storing it... to feed the baby later~"</p>
+<p>"If the baby drinks it, their immunity improves, and it has more nutrients compared to regular breast milk, so it'd be a waste to throw it away So I'm storing it... to feed the baby later"</p>
 
 <p>Sejin Nuna answers Shiwoo in a gentle and soft voice, as if naturally explaining.</p>
 
@@ -32,7 +32,7 @@ chapter = 597
 
 <p>Instead, he felt awkward for having asked the question, and inexplicably wore a dreamy expression.</p>
 
-<p>"Why~? Shiwoo, are you interested in this kind of thing lately?"</p>
+<p>"Why? Shiwoo, are you interested in this kind of thing lately?"</p>
 
 <p>Sejin Nuna, seeing Shiwoo's reaction, asks in a playful tone.</p>
 
@@ -52,7 +52,7 @@ chapter = 597
 
 <p>Shiwoo asks Sejin Nuna in a curious tone.</p>
 
-<p>"Of course I've tasted it~ because I'll be feeding it to the baby later..."</p>
+<p>"Of course I've tasted it because I'll be feeding it to the baby later..."</p>
 
 <p>Sejin Nuna answered with a soft smile, as if trying to satisfy Shiwoo's curiosity.</p>
 
@@ -82,7 +82,7 @@ chapter = 597
 
 <p>Shiwoo, curious, was asking if Sejin Nuna tasted her breast milk often, and what she had eaten that day.</p>
 
-<p>"I taste it sometimes, you know~ because I'm curious too! As for what I ate today... let's see~ Chicken salad and a strawberry smoothie for breakfast? Almond pesto and biscuits for lunch?"</p>
+<p>"I taste it sometimes, you know because I'm curious too! As for what I ate today... let's see Chicken salad and a strawberry smoothie for breakfast? Almond pesto and biscuits for lunch?"</p>
 
 <p>Sejin Nuna, after making a confession-like statement that she tasted her own breast milk out of curiosity, began to list the foods she had eaten that day, recalling them one by one.</p>
 
@@ -94,7 +94,7 @@ chapter = 597
 
 <p>"Yeah. When Mom and Seonju Imo gave birth to Seyoung and Sua, a lot came out then too, you know?"</p>
 
-<p>"It seems the women in our family tend to produce a lot~ Even though the container is small, I seem to fill one bottle completely a day."</p>
+<p>"It seems the women in our family tend to produce a lot Even though the container is small, I seem to fill one bottle completely a day."</p>
 
 <p>Sejin Nuna provided Shiwoo with additional information, talking about when Mom and Seonju Imo gave birth to Seyoung and Sua.</p>
 
@@ -108,9 +108,9 @@ chapter = 597
 
 <p>Shiwoo's curious questions continued.</p>
 
-<p>"Yeah~ You insert the nipple into the hollowed-out part in the middle, press the surrounding round plate-like thing against your skin, and then gently pull the handle lever."</p>
+<p>"Yeah You insert the nipple into the hollowed-out part in the middle, press the surrounding round plate-like thing against your skin, and then gently pull the handle lever."</p>
 
-<p>"It doesn't hurt~ I've set times for twice a day, morning and evening, but I have to express it whenever it starts flowing, so I seem to do it more often~ Maybe five or six times a day?"</p>
+<p>"It doesn't hurt I've set times for twice a day, morning and evening, but I have to express it whenever it starts flowing, so I seem to do it more often Maybe five or six times a day?"</p>
 
 <p>Sejin Nuna kindly and gently explained how to use the breast pump, then informed Shiwoo about whether it caused pain and the approximate frequency of use.</p>
 
@@ -136,7 +136,7 @@ chapter = 597
 
 <p>Shiwoo's body seemed to twitch and tremble from just a moment of idle fantasy.</p>
 
-<p>"Seyoung would love that~ She still suckles Mom's breast at night, doesn't she? You know that, right?"</p>
+<p>"Seyoung would love that She still suckles Mom's breast at night, doesn't she? You know that, right?"</p>
 
 <p>Shiwoo composed his trembling body and asked, as if confirming if Sejin Nuna knew about Seyoung still suckling Mom's breast at night.</p>
 
@@ -144,7 +144,7 @@ chapter = 597
 
 <p>Shiwoo then spoke to Sejin Nuna in a playful tone, as if subtly probing her.</p>
 
-<p>"Really? Then I should tell Seyoung to come over and sleep here sometime later~ Fufufu~"</p>
+<p>"Really? Then I should tell Seyoung to come over and sleep here sometime later Fufufu"</p>
 
 <p>Sejin Nuna answered Shiwoo's playful words as if she felt no aversion whatsoever.</p>
 
@@ -174,11 +174,11 @@ chapter = 597
 
 <p>Her cleavage, amply filled between the scooped neckline of her clothes, was visible directly in front of Shiwoo, along with her swollen belly.</p>
 
-<p>"Here~ eat, Shiwoo-ya! Ask for more if it's not enough~ I made plenty."</p>
+<p>"Here eat, Shiwoo-ya! Ask for more if it's not enough I made plenty."</p>
 
 <p>Sejin Nuna served the carefully prepared food to Shiwoo, smiling brightly.</p>
 
-<p>"Yes, I'll eat well~!"</p>
+<p>"Yes, I'll eat well!"</p>
 
 <p>Shiwoo picked up the knife and fork placed next to the cream pasta plate, twirled the pasta noodles, and carefully brought them to his mouth.</p>
 

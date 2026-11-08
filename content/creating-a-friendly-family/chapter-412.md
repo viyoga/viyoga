@@ -10,7 +10,7 @@ chapter = 412
 
 <p>But on the other hand, he gets the feeling that Mom has proposed a rule for another level of play, and a strange excitement/arousal seems to surge within him.</p>
 
-<p>"Anyway, I got that~ But I'll still do whatever I want when Seyoung is asleep or not home!"</p>
+<p>"Anyway, I got that But I'll still do whatever I want when Seyoung is asleep or not home!"</p>
 
 <p>Shiwoo says, as if checking the specific exceptions to what Mom asked for, and leans his hips slightly forward.</p>
 

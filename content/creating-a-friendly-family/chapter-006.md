@@ -4,13 +4,13 @@ weight = 6
 [extra]
 chapter = 6
 +++
-<p>"I've already told Gyuri~ She said she'll be home in the afternoon, so stop by after cram school and pick up the blindfold."</p>
+<p>"I've already told Gyuri She said she'll be home in the afternoon, so stop by after cram school and pick up the blindfold."</p>
 
 <p>As Shiwoo prepared for cram school and left the house, Mom said to him.</p>
 
 <p>"Yeah! Got it! I just need to pick up the blindfold, right? I'll be back."</p>
 
-<p>"Okay~ Be careful on your way~"</p>
+<p>"Okay Be careful on your way"</p>
 
 <p>With Mom's send-off, Shiwoo left the house.</p>
 
@@ -28,7 +28,7 @@ chapter = 6
 
 <p>Cheoljin, seemingly displeased with Seulgi's reaction, raised his tension and passionately argued.</p>
 
-<p>"Nayy~ Nayy~ What a truly comprehensive and narrow-minded way of thinking you have~"</p>
+<p>"Nayy Nayy What a truly comprehensive and narrow-minded way of thinking you have"</p>
 
 <p>Seulgi, with a teasing, placating tone, brushed off Cheoljin's impassioned words.</p>
 
@@ -98,7 +98,7 @@ chapter = 6
 
 <p>Arriving at Cheoljin's house, Shiwoo rang the doorbell, and Ajumma greeted him.</p>
 
-<p>"Welcome, Shiwoo~"</p>
+<p>"Welcome, Shiwoo"</p>
 
 <p>Gyuri Ajumma, as if she had just been doing yoga, was wearing a deep pink tank top and gray leggings.</p>
 
@@ -112,7 +112,7 @@ chapter = 6
 
 <p>Displaying her characteristic benevolent smile, using her soft and gentle eyes, Ajumma said.</p>
 
-<p>"Okay~ I've prepared it, so come in first and have a drink before you go."</p>
+<p>"Okay I've prepared it, so come in first and have a drink before you go."</p>
 
 <p>Entering the house through the front door, Shiwoo saw a yoga mat laid out in the living room.</p>
 
@@ -130,7 +130,7 @@ chapter = 6
 
 <p>"Cheoljin's pranks have gotten a bit out of hand..."</p>
 
-<p>"Ah~ that?"</p>
+<p>"Ah that?"</p>
 
 <p>Shiwoo spoke as if he hadn't paid it any mind.</p>
 
@@ -148,7 +148,7 @@ chapter = 6
 
 <p>"Because Cheoljin seemed close with his mom. I really can't imagine playing such pranks with my own mom."</p>
 
-<p>"Ah~ so that's how it looked~ I guess if you think of it as playing pranks like friends, it could seem like a close mother-son relationship. Still, for him to do that in front of you, Shiwoo, I was honestly quite embarrassed then."</p>
+<p>"Ah so that's how it looked I guess if you think of it as playing pranks like friends, it could seem like a close mother-son relationship. Still, for him to do that in front of you, Shiwoo, I was honestly quite embarrassed then."</p>
 
 <p>"Don't worry about it. Now, I actually think it's good to see something like that."</p>
 
@@ -168,7 +168,7 @@ chapter = 6
 
 <p>"Ah, don't worry about that. I'll keep it to myself."</p>
 
-<p>"Okay, thank you, Shiwoo~ Aren't you hungry? There's some cake left from yesterday, want some?"</p>
+<p>"Okay, thank you, Shiwoo Aren't you hungry? There's some cake left from yesterday, want some?"</p>
 
 <p>Only then, seemingly relieved, Gyuri Ajumma regained her warm smile.</p>
 
@@ -242,7 +242,7 @@ chapter = 6
 
 <p>Ajumma's large breasts were pressed by the pulled-back tank top, crushed into a beautiful shape.</p>
 
-<p>"Wow~ beautiful. I've thought this before, but your body is so pretty, Ajumma."</p>
+<p>"Wow beautiful. I've thought this before, but your body is so pretty, Ajumma."</p>
 
 <p>Shiwoo genuinely admired her.</p>
 
@@ -258,7 +258,7 @@ chapter = 6
 
 <p>Gyuri Ajumma paused for a moment before answering.</p>
 
-<p>"Okay~ Taking pictures is fine. But it's embarrassing, so you absolutely must not show them to anyone else, okay? Got it?"</p>
+<p>"Okay Taking pictures is fine. But it's embarrassing, so you absolutely must not show them to anyone else, okay? Got it?"</p>
 
 <p>"Don't worry. I'll keep it a secret even from Cheoljin."</p>
 
@@ -348,7 +348,7 @@ chapter = 6
 
 <p>"You seem to be struggling. Your body is trembling a bit, are you okay?"</p>
 
-<p>"Uh-huh, I'm fine~"</p>
+<p>"Uh-huh, I'm fine"</p>
 
 <p>Ajumma replied in a trembling voice, heavily mixed with air.</p>
 
@@ -398,7 +398,7 @@ chapter = 6
 
 <p>"Yes, thank you for today."</p>
 
-<p>"Yeah, I had fun too. Send those photos right away~ You know my number, right?"</p>
+<p>"Yeah, I had fun too. Send those photos right away You know my number, right?"</p>
 
 <p>Looking at Gyuri Ajumma, who was smiling and seeing him off to the front door, regret, self-reproach, and disappointment for not having hit her buttocks now rushed over him intensely.</p>
 
@@ -422,7 +422,7 @@ chapter = 6
 
 <p>Pang!!!</p>
 
-<p>"Haaah~"</p>
+<p>"Haaah"</p>
 
 <p>As Ajumma's body flinched, a breathy gasp escaped her lips.</p>
 
@@ -450,4 +450,4 @@ chapter = 6
 
 <p>And then the message notification rang again, and it read:</p>
 
-<p>'Thank you! Come again next time~!!'</p>
+<p>'Thank you! Come again next time!!'</p>

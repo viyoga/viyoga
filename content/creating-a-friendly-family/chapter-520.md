@@ -54,7 +54,7 @@ chapter = 520
 
 <p>Soon after, Mom's tongue begins to gently rub the skin of Shiwoo's penis shaft.</p>
 
-<p>,You suck well~ Is the taste okay? Seonmi, yours is mixed in too, so it might be hard to tell the difference... When I tasted it, the three of you surprisingly had different tastes? Mixing it might not be bad either~"</p>
+<p>,You suck well Is the taste okay? Seonmi, yours is mixed in too, so it might be hard to tell the difference... When I tasted it, the three of you surprisingly had different tastes? Mixing it might not be bad either"</p>
 
 <p>Shiwoo puts his hand on Mom's head, who is sucking his penis, and gently strokes it as he speaks.</p>
 
@@ -118,7 +118,7 @@ chapter = 520
 
 <p>Mom has Shiwoo's penis in her mouth, coughing and urgently replenishing her lungs with the insufficient air.</p>
 
-<p>,You can't spill it like that~ I gave it to you to eat, after all!"</p>
+<p>,You can't spill it like that I gave it to you to eat, after all!"</p>
 
 <p>Shiwoo scolds Mom, chiding her in a lightly reproachful tone.</p>
 

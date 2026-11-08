@@ -8,7 +8,7 @@ chapter = 705
 
 <p>As Seyoung's body slid downward, his penis buried itself deep inside her.</p>
 
-<p>"Hauuuut! Shiwoo Oppa~!"</p>
+<p>"Hauuuut! Shiwoo Oppa!"</p>
 
 <p>Startled, Seyoung momentarily tightened the thighs wrapped around Shiwoo's waist and cried out, tensing the arms she had hooked behind his neck.</p>
 
@@ -26,7 +26,7 @@ chapter = 705
 
 <p>Every time he relaxed his arms, Seyoung's body, hanging onto him, filled with intense strength.</p>
 
-<p>"Ha-eeeuung~ haaaaang... haaaaang..."</p>
+<p>"Ha-eeeuung haaaaang... haaaaang..."</p>
 
 <p>Seyoung was leaking moans mixed with coquetry, as if declaring her resignation and submission.</p>
 
@@ -160,7 +160,7 @@ chapter = 705
 
 <p>As if to fix Seyoung's moving waist in place, Shiwoo wrapped his knees and thighs around her buttocks and pressed his pelvis down.</p>
 
-<p>"Hauuuut haaaaang~ haaaaaa..."</p>
+<p>"Hauuuut haaaaang haaaaaa..."</p>
 
 <p>The joints connecting Seyoung's crotch, pelvis, and legs were locked against Shiwoo's thighs and lower belly.</p>
 
@@ -178,7 +178,7 @@ chapter = 705
 
 <p>Shiwoo continued the rhythmic movement of his waist while pinning Seyoung down from above.</p>
 
-<p>"Ha-eung ha-ang ha-aang ha-ut haaaaa~at ha-at!"</p>
+<p>"Ha-eung ha-ang ha-aang ha-ut haaaaaat ha-at!"</p>
 
 <p>At Shiwoo's continuous pounding, which started without warning as soon as they settled on the bed, Seyoung sobbed and let out a long moan, seemingly flustered.</p>
 

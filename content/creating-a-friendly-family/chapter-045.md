@@ -56,11 +56,11 @@ chapter = 45
 
 <p>「Mom, what are you doing?」</p>
 
-<p>「Eating~ What's with the picture?」</p>
+<p>「Eating What's with the picture?」</p>
 
-<p>「Yeah~ It's a nightgown, I thought Seyoung would look pretty in it.」</p>
+<p>「Yeah It's a nightgown, I thought Seyoung would look pretty in it.」</p>
 
-<p>「Indeed, it's pretty~ Where did you find it?」</p>
+<p>「Indeed, it's pretty Where did you find it?」</p>
 
 <p>「I came to return Sehee Nuna's clothes, and it's right across from that store.」</p>
 
@@ -108,7 +108,7 @@ chapter = 45
 
 <p>But now, such a Mom, far from scolding Shiwoo's wish and request for an allowance advance for an impure purpose, was going a step further, offering to grant it without any compensation.</p>
 
-<p>「I want to buy this for Seyoung myself~ So, Mom, can't you just give me an allowance in advance?」</p>
+<p>「I want to buy this for Seyoung myself So, Mom, can't you just give me an allowance in advance?」</p>
 
 <p>Shiwoo was touched and grateful for Mom's offer, but for some reason, he felt like he wanted to buy this nightgown for Seyoung himself, even if it meant getting an allowance advance.</p>
 
@@ -138,7 +138,7 @@ chapter = 45
 
 <p>What was miserable was the mother's body, getting wet without agency or resistance in such a situation.</p>
 
-<p>「Then let's do this! Mom will lend you the money regardless of your allowance~ Pay it back when you start earning money later! Anyway, I gave you the card to use if anything happened.」</p>
+<p>「Then let's do this! Mom will lend you the money regardless of your allowance Pay it back when you start earning money later! Anyway, I gave you the card to use if anything happened.」</p>
 
 <p>Mom's meaningless deferment, attempting to put her son in debt.</p>
 
@@ -176,15 +176,15 @@ chapter = 45
 
 <p>She was happy to have cash in hand, but it seemed she was still regretful about returning the clothes she had liked.</p>
 
-<p>「I got the refund, heehee~」</p>
+<p>「I got the refund, heehee」</p>
 
 <p>Still, she definitely seemed to be in a good mood.</p>
 
-<p>「Oh? That's a relief~」</p>
+<p>「Oh? That's a relief」</p>
 
 <p>Shiwoo replied to Sehee Nuna in an appropriate manner.</p>
 
-<p>「I thought it would take a long time to verify since there was no guardian, you know? But there was a staff unnie who remembered my face, so it was over quickly~」</p>
+<p>「I thought it would take a long time to verify since there was no guardian, you know? But there was a staff unnie who remembered my face, so it was over quickly」</p>
 
 <p>Sehee Nuna was chattering to Shiwoo as if boasting about her achievement.</p>
 
@@ -204,7 +204,7 @@ chapter = 45
 
 <p>「What's that?」</p>
 
-<p>「Oh~ I saw a pretty nightgown for Seyoung, so I bought one while Nuna was in the store.」</p>
+<p>「Oh I saw a pretty nightgown for Seyoung, so I bought one while Nuna was in the store.」</p>
 
 <p>「To gift to Seyoung? This is a luxury department, so everything must be expensive, right?」</p>
 
@@ -216,7 +216,7 @@ chapter = 45
 
 <p>Sehee Nuna asked, a little surprised.</p>
 
-<p>「Yeah, when I said it was a gift for Seyoung, Mom said she'd lend it to me~」</p>
+<p>「Yeah, when I said it was a gift for Seyoung, Mom said she'd lend it to me」</p>
 
 <p>「Is that so?」</p>
 
@@ -234,7 +234,7 @@ chapter = 45
 
 <p>Sehee Nuna approached Shiwoo as she had before and whispered to him.</p>
 
-<p>「About Seyoung's nightgown~ It seems it's possible even if it hasn't been worn yet, huh? If that's the case, why didn't you tell me? I could have let you use my cardigan~ kikik」</p>
+<p>「About Seyoung's nightgown It seems it's possible even if it hasn't been worn yet, huh? If that's the case, why didn't you tell me? I could have let you use my cardigan kikik」</p>
 
 <p>Saying that, Sehee Nuna started running ahead as if escaping.</p>
 

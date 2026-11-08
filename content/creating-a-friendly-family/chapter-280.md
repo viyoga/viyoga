@@ -34,13 +34,13 @@ chapter = 280
 
 <p>As if reacting to the sound, Mom's body was trembling.</p>
 
-<p>,About Seyoung's breasts that I saw earlier~,</p>
+<p>,About Seyoung's breasts that I saw earlier,</p>
 
 <p>Shiwoo stops the hand that had been shaking his cock shaft for a while and speaks to Mom.</p>
 
 <p>As if trying to concentrate on Shiwoo's words that he had stopped moving for a moment and taken out, Mom also immediately stops the tongue that had been sweeping Shiwoo's scrotum.</p>
 
-<p>,They seem to be growing more and more beautifully, resembling Mom~ When I saw them in the morning, the nipple color was also very erotic~ Will that small thing grow as big as Mom's breasts later? It's amazing~,</p>
+<p>,They seem to be growing more and more beautifully, resembling Mom When I saw them in the morning, the nipple color was also very erotic Will that small thing grow as big as Mom's breasts later? It's amazing,</p>
 
 <p>Shiwoo playfully talks, using Seyoung's breasts that he saw in the morning as a topic.</p>
 
@@ -50,7 +50,7 @@ chapter = 280
 
 <p>As he starts talking about Seyoung, Mom's breath starts to come out roughly, with her nostrils filled with Shiwoo's scrotum in her mouth.</p>
 
-<p>,Is Seyoung not planning to wear a bra anymore? She was so proud of it to me last time~ Mom also saw it in the evening after going to the department store last week, right?,</p>
+<p>,Is Seyoung not planning to wear a bra anymore? She was so proud of it to me last time Mom also saw it in the evening after going to the department store last week, right?,</p>
 
 <p>Shiwoo says, recalling Seyoung, who had provocatively boasted to him about her first time wearing a bra last weekend.</p>
 
@@ -58,7 +58,7 @@ chapter = 280
 
 <p>Seyoung's sudden, unexpected behavior, which even felt like she was ignoring Mom's authority.</p>
 
-<p>,Seyoung seems to listen to me quite well~ Should I try talking to her indirectly about not wearing panties? Then, like Mom, will Seyoung also live at home without wearing panties now~?,</p>
+<p>,Seyoung seems to listen to me quite well Should I try talking to her indirectly about not wearing panties? Then, like Mom, will Seyoung also live at home without wearing panties now?,</p>
 
 <p>Shiwoo continues to say lewd things using Seyoung as a topic, as if continuing to stimulate Mom.</p>
 
@@ -78,7 +78,7 @@ chapter = 280
 
 <p>Before he knew it, the semen that had flowed down from Seyoung's panties was filling Mom's mouth, flowing down Shiwoo's hard shaft.</p>
 
-<p>,Olgak~! Olgak~! Olgak~!,</p>
+<p>,Olgak! Olgak! Olgak!,</p>
 
 <p>Mom is swallowing Shiwoo's semen that is filled in her mouth into her throat without leaving any behind.</p>
 
@@ -86,7 +86,7 @@ chapter = 280
 
 <p>Shiwoo's scrotum, being sucked into her throat with a strong suction force.</p>
 
-<p>,Aaaah~!,</p>
+<p>,Aaaah!,</p>
 
 <p>Shiwoo can't stand it and greatly bounces his body, making a moaning sound as if in pain.</p>
 
@@ -102,7 +102,7 @@ chapter = 280
 
 <p>Shiwoo, pushing Mom's face away, endures the pleasure-filled time of pain.</p>
 
-<p>,Hau~ Haa~ Oop~ Haa~,</p>
+<p>,Hau Haa Oop Haa,</p>
 
 <p>After swallowing all of Shiwoo's semen that was in her mouth into her throat, Mom opens her mouth and takes a deep breath again.</p>
 
@@ -116,7 +116,7 @@ chapter = 280
 
 <p>After some time had passed, the tingling pain and the feeling of ejaculation that were felt in his testicles and penis seemed to gradually subside.</p>
 
-<p>,Ah, shit~! I thought my balls were going to explode~!,</p>
+<p>,Ah, shit! I thought my balls were going to explode!,</p>
 
 <p>Shiwoo spits out words mixed with annoyance and relief to Mom.</p>
 

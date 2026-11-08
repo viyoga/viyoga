@@ -34,7 +34,7 @@ chapter = 410
 
 <p>Mom was talking as if she was pouring out her dissatisfaction with the things she had been firmly determined to say.</p>
 
-<p>"Ah, I tried it a few times because it seemed like Seonmi also liked it, but she didn't say anything, so I thought it would be okay to call you that sometimes~"</p>
+<p>"Ah, I tried it a few times because it seemed like Seonmi also liked it, but she didn't say anything, so I thought it would be okay to call you that sometimes"</p>
 
 <p>Shiwoo spoke, subtly inserting Mom's name into the conversation as if it were nothing.</p>
 
@@ -106,13 +106,13 @@ chapter = 410
 
 <p>Mom was answering in a subdued voice, as if she knew what Shiwoo was trying to say.</p>
 
-<p>"Seyoung knows everything anyway... she's in the family chat room too! She even took pictures of her breasts and pussy and sent them~ Shouldn't the four of us, Seonmi, you, Sehee, and I, just live comfortably and openly at home?"</p>
+<p>"Seyoung knows everything anyway... she's in the family chat room too! She even took pictures of her breasts and pussy and sent them Shouldn't the four of us, Seonmi, you, Sehee, and I, just live comfortably and openly at home?"</p>
 
 <p>Now, all the family members had a sexual relationship with Shiwoo, and the secrets between the family members were almost all exposed.</p>
 
 <p>Shiwoo, who found it somewhat amusing that Mom was trying to maintain a dignified attitude only in front of Seyoung, asked her as if testing her intentions.</p>
 
-<p>"Ehyuu~!"</p>
+<p>"Ehyuu!"</p>
 
 <p>Mom sighed deeply at Shiwoo's question about Seyoung.</p>
 
@@ -144,7 +144,7 @@ chapter = 410
 
 <p>Shiwoo was giving Mom the same words he had given Sehee Nuna sometime ago.</p>
 
-<p>"Then do it secretly! Why are you dragging Seyoung into a group chat with Seonju and Sehee?! Ehyiyu~!"</p>
+<p>"Then do it secretly! Why are you dragging Seyoung into a group chat with Seonju and Sehee?! Ehyiyu!"</p>
 
 <p>Mom was now speaking to Shiwoo with a tone that felt like she was whining.</p>
 
@@ -156,15 +156,15 @@ chapter = 410
 
 <p>Mom glared sharply at Shiwoo with a fierce look and spoke as if she was serious.</p>
 
-<p>"Okay, okay~! But Sehee and Seyoung know everything, so there's nothing we can do about it now, right?"</p>
+<p>"Okay, okay! But Sehee and Seyoung know everything, so there's nothing we can do about it now, right?"</p>
 
 <p>Shiwoo was speaking as if he was indifferent to the shocking events that had already happened between the family members, as if it was someone else's business.</p>
 
-<p>"Ahyuuu~~"</p>
+<p>"Ahyuuu"</p>
 
 <p>Mom sighed deeply again, as if frustrated by Shiwoo's words.</p>
 
-<p>"Why don't you, Seonmi, take this opportunity to seriously consider becoming my slave like the other family members? You're already half-serious about it anyway, right? And it seems to suit your constitution too~ Hehe."</p>
+<p>"Why don't you, Seonmi, take this opportunity to seriously consider becoming my slave like the other family members? You're already half-serious about it anyway, right? And it seems to suit your constitution too Hehe."</p>
 
 <p>Shiwoo spoke playfully, as if subtly probing Mom's inner thoughts.</p>
 

@@ -16,7 +16,7 @@ chapter = 573
 
 <p>Shiwoo closes the vibrator operation app and opens the 1:1 chat window with Mom again.</p>
 
-<p>「Mom~?」</p>
+<p>「Mom?」</p>
 
 <p>Shiwoo affectionately calls her by the title Mom.</p>
 
@@ -46,7 +46,7 @@ chapter = 573
 
 <p>It seems that the hierarchy between Mom and Sehee Nuna is almost established.</p>
 
-<p>「Well~ Sehee also has her own position, so I can't say anything about her scolding Mom now, but if I tell her that I made you do it, won't you get scolded less? Hehehe」</p>
+<p>「Well Sehee also has her own position, so I can't say anything about her scolding Mom now, but if I tell her that I made you do it, won't you get scolded less? Hehehe」</p>
 
 <p>Shiwoo speaks playfully in front of Mom, as if acknowledging Sehee Nuna's authority and the newly formed relationship between the two mothers and daughters.</p>
 
@@ -96,7 +96,7 @@ chapter = 573
 
 <p>But paradoxically, that ambiguous expression seemed to reveal her inner confusion and agitation most clearly to the outside.</p>
 
-<p>「I'm going to turn on the vibrator like this while I'm checking the video Mom sent~ Is that okay?」</p>
+<p>「I'm going to turn on the vibrator like this while I'm checking the video Mom sent Is that okay?」</p>
 
 <p>Shiwoo was carefully asking as if reconfirming Mom's reaction.</p>
 
@@ -128,7 +128,7 @@ chapter = 573
 
 <p>Mom's crotch and thighs are immediately visible, with her knees raised and her legs spread apart, taking a pose.</p>
 
-<p>Jji-i-i-i-ing~!</p>
+<p>Jji-i-i-i-ing!</p>
 
 <p>The vibrator that had been turned on with the smartphone throughout the class was shaking violently on her crotch, as if proving that it had actually been working in the beginning.</p>
 

@@ -16,7 +16,7 @@ chapter = 721
 
 <p>Mom seemed to hesitate before giving a short, dismissive reply, as if she were trying to usher him away.</p>
 
-<p>『Hahaha, okay! I'm really going... See you later, Mom~』</p>
+<p>『Hahaha, okay! I'm really going... See you later, Mom』</p>
 
 <p>Shiwoo sent his final greeting to Mom and ended the chat.</p>
 

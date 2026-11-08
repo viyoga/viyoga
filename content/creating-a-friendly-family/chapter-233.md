@@ -42,7 +42,7 @@ chapter = 233
 
 <p class="scene-break">· · ·</p>
 
-<p>,Wow~ That looks delicious~! It feels like it's been a long time since I've had Mom's meat dishes~,</p>
+<p>,Wow That looks delicious! It feels like it's been a long time since I've had Mom's meat dishes,</p>
 
 <p>Shiwoo says, admiring the food laid out on the table.</p>
 
@@ -62,7 +62,7 @@ chapter = 233
 
 <p>Mom seemed to have taken a few sips of alcohol while Shiwoo went up to the second floor and came down.</p>
 
-<p>,Uh~ I told Sehee~ She'll be down soon~,</p>
+<p>,Uh I told Sehee She'll be down soon,</p>
 
 <p>Shiwoo answers Mom with a smile as he sits down at the dining table.</p>
 
@@ -76,11 +76,11 @@ chapter = 233
 
 <p>Shiwoo asked Seyoung when he didn't see the puppy as he looked around the living room.</p>
 
-<p>,She's sleeping in her room right now~! I think she was very tired today~ Hehe,</p>
+<p>,She's sleeping in her room right now! I think she was very tired today Hehe,</p>
 
 <p>Seyoung answers Shiwoo's question as if she's excited.</p>
 
-<p>,Really~? That's right, Seyoung-a~ What do you think of the necklace Mom is wearing right now? I gave it to her as a gift, but doesn't it look good on her?,</p>
+<p>,Really? That's right, Seyoung-a What do you think of the necklace Mom is wearing right now? I gave it to her as a gift, but doesn't it look good on her?,</p>
 
 <p>Shiwoo says, pointing to the necklace around Mom's neck as if he just thought of it.</p>
 
@@ -90,17 +90,17 @@ chapter = 233
 
 <p>Shiwoo saw Mom's back twitching slightly for a moment.</p>
 
-<p>,Yeah~ It's pretty~! I've been looking at it since earlier, and it looks really good on Mom~ Hehe~,</p>
+<p>,Yeah It's pretty! I've been looking at it since earlier, and it looks really good on Mom Hehe,</p>
 
 <p>Seyoung says, helping Mom move the side dish plates onto the table.</p>
 
 <p>Does Seyoung know that the necklace Mom is wearing is for dogs and is saying that?</p>
 
-<p>,Should I buy one for Seyoung too? We're going to the department store to buy pet supplies tomorrow anyway~ I think something like this would look good on Seyoung too~ Don't you think so, Mom?,</p>
+<p>,Should I buy one for Seyoung too? We're going to the department store to buy pet supplies tomorrow anyway I think something like this would look good on Seyoung too Don't you think so, Mom?,</p>
 
 <p>Shiwoo says, teasing Seyoung and Mom at the same time as if he's being playful.</p>
 
-<p>,I like anything Oppa buys for me~ Buy me one when you buy Sae-a's necklace~ Hehe,</p>
+<p>,I like anything Oppa buys for me Buy me one when you buy Sae-a's necklace Hehe,</p>
 
 <p>Seyoung says with a bright expression.</p>
 
@@ -112,15 +112,15 @@ chapter = 233
 
 <p>Or maybe Mom is dissatisfied with the fact that Shiwoo is going out with his younger siblings in the first place, even before Shiwoo's words.</p>
 
-<p>,Well, it'll go down if I sleep for a day and wake up~ And if you're that worried, Mom, you can put an ice pack on me while I'm sleeping~? I don't know if I'll be able to sleep though~ Hehehe,</p>
+<p>,Well, it'll go down if I sleep for a day and wake up And if you're that worried, Mom, you can put an ice pack on me while I'm sleeping? I don't know if I'll be able to sleep though Hehehe,</p>
 
 <p>Shiwoo says as if teasing Mom with a sly attitude.</p>
 
-<p>,Oh my~ Really~ I don't know what this kid is thinking~!!,</p>
+<p>,Oh my Really I don't know what this kid is thinking!!,</p>
 
 <p>Mom says as if she's embarrassed, as if something is being associated with Shiwoo's words.</p>
 
-<p>,Glug~ Glug~ Glug~!,</p>
+<p>,Glug Glug Glug!,</p>
 
 <p>Mom picks up the glass of liquor that was poured on the table and starts gulping it down.</p>
 
@@ -156,7 +156,7 @@ chapter = 233
 
 <p class="scene-break">· · ·</p>
 
-<p>,Sehee-ya, come on~! Let's eat quickly~ I'm hungry!,</p>
+<p>,Sehee-ya, come on! Let's eat quickly I'm hungry!,</p>
 
 <p>Shiwoo says to Sehee Nuna, staring blatantly at Sehee Nuna's body.</p>
 
@@ -170,7 +170,7 @@ chapter = 233
 
 <p>Mom wasn't looking at Sehee Nuna's appearance until Sehee Nuna sat down.</p>
 
-<p>,Sehee Unnie~ You look comfortable~ And that outfit is so pretty~ Hehe!,</p>
+<p>,Sehee Unnie You look comfortable And that outfit is so pretty Hehe!,</p>
 
 <p>Seyoung says, looking at Sehee Nuna's outfit and smiling innocently.</p>
 
@@ -184,7 +184,7 @@ chapter = 233
 
 <p>So, Seyoung seemed to be naturally accepting Sehee Nuna's new outfit.</p>
 
-<p>,That's right~ Sehee looks very cool~ We decided to wear comfortable clothes at home now~ So it's okay to wear this much at home when it's hot, right Mom?,</p>
+<p>,That's right Sehee looks very cool We decided to wear comfortable clothes at home now So it's okay to wear this much at home when it's hot, right Mom?,</p>
 
 <p>Shiwoo was asking Mom, boasting his work as if proudly showing it off, stroking the mesh fabric on Sehee Nuna's collarbone with his fingers.</p>
 
@@ -192,6 +192,6 @@ chapter = 233
 
 <p>Mom was answering Shiwoo's question, giving a long answer as if making an excuse to herself.</p>
 
-<p>,Mom~ I liked seeing you in your underwear this morning~ Hehe~ Mom, you must have sweated a bit while preparing the meal, so aren't you hot right now? You're going to wash before you go to bed anyway, so why don't you take off some clothes?,</p>
+<p>,Mom I liked seeing you in your underwear this morning Hehe Mom, you must have sweated a bit while preparing the meal, so aren't you hot right now? You're going to wash before you go to bed anyway, so why don't you take off some clothes?,</p>
 
 <p>Shiwoo was saying to Mom with a subtle coaxing tone.</p>

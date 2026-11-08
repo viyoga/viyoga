@@ -16,7 +16,7 @@ chapter = 460
 
 <p>Shiwoo dictates the time, as if notifying Sejin Nuna.</p>
 
-<p>「Okay, sure~ Do you want to come to my officetel? You know where it is, right? You came to help move my stuff when I moved in, didn't you?」</p>
+<p>「Okay, sure Do you want to come to my officetel? You know where it is, right? You came to help move my stuff when I moved in, didn't you?」</p>
 
 <p>Sejin Nuna, despite Shiwoo's seemingly unreasonable demand, readily agrees without any scolding or criticism.</p>
 
@@ -24,7 +24,7 @@ chapter = 460
 
 <p>Shiwoo, seeing that Sejin Nuna isn't showing any particular reaction even after seeing the picture he sent, answers with slightly subdued energy.</p>
 
-<p>「I'll send you the address just in case~」</p>
+<p>「I'll send you the address just in case」</p>
 
 <p>Sejin Nuna even shows consideration for Shiwoo, displaying a sense of composure.</p>
 
@@ -44,7 +44,7 @@ chapter = 460
 
 <p>Shiwoo answers as if being led by Sejin Nuna's pace.</p>
 
-<p>「Okay. Shiwoo-ya, then I'll see you tomorrow! Come carefully~!」</p>
+<p>「Okay. Shiwoo-ya, then I'll see you tomorrow! Come carefully!」</p>
 
 <p>In the meantime, Sejin Nuna is saying goodbye to Shiwoo as if she's about to end the conversation.</p>
 
@@ -136,15 +136,15 @@ chapter = 460
 
 <p>Cucumber cold soup and beef bone soup with noodles are placed with rice, one bowl for each person.</p>
 
-<p>"Shiwoo oppa~ Are you hungry? I was just about to go call you~ hehe"</p>
+<p>"Shiwoo oppa Are you hungry? I was just about to go call you hehe"</p>
 
 <p>Seyoung, wearing an apron and smiling brightly, greets Shiwoo.</p>
 
-<p>"Wow~ Did Seyoung make all of this? It looks really delicious~"</p>
+<p>"Wow Did Seyoung make all of this? It looks really delicious"</p>
 
 <p>Shiwoo looks around at the lavish food prepared on the table and says to Seyoung as if he's impressed.</p>
 
-<p>"Yeah, I made everything except the beef bone soup. I worked hard to prepare it for oppa~ hehe~ Sit there~"</p>
+<p>"Yeah, I made everything except the beef bone soup. I worked hard to prepare it for oppa hehe Sit there"</p>
 
 <p>Seyoung is telling him endearingly that she prepared the food only for Shiwoo, as if designating the seat for Shiwoo to sit, pointing to the dining table chair across from where she's standing.</p>
 
@@ -160,11 +160,11 @@ chapter = 460
 
 <p>Seyoung asks as if she's not paying much attention to Shiwoo's erection.</p>
 
-<p>"Yeah, Sehee will come down in a bit. We did some cardio together, but she got tired before me, so she's passed out right now? I think she'll come down when she regains her energy~"</p>
+<p>"Yeah, Sehee will come down in a bit. We did some cardio together, but she got tired before me, so she's passed out right now? I think she'll come down when she regains her energy"</p>
 
 <p>Shiwoo also talks as if it's nothing, slightly pushing his waist forward and boasting about what he did and his erection.</p>
 
-<p>"Hehe~ Unni?"</p>
+<p>"Hehe Unni?"</p>
 
 <p>Seyoung asks back as if she can't believe that Sehee Nuna got tired from cardio before Shiwoo and passed out.</p>
 
@@ -190,14 +190,14 @@ chapter = 460
 
 <p>When she makes eye contact with Shiwoo, Mom quickly lowers her eyes and blushes.</p>
 
-<p>"Mom, did you see this? Seyoung made all of this~!"</p>
+<p>"Mom, did you see this? Seyoung made all of this!"</p>
 
 <p>Shiwoo points to the food on the table and deliberately speaks to Mom, who is approaching the kitchen, in an exaggerated manner.</p>
 
-<p>"Oh...th...that's right... G...good job. Seyoung must have worked hard by herself~"</p>
+<p>"Oh...th...that's right... G...good job. Seyoung must have worked hard by herself"</p>
 
 <p>Mom pulls the t-shirt down below her pelvis and says to Seyoung shyly.</p>
 
-<p>"Hehe~ I made as much as I could with the ingredients I bought at the market yesterday."</p>
+<p>"Hehe I made as much as I could with the ingredients I bought at the market yesterday."</p>
 
 <p>Seyoung is saying proudly that she prepared the dinner table by herself while Mom was away.</p>

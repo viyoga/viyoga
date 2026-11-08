@@ -8,7 +8,7 @@ chapter = 296
 
 <p>Seyoung walks to the water purifier, fills a cup with water, and gulps it down.</p>
 
-<p>"All-gak~! All-gak~! All-gak~!"</p>
+<p>"All-gak! All-gak! All-gak!"</p>
 
 <p>Seyoung tilts her head back and fills her mouth with water, swallowing it down her throat.</p>
 
@@ -18,7 +18,7 @@ chapter = 296
 
 <p>Even considering that she is doing this knowing about the relationship between Shiwoo and Mom, Seyoung's appearance seems too bold.</p>
 
-<p>"Mom! Do my hair later~ Hehe~"</p>
+<p>"Mom! Do my hair later Hehe"</p>
 
 <p>Seyoung speaks to Mom in the kitchen with a bright smile, in a tone no different from usual.</p>
 
@@ -52,7 +52,7 @@ chapter = 296
 
 <p>Seyoung stops for a moment in the middle of the living room, on her way to her room, and looks at Shiwoo with a subtle smile.</p>
 
-<p>"Oppa! You should have been gentler~ Tsk~!"</p>
+<p>"Oppa! You should have been gentler Tsk!"</p>
 
 <p>Seyoung speaks to Shiwoo as if giving him a cute scolding, in a voice loud enough for Mom in the kitchen to hear.</p>
 
@@ -94,7 +94,7 @@ chapter = 296
 
 <p>Then, he fills the cup with water and brings it to his mouth, glancing at Mom's appearance.</p>
 
-<p>"All-gak~! All-gak~! All-gak~!"</p>
+<p>"All-gak! All-gak! All-gak!"</p>
 
 <p>Shiwoo swallows the water while glancing at Mom.</p>
 
@@ -148,7 +148,7 @@ chapter = 296
 
 <p>Mom, like someone who is only waiting for Shiwoo's disposition, is making a blank, spaced-out expression, and after hearing Shiwoo's calm voice as if she has returned to everyday life, she asks back as if she does not understand the contents of Shiwoo's sudden question.</p>
 
-<p>"I'm talking about the department store~ I'm going with Seyoung today. I'm asking if there's anything Mom needs! I'll buy it for you~"</p>
+<p>"I'm talking about the department store I'm going with Seyoung today. I'm asking if there's anything Mom needs! I'll buy it for you"</p>
 
 <p>Shiwoo is asking Mom if she needs anything, emphasizing the fact that he is going to the department store with Seyoung.</p>
 
@@ -158,7 +158,7 @@ chapter = 296
 
 <p>Mom's pitiful appearance is as if she is staring intently at the floor because she doesn't have a suitable place to hide.</p>
 
-<p>"Okay~? I understand, then~ If you think of anything, text me! Okay?"</p>
+<p>"Okay? I understand, then If you think of anything, text me! Okay?"</p>
 
 <p>Shiwoo speaks to her in a kind and gentle tone, as if he is satisfied with Mom's reaction.</p>
 
@@ -192,6 +192,6 @@ chapter = 296
 
 <p>Perhaps Seyoung was also wearing the orange striped panties that Shiwoo had picked out under the light blue dress.</p>
 
-<p>"Shiwoo Oppa~! I'm going to go out like this~ What do you think?"</p>
+<p>"Shiwoo Oppa! I'm going to go out like this What do you think?"</p>
 
 <p>Seyoung lifts the hem of the dress slightly and asks Shiwoo.</p>

@@ -16,7 +16,7 @@ chapter = 547
 
 <p>Mom replies to Shiwoo with a slightly annoyed tone, as if she has already resigned herself.</p>
 
-<p>[What do you mean, whatever I want? It's not like I'm doing whatever I want~! I'm following the rules! I'm treating you like Mom properly right now, aren't I?]</p>
+<p>[What do you mean, whatever I want? It's not like I'm doing whatever I want! I'm following the rules! I'm treating you like Mom properly right now, aren't I?]</p>
 
 <p>Shiwoo says, as if teasing Mom.</p>
 
@@ -46,9 +46,9 @@ chapter = 547
 
 <p>Mom ends up making excuses for her contradictory and paradoxical attitude, as if blaming Shiwoo.</p>
 
-<p>[Ah~ is that so? I thought you were just staying still after Seyoung did that to you just now, because you were flustered and forgot the safe word~]</p>
+<p>[Ah is that so? I thought you were just staying still after Seyoung did that to you just now, because you were flustered and forgot the safe word]</p>
 
-<p>[Or maybe you just gave up on being Mom altogether... But actually, it was still bearable~?]</p>
+<p>[Or maybe you just gave up on being Mom altogether... But actually, it was still bearable?]</p>
 
 <p>Shiwoo mentions what Seyoung had done to Mom just now, speaking as if stimulating her sense of shame.</p>
 
@@ -56,7 +56,7 @@ chapter = 547
 
 <p>Mom sends a text message, sounding annoyed and rushed.</p>
 
-<p>[That's what I'm saying~ You feel like you're going to die of embarrassment, but it's still bearable, right? Then isn't that just the right amount for Mom? Because that's what Mom is~]</p>
+<p>[That's what I'm saying You feel like you're going to die of embarrassment, but it's still bearable, right? Then isn't that just the right amount for Mom? Because that's what Mom is]</p>
 
 <p>Shiwoo texts back in a leisurely tone, as if teasing such a Mom.</p>
 
@@ -128,7 +128,7 @@ chapter = 547
 
 <p>Shiwoo's hateful expression, looking proud as if making her feel troubled was like the achievement or long-cherished project of her life.</p>
 
-<p>"Haaaaa~"</p>
+<p>"Haaaaa"</p>
 
 <p>Mom looks at Shiwoo's hateful expression and lets out a sigh as if she can't help it, and slowly picks up the spoon and eats the rice in the bowl.</p>
 

@@ -4,7 +4,7 @@ weight = 223
 [extra]
 chapter = 223
 +++
-<p>"Seonju Imo-nim! You said you had to go with Sua to feed the puppy now, didn't you? Hurry and go in, the kids must be really hungry~"</p>
+<p>"Seonju Imo-nim! You said you had to go with Sua to feed the puppy now, didn't you? Hurry and go in, the kids must be really hungry"</p>
 
 <p>Shiwoo, as if directing traffic, finalized tomorrow's schedule and tried to send Seonju Imo-nim and Sua home.</p>
 
@@ -30,7 +30,7 @@ chapter = 223
 
 <p>Sehee Nuna stood by the front door for a moment, looking around as if surveying the house.</p>
 
-<p>"I'm a bit tired~ I'm going up to my room to get some sleep~ Mom..."</p>
+<p>"I'm a bit tired I'm going up to my room to get some sleep Mom..."</p>
 
 <p>Sehee Nuna said to Mom, who was organizing the dishes and table in the kitchen.</p>
 
@@ -82,7 +82,7 @@ chapter = 223
 
 <p>Shiwoo picked up his smartphone and opened the 1:1 chat room with Mom.</p>
 
-<p>'Mom~ What were you just talking about with Sehee Nuna? What do you mean, 'what I put on the bed'?'</p>
+<p>'Mom What were you just talking about with Sehee Nuna? What do you mean, 'what I put on the bed'?'</p>
 
 <p>Shiwoo texted Mom, asking about the conversation he had just overheard between Mom and Sehee Nuna.</p>
 
@@ -94,7 +94,7 @@ chapter = 223
 
 <p>Had the threat from earlier, that he would rape her in front of his sisters if she didn't answer properly, worked well on Mom?</p>
 
-<p>'Oh, was that it~? Well~ she'll have to check that~ since I cummed a lot inside Sehee, hehe.'</p>
+<p>'Oh, was that it? Well she'll have to check that since I cummed a lot inside Sehee, hehe.'</p>
 
 <p>Shiwoo was speaking to Mom as if Sehee Nuna's pregnancy status was no big deal now.</p>
 
@@ -102,7 +102,7 @@ chapter = 223
 
 <p>Mom, as if displeased with Shiwoo's answer and attitude, was questioning him.</p>
 
-<p>'Ah~ you heard from Seonju? I told her not to act like she knew~ Looks like Seonju told you everything, huh? Looks like Seonju needs to be punished quite a bit. Right, Mom?'</p>
+<p>'Ah you heard from Seonju? I told her not to act like she knew Looks like Seonju told you everything, huh? Looks like Seonju needs to be punished quite a bit. Right, Mom?'</p>
 
 <p>Shiwoo, calling Seonju Imo-nim by her name without honorifics, spoke as if foreshadowing punishment for Seonju Imo-nim not following his instructions.</p>
 
@@ -116,15 +116,15 @@ chapter = 223
 
 <p>Mom didn't answer Shiwoo's question at the end of his sentence but spoke as if interrogating him about ejaculating inside Sehee Nuna.</p>
 
-<p>'When I cummed in Sehee before, we ran out of condoms at home, so I couldn't help it~ And yesterday at the motel, it wasn't a situation where I could worry about such things~ hehe.'</p>
+<p>'When I cummed in Sehee before, we ran out of condoms at home, so I couldn't help it And yesterday at the motel, it wasn't a situation where I could worry about such things hehe.'</p>
 
 <p>Shiwoo, as if making a joke, was explaining to Mom about ejaculating inside Sehee Nuna's body.</p>
 
-<p>'Sigh~ Then you should have done it outside at least! What are you going to do if Sehee actually gets pregnant?!'</p>
+<p>'Sigh Then you should have done it outside at least! What are you going to do if Sehee actually gets pregnant?!'</p>
 
 <p>Mom, to Shiwoo, who was joking around, was arguing with him.</p>
 
-<p>'Then we'll just have to give birth and raise it, I guess~ Since it's my first time, Mom can help me out a bit, right~? lolol'</p>
+<p>'Then we'll just have to give birth and raise it, I guess Since it's my first time, Mom can help me out a bit, right? lolol'</p>
 
 <p>Shiwoo still playfully sent a text to Mom.</p>
 
@@ -132,7 +132,7 @@ chapter = 223
 
 <p>Mom, as if truly angry, was speaking to Shiwoo.</p>
 
-<p>'No, well~ I just meant it that way~ We don't know yet if Sehee is pregnant or not~ I'll be careful from now on, so don't be angry, Mom~ hehe. Are you really angry, Mom~?'</p>
+<p>'No, well I just meant it that way We don't know yet if Sehee is pregnant or not I'll be careful from now on, so don't be angry, Mom hehe. Are you really angry, Mom?'</p>
 
 <p>Shiwoo, as if trying to calm his angry Mom, spoke in a submissive tone.</p>
 
@@ -140,7 +140,7 @@ chapter = 223
 
 <p>Mom, at Shiwoo's attitude, seemed truly furious.</p>
 
-<p>'Sorry, Mom~ I'll really think seriously from now on~ Okay~? hehe. Don't be too angry~'</p>
+<p>'Sorry, Mom I'll really think seriously from now on Okay? hehe. Don't be too angry'</p>
 
 <p>Shiwoo, to appease Mom's anger, spoke as if fawning.</p>
 
@@ -158,7 +158,7 @@ chapter = 223
 
 <p>Mom spoke as if displeased with Shiwoo's attitude of treating her differently at different times.</p>
 
-<p>'Mom~ but that's how it's always been~ And you clearly said you weren't someone who disliked that kind of thing~'</p>
+<p>'Mom but that's how it's always been And you clearly said you weren't someone who disliked that kind of thing'</p>
 
 <p>Shiwoo spoke as if he couldn't understand Mom saying such things now.</p>
 
@@ -176,7 +176,7 @@ chapter = 223
 
 <p>Mom, as if she truly wanted to keep it a secret from Seyoung alone, spoke as if trying to convey her desperate and miserable feelings.</p>
 
-<p>'Anyway, I've already done it with Mom, and now I've done it with Sehee~ Sex! Now, in this house, only Seyoung is left~ lolol'</p>
+<p>'Anyway, I've already done it with Mom, and now I've done it with Sehee Sex! Now, in this house, only Seyoung is left lolol'</p>
 
 <p>Shiwoo, as if trying to lighten Mom's serious mood, emphasized the word 'sex' and lightly threw out a lewd joke targeting Seyoung.</p>
 

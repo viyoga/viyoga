@@ -18,11 +18,11 @@ chapter = 63
 
 <p>A tingling sensation was stirring in his penis.</p>
 
-<p>"Who would have known that my first kiss would be next to a park bathroom!!! Haa~ I clearly said it was my first time with a man~!!!"</p>
+<p>"Who would have known that my first kiss would be next to a park bathroom!!! Haa I clearly said it was my first time with a man!!!"</p>
 
 <p>Sehee Nuna, mixing sighs with her words, poured out her resentment and complaints to Shiwoo.</p>
 
-<p>"And I specifically bought this underwear to wear for my first time, I was just holding onto it~! You idiot!!!"</p>
+<p>"And I specifically bought this underwear to wear for my first time, I was just holding onto it! You idiot!!!"</p>
 
 <p>Sehee Nuna glared at Shiwoo, continuing to speak as if filled with deep resentment.</p>
 
@@ -30,19 +30,19 @@ chapter = 63
 
 <p>Tak!</p>
 
-<p>"Ayayyat~!!"</p>
+<p>"Ayayyat!!"</p>
 
 <p>Shiwoo's head didn't hurt as much as before, but he was trying to show a diligent reaction to Sehee Nuna's strike.</p>
 
-<p>"You're overreacting! You really lack delicacy~!!"</p>
+<p>"You're overreacting! You really lack delicacy!!"</p>
 
 <p>Sehee Nuna spoke in a tone that suggested she was fed up with Shiwoo's acting.</p>
 
-<p>"I-I'm sorry, Sehee Nuna~"</p>
+<p>"I-I'm sorry, Sehee Nuna"</p>
 
 <p>Shiwoo, his spirit broken once again by Sehee Nuna's beating and harsh words, apologized.</p>
 
-<p>"Haa~~"</p>
+<p>"Haa"</p>
 
 <p>At Shiwoo's apology, Sehee Nuna let out another deep sigh.</p>
 
@@ -54,13 +54,13 @@ chapter = 63
 
 <p>Shiwoo was apologizing to Sehee Nuna with a remorseful expression.</p>
 
-<p>"If you're going to do something like that again, ask first~! And if you start it like that, at least finish it~!!"</p>
+<p>"If you're going to do something like that again, ask first! And if you start it like that, at least finish it!!"</p>
 
 <p>At Shiwoo's repeated apologies, Sehee Nuna slightly softened her temper and spoke as if admonishing him.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>"Come here~"</p>
+<p>"Come here"</p>
 
 <p>Sehee Nuna slightly lifted the blanket she was covered with, inviting Shiwoo to come under it.</p>
 
@@ -140,7 +140,7 @@ chapter = 63
 
 <p>Shiwoo pulled his lips away and looked at Sehee Nuna.</p>
 
-<p>"Haa~ Haa~"</p>
+<p>"Haa Haa"</p>
 
 <p>Sehee Nuna was breathing slightly roughly, her face flushed red.</p>
 
@@ -152,7 +152,7 @@ chapter = 63
 
 <p>Sehee Nuna, who had been catching her breath while looking at Shiwoo, spoke as if scolding him.</p>
 
-<p>"Use your tongue later!! You idiot~!!"</p>
+<p>"Use your tongue later!! You idiot!!"</p>
 
 <p>Sehee Nuna chided Shiwoo, as if her pent-up frustrations were bursting out.</p>
 
@@ -168,7 +168,7 @@ chapter = 63
 
 <p>Shiwoo's lips were being rubbed between Sehee Nuna's, as if melting.</p>
 
-<p>"Eum.. Chup...jjok eueum~"</p>
+<p>"Eum.. Chup...jjok eueum"</p>
 
 <p>A slight moan escaping Sehee Nuna.</p>
 
@@ -182,7 +182,7 @@ chapter = 63
 
 <p>-So simply-</p>
 
-<p>"Alright! Now you try, Shiwoo~!!"</p>
+<p>"Alright! Now you try, Shiwoo!!"</p>
 
 <p>Sehee Nuna pulled her lips away and instructed, looking at Shiwoo shyly.</p>
 
@@ -190,7 +190,7 @@ chapter = 63
 
 <p>Shiwoo, just as Sehee Nuna had done, enveloped Sehee Nuna's lower lip with his entire mouth, as if stacking his lips over hers, and began to rub.</p>
 
-<p>"Eueum...heueum~~eueum~"</p>
+<p>"Eueum...heueumeueum"</p>
 
 <p>Sehee Nuna's delicate voice...</p>
 
@@ -198,7 +198,7 @@ chapter = 63
 
 <p>-So fleetingly and mysteriously-</p>
 
-<p>"Don't thrust your tongue in first like you did before~!!"</p>
+<p>"Don't thrust your tongue in first like you did before!!"</p>
 
 <p>Sehee Nuna pulled her lips away, then gently taught Shiwoo again, as if coaxing him.</p>
 
@@ -212,7 +212,7 @@ chapter = 63
 
 <p>Shiwoo was genuinely amazed by Sehee Nuna's tongue play.</p>
 
-<p>"Alright, you try~!!"</p>
+<p>"Alright, you try!!"</p>
 
 <p>Sehee Nuna pulled her lips away, as if passing the turn back to him.</p>
 
@@ -226,7 +226,7 @@ chapter = 63
 
 <p>As their lips parted, Shiwoo looked at Sehee Nuna with an expression as if he had made an astonishing discovery, and asked.</p>
 
-<p>"Because I do it every day~!! Don't talk nonsense!! Close your eyes~!!"</p>
+<p>"Because I do it every day!! Don't talk nonsense!! Close your eyes!!"</p>
 
 <p>Sehee Nuna grabbed Shiwoo's head with both hands, pulling him closer and pressing their lips together.</p>
 

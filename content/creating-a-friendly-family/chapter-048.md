@@ -20,7 +20,7 @@ chapter = 48
 
 <p class="scene-break">· · ·</p>
 
-<p>"Ah, shit~ This is a disaster."</p>
+<p>"Ah, shit This is a disaster."</p>
 
 <p>Sehee Nuna, after tidying up her clothes and getting up, spoke as if something troublesome had occurred.</p>
 
@@ -30,7 +30,7 @@ chapter = 48
 
 <p>Shiwoo, wanting to continue the conversation with Sehee Nuna without awkwardness, was reacting to Sehee Nuna's words with an exaggerated enthusiasm.</p>
 
-<p>"It's all because of you, Shiwoo~!! It would have been fine if you had just left it alone~~!!"</p>
+<p>"It's all because of you, Shiwoo!! It would have been fine if you had just left it alone!!"</p>
 
 <p>Sehee Nuna said to Shiwoo with a complaining tone and a resentful expression.</p>
 
@@ -42,7 +42,7 @@ chapter = 48
 
 <p>Shiwoo, unable to believe the sight before him, wondered if Sehee Nuna had gotten so excited that she peed herself and started to say.</p>
 
-<p>"That's not it, you idiot~!!"</p>
+<p>"That's not it, you idiot!!"</p>
 
 <p>Sehee Nuna said, startled and feigning to hit Shiwoo's head as if he were being hateful.</p>
 
@@ -62,7 +62,7 @@ chapter = 48
 
 <p>-It seems he has no intention of hiding it now-</p>
 
-<p>"What are you staring blankly at~!!! Hurry up and cover your front~!!"</p>
+<p>"What are you staring blankly at!!! Hurry up and cover your front!!"</p>
 
 <p>Sehee Nuna, seeing Shiwoo showing off his cock to his own sister as if he were boasting, without even trying to hide his erection, was blushing severely.</p>
 
@@ -118,7 +118,7 @@ chapter = 48
 
 <p>Sehee Nuna held the panties in her hand, sat next to Shiwoo, and said.</p>
 
-<p>"I'm covering it with Seyoung's pajamas now, so if you do it under the pajamas, it probably won't be visible from the outside. Here you go~"</p>
+<p>"I'm covering it with Seyoung's pajamas now, so if you do it under the pajamas, it probably won't be visible from the outside. Here you go"</p>
 
 <p>Sehee Nuna glanced at Shiwoo's massively erect cock and shyly handed Shiwoo the panties she had taken off.</p>
 

@@ -28,7 +28,7 @@ chapter = 109
 
 <p>Sehee Nuna must have checked the conversation Shiwoo had with Mom and the message Shiwoo was trying to convey.</p>
 
-<p>「Did you see it~?」</p>
+<p>「Did you see it?」</p>
 
 <p>Shiwoo asked Sehee Nuna in a low, gentle voice.</p>
 
@@ -40,7 +40,7 @@ chapter = 109
 
 <p>After hesitating again for a moment, Sehee Nuna answered.</p>
 
-<p>「You're going to do it anyway~ Don't ask me~!!」</p>
+<p>「You're going to do it anyway Don't ask me!!」</p>
 
 <p>Sehee Nuna answered Shiwoo as if drained of energy.</p>
 
@@ -52,11 +52,11 @@ chapter = 109
 
 <p>As Shiwoo's hand touched her head, Sehee Nuna's body trembled with a start.</p>
 
-<p>「Don't worry~! Mom is Mom, and Nuna is Nuna, right~」</p>
+<p>「Don't worry! Mom is Mom, and Nuna is Nuna, right」</p>
 
 <p>Shiwoo said, gently stroking Sehee Nuna's head with the hand placed on it.</p>
 
-<p>「Haaah~ It's because it seems like that won't happen, you idiot~」</p>
+<p>「Haaah It's because it seems like that won't happen, you idiot」</p>
 
 <p>Sehee Nuna's words, muttered like talking to herself in a barely audible, small voice, accompanied by a sigh.</p>
 
@@ -90,7 +90,7 @@ chapter = 109
 
 <p>Sehee Nuna's erect nipples were hooked and being crushed in the groove between Shiwoo's penis shaft and glans.</p>
 
-<p>「Heueut~!」</p>
+<p>「Heueut!」</p>
 
 <p>Sehee Nuna's breathing sound, mixed with a moan.</p>
 
@@ -110,7 +110,7 @@ chapter = 109
 
 <p>Because he had stopped just before ejaculation in the changing room, it didn't take long for him to reach climax.</p>
 
-<p>「Since a long time ago, every time I saw Sehee Nuna's tits, I wanted to do this~! Honestly, your breasts are much hotter than Sora's were earlier!」</p>
+<p>「Since a long time ago, every time I saw Sehee Nuna's tits, I wanted to do this! Honestly, your breasts are much hotter than Sora's were earlier!」</p>
 
 <p>Shiwoo said, moving his genitals up and down and brushing against Sehee Nuna's nipples.</p>
 
@@ -118,7 +118,7 @@ chapter = 109
 
 <p>Sehee Nuna's firmly protruding nipples, at the tips of her breasts, rubbed back and forth against Shiwoo's genitals, changing direction and shape as if bouncing.</p>
 
-<p>「Huaaa~ Heut~!」</p>
+<p>「Huaaa Heut!」</p>
 
 <p>Sehee Nuna's moaning sound, let out while she lay face down, perhaps stimulated by Shiwoo's provocative movements and words.</p>
 
@@ -128,7 +128,7 @@ chapter = 109
 
 <p>「That's why I like Sehee Nuna even more!!」</p>
 
-<p>-Pushyuuk~ Pushyuk Pushyuuuk~!!</p>
+<p>-Pushyuuk Pushyuk Pushyuuuk!!</p>
 
 <p>Shiwoo's semen gushed out with a shout that was nothing short of a confession.</p>
 
@@ -142,7 +142,7 @@ chapter = 109
 
 <p class="scene-break">· · ·</p>
 
-<p>「Haa~ Haa~」</p>
+<p>「Haa Haa」</p>
 
 <p>Shiwoo's rough breath after ejaculation.</p>
 
@@ -156,7 +156,7 @@ chapter = 109
 
 <p>Shiwoo spread his palms and kneaded her breasts.</p>
 
-<p>「Eueum....Heueum~」</p>
+<p>「Eueum....Heueum」</p>
 
 <p>Sehee Nuna made a moaning sound, as if suppressing it.</p>
 
@@ -166,7 +166,7 @@ chapter = 109
 
 <p>Shiwoo rubbed his own semen, sprayed inside her bra, onto Sehee Nuna's breasts as if spreading it.</p>
 
-<p>「Heueeum Haa~aat」</p>
+<p>「Heueeum Haaaat」</p>
 
 <p>Sehee Nuna's piteous moaning sound, seeming a little louder.</p>
 
@@ -248,11 +248,11 @@ chapter = 109
 
 <p>Shiwoo whispered to Sehee Nuna's ear.</p>
 
-<p>「You masochistic bitch~ It would have been good if you were like this even normally!!」</p>
+<p>「You masochistic bitch It would have been good if you were like this even normally!!」</p>
 
 <p>Shiwoo grabbed Sehee Nuna's hair and pulled her head completely backward.</p>
 
-<p>「Heot~!!」</p>
+<p>「Heot!!」</p>
 
 <p>Sehee Nuna's gasp of air, coming out as her mouth opened as if startled.</p>
 
@@ -270,6 +270,6 @@ chapter = 109
 
 <p>Along with a slippery sensation, the tangy aftertaste of beer was transmitted.</p>
 
-<p>「Eup~ Aup Heut~!!」</p>
+<p>「Eup Aup Heut!!」</p>
 
 <p>Shiwoo's tongue and Sehee Nuna's tongue roughly intertwined.</p>

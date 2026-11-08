@@ -8,7 +8,7 @@ chapter = 103
 
 <p>Sehee Nuna, carrying a supermarket shopping basket, walked ahead of Shiwoo, talking on the phone with Mom.</p>
 
-<p>「Yes~ I've arrived~ We're going to eat pork belly~ No~ Shiwoo also says he prefers pork over beef~!」</p>
+<p>「Yes I've arrived We're going to eat pork belly No Shiwoo also says he prefers pork over beef!」</p>
 
 <p>Sehee Nuna seemed to be bickering with Mom over the type of meat they would grill at home.</p>
 
@@ -18,7 +18,7 @@ chapter = 103
 
 <p>As if planning a lavish meal, additional ingredients for pork belly were listed one after another from Sehee Nuna's mouth as she talked to Mom.</p>
 
-<p>「Can't we just grill the meat separately? I don't know how~~ Aren't you coming home to eat meat, Mom? You can come and do it~」</p>
+<p>「Can't we just grill the meat separately? I don't know how Aren't you coming home to eat meat, Mom? You can come and do it」</p>
 
 <p>Sehee Nuna spoke to Mom like a cute, youngest daughter throwing an adorable tantrum.</p>
 
@@ -26,7 +26,7 @@ chapter = 103
 
 <p>Blood surged to Shiwoo's already stiff 'thing', as if it would burst.</p>
 
-<p>「...Yes~...Alright~ If you text me the ingredients, I'll buy them and try to make it once~」</p>
+<p>「...Yes...Alright If you text me the ingredients, I'll buy them and try to make it once」</p>
 
 <p>Sehee Nuna finished her long negotiation with Mom and ended the call.</p>
 
@@ -40,47 +40,47 @@ chapter = 103
 
 <p>Sehee Nuna put her smartphone in her pocket and turned to Shiwoo, speaking.</p>
 
-<p>「Sehee Nuna~ But do you really want pork belly?」</p>
+<p>「Sehee Nuna But do you really want pork belly?」</p>
 
 <p>Shiwoo asked with a subtle smile, as if pointing out Sehee Nuna's action of using his name to choose the meat type.</p>
 
-<p>「Yes~ Pork belly~!...Why?! Don't you like it?」</p>
+<p>「Yes Pork belly!...Why?! Don't you like it?」</p>
 
 <p>Sehee Nuna asked, as if challenging him, perhaps displeased with Shiwoo's slyly smiling expression.</p>
 
-<p>「No~? I like anything Nuna chooses?」</p>
+<p>「No? I like anything Nuna chooses?」</p>
 
 <p>Shiwoo said to Sehee Nuna in a smooth, artful tone.</p>
 
-<p>「But why are you grinning like that? It's annoying~!!」</p>
+<p>「But why are you grinning like that? It's annoying!!」</p>
 
 <p>Sehee Nuna still seemed displeased, glaring at Shiwoo as she spoke.</p>
 
-<p>「Just~ I think Sehee Nuna is so pretty~」</p>
+<p>「Just I think Sehee Nuna is so pretty」</p>
 
 <p>Shiwoo complimented Sehee Nuna with a sly charm.</p>
 
-<p>「What are you saying~?!」</p>
+<p>「What are you saying?!」</p>
 
 <p>Sehee Nuna turned her eyes away, seemingly embarrassed by Shiwoo's compliment about her beauty.</p>
 
-<p>「It's true? You look like a newlywed wife out shopping~」</p>
+<p>「It's true? You look like a newlywed wife out shopping」</p>
 
 <p>Shiwoo was giving Sehee Nuna compliments he hadn't given before.</p>
 
-<p>「You, go calm that down and then talk~!! Earlier, you couldn't even take your eyes off Sora~!! Why are you still like that?!」</p>
+<p>「You, go calm that down and then talk!! Earlier, you couldn't even take your eyes off Sora!! Why are you still like that?!」</p>
 
 <p>Sehee Nuna chastised Shiwoo, reminding him of what happened at the snack bar.</p>
 
 <p>Sehee Nuna glanced at Shiwoo's private part, which he was covering with his jacket, speaking as if embarrassed.</p>
 
-<p>「Yeah... hehe... Sorry~ But this, because of Sehee Nuna, it's going to be hard for a while~」</p>
+<p>「Yeah... hehe... Sorry But this, because of Sehee Nuna, it's going to be hard for a while」</p>
 
 <p>Shiwoo continued, apologizing awkwardly.</p>
 
 <p>「What?」</p>
 
-<p>「It's true that I got like this seeing Sora's chest at the snack bar earlier, but the reason I'm like this now is completely because of Sehee Nuna~!」</p>
+<p>「It's true that I got like this seeing Sora's chest at the snack bar earlier, but the reason I'm like this now is completely because of Sehee Nuna!」</p>
 
 <p>Even while apologizing, Shiwoo was shifting the responsibility for his physical state to Sehee Nuna.</p>
 
@@ -88,7 +88,7 @@ chapter = 103
 
 <p>Then, as if reacting belatedly to Shiwoo's words, Sehee Nuna's face flushed red.</p>
 
-<p>「Don't joke around in a crowded place~ You idiot~!!」</p>
+<p>「Don't joke around in a crowded place You idiot!!」</p>
 
 <p>Sehee Nuna said, turning her back to Shiwoo as if flustered.</p>
 
@@ -106,7 +106,7 @@ chapter = 103
 
 <p>Sehee Nuna broke the long silence between them, opening her mouth.</p>
 
-<p>「Yeah~!」</p>
+<p>「Yeah!」</p>
 
 <p>Shiwoo answered Sehee Nuna, squeezing the hand he was holding tightly.</p>
 
@@ -132,7 +132,7 @@ chapter = 103
 
 <p>Shiwoo spoke to Sehee Nuna with a half-worried, half-teasing tone as they passed the park.</p>
 
-<p>「Haaah~~ Just hurry home~!」</p>
+<p>「Haaah Just hurry home!」</p>
 
 <p>Sehee Nuna sighed, speaking as if wronged, looking down at the ground shyly with a flushed face.</p>
 
@@ -142,7 +142,7 @@ chapter = 103
 
 <p>Shiwoo's penis, which had been pressed against his stomach, sprang forward as if growing.</p>
 
-<p>「We have some at home~」</p>
+<p>「We have some at home」</p>
 
 <p>Sehee Nuna replied, her face flushing even more, perhaps conscious of Shiwoo's erect penis.</p>
 
@@ -156,29 +156,29 @@ chapter = 103
 
 <p>Shiwoo asked Sehee Nuna, testing her, with a thought of 'no way'.</p>
 
-<p>「It doesn't matter today~ Mom's not even coming home anyway~!」</p>
+<p>「It doesn't matter today Mom's not even coming home anyway!」</p>
 
 <p>A lonely expression seemed to flash across Sehee Nuna's face as she spoke of Mom.</p>
 
-<p>「Yeah~ She probably won't come today.」</p>
+<p>「Yeah She probably won't come today.」</p>
 
 <p>Shiwoo replied, intertwining his fingers with Sehee Nuna's hand he was holding.</p>
 
-<p>「If we get caught, say you wanted to drink it~! All of this is your fault anyway~!」</p>
+<p>「If we get caught, say you wanted to drink it! All of this is your fault anyway!」</p>
 
 <p>Sehee Nuna's tone seemed to be filled with resentment.</p>
 
 <p>Sehee Nuna seemed to be encompassing everything in one sentence: from Mom leaving home, to her having to take care of Shiwoo's messes... and crucially, the incident of having sex with her own brother.</p>
 
-<p>「Alright, hehe~~ I'll take full responsibility~ But I've never drunk alcohol before, will I be okay?」</p>
+<p>「Alright, hehe I'll take full responsibility But I've never drunk alcohol before, will I be okay?」</p>
 
 <p>Shiwoo spoke to Sehee Nuna, sounding a little worried, as it was his first time drinking alcohol.</p>
 
-<p>「Anyway, we have to drink alcohol when we hang out on Friday~! So you should practice drinking in advance~!」</p>
+<p>「Anyway, we have to drink alcohol when we hang out on Friday! So you should practice drinking in advance!」</p>
 
 <p>Sehee Nuna spoke again with a lonely expression, as if many thoughts were flashing through her mind.</p>
 
-<p>「Yeah~ Alright...」</p>
+<p>「Yeah Alright...」</p>
 
 <p>Shiwoo replied, observing Sehee Nuna's expression.</p>
 
@@ -200,17 +200,17 @@ chapter = 103
 
 <p>The two people walking from the opposite direction also seemed to have recognized Shiwoo and Sehee Nuna.</p>
 
-<p>「Oh~?! Sehee Eonni~! Shiwoo Oppa~!? Are you coming from the academy now?」</p>
+<p>「Oh?! Sehee Eonni! Shiwoo Oppa!? Are you coming from the academy now?」</p>
 
 <p>The owner of the familiar voice was Seyoung.</p>
 
 <p>Seyoung and Sua were each holding two leashes, seemingly walking the dogs.</p>
 
-<p>「Oh~ Seyoung-a, Sua-ya~! Didn't you two go to the academy today?」</p>
+<p>「Oh Seyoung-a, Sua-ya! Didn't you two go to the academy today?」</p>
 
 <p>Sehee Nuna called her sisters' names and asked, trying to act natural as if to hide her surprise.</p>
 
-<p>「Yeah~ Today's Tuesday~! We only go Mon, Wed, Fri anyway~! Hehehe~」</p>
+<p>「Yeah Today's Tuesday! We only go Mon, Wed, Fri anyway! Hehehe」</p>
 
 <p>Seyoung replied to Sehee Nuna with a bright expression.</p>
 
@@ -224,27 +224,27 @@ chapter = 103
 
 <p>A powerful, thrilling sensation, like sparks flying, surged through him, and Shiwoo's penis stiffened once again.</p>
 
-<p>「Aren't they cute? We walk the dogs every day~ Hehehe」</p>
+<p>「Aren't they cute? We walk the dogs every day Hehehe」</p>
 
 <p>Seyoung, noticing Shiwoo's momentarily dazed state, pulled the dogs she was holding on leashes closer to show him.</p>
 
 <p>It seemed Sua's family divided the dog walking between the large dog and the small puppies.</p>
 
-<p>「Oh~ They're cute? Didn't Seyoung say before that she wanted to adopt one and raise it?」</p>
+<p>「Oh They're cute? Didn't Seyoung say before that she wanted to adopt one and raise it?」</p>
 
 <p>Shiwoo said, looking down at the dogs.</p>
 
 <p>—He couldn't bring himself to bend down—</p>
 
-<p>「Yeah~ I keep talking to Mom about it~ but I don't think she'll allow it right away~ Oppa, could you talk to Mom about it later? Mom listens to Shiwoo Oppa well~ hehe」</p>
+<p>「Yeah I keep talking to Mom about it but I don't think she'll allow it right away Oppa, could you talk to Mom about it later? Mom listens to Shiwoo Oppa well hehe」</p>
 
 <p>Seyoung, perhaps understanding the transcendent hierarchical relationship between Mom and Shiwoo, smiled brightly and asked Shiwoo for a favor.</p>
 
-<p>「Oh~ Alright, Oppa will talk to Mom about it later~」</p>
+<p>「Oh Alright, Oppa will talk to Mom about it later」</p>
 
 <p>Shiwoo said, stroking Seyoung's head.</p>
 
-<p>「Really~? Thank you~ Shiwoo Oppa~!」</p>
+<p>「Really? Thank you Shiwoo Oppa!」</p>
 
 <p>Seyoung suddenly ran up and hugged Shiwoo tightly.</p>
 

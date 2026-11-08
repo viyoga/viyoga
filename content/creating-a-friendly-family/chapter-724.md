@@ -4,7 +4,7 @@ weight = 724
 [extra]
 chapter = 724
 +++
-<p>"Anyway~ I called you here just to confirm that!"</p>
+<p>"Anyway I called you here just to confirm that!"</p>
 
 <p>Oh Yerin-seonsaengnim spoke as if concluding the conversation, seemingly unaware of—or perhaps indifferent to—Shiwoo's current state of mind.</p>
 
@@ -14,7 +14,7 @@ chapter = 724
 
 <p>A small smile played on Oh Yerin-seonsaengnim's lips.</p>
 
-<p>"Yes. We've said everything that needs to be said, so you can go. There isn't much of the break left, so hurry back and prepare for class~!"</p>
+<p>"Yes. We've said everything that needs to be said, so you can go. There isn't much of the break left, so hurry back and prepare for class!"</p>
 
 <p>Giving Shiwoo one last lingering glance, Oh Yerin-seonsaengnim turned back to organizing the scattered documents on her desk.</p>
 
@@ -22,7 +22,7 @@ chapter = 724
 
 <p>Shiwoo gave her a polite bow.</p>
 
-<p>"Alright~"</p>
+<p>"Alright"</p>
 
 <p>Leaving the teacher's voice behind, Shiwoo walked toward the entrance of the faculty office.</p>
 
@@ -44,7 +44,7 @@ chapter = 724
 
 <p>The distance between Shiwoo, walking toward the office door, and Lee Jina-seonsaengnim grew shorter and shorter.</p>
 
-<p>"Hello there, Lee Jina-seonsaengnim~"</p>
+<p>"Hello there, Lee Jina-seonsaengnim"</p>
 
 <p>Just before passing her desk, Shiwoo stopped and offered her a bright greeting.</p>
 
@@ -56,7 +56,7 @@ chapter = 724
 
 <p>She was undoubtedly reacting to the perfume he had sprayed on today.</p>
 
-<p>"Oh? Oh... it was you, Shiwoo? Hello~"</p>
+<p>"Oh? Oh... it was you, Shiwoo? Hello"</p>
 
 <p>Lee Jina-seonsaengnim looked back at him and greeted him with a smile, acting as if she had only just recognized his face.</p>
 
@@ -122,7 +122,7 @@ chapter = 724
 
 <p>She cast her eyes down voluptuously, speaking to him as if confessing her true self as a slave.</p>
 
-<p>"I know~ Since I see you almost every other day for English class..."</p>
+<p>"I know Since I see you almost every other day for English class..."</p>
 
 <p>Shiwoo replied with a light chuckle.</p>
 
@@ -144,7 +144,7 @@ chapter = 724
 
 <p>Lee Jina-seonsaengnim answered, checking the class schedule pinned to her desk with trembling fingertips.</p>
 
-<p>"Then I'll see you during 4th-period English. I'm late, so I'd better get going~"</p>
+<p>"Then I'll see you during 4th-period English. I'm late, so I'd better get going"</p>
 
 <p>Shiwoo said his goodbye, leaving a lingering opening.</p>
 
@@ -192,7 +192,7 @@ chapter = 724
 
 <p>Shiwoo sat in his seat, trying to calm his erect penis while organizing his thoughts.</p>
 
-<p>"Did you have a good talk with the Class Teacher~?"</p>
+<p>"Did you have a good talk with the Class Teacher?"</p>
 
 <p>Cheoljin approached Shiwoo and spoke playfully, giving him a light poke.</p>
 
@@ -200,6 +200,6 @@ chapter = 724
 
 <p>Shiwoo replied evasively, acting as if he were annoyed.</p>
 
-<p>"What did the Class Teacher say to you~? Did she happen to ask you out on a date or something?"</p>
+<p>"What did the Class Teacher say to you? Did she happen to ask you out on a date or something?"</p>
 
 <p>Cheoljin asked with a sly grin and a sarcastic tone.</p>

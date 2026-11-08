@@ -40,7 +40,7 @@ chapter = 773
 
 <p>Every time Shiwoo's pelvis bounced up slightly, Mom's large breasts shook elastically.</p>
 
-<p>"Like this? How~? What do you mean 'like this'? I don't really know if you just say it like that~ Mom! You have to explain it so I can understand~"</p>
+<p>"Like this? How? What do you mean 'like this'? I don't really know if you just say it like that Mom! You have to explain it so I can understand"</p>
 
 <p>Sejin Nuna smirked annoyingly, prying into Mom's confession as if she were hounding her.</p>
 
@@ -50,7 +50,7 @@ chapter = 773
 
 <p>It seemed Mom had already completely let go of her dignity and reason.</p>
 
-<p>"So you knew you'd be having 'sex' outdoors, but you didn't know you'd be held like that as Shiwoo's wife~?"</p>
+<p>"So you knew you'd be having 'sex' outdoors, but you didn't know you'd be held like that as Shiwoo's wife?"</p>
 
 <p>Sejin Nuna pushed her mockingly, speaking clearly and more explicitly as if testing Mom's limits.</p>
 
@@ -66,7 +66,7 @@ chapter = 773
 
 <p>Mom's voice as she spoke became damp and heavy, as if she were about to sob.</p>
 
-<p>"Getting your ass slapped by your son already doesn't sound like a normal date~ Huhut~ Keep going~"</p>
+<p>"Getting your ass slapped by your son already doesn't sound like a normal date Huhut Keep going"</p>
 
 <p>Sejin Nuna urged her on, letting out a relaxed laugh as if she were enjoying Mom's shameful confession.</p>
 
@@ -76,7 +76,7 @@ chapter = 773
 
 <p>Mom confessed disgracefully about the fact that she had accepted the ring her son had put on her.</p>
 
-<p>"Really~? He proposed like that? And that's why you accepted?"</p>
+<p>"Really? He proposed like that? And that's why you accepted?"</p>
 
 <p>Sejin Nuna did not hide her interest, savoring Mom's wet breathing coming through the receiver.</p>
 
@@ -104,7 +104,7 @@ chapter = 773
 
 <p>"Heu-eung... Sejin-ah...! I'm sorry... heuuuk... Mom is... sorry... haang... I don't think... ha-eeuuuu... I can be your mother anymore... ha-eung... haaaa, haaaa..."</p>
 
-<p>"Shi... Shiwoo... haa... ha-eu... now Shiwoo... feels like a real man... ha-euk, heuk... I can't help it... ha-euk~ heu-eung... P-please forgive me~ ha-eung, haaaaang..."</p>
+<p>"Shi... Shiwoo... haa... ha-eu... now Shiwoo... feels like a real man... ha-euk, heuk... I can't help it... ha-euk heu-eung... P-please forgive me ha-eung, haaaaang..."</p>
 
 <p>Mom's words, having willingly traded even her motherhood for shameful pleasure, scattered through the receiver as if she were sobbing.</p>
 
@@ -112,7 +112,7 @@ chapter = 773
 
 <p>Shiwoo's thrusting was increasing in speed and intensity.</p>
 
-<p>"Hauuuuu! Ugeut, uuk, euaang.. Haaaaaaaang~!"</p>
+<p>"Hauuuuu! Ugeut, uuk, euaang.. Haaaaaaaang!"</p>
 
 <p>With just that, Mom's moans already seemed to turn into low, heavy screams, swept up in an uncontrollable wave of climax.</p>
 
@@ -136,7 +136,7 @@ chapter = 773
 
 <p>A moment later, Sejin Nuna's voice was heard, as if trying to push Mom deeper into that abyss of shame.</p>
 
-<p>"What are you sorry for~? It happens~ I had sex with Dad too. I even have Sae-a..."</p>
+<p>"What are you sorry for? It happens I had sex with Dad too. I even have Sae-a..."</p>
 
 <p>It was Sejin Nuna's voice, burrowing into the ears of Mom, who was panting from her climax.</p>
 
@@ -154,14 +154,14 @@ chapter = 773
 
 <p>Sejin Nuna spoke, blatantly revealing her dominance desire and sadistic authority to place Mom beneath her.</p>
 
-<p>"Ha-eeuut, ha-eung... ha-euk, what do I do... heu-eung... I shouldn't be like this... heu-eung... ha-eeuuuung~! Heu-eung... aaaaaa...."</p>
+<p>"Ha-eeuut, ha-eung... ha-euk, what do I do... heu-eung... I shouldn't be like this... heu-eung... ha-eeuuuung! Heu-eung... aaaaaa...."</p>
 
 <p>Mom was letting out screams of losing her sense of self along with pitiful exclamations.</p>
 
-<p>"Take your time~ It'll be awkward to call me that right away.... We even pretended not to know when we were sisters-in-law, right? Just later... it would be nice if you could call me Mother-nim every now and then as you pass by..."</p>
+<p>"Take your time It'll be awkward to call me that right away.... We even pretended not to know when we were sisters-in-law, right? Just later... it would be nice if you could call me Mother-nim every now and then as you pass by..."</p>
 
 <p>As Mom's sobbing continued, Sejin Nuna spoke as if driving in a final stake with a mischievous laugh.</p>
 
-<p>Jjil-gyeok, jjil-gyeok, jjil-gyeok~!</p>
+<p>Jjil-gyeok, jjil-gyeok, jjil-gyeok!</p>
 
 <p>And the explicit, lewd friction sounds echoed through the smartphone's receiver...</p>

@@ -4,23 +4,23 @@ weight = 289
 [extra]
 chapter = 289
 +++
-<p>"But Shiwoo Oppa~! Why did you take me to Sehee Unni's room instead of my room yesterday?"</p>
+<p>"But Shiwoo Oppa! Why did you take me to Sehee Unni's room instead of my room yesterday?"</p>
 
 <p>While Mom went into the master bedroom to get Seyoung's smartphone,</p>
 
 <p>Seyoung looked at Shiwoo, who was approaching the electric rice cooker with curious eyes, and asked as if she was wondering.</p>
 
-<p>"Ah~ Seyoung said that she sleeps well even after sucking Seonju Imo's breasts~ So I was wondering if Sehee could do it too~ You sometimes wake up in the middle of the night and go back to Mom's room to sleep, right? Mom is tired, so if Sehee and Mom take turns sleeping together on certain days, Mom will be less tired, right?"</p>
+<p>"Ah Seyoung said that she sleeps well even after sucking Seonju Imo's breasts So I was wondering if Sehee could do it too You sometimes wake up in the middle of the night and go back to Mom's room to sleep, right? Mom is tired, so if Sehee and Mom take turns sleeping together on certain days, Mom will be less tired, right?"</p>
 
 <p>Shiwoo answered Seyoung's question as if it was nothing.</p>
 
 <p>-Subtly pretending to care for Mom, while suggesting that he sleep with Sehee Nuna alternately-</p>
 
-<p>"Hehe~ I'd like to sleep with Unni too~~"</p>
+<p>"Hehe I'd like to sleep with Unni too"</p>
 
 <p>Seyoung looked at Sehee Nuna, who said she overslept because she was breastfeeding her last night, and said with a sorry expression.</p>
 
-<p>"It seems like she had a hard time yesterday because it was the first time~ Well~ Sehee said that she doesn't dislike breastfeeding Seyoung either~ If she gets used to it, it will get better little by little~ Isn't that right, Sehee?"</p>
+<p>"It seems like she had a hard time yesterday because it was the first time Well Sehee said that she doesn't dislike breastfeeding Seyoung either If she gets used to it, it will get better little by little Isn't that right, Sehee?"</p>
 
 <p>Shiwoo asked Sehee Nuna in a subtle tone, as if forcing her to answer.</p>
 
@@ -46,7 +46,7 @@ chapter = 289
 
 <p>It was a simple text message from Mom, with the subject and object omitted.</p>
 
-<p>'What~?'</p>
+<p>'What?'</p>
 
 <p>Shiwoo knew roughly what Mom was asking, but he pretended not to know on purpose and replied to Mom's short text as if he was playing dumb.</p>
 
@@ -56,7 +56,7 @@ chapter = 289
 
 <p>Mom seemed to be trying to confirm whether the lewd video of Mom that was sent to Seyoung's smartphone was deleted before returning the smartphone to Seyoung, as instructed by Shiwoo.</p>
 
-<p>'What video~?'</p>
+<p>'What video?'</p>
 
 <p>Shiwoo continued to answer playfully, as if he didn't know what Mom was talking about.</p>
 
@@ -64,7 +64,7 @@ chapter = 289
 
 <p>Mom expressed her frustration and sent it to Shiwoo, who was being cheeky, with three exclamation marks after the text.</p>
 
-<p>'Ah ah~ Are you talking about this? Mom getting her cheeks slapped by my cock? You have to tell me clearly so I know~! hehe'</p>
+<p>'Ah ah Are you talking about this? Mom getting her cheeks slapped by my cock? You have to tell me clearly so I know! hehe'</p>
 
 <p>Shiwoo sent the text as if he was teasing Mom, and then immediately found the video of Mom that he had taken in the dressing room earlier and uploaded it to the chat window.</p>
 
@@ -78,7 +78,7 @@ chapter = 289
 
 <p>Mom was embarrassed and flared up, demanding an answer as to whether the video Shiwoo sent to Seyoung had been deleted.</p>
 
-<p>'Hehe~ Well~ I told you to return it to Seyoung because I cleaned everything up~ hehe'</p>
+<p>'Hehe Well I told you to return it to Seyoung because I cleaned everything up hehe'</p>
 
 <p>Shiwoo tried to reassure Mom, giving an ambiguous answer by saying he cleaned it up instead of saying he deleted it.</p>
 
@@ -90,7 +90,7 @@ chapter = 289
 
 <p>Mom was worried and asked Shiwoo once again to check if the video had been deleted.</p>
 
-<p>'Don't worry~ I took care of everything while Mom was showering~!'</p>
+<p>'Don't worry I took care of everything while Mom was showering!'</p>
 
 <p>Shiwoo was planning to deceive Mom until the very end.</p>
 
@@ -136,7 +136,7 @@ chapter = 289
 
 <p>Mom handed the smartphone she had brought to Seyoung with a reluctant expression.</p>
 
-<p>"Wow~ You really found it~? Where was it? I looked in the master bedroom while Mom was showering earlier~ I couldn't see it?"</p>
+<p>"Wow You really found it? Where was it? I looked in the master bedroom while Mom was showering earlier I couldn't see it?"</p>
 
 <p>Seyoung took the smartphone with a happy expression and asked Mom.</p>
 
@@ -166,7 +166,7 @@ chapter = 289
 
 <p>Shiwoo spoke, using the puppy as a subject, as if he was checking Seyoung's mood, who was looking at her smartphone.</p>
 
-<p>"Sae-a is still sleeping~ Hehe~ I'm going to give it to her when she wakes up~"</p>
+<p>"Sae-a is still sleeping Hehe I'm going to give it to her when she wakes up"</p>
 
 <p>Seyoung still answered Shiwoo's words with a bright smile.</p>
 
@@ -176,7 +176,7 @@ chapter = 289
 
 <p>As Shiwoo mentioned the collar, he glanced at Mom, and Mom flinched slightly as if she was recoiling.</p>
 
-<p>"Yeah~ hehe~ I'm going to buy a toothbrush, toothpaste, and shampoo too~ We also need a potty pad, a bag to carry her around, and a cage~"</p>
+<p>"Yeah hehe I'm going to buy a toothbrush, toothpaste, and shampoo too We also need a potty pad, a bag to carry her around, and a cage"</p>
 
 <p>Seyoung seemed excited when the topic of puppy supplies came up, and she counted the items with her fingers and told Shiwoo.</p>
 
@@ -184,7 +184,7 @@ chapter = 289
 
 <p>Shiwoo asked Seyoung as if he was checking the items they had agreed to buy yesterday.</p>
 
-<p>"I'm going to make a dog house out of a cage~ That's what everyone does these days~ Look~!"</p>
+<p>"I'm going to make a dog house out of a cage That's what everyone does these days Look!"</p>
 
 <p>Seyoung rummaged through the smartphone she was holding and showed Shiwoo the smartphone screen.</p>
 
@@ -194,6 +194,6 @@ chapter = 289
 
 <p>There was a picture of a large iron cage for dogs on the screen.</p>
 
-<p>"Oh?... oh... is that how it's done these days? If it gets a little bigger, you could lock people up in it too~"</p>
+<p>"Oh?... oh... is that how it's done these days? If it gets a little bigger, you could lock people up in it too"</p>
 
 <p>Shiwoo imagined Mom lying down in the cage and inadvertently spoke his honest thoughts about the photo.</p>

@@ -34,7 +34,7 @@ chapter = 688
 
 <p>The figures of Mom and Sehee-nuna, their hands full of shopping bags, were vividly illuminated under the glow of the entryway light.</p>
 
-<p>「Master~! We're back from downtown~!」</p>
+<p>「Master! We're back from downtown!」</p>
 
 <p>Sehee-nuna, standing slightly behind, was the first to greet Shiwoo brightly, using formal speech and the title 'Master.'</p>
 
@@ -56,7 +56,7 @@ chapter = 688
 
 <p>Shiwoo spoke to the two of them in a relaxed tone, devoid of any shame or hesitation.</p>
 
-<p>「Yes~ nothing much happened~ Except for Sunmi grumbling at me about wasting money because we took a taxi since we had so many bags!」</p>
+<p>「Yes nothing much happened Except for Sunmi grumbling at me about wasting money because we took a taxi since we had so many bags!」</p>
 
 <p>Sehee-nuna spoke to Shiwoo as if she were tattling on Mom's misdeeds, teasing her.</p>
 
@@ -72,23 +72,23 @@ chapter = 688
 
 <p>Realizing that Shiwoo and Sehee were enjoying her reaction and trying to tease her, she let out a sigh as if hit by a reality check, her expression twisting into a bitter grimace.</p>
 
-<p>「It's not talking to yourself if the person next to you can hear everything~!」</p>
+<p>「It's not talking to yourself if the person next to you can hear everything!」</p>
 
 <p>Sehee-nuna didn't stop, continuing to drive Mom into a corner while letting out a playful laugh.</p>
 
-<p>「Right~ You can't call it talking to yourself when you made sure it was loud enough to be heard, can you?」</p>
+<p>「Right You can't call it talking to yourself when you made sure it was loud enough to be heard, can you?」</p>
 
 <p>Shiwoo chimed in, backing up Sehee-nuna's playful jab.</p>
 
 <p>Unable to counter Sehee-nuna and Shiwoo's mischievous jokes, Mom eventually bit her lip and cast her gaze downward.</p>
 
-<p>「You should have punished her. If she did that to me, I would've made her strip off all her clothes and sit there for the whole taxi ride, regardless of whether the driver was watching or not~」</p>
+<p>「You should have punished her. If she did that to me, I would've made her strip off all her clothes and sit there for the whole taxi ride, regardless of whether the driver was watching or not」</p>
 
 <p>Shiwoo wore a wicked grin, continuing to speak with a sly and provocative gaze.</p>
 
 <p>At Shiwoo's words, Mom seemed to suddenly recall the outdoor exposure play they had done previously; her body flinched with a slight tremor as she swallowed a short breath.</p>
 
-<p>「I know, right~? But unlike with you, Master, there are many times when Sunmi subtly ignores me and doesn't listen to what I say!」</p>
+<p>「I know, right? But unlike with you, Master, there are many times when Sunmi subtly ignores me and doesn't listen to what I say!」</p>
 
 <p>Sehee-nuna spoke to Shiwoo with a hint of aegyo , as if venting an exaggerated sense of grievance.</p>
 
@@ -102,7 +102,7 @@ chapter = 688
 
 <p>Mom looked as if she were about to flare up at Sehee-nuna's needless tattling, but she let out another deep sigh and bowed her head again.</p>
 
-<p>「Hehe~! Seeing our Sunmi act like this is just too cute~! I think I finally understand why Aunt Seonju teases her every time~ Don't you think so, Master?」</p>
+<p>「Hehe! Seeing our Sunmi act like this is just too cute! I think I finally understand why Aunt Seonju teases her every time Don't you think so, Master?」</p>
 
 <p>Sehee-nuna spoke to Shiwoo, intentionally exaggerating her expression as if she found Mom incredibly adorable.</p>
 
@@ -116,7 +116,7 @@ chapter = 688
 
 <p>Shiwoo asked, looking at the paper bags piled in Mom and Sehee-nuna's hands.</p>
 
-<p>「Oh, these? These are the items Master told us to buy at the tattoo shop earlier, and some other things the female owner there recommended and packed for us. She told Sunmi to try them out~!」</p>
+<p>「Oh, these? These are the items Master told us to buy at the tattoo shop earlier, and some other things the female owner there recommended and packed for us. She told Sunmi to try them out!」</p>
 
 <p>Sehee-nuna answered Shiwoo, lifting the shopping bags slightly.</p>
 
@@ -134,7 +134,7 @@ chapter = 688
 
 <p>He chewed over the meaning of it belatedly, but Shiwoo wasn't yet certain what kind of emotion he should accept it with.</p>
 
-<p>「And these are disinfectants and a large tube of healing ointment from the pharmacy~」</p>
+<p>「And these are disinfectants and a large tube of healing ointment from the pharmacy」</p>
 
 <p>Sehee-nuna carefully added, pulling a medicine bag out from a separate plastic bag.</p>
 
@@ -146,7 +146,7 @@ chapter = 688
 
 <p>Amidst the playful atmosphere, Shiwoo spoke while looking at Mom with a slightly worried gaze.</p>
 
-<p>「Yes~ I'll quickly put the bags away and come back out to apply the medicine~ But before that...」</p>
+<p>「Yes I'll quickly put the bags away and come back out to apply the medicine But before that...」</p>
 
 <p>Sehee-nuna said she would quickly organize the luggage and come back out to apply the ointment, but she trailed off with a smirk, as if there was something else to be done first.</p>
 
@@ -156,7 +156,7 @@ chapter = 688
 
 <p>Shiwoo tilted his head, repeating her words as a question.</p>
 
-<p>「Sunmi-ya~!?」</p>
+<p>「Sunmi-ya!?」</p>
 
 <p>Sehee-nuna called Mom's name naturally, as if giving her an instruction.</p>
 
@@ -210,6 +210,6 @@ chapter = 688
 
 <p>Mom's words were still cautious, but every single word was steeped in the shame, submission, and resignation she had pressed into them.</p>
 
-<p>「Ah~ right, there was that! I asked if you wanted to keep doing the mother-son sex in a master-slave relationship at night, then go back to being mother and son in the morning while pretending nothing happened, or something else. I told you to decide, didn't I, Sunmi?」</p>
+<p>「Ah right, there was that! I asked if you wanted to keep doing the mother-son sex in a master-slave relationship at night, then go back to being mother and son in the morning while pretending nothing happened, or something else. I told you to decide, didn't I, Sunmi?」</p>
 
 <p>Shiwoo spoke using more explicit words and a blunt tone, dragging the morning's situation back into the light.</p>

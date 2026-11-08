@@ -100,7 +100,7 @@ chapter = 36
 
 <p>Shiwoo placed his hand on Mom's head and gently stroked it as if she were cute.</p>
 
-<p>"Ah~ Mom~ Seyoung's mouth felt really good earlier, but your mouth is no joke right now~"</p>
+<p>"Ah Mom Seyoung's mouth felt really good earlier, but your mouth is no joke right now"</p>
 
 <p>Shiwoo, continuing to give Mom oral sex while openly comparing the mouths of his daughter and Mom.</p>
 
@@ -150,11 +150,11 @@ chapter = 36
 
 <p>Only then did Shiwoo remove his cock from Mom's mouth, allowing her to breathe.</p>
 
-<p>"Aat haaaaaaaak~ heugeuk~kulleok!! Kek kek!!! Huaaaaa~ huaaa~ euk! Heuek!!"</p>
+<p>"Aat haaaaaaaak heugeukkulleok!! Kek kek!!! Huaaaaa huaaa euk! Heuek!!"</p>
 
 <p>Mom's breaths, coughs, and moaning sound, inhaling and exhaling as if she were about to die.</p>
 
-<p>"Haa..ak haak~ haak~~ heoeo-eok eok heok heok"</p>
+<p>"Haa..ak haak haak heoeo-eok eok heok heok"</p>
 
 <p>Rough breathing for survival.</p>
 
@@ -166,7 +166,7 @@ chapter = 36
 
 <p>Knowing that she wouldn't answer with words, Shiwoo asked Mom.</p>
 
-<p>"Haaaaaaak~haaaak~~heuaaat~"</p>
+<p>"Haaaaaaakhaaaakheuaaat"</p>
 
 <p>Mom's cry, like the weeping of an animal.</p>
 
@@ -192,7 +192,7 @@ chapter = 36
 
 <p>Mom's pussy juice was splattering everywhere with Shiwoo's tongue movements.</p>
 
-<p>"Heueueueut haaaaat~heuaeuk!!"</p>
+<p>"Heueueueut haaaaatheuaeuk!!"</p>
 
 <p>Mom was reacting to Shiwoo's tongue and again making a low cry, as if sobbing.</p>
 
@@ -228,4 +228,4 @@ chapter = 36
 
 <p>A suppressed, gasping sound was now escaping from Mom's mouth.</p>
 
-<p>"Heueueueu~"</p>
+<p>"Heueueueu"</p>

@@ -14,7 +14,7 @@ chapter = 757
 
 <p>Mom sent a reply immediately, as if asking Shiwoo what he could possibly mean.</p>
 
-<p>[Just curious all of a sudden~ I was wondering how a parent would feel if I told them I'd be using separate rooms from my wife after I get married.]</p>
+<p>[Just curious all of a sudden I was wondering how a parent would feel if I told them I'd be using separate rooms from my wife after I get married.]</p>
 
 <p>Shiwoo tapped on the smartphone screen, feigning innocence.</p>
 
@@ -32,7 +32,7 @@ chapter = 757
 
 <p>Only then did Mom speak up, sounding flared up as if scolding her son's immature nonsense.</p>
 
-<p>[Ah~ Is that how it is~? I just wondered~ hehe.]</p>
+<p>[Ah Is that how it is? I just wondered hehe.]</p>
 
 <p>Shiwoo played along playfully, pretending to be naive as if he finally understood Mom's heart.</p>
 
@@ -42,7 +42,7 @@ chapter = 757
 
 <p>Was it because of Shiwoo's question, which suddenly alluded to a marital relationship with a new person, clashing with the lover-like atmosphere they had built during the date?</p>
 
-<p>[It's nothing~ I was just curious what Seonmi thought about that kind of thing~ hehehe. See you in front of the ticket booth in a bit!]</p>
+<p>[It's nothing I was just curious what Seonmi thought about that kind of thing hehehe. See you in front of the ticket booth in a bit!]</p>
 
 <p>Shiwoo sent a dismissive reply, trying to wrap up the conversation he was having with Mom.</p>
 
@@ -100,7 +100,7 @@ chapter = 757
 
 <p>Feeling as if he were reconfirming his and Mom's identities to a stranger, Shiwoo felt a strange sense of immorality and a thrill at the same time.</p>
 
-<p>"Yes, welcome~ Customer. One adult and one student, is that correct?"</p>
+<p>"Yes, welcome Customer. One adult and one student, is that correct?"</p>
 
 <p>The staff responded kindly, calmly asking back to confirm if the ages and number of people Shiwoo mentioned were correct.</p>
 
@@ -162,11 +162,11 @@ chapter = 757
 
 <p>Her image from the 1:1 chat, where she replied bluntly or grumbled with a hint of annoyance, seemed to have vanished without a trace.</p>
 
-<p>"Oh~ Mom, you're here?"</p>
+<p>"Oh Mom, you're here?"</p>
 
 <p>Shiwoo reverted the address he had been using, 'Seonmi', back to 'Mom'.</p>
 
-<p>"Here~!"</p>
+<p>"Here!"</p>
 
 <p>Then, he handed her one of the purchased tickets.</p>
 
@@ -176,11 +176,11 @@ chapter = 757
 
 <p>She soon spoke as if surprised, seeing the estimated viewing time written on the ticket.</p>
 
-<p>"Yeah~ I think it takes about that long if you walk slowly, take pictures, and watch all the events and shows! But since it's not event time right now, they said it takes about 40 minutes if we go through quickly."</p>
+<p>"Yeah I think it takes about that long if you walk slowly, take pictures, and watch all the events and shows! But since it's not event time right now, they said it takes about 40 minutes if we go through quickly."</p>
 
 <p>Shiwoo spoke in a relaxed manner, relaying what he had just heard from the ticket booth staff to Mom.</p>
 
-<p>"You said we were just walking to digest our food~ This isn't digesting, it looks like I'm going to end up exercising all day~"</p>
+<p>"You said we were just walking to digest our food This isn't digesting, it looks like I'm going to end up exercising all day"</p>
 
 <p>Mom muttered to herself as if venting complaints and grumbles for no reason.</p>
 
@@ -188,6 +188,6 @@ chapter = 757
 
 <p>At that sight of Mom, Shiwoo's penis also heaved and twitched for no reason.</p>
 
-<p>"You always nag me at home to follow Saehee and exercise~? When 'Mom' herself doesn't even walk around much..."</p>
+<p>"You always nag me at home to follow Saehee and exercise? When 'Mom' herself doesn't even walk around much..."</p>
 
 <p>Shiwoo responded playfully with a jab at Mom, as if managing the tension felt between the fabric of his pants and his flesh.</p>

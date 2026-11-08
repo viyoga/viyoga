@@ -150,7 +150,7 @@ chapter = 809
 
 <p>As if to closely monitor how the tightening of that wet, private place changes, Siu thrusts his pelvis upward, adding subtle pressure inside her body.</p>
 
-<p>"Haaa~!"</p>
+<p>"Haaa!"</p>
 
 <p>Mother's upper body and waist arch backward like a bow as a piteous groan she couldn't hold back bursts out.</p>
 
@@ -180,7 +180,7 @@ chapter = 809
 
 <p>Yet, Mother's lower body, still clamped onto Siu's shaft, shamefully twitched in succession, seemingly submitting to the act her son demanded.</p>
 
-<p>"But this isn't sex, is it? I'm just keeping my cock inside Mother! If I were thrusting with the intention of actual sex, we wouldn't even be able to talk like this as mother and son~"</p>
+<p>"But this isn't sex, is it? I'm just keeping my cock inside Mother! If I were thrusting with the intention of actual sex, we wouldn't even be able to talk like this as mother and son"</p>
 
 <p>Siu whispered in a babyish tone, burying his face in the nape of Mother's neck.</p>
 
@@ -192,7 +192,7 @@ chapter = 809
 
 <p>Feeling a dizzying vertigo from her son's presence touching her cervix, Mother muttered complainingly and let out a helpless sigh amidst her ragged breathing.</p>
 
-<p>"I'm saying this because I think we've found a way to live naturally just like before, even with it kept inside you~ Hehehe."</p>
+<p>"I'm saying this because I think we've found a way to live naturally just like before, even with it kept inside you Hehehe."</p>
 
 <p>As if enjoying Mother's bewildered reaction, Siu continued, a mischievous smile playing on his lips.</p>
 
@@ -314,7 +314,7 @@ chapter = 809
 
 <p>Mother says to Siu reproachfully, twisting her body slightly while squeezing her vaginal opening.</p>
 
-<p>"I'm not doing anything~ I'm just touching you..."</p>
+<p>"I'm not doing anything I'm just touching you..."</p>
 
 <p>Siu says, continuing to brush her neck and shoulders with his lips, slyly ignoring her like a sweet monologue.</p>
 

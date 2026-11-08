@@ -4,17 +4,17 @@ weight = 417
 [extra]
 chapter = 417
 +++
-<p>「Look~ Even though it was too big and difficult at first, after tasting it a few times and getting used to it, now it feels like you can't live without our Master-nim's cock, right?」</p>
+<p>「Look Even though it was too big and difficult at first, after tasting it a few times and getting used to it, now it feels like you can't live without our Master-nim's cock, right?」</p>
 
-<p>「Since I've always known Older Sister's pretense~ I didn't think Master-nim would subjugate her so quickly~ As expected, our Master-nim is truly amazing~!」</p>
+<p>「Since I've always known Older Sister's pretense I didn't think Master-nim would subjugate her so quickly As expected, our Master-nim is truly amazing!」</p>
 
-<p>「Master-nim, please take good care of our Older Sister from now on~ But don't neglect me too much. You know I'm Slave No. 1, right?」</p>
+<p>「Master-nim, please take good care of our Older Sister from now on But don't neglect me too much. You know I'm Slave No. 1, right?」</p>
 
 <p>Seonju Imo speaks to Shiwoo as if joking with him.</p>
 
-<p>「Since Older Sister likes positions where she gets her buttocks spanked from behind, please do it often~! lolol」</p>
+<p>「Since Older Sister likes positions where she gets her buttocks spanked from behind, please do it often! lolol」</p>
 
-<p>「She also likes being sucked on the nipples, anus, and clitoris simultaneously while being fucked, enough to scream, so please try it if you get the chance later~!」</p>
+<p>「She also likes being sucked on the nipples, anus, and clitoris simultaneously while being fucked, enough to scream, so please try it if you get the chance later!」</p>
 
 <p>Seonju Imo continuously poured out lewd and provocative words, using Mom as a topic.</p>
 
@@ -26,9 +26,9 @@ chapter = 417
 
 <p>Seonju Imo's message, teasing her as if exposing her preferences in front of the family, seemed to embarrass Mom greatly, so Mom, in a sharp tone, interrupted Seonju Imo's words.</p>
 
-<p>「Oh my~! Older Sister, are you even talking here now? I thought you had decided not to speak, only barely answering when Master-nim forced you to~」</p>
+<p>「Oh my! Older Sister, are you even talking here now? I thought you had decided not to speak, only barely answering when Master-nim forced you to」</p>
 
-<p>「Now that Older Sister has also started talking, we can just have family meetings here too~ See you often~ Older Sister~! lolol」</p>
+<p>「Now that Older Sister has also started talking, we can just have family meetings here too See you often Older Sister! lolol」</p>
 
 <p>Seonju Imo, while still maintaining her teasing attitude towards Mom, spoke as if Mom's change was welcome and admirable.</p>
 
@@ -46,9 +46,9 @@ chapter = 417
 
 <p>Mom, as if she had fallen for Seonju Imo's continuous teasing and provocation, spoke with a sudden burst of anger.</p>
 
-<p>「Oh my~? Do you think we're like Older Sister? It just happened naturally, what did Gyuri Unnie and I do? Anyone who hears this will really misunderstand!」</p>
+<p>「Oh my? Do you think we're like Older Sister? It just happened naturally, what did Gyuri Unnie and I do? Anyone who hears this will really misunderstand!」</p>
 
-<p>「Master-nim~! Older Sister just did everything she wanted because she liked it, and now she's embarrassed, so look at her trying to pick a fight with us~! Since she just made her slave declaration today, this time, to completely fix our Older Sister's bad habits, please punish her until tears stream down her face, Master-nim~! lolol」</p>
+<p>「Master-nim! Older Sister just did everything she wanted because she liked it, and now she's embarrassed, so look at her trying to pick a fight with us! Since she just made her slave declaration today, this time, to completely fix our Older Sister's bad habits, please punish her until tears stream down her face, Master-nim! lolol」</p>
 
 <p>Seonju Imo reported to Shiwoo, just like young siblings who squabble over trivial matters, tattling on each other's flaws or mistakes to their parents.</p>
 
@@ -56,15 +56,15 @@ chapter = 417
 
 <p>Mom was speaking to Seonju Imo with a nuance of warning about a real-life confrontation, as if strongly expressing her dissatisfaction.</p>
 
-<p>「Hiiing~ Master-nim~ Older Sister is scary, telling me she wants to see my face~ Please protect me so Older Sister can't harm me~!」</p>
+<p>「Hiiing Master-nim Older Sister is scary, telling me she wants to see my face Please protect me so Older Sister can't harm me!」</p>
 
 <p>Seonju Imo was speaking to Shiwoo, pretending to be pitiful, whining and fawning.</p>
 
-<p>「Alright, alright~! Both of you, stop it there! Seonju, you stop teasing Seonmi now!」</p>
+<p>「Alright, alright! Both of you, stop it there! Seonju, you stop teasing Seonmi now!」</p>
 
 <p>Perhaps feeling sorry for Mom who was continuously being teased, Shiwoo intervened and stopped Seonju Imo.</p>
 
-<p>「Yes~! Master-nim! Since Master-nim said so, I'll stop teasing Older Sister now~! lolol」</p>
+<p>「Yes! Master-nim! Since Master-nim said so, I'll stop teasing Older Sister now! lolol」</p>
 
 <p>As soon as Shiwoo spoke, Seonju Imo's cutesy answer returned immediately.</p>
 
@@ -98,7 +98,7 @@ chapter = 417
 
 <p>Next to arrive was Sua's message.</p>
 
-<p>「I've checked it too! Hehehe~ Master-nim!」</p>
+<p>「I've checked it too! Hehehe Master-nim!」</p>
 
 <p>And Seyoung's still awkward and shy-looking message was written on the screen, following Sehee Nuna's message.</p>
 

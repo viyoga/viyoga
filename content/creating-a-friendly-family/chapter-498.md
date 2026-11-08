@@ -46,7 +46,7 @@ chapter = 498
 
 <p>Shiwoo grabs Mom's breasts and vigorously kneads them.</p>
 
-<p>"Haa~"</p>
+<p>"Haa"</p>
 
 <p>Mom starts to wriggle her lips again, matching the rhythm of Shiwoo's kneading hands.</p>
 
@@ -130,7 +130,7 @@ chapter = 498
 
 <p>Mom was biting her lower lip and enduring the humiliation, contempt, and shame she was receiving from her youngest daughter.</p>
 
-<p>"You said you felt like you became a mom, so you thought you could sleep well~! You have to keep biting, then you'll feel like you can sleep well~ Ah~ Is Seonmi sleeping now, so she can't hear me?"</p>
+<p>"You said you felt like you became a mom, so you thought you could sleep well! You have to keep biting, then you'll feel like you can sleep well Ah Is Seonmi sleeping now, so she can't hear me?"</p>
 
 <p>Seyoung brings her nipple to Mom's lips and says nonchalantly.</p>
 
@@ -138,7 +138,7 @@ chapter = 498
 
 <p>Mom releases her lower lip, which she had been biting, opens her mouth, and accepts Seyoung's nipple.</p>
 
-<p>"Seonmi seems stubborn usually, but she listens well and is kind like a 순둥이 at times like this~ Hehe~"</p>
+<p>"Seonmi seems stubborn usually, but she listens well and is kind like a 순둥이 at times like this Hehe"</p>
 
 <p>Seyoung was playfully saying the words that Seonju Imo would usually say to her, patting Mom's buttocks.</p>
 
@@ -178,7 +178,7 @@ chapter = 498
 
 <p>Shiwoo asks Seyoung as if probing, with a confident smile.</p>
 
-<p>"Well? Could that be possible~? I don't know~"</p>
+<p>"Well? Could that be possible? I don't know"</p>
 
 <p>Seyoung shrugs her shoulders and answers Shiwoo with Mom's breasts in her mouth.</p>
 
@@ -186,7 +186,7 @@ chapter = 498
 
 <p>Shiwoo says, looking at Seyoung with a voice full of anticipation and excitement.</p>
 
-<p>"Hmm~ If I'm breastfeeding Seonmi, I wonder if it'll be okay to do that~?"</p>
+<p>"Hmm If I'm breastfeeding Seonmi, I wonder if it'll be okay to do that?"</p>
 
 <p>Seyoung answers with a shy and awkward smile.</p>
 
@@ -194,6 +194,6 @@ chapter = 498
 
 <p>She clearly knows the hidden sexual meaning of wearing an eye patch in front of Shiwoo.</p>
 
-<p>"It's a test, so if it's too hard, Seyoung, you can take it off right away, right? I'll be watching you from the side until you fall asleep for sure~!!"</p>
+<p>"It's a test, so if it's too hard, Seyoung, you can take it off right away, right? I'll be watching you from the side until you fall asleep for sure!!"</p>
 
 <p>Shiwoo speaks as if persuading Seyoung as if there is no problem.</p>

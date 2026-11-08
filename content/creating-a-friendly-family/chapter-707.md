@@ -4,7 +4,7 @@ weight = 707
 [extra]
 chapter = 707
 +++
-<p>"Think about it~ The sight of Master Shiwoo impregnating Sejin Nuna or Yu Yena Teacher-nim in front of everyone every year..."</p>
+<p>"Think about it The sight of Master Shiwoo impregnating Sejin Nuna or Yu Yena Teacher-nim in front of everyone every year..."</p>
 
 <p>As if chanting a spell, Seyoung let those words flow into Shiwoo's ear along with her heated breath, her voice a low murmur. The words whispering into Shiwoo's ear had shifted; she was no longer speaking to him as an older brother, but using the formal address and titles reserved for a Master.</p>
 
@@ -102,7 +102,7 @@ chapter = 707
 
 <p>Inside Seyoung's body, which was tightly constricted by Shiwoo's arms, Shiwoo's swollen penis was thrusting violently.</p>
 
-<p>"Ha-ung ha-aa ha-aang~ ha-aa... ha-eung..."</p>
+<p>"Ha-ung ha-aa ha-aang ha-aa... ha-eung..."</p>
 
 <p>Pinned down by Shiwoo so she couldn't escape, Seyoung moaned as if she were losing her mind, her waist arching back. While bound by Shiwoo's arms with her head tilted back, Seyoung's body jolted violently as she spat out hot moans.</p>
 

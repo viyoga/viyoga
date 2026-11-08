@@ -58,7 +58,7 @@ chapter = 50
 
 <p class="scene-break">· · ·</p>
 
-<p>"When we were going home yesterday, on the train, Shiwoo, you were pressed right against Mom's back, weren't you~?"</p>
+<p>"When we were going home yesterday, on the train, Shiwoo, you were pressed right against Mom's back, weren't you?"</p>
 
 <p>Sehee Nuna, observing Shiwoo's dumbfounded expression as if savoring it, brought her lips close to Shiwoo's ear and spoke.</p>
 
@@ -96,15 +96,15 @@ chapter = 50
 
 <p class="scene-break">· · ·</p>
 
-<p>"Ah~! It's coming, Se.. Sehee Nuna~~"</p>
+<p>"Ah! It's coming, Se.. Sehee Nuna"</p>
 
 <p>Shiwoo quickly pushed aside Seyoung's pajamas that had been covering him and brought Nuna's panties to the head of his penis.</p>
 
-<p>Pushik~!!</p>
+<p>Pushik!!</p>
 
-<p>Pushik~!!!</p>
+<p>Pushik!!!</p>
 
-<p>Pushik~!!!!</p>
+<p>Pushik!!!!</p>
 
 <p>In front of Sehee Nuna, while embracing her, Shiwoo seemed intent on unleashing all his lust, spewing an enormous amount of semen onto Sehee Nuna's pink panties.</p>
 
@@ -148,7 +148,7 @@ chapter = 50
 
 <p>The vaginal fluid on the pantyhose still seemed to retain a lukewarm warmth, enough to make him feel strange.</p>
 
-<p>"You did that this morning too~!! And now you've dirtied my bra like that too? You really cum a lot~"</p>
+<p>"You did that this morning too!! And now you've dirtied my bra like that too? You really cum a lot"</p>
 
 <p>Sehee Nuna spoke as if it were someone else's business.</p>
 
@@ -186,7 +186,7 @@ chapter = 50
 
 <p>Sehee Nuna let Shiwoo's actions go unchecked, then, after he finished taking pictures, she gave Shiwoo a slight sidelong glance.</p>
 
-<p>"Later, when it seems like you're lying, Shiwoo, I guess I'll just have to make you masturbate~!?"</p>
+<p>"Later, when it seems like you're lying, Shiwoo, I guess I'll just have to make you masturbate!?"</p>
 
 <p>Sehee Nuna's words, whose meaning was unclear.</p>
 
@@ -200,11 +200,11 @@ chapter = 50
 
 <p>Sehee Nuna's curt tone.</p>
 
-<p>"Ah~.. Sorry, I didn't realize.."</p>
+<p>"Ah.. Sorry, I didn't realize.."</p>
 
 <p>Shiwoo, intimidated by Sehee Nuna's curt tone, which he couldn't tell if it was serious or playful, immediately apologized.</p>
 
-<p>"Honestly~ Shiwoo, you're too easy, you know? Since it's Seyoung's, I'll let it slide this time~!!"</p>
+<p>"Honestly Shiwoo, you're too easy, you know? Since it's Seyoung's, I'll let it slide this time!!"</p>
 
 <p>Sehee Nuna spoke to Shiwoo as if she had suffered some loss but was granting him a great favor by forgiving him.</p>
 

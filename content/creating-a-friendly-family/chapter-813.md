@@ -14,7 +14,7 @@ chapter = 813
 
 <p>Siu spoke in a coercive tone, cutting Mother off.</p>
 
-<p>"Ah... yes...! Mmph~"</p>
+<p>"Ah... yes...! Mmph"</p>
 
 <p>Mother answered urgently, immediately gripping Siu's penis with both hands and opening her mouth wide to swallow the shaft.</p>
 
@@ -176,7 +176,7 @@ chapter = 813
 
 <p>\[^^*\]</p>
 
-<p>\[Everything is ready! Looks like things are wrapped up on your end too~?\]</p>
+<p>\[Everything is ready! Looks like things are wrapped up on your end too?\]</p>
 
 <p>She replied with a shy emoticon, her tone laced with excitement.</p>
 

@@ -14,7 +14,7 @@ chapter = 538
 
 <p>Shiwoo's penis, belatedly understanding the situation, swells and throbs like crazy.</p>
 
-<p>"Mom! I'm going up to wake Sehee Nuna now~"</p>
+<p>"Mom! I'm going up to wake Sehee Nuna now"</p>
 
 <p>Seyoung goes to the kitchen and speaks to Mom as if deliberately confirming that she is going up to the second floor to wake Sehee Nuna.</p>
 

@@ -8,7 +8,7 @@ chapter = 278
 
 <p>Shiwoo wondered if, given Mom's tendencies, she might be exaggerating and acting like she was angry at him, even though she wasn't really mad.</p>
 
-<p>,There should have been time to talk~ Mom fainted arbitrarily before even talking~ Hehe, Sehee and Seonjoo endured it well~ Only Mom is like this~ Seriously, shouldn't you start exercising now?\,</p>
+<p>,There should have been time to talk Mom fainted arbitrarily before even talking Hehe, Sehee and Seonjoo endured it well Only Mom is like this Seriously, shouldn't you start exercising now?\,</p>
 
 <p>Shiwoo said, teasing Mom again.</p>
 
@@ -16,7 +16,7 @@ chapter = 278
 
 <p>Mom seemed genuinely displeased with Shiwoo teasing her, and she threatened Shiwoo with a menacing sentence that left him speechless.</p>
 
-<p>,Alright, alright~ I won't tease you anymore~ Hehe, this house belongs to Mom, why would Mom leave the house?\,</p>
+<p>,Alright, alright I won't tease you anymore Hehe, this house belongs to Mom, why would Mom leave the house?\,</p>
 
 <p>Shiwoo was talking soothingly, matching Mom's mood, to calm her down.</p>
 
@@ -28,11 +28,11 @@ chapter = 278
 
 <p class="scene-break">· · ·</p>
 
-<p>,Mom~ Did you perhaps come to my room in the early morning and clean up the mess?\,</p>
+<p>,Mom Did you perhaps come to my room in the early morning and clean up the mess?\,</p>
 
 <p>Shiwoo remembered that the traces of masturbation and ejaculation he had left just before falling asleep had been cleaned up when he woke up, and he asked Mom as if confirming.</p>
 
-<p>,What mental capacity would Mom have to go into your room in the early morning?! I'm already out of my mind checking Seyoung's smartphone, and I'm worried to death about Seyoung taking off all her clothes in Sehee's room and being with you guys~!!\,</p>
+<p>,What mental capacity would Mom have to go into your room in the early morning?! I'm already out of my mind checking Seyoung's smartphone, and I'm worried to death about Seyoung taking off all her clothes in Sehee's room and being with you guys!!\,</p>
 
 <p>Contrary to what Shiwoo had expected, Mom replied that she didn't have the余裕to clean up Shiwoo's room.</p>
 
@@ -60,17 +60,17 @@ chapter = 278
 
 <p>Mom, too, as if curious, asked Shiwoo back, since it was Sehee Nuna, who didn't even clean her own room properly, who had cleaned Shiwoo's room.</p>
 
-<p>,Ah~ Actually, I masturbated and slept on my bed in my room before going to bed~ I definitely think I just fell asleep after cumming, but when I woke up, it was all cleaned up~,</p>
+<p>,Ah Actually, I masturbated and slept on my bed in my room before going to bed I definitely think I just fell asleep after cumming, but when I woke up, it was all cleaned up,</p>
 
-<p>,So I just assumed Mom had come into my room to clean up while she was coming up to wake Seyoung~,\,</p>
+<p>,So I just assumed Mom had come into my room to clean up while she was coming up to wake Seyoung,\,</p>
 
 <p>Shiwoo confessed honestly, revealing his masturbation to Mom and explaining the situation when he woke up.</p>
 
-<p>,Tsk~ You cum so much yesterday, and you still have energy left over?\,</p>
+<p>,Tsk You cum so much yesterday, and you still have energy left over?\,</p>
 
 <p>Mom said, scolding him as if she was fed up with Shiwoo's stamina.</p>
 
-<p>,This isn't a matter of stamina, it's because Mom is too pretty~! What can I do if it keeps getting hard just thinking about Mom's face and body?\,</p>
+<p>,This isn't a matter of stamina, it's because Mom is too pretty! What can I do if it keeps getting hard just thinking about Mom's face and body?\,</p>
 
 <p>Shiwoo, despite Mom's scolding, made an impudent retort, using her as an excuse.</p>
 
@@ -78,15 +78,15 @@ chapter = 278
 
 <p>Mom reacted as if she was offended by Shiwoo's playful words, but she didn't seem that displeased.</p>
 
-<p>,It's true~ If I think that I can feed Mom my semen every day from now on, my thing gets hard again right away!\,</p>
+<p>,It's true If I think that I can feed Mom my semen every day from now on, my thing gets hard again right away!\,</p>
 
 <p>Shiwoo tried to engage Mom in a slightly explicit lewd conversation.</p>
 
-<p>,Ugh~! Just finish up quickly and wash up! Are you going to be like that all day long?!\,</p>
+<p>,Ugh! Just finish up quickly and wash up! Are you going to be like that all day long?!\,</p>
 
 <p>This time, Mom didn't get angry at Shiwoo's explicit comment but ended the conversation hastily, as if embarrassed.</p>
 
-<p>,Alright~ Hehe, I'm going to cum right on Seyoung's panties now, hehehe~,\,</p>
+<p>,Alright Hehe, I'm going to cum right on Seyoung's panties now, hehehe,\,</p>
 
 <p>Shiwoo replied to Mom, feeling a sense of inexplicable pride.</p>
 
@@ -142,7 +142,7 @@ chapter = 278
 
 <p>After turning on the water and waiting for a moment, warm water poured out of the showerhead.</p>
 
-<p>-Swaaaaaa~</p>
+<p>-Swaaaaaa</p>
 
 <p>Shiwoo soaked his body, receiving the pleasant stream of warm water from the showerhead after ejaculating.</p>
 

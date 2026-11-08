@@ -12,7 +12,7 @@ chapter = 237
 
 <p>Shiwoo deliberately stomped his feet hard, inducing a great resonance and friction in the cock buried inside Sehee Nuna's body.</p>
 
-<p>"Haa-eut~ Haaat~ Heueu..."</p>
+<p>"Haa-eut Haaat Heueu..."</p>
 
 <p>A seductive moan escaping from Sehee Nuna's mouth with each step.</p>
 
@@ -32,13 +32,13 @@ chapter = 237
 
 <p>He could feel the moist and soft tightness inside the vagina hole on Shiwoo's penis.</p>
 
-<p>"Let's start~!"</p>
+<p>"Let's start!"</p>
 
 <p>-Jjal-jjak!</p>
 
 <p>Shiwoo, as if urging Sehee Nuna who was standing there not knowing what to do, briefly stopped his hip movements and struck the side of her buttocks with his palm.</p>
 
-<p>"Haa-eut~! Yes... Master..."</p>
+<p>"Haa-eut! Yes... Master..."</p>
 
 <p>Power surged into Sehee Nuna's buttocks, and at the same time, her vaginal walls seemed to tense, tightly constricting Shiwoo's cock.</p>
 
@@ -52,11 +52,11 @@ chapter = 237
 
 <p>Shiwoo's piston-like movements continued slowly while Sehee Nuna moved her hands.</p>
 
-<p>"Haa-eup... Haa... Haa-aa... Heueu~"</p>
+<p>"Haa-eup... Haa... Haa-aa... Heueu"</p>
 
 <p>Sehee Nuna, with her pelvis pressed against the sink, was barely enduring Shiwoo's shallow attacks.</p>
 
-<p>-Jjal-jjak~!</p>
+<p>-Jjal-jjak!</p>
 
 <p>Each time Sehee Nuna stopped the hand washing the dishes, Shiwoo's hand strongly struck Sehee Nuna's buttocks.</p>
 
@@ -74,7 +74,7 @@ chapter = 237
 
 <p>Shiwoo deeply reciprocated his penis back and forth, as if savoring each and every curve and slippery sensation of the wrinkles engraved on Sehee Nuna's vaginal walls.</p>
 
-<p>"Haa-eueuk~! Haaat! Haa-aaa~ Haa-eueueu... Heueueu..."</p>
+<p>"Haa-eueuk! Haaat! Haa-aaa Haa-eueueu... Heueueu..."</p>
 
 <p>Sehee Nuna was receiving Shiwoo's thing to the fullest, struggling not to stop the hand washing the dishes.</p>
 
@@ -100,7 +100,7 @@ chapter = 237
 
 <p>Sehee Nuna trembled heumchit after seeing Mom's text.</p>
 
-<p>'What~?'</p>
+<p>'What?'</p>
 
 <p>Shiwoo deliberately pretended not to know anything and playfully texted Mom.</p>
 
@@ -116,11 +116,11 @@ chapter = 237
 
 <p>It seemed Mom was too embarrassed to directly mention Shiwoo and Sehee Nuna's sex in a text message, so she was substituting the meaning with the word cleanup.</p>
 
-<p>'Hehe, got it~ I'll finish the cleanup well before Seonmi and Seyoung come out, so don't worry~!'</p>
+<p>'Hehe, got it I'll finish the cleanup well before Seonmi and Seyoung come out, so don't worry!'</p>
 
 <p>Shiwoo, as if now in complete superiority, naturally called Mom by her name and spoke as if teasing her.</p>
 
-<p>'Aish~!!'</p>
+<p>'Aish!!'</p>
 
 <p>Mom sent back a text sighing as if somehow displeased but now unable to do anything about it.</p>
 
@@ -132,7 +132,7 @@ chapter = 237
 
 <p>Mom obediently answered Shiwoo's question.</p>
 
-<p>'Wash her well~ Just in case for tonight~ hehehe'</p>
+<p>'Wash her well Just in case for tonight hehehe'</p>
 
 <p>Shiwoo texted back as if teasing Mom to provoke her.</p>
 
@@ -142,7 +142,7 @@ chapter = 237
 
 <p>Power was surging into Shiwoo's thing, deeply embedded inside Sehee Nuna's vagina.</p>
 
-<p>"Haa-eueut~"</p>
+<p>"Haa-eueut"</p>
 
 <p>Sehee Nuna moaned, trembling minutely all over her body from the pressure of the penis inside her vagina hole.</p>
 
@@ -158,7 +158,7 @@ chapter = 237
 
 <p>The pounding was being done as if it no longer mattered whether the sound was being transmitted to Seyoung inside the shower room.</p>
 
-<p>"Haa-aat! Haa-euk~ Haa-eueuk! Haa-at! Haa-aaaa-heut!"</p>
+<p>"Haa-aat! Haa-euk Haa-eueuk! Haa-at! Haa-aaaa-heut!"</p>
 
 <p>Sehee Nuna's moans were gradually changing into suppressed cries.</p>
 
@@ -168,7 +168,7 @@ chapter = 237
 
 <p>-Jjal-jjak!</p>
 
-<p>"Haa-eut~!"</p>
+<p>"Haa-eut!"</p>
 
 <p>Shiwoo's pounding and spanking, and Sehee Nuna's cries, were filling the kitchen and living room.</p>
 
@@ -188,7 +188,7 @@ chapter = 237
 
 <p>Leaving the smartphone on the counter as it was, Shiwoo wrote a reply to Mom.</p>
 
-<p>'It's okay~ Sehee is younger than Mom, so she seems to endure this much better. She doesn't faint while doing this~ hehehe What~ Maybe it's because she exercises diligently usually? hehe'</p>
+<p>'It's okay Sehee is younger than Mom, so she seems to endure this much better. She doesn't faint while doing this hehehe What Maybe it's because she exercises diligently usually? hehe'</p>
 
 <p>Shiwoo playfully said, teasing Mom once again.</p>
 
@@ -200,7 +200,7 @@ chapter = 237
 
 <p>-Unlike the reaction she showed to the obscene talk using Seyoung as the subject earlier...-</p>
 
-<p>'Can you hear the sound, Mom~?'</p>
+<p>'Can you hear the sound, Mom?'</p>
 
 <p>Shiwoo asked Mom as if confirming a fact he already knew.</p>
 
@@ -208,7 +208,7 @@ chapter = 237
 
 <p>Mom answered Shiwoo's text in a snappish, as if annoyed.</p>
 
-<p>'Okay~ I'll make her quiet~'</p>
+<p>'Okay I'll make her quiet'</p>
 
 <p>Shiwoo was speaking as if trying to appease Mom.</p>
 
@@ -220,7 +220,7 @@ chapter = 237
 
 <p>Sehee Nuna's body jumped as if surprised.</p>
 
-<p>"Did you see? Seonmi says you're too loud, Sehee~! Make less noise!"</p>
+<p>"Did you see? Seonmi says you're too loud, Sehee! Make less noise!"</p>
 
 <p>Shiwoo commanded Sehee Nuna, who was trembling with excitement as she looked at Mom's text.</p>
 
@@ -232,7 +232,7 @@ chapter = 237
 
 <p>Instantly, Shiwoo's palm fell again on Sehee Nuna's buttocks.</p>
 
-<p>"Haa-eut! Heueu-eung~"</p>
+<p>"Haa-eut! Heueu-eung"</p>
 
 <p>Sehee Nuna looked back at Shiwoo with a pitiful expression as if not knowing what was going on.</p>
 

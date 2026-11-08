@@ -50,7 +50,7 @@ chapter = 762
 
 <p>Instead of an answer, Mom let out a distressed, damp breath. Shiwoo wiggled his fingers, pressing and rummaging against the inner surface of the panty liner that was pressed against Mom's crotch. A slick liquid seeped out messily between his fingers.</p>
 
-<p>"It doesn't seem like your period... were you wearing this since you were at home? Why~?"</p>
+<p>"It doesn't seem like your period... were you wearing this since you were at home? Why?"</p>
 
 <p>Shiwoo whispered to Mom with a deep, certain smirk.</p>
 
@@ -96,7 +96,7 @@ chapter = 762
 
 <p>Shiwoo spoke the initials of Mom's name clearly.</p>
 
-<p>"Since we're going to the tattoo shop today anyway, I thought I might get one carved into my thigh~"</p>
+<p>"Since we're going to the tattoo shop today anyway, I thought I might get one carved into my thigh"</p>
 
 <p>Shiwoo said as he scraped Mom's lower lip with his fingernail. As if imitating Mom's hand movement as she scraped the crevice behind his glans...</p>
 

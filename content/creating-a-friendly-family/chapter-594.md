@@ -8,25 +8,25 @@ chapter = 594
 
 <p>Mom was silent for a while, then spoke to Shiwoo as if complaining, as if she had painstakingly pieced together the text message.</p>
 
-<p>,It seems to be working properly, right~?」</p>
+<p>,It seems to be working properly, right?」</p>
 
 <p>Shiwoo nonchalantly said to Mom, who was troubled and complaining, as if confirming that the vibrator was working.</p>
 
-<p>,How am I supposed to walk around like this, Mom, huh~!」</p>
+<p>,How am I supposed to walk around like this, Mom, huh!」</p>
 
 <p>Mom spoke to Shiwoo as if whining.</p>
 
 <p>,Why? You were doing just fine and walking around last night, weren't you? Don't you remember?」</p>
 
-<p>,Even then, you were just wearing a cardigan over it, weren't you~? hehe」</p>
+<p>,Even then, you were just wearing a cardigan over it, weren't you? hehe」</p>
 
 <p>Shiwoo recalled the memories of yesterday and spoke nonchalantly in a playful tone.</p>
 
-<p>,But last night was at night~ How am I supposed to do this during the day when so many people are passing by!?」</p>
+<p>,But last night was at night How am I supposed to do this during the day when so many people are passing by!?」</p>
 
 <p>Mom was sending Shiwoo a text message, making typos as if expressing her desperation.</p>
 
-<p>,Ah~ It was okay yesterday because it was nighttime with no people around, but how am I supposed to do this during the day when so many people are passing by?」</p>
+<p>,Ah It was okay yesterday because it was nighttime with no people around, but how am I supposed to do this during the day when so many people are passing by?」</p>
 
 <p>Shiwoo mimicked Mom's words as if interpreting them correctly, and spoke teasingly.</p>
 
@@ -34,7 +34,7 @@ chapter = 594
 
 <p>Mom answered as if she was slightly upset by Shiwoo's teasing tone, sounding a bit agitated.</p>
 
-<p>,But Sua and Seyoung were walking around the department store like that during the day too, weren't they? You should stop exaggerating~ How can you be a Mom and not be able to do what the kids can do?」</p>
+<p>,But Sua and Seyoung were walking around the department store like that during the day too, weren't they? You should stop exaggerating How can you be a Mom and not be able to do what the kids can do?」</p>
 
 <p>Shiwoo didn't care about Mom's attitude and mischievously retorted as if scolding her, comparing her to Sua and Seyoung.</p>
 
@@ -46,7 +46,7 @@ chapter = 594
 
 <p>This time, the typos had disappeared from Mom's text, as if she had carefully and deliberately typed the message.</p>
 
-<p>,I'll think about cutting you some slack~ But you said it's sensitive? Why~? What happened?」</p>
+<p>,I'll think about cutting you some slack But you said it's sensitive? Why? What happened?」</p>
 
 <p>Shiwoo nonchalantly latched onto Mom's words and asked.</p>
 
@@ -56,7 +56,7 @@ chapter = 594
 
 <p>Mom spoke as if complaining, feeling sad and wronged.</p>
 
-<p>,Just keep it on until I finish masturbating. I'll turn off the vibrator right away after I cum~」</p>
+<p>,Just keep it on until I finish masturbating. I'll turn off the vibrator right away after I cum」</p>
 
 <p>,Just think of it as being punished for speaking informally to me in the group chat room earlier!」</p>
 
@@ -130,7 +130,7 @@ chapter = 594
 
 <p>Mom spoke to Shiwoo, who was impatiently asking, as if she was slightly annoyed.</p>
 
-<p>,Okay~ I'll slowly shake my cock until you send the picture, so hurry up and take it and send it to me!」</p>
+<p>,Okay I'll slowly shake my cock until you send the picture, so hurry up and take it and send it to me!」</p>
 
 <p>Shiwoo spoke as if granting Mom a little time.</p>
 

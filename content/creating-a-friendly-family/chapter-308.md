@@ -4,7 +4,7 @@ weight = 308
 [extra]
 chapter = 308
 +++
-<p>"Heeuk... Yes... Yes... From now on, I'll widen it... Master-nim~. I'll try to make it so you can insert Master-nim's thing... Heeuk... Heut..."</p>
+<p>"Heeuk... Yes... Yes... From now on, I'll widen it... Master-nim. I'll try to make it so you can insert Master-nim's thing... Heeuk... Heut..."</p>
 
 <p>Despite Shiwoo's harsh words and the sadistic acts that painfully assaulted her body, Seonju Imo was still answering Shiwoo politely as a submissive slave.</p>
 
@@ -24,7 +24,7 @@ chapter = 308
 
 <p>As if his anger had reached the top of his head, Shiwoo was shouting loudly, pouring out the anger and curses that had been building up on Seonju Imo.</p>
 
-<p>"Haaheuk... Yes... Yes...! I... I'll only do what you... what you tell me to do... I'm sorry for... for being presumptuous... Please forgive me... Master-nim~ Hiiing~!!"</p>
+<p>"Haaheuk... Yes... Yes...! I... I'll only do what you... what you tell me to do... I'm sorry for... for being presumptuous... Please forgive me... Master-nim Hiiing!!"</p>
 
 <p>Seonju Imo, with a pitiful and pathetic voice that has lost its composure, is offering words of apology to Shiwoo.</p>
 
@@ -34,7 +34,7 @@ chapter = 308
 
 <p>Ssuk-keok! Ssuk-keok! Ssuk-keok!</p>
 
-<p>"Haa-eung~ Haa-aang~! Haaheut!~"</p>
+<p>"Haa-eung Haa-aang! Haaheut!"</p>
 
 <p>The sound of wet flesh rubbing together, as his penis is forced into her hole...</p>
 
@@ -46,7 +46,7 @@ chapter = 308
 
 <p>Peok! Peo-peok! Peok! Peok!</p>
 
-<p>"Haaheut! Haaat~! Master-nim! Master-nim~! I... I feel like I'm going crazy right now... Hee-eung... Haa-eung... Haa-aang~"</p>
+<p>"Haaheut! Haaat! Master-nim! Master-nim! I... I feel like I'm going crazy right now... Hee-eung... Haa-eung... Haa-aang"</p>
 
 <p>With Shiwoo's intense pounding continuing for a while, Seonju Imo moans, calling out to Shiwoo as if she has lost her mind.</p>
 
@@ -66,7 +66,7 @@ chapter = 308
 
 <p>Shiwoo hits Seonju Imo's buttocks for no reason.</p>
 
-<p>"Haa-euuueung~! Yo... Yonseo... Hae juseyeo~"</p>
+<p>"Haa-euuueung! Yo... Yonseo... Hae juseyeo"</p>
 
 <p>Seonju Imo's voice, slurring her words as if sobbing, is coming out reflexively.</p>
 
@@ -90,7 +90,7 @@ chapter = 308
 
 <p>Shiwoo's long rod, which had been deeply buried in Seonju Imo's vagina hole to its root, was changing the shape of the vagina hole pierced inside her, changing the angle.</p>
 
-<p>"Haaheuheuk~! Haa-euuek! Haa-aak~! Hak! Haaheuk!"</p>
+<p>"Haaheuheuk! Haa-euuek! Haa-aak! Hak! Haaheuk!"</p>
 
 <p>Painful moans burst out from Seonju Imo's mouth like a flood.</p>
 
@@ -98,7 +98,7 @@ chapter = 308
 
 <p>And with his other hand, he grabs her breast in his hand and squeezes it as if wringing it out.</p>
 
-<p>"Heueuuueuk~!"</p>
+<p>"Heueuuueuk!"</p>
 
 <p>Seonju Imo is immediately expressing the reactions of her body, which has become sensitive to all of Shiwoo's actions.</p>
 
@@ -108,7 +108,7 @@ chapter = 308
 
 <p>Shiwoo's penis is fiercely thrust into Seonju Imo's vagina hole as if it will completely burst it open.</p>
 
-<p>"Hak! Haaak~! Hageuk! Haaat~! Haa-eung!! Heueak!"</p>
+<p>"Hak! Haaak! Hageuk! Haaat! Haa-eung!! Heueak!"</p>
 
 <p>Seonju Imo's excited orgasmic scream, as if heading towards climax.</p>
 
@@ -120,7 +120,7 @@ chapter = 308
 
 <p>Shiwoo was really thrusting with the intention of getting Seonju Imo pregnant.</p>
 
-<p>"Master-nim! Master-nim~! Haa-eung~! Master-nim~!!"</p>
+<p>"Master-nim! Master-nim! Haa-eung! Master-nim!!"</p>
 
 <p>Seonju Imo is calling out to Master-nim repeatedly, as if responding to Shiwoo's order to get pregnant.</p>
 

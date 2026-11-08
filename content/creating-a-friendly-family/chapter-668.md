@@ -42,7 +42,7 @@ chapter = 668
 
 <p>For a while, Shiwoo sat there facing the complex truth, fitting his own puzzle together in his head. Tti-ring! At that moment, along with a text notification, Shiwoo's smartphone vibrated briefly. Shiwoo flinched as if startled and checked the smartphone in his hand. On Shiwoo's smartphone screen, a new message notification from 'Seonju Imo' was displayed.</p>
 
-<p>[Shiwoo-ya, I'm in front of the house~!]</p>
+<p>[Shiwoo-ya, I'm in front of the house!]</p>
 
 <p>Seonju Imo was informing Shiwoo of the fact that she had arrived at Shiwoo's house. Usually, pressing the bell would be faster...</p>
 
@@ -50,7 +50,7 @@ chapter = 668
 
 <p>Shiwoo closed the file folder, put it back in the drawer, and replied quickly to Seonju Imo.</p>
 
-<p>[Yeah~! But what should I do?]</p>
+<p>[Yeah! But what should I do?]</p>
 
 <p>Seonju Imo was suddenly asking as if seeking permission for something, without any explanation.</p>
 
@@ -74,7 +74,7 @@ chapter = 668
 
 <p>Shiwoo replied with a playful smile, as if teasing the troubled Seonju Imo. Previously, he would have certainly felt burdened and flustered by Seonju Imo's excessive favor or friendliness. However, in Shiwoo's attitude—having just roughly confirmed the structure and outline of the company—there was an inexplicable sense of composure and calm.</p>
 
-<p>[Hiiiiiing~!]</p>
+<p>[Hiiiiiing!]</p>
 
 <p>Seonju Imo immediately sent a text as if acting out a coquettish sound.</p>
 
@@ -82,6 +82,6 @@ chapter = 668
 
 <p>Shiwoo spoke firmly in a cynical tone, as if ignoring Seonju Imo's coquettish way of speaking and acting.</p>
 
-<p>[Hing~ Okay... I'll try to handle the clothes myself...] [Instead, you can't get mad at me or scold me for it! Got it-jjing~?]</p>
+<p>[Hing Okay... I'll try to handle the clothes myself...] [Instead, you can't get mad at me or scold me for it! Got it-jjing?]</p>
 
 <p>Seonju Imo sent a cautious reply as if she lacked confidence, adding a text in a cute, aegyo-filled tone telling him not to get mad or scold her. However, within that tone, there was a subtle nuance as if she were intentionally leaving an opening, perhaps even looking forward to being scolded.</p>

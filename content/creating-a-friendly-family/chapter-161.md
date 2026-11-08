@@ -38,7 +38,7 @@ chapter = 161
 
 <p>Shiwoo commanded Sehee Nuna in a soft but firm tone.</p>
 
-<p>"Haaaaa~"</p>
+<p>"Haaaaa"</p>
 
 <p>Sehee Nuna's chest swelled greatly and then fell. Sehee Nuna let out a long, deep sigh, as if anticipating the disturbing and embarrassing scenes that were about to unfold.</p>
 
@@ -50,7 +50,7 @@ chapter = 161
 
 <p>The scene Shiwoo had been imagining was slowly being completed. Sehee Nuna, pinned beneath, grabbed Seonju Imo's buttocks with both hands, and began her invasion, her tongue delving into Seonju Imo's wet, sensitive flesh.</p>
 
-<p>"Haa-eueuk~ Haa-eueueu~"</p>
+<p>"Haa-eueuk Haa-eueueu"</p>
 
 <p>Seonju Imo's moan, long and drawn out as if in regret. With the surging crotch stimulation, Seonju Imo's lips, which had been pressed against Sehee Nuna's intimate mound, pulled away. Seonju Imo's upper body, along with her head, was lifting as if convulsing. Seonju Imo, caught by Sehee Nuna, was receiving a unilateral attack, twisting her body in an unfree manner.</p>
 
@@ -60,7 +60,7 @@ chapter = 161
 
 <p>Then, finally, Sehee Nuna's slick, soft clitoris caught on Seonju Imo's warm, plump tongue.</p>
 
-<p>"Haa-aat! Heueu~ Heueuk!"</p>
+<p>"Haa-aat! Heueu Heueuk!"</p>
 
 <p>Sehee Nuna's tongue and lips, which had been sucking on Seonju Imo's crotch, detached from the intimate mound, letting out rough moaning sounds. The tables had turned, and Sehee Nuna, pinned beneath, twisted her body. Seonju Imo's persistent attack continued.</p>
 
@@ -68,7 +68,7 @@ chapter = 161
 
 <p>As if declaring his participation in their intimate struggle, Shiwoo placed his hand on Seonju Imo's buttocks and bent his waist to get into position. Shiwoo's extended tongue was touching the luscious cleavage of Seonju Imo's buttocks. Shiwoo's tongue rolled over the chrysanthemum-petal-like folds, then plunged into the narrowly indented anal cavity.</p>
 
-<p>"Haa-eueu~ Heueu-eung"</p>
+<p>"Haa-eueu Heueu-eung"</p>
 
 <p>From Seonju Imo's mouth, which had been sucking Sehee Nuna's clitoris, a moan of submission once again escaped.</p>
 
@@ -90,7 +90,7 @@ chapter = 161
 
 <p>Sehee Nuna leaned her head forward, inserting her tongue into the joined flesh between Shiwoo and Seonju Imo, licking upwards as if prying it open.</p>
 
-<p>"Haa-eueut~! Haa-aat!"</p>
+<p>"Haa-eueut! Haa-aat!"</p>
 
 <p>An exclamation escaping Seonju Imo's mouth.</p>
 

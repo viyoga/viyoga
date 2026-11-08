@@ -38,7 +38,7 @@ chapter = 26
 
 <p>She was indirectly talking about it because she was embarrassed to say it directly in front of Shiwoo, and she was upset by Seonju Imo's attitude, which seemed to be teasing Mom while knowing that.</p>
 
-<p>"Then we can just ask Shiwoo~?"</p>
+<p>"Then we can just ask Shiwoo?"</p>
 
 <p>"What?"</p>
 
@@ -62,15 +62,15 @@ chapter = 26
 
 <p>Shiwoo was embarrassed by Seonju Imo's question, but he answered with the hope that his words might prevent the clothing situation at home from returning to what it was before, just like Mom had agreed to give Sehee Nuna her allowance back at Shiwoo's request(?).</p>
 
-<p>"See~!! Shiwoo also likes it, right?"</p>
+<p>"See!! Shiwoo also likes it, right?"</p>
 
 <p>Imo, seemingly satisfied with Shiwoo's answer, smiled brightly and said to Mom.</p>
 
-<p>"Haa~ This isn't a matter of liking or not!!"</p>
+<p>"Haa This isn't a matter of liking or not!!"</p>
 
 <p>Mom, despite Shiwoo's words, wanted to maintain the rules of the house until the end.</p>
 
-<p>"Ugh~ You're really stubborn~~!!"</p>
+<p>"Ugh You're really stubborn!!"</p>
 
 <p>Seonju Imo sighed and shook her head as if giving up, since Mom wouldn't listen even after all this.</p>
 
@@ -96,7 +96,7 @@ chapter = 26
 
 <p>Around 2 PM</p>
 
-<p>"Ugh~ My body feels stiff. Should I get a massage from Shiwoo for the first time in a while?"</p>
+<p>"Ugh My body feels stiff. Should I get a massage from Shiwoo for the first time in a while?"</p>
 
 <p>Seonju Imo, as the moms' chatter was almost ending, stood up, stretched her arms and legs, and looked at Shiwoo.</p>
 
@@ -104,15 +104,15 @@ chapter = 26
 
 <p>Mom, a little drunk, became harsh in her tone.</p>
 
-<p>"What fun is it to get a massage from Sua? It's nice to feel a man's touch once in a while at times like this, hehe, right Shiwoo~?!!"</p>
+<p>"What fun is it to get a massage from Sua? It's nice to feel a man's touch once in a while at times like this, hehe, right Shiwoo?!!"</p>
 
 <p>Imo, also drunk, made an ajumma-like joke and approached the living room sofa where Shiwoo was.</p>
 
-<p>"Ah, then I'll reserve the next turn~!"</p>
+<p>"Ah, then I'll reserve the next turn!"</p>
 
 <p>Gyuri Ajumma also naturally joined in.</p>
 
-<p>"Ugh~ Why are you like this too, Gyuri?"</p>
+<p>"Ugh Why are you like this too, Gyuri?"</p>
 
 <p>Mom shook her head and drank more alcohol.</p>
 
@@ -128,7 +128,7 @@ chapter = 26
 
 <p>Imo was playfully teasing Mom as if she was drunk and being mean.</p>
 
-<p>"Hey, stop it moderately~ I'm really going to get angry?!"</p>
+<p>"Hey, stop it moderately I'm really going to get angry?!"</p>
 
 <p>Mom seriously tried to stop Imo.</p>
 

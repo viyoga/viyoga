@@ -32,11 +32,11 @@ chapter = 795
 
 <p>Mom addressed Shiwoo awkwardly, her gaze lowered as if the shock of the video she just saw hadn't faded yet. Shiwoo set the mug down on the table in front of Mom, who was looking at him with trembling eyes.</p>
 
-<p>"What do you mean 'you're back'? You saw everything just now~!"</p>
+<p>"What do you mean 'you're back'? You saw everything just now!"</p>
 
 <p>Shiwoo said to her as he sat down, his eyes fixed on Mom's arm hidden behind her back. Mom swallowed hard, hesitating as she looked down at the cafe latte mug with the straw sticking out.</p>
 
-<p>"Go on~ stir it well and drink up~ This way, you don't have to worry about getting caught and you can drink it at your leisure, so it's fine, right?"</p>
+<p>"Go on stir it well and drink up This way, you don't have to worry about getting caught and you can drink it at your leisure, so it's fine, right?"</p>
 
 <p>Shiwoo watched Mom's reaction, a smirk playing on his lips. Mom stared blankly at the mug for a moment, then relaxed her expression as if she had no choice, leaning forward slightly to smell the drink. At the faint scent of cum rising from the cup, Mom flinched again and quickly covered the mug with her hand. It was a scent one could only notice by smelling closely, but it was enough to stimulate the senses of a mother who had already grown accustomed to her son's traces.</p>
 
@@ -44,7 +44,7 @@ chapter = 795
 
 <p>Mom let out a sigh of disbelief, looking resentfully at the mug containing her son's bizarre prank. However, her trembling fingertips were already gripping the cup tightly, as if submitting to Shiwoo's command.</p>
 
-<p>"Of course I'm not tired of it~ If I had my way, I'd want to ejaculate into Mom's mouth every morning when we wake up~"</p>
+<p>"Of course I'm not tired of it If I had my way, I'd want to ejaculate into Mom's mouth every morning when we wake up"</p>
 
 <p>"But now that I think about it, we're sharing the same room from now on, so we'll be waking up together anyway, right?"</p>
 
@@ -56,17 +56,17 @@ chapter = 795
 
 <p>Mom tried to protest with a face full of grievance, but her voice only withered away weakly under Shiwoo's gaze.</p>
 
-<p>"Let's just 'agree' that you're my wife until the moment you wake me up with a blowjob~ Hehe." Shiwoo spoke in a relaxed manner, as if teasing Mom.</p>
+<p>"Let's just 'agree' that you're my wife until the moment you wake me up with a blowjob Hehe." Shiwoo spoke in a relaxed manner, as if teasing Mom.</p>
 
 <p>Mom looked at Shiwoo with an expression mixed with shame and embarrassment.</p>
 
 <p>"While we're at it, how about you keep the cum I shot in your mouth, and then go to Seyoung and Sehee's rooms to wake them up and share a sip with each of them? I think I'd be able to start my day feeling great if you did that."</p>
 
-<p>"When we tell Sehee and Seyoung about us being a couple in the evening, we can mention that too~! That you'll do exactly that when we wake up and then go back to being Mom~"</p>
+<p>"When we tell Sehee and Seyoung about us being a couple in the evening, we can mention that too! That you'll do exactly that when we wake up and then go back to being Mom"</p>
 
 <p>Shiwoo smiled erotically, adding specific instructions as if enjoying the situation where his fantasies were becoming reality.</p>
 
-<p>"Ugh~! Enough is enough~ Do you think about nothing but that all day? Think about how Mom feels for once!"</p>
+<p>"Ugh! Enough is enough Do you think about nothing but that all day? Think about how Mom feels for once!"</p>
 
 <p>"You said we'd have a formal wedding and go on a honeymoon, right? Do you really want to torment the person who's going to be your wife like this?!"</p>
 
@@ -74,11 +74,11 @@ chapter = 795
 
 <p>Mom vented her frustrations at length, yet she spoke as if it were natural for Shiwoo to date or meet other women. Furthermore, by uttering the words 'person who's going to be your wife' herself, she spoke as if she were unconsciously acknowledging her relationship with Shiwoo.</p>
 
-<p>"I only do this because you're Mom~ Why would I make women who would run away after this much do such things?"</p>
+<p>"I only do this because you're Mom Why would I make women who would run away after this much do such things?"</p>
 
 <p>Shiwoo spoke while looking into Mom's eyes, a satisfied smile on his face as if soaked in a strange sense of victory.</p>
 
-<p>"Well~ I think Sunju or Gyuri would do it without a word... But since Mom is my main wife, I can talk about this kind of thing comfortably~"</p>
+<p>"Well I think Sunju or Gyuri would do it without a word... But since Mom is my main wife, I can talk about this kind of thing comfortably"</p>
 
 <p>He was pressuring her even more explicitly, as if to confirm that Mom's rebellion had already become meaningless. Mom looked at Shiwoo in silence for a long time, her expression and gaze a complex mix of shame and resignation. Like a bitch waiting for a signal of permission, her shoulders and breasts heaved with heavy breaths.... Shiwoo was already certain that Mom had no intention of refusing his demand.</p>
 

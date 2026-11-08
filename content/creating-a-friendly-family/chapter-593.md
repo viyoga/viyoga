@@ -124,7 +124,7 @@ chapter = 593
 
 <p>Just by looking at the thumbnail of the video Shiwoo sent, she should have been able to fully tell what kind of video it was...</p>
 
-<p>「Yeah, I just arrived~ I'm texting you right now from Sejin's officetel bathroom.」</p>
+<p>「Yeah, I just arrived I'm texting you right now from Sejin's officetel bathroom.」</p>
 
 <p>At Mom's calm reaction, Shiwoo also stopped masturbating and replied casually via text.</p>
 
@@ -148,7 +148,7 @@ chapter = 593
 
 <p>Mom was asking Shiwoo as if she found it curious.</p>
 
-<p>「Yeah~ When I told her I was almost at the officetel over the phone, she told me right away?」</p>
+<p>「Yeah When I told her I was almost at the officetel over the phone, she told me right away?」</p>
 
 <p>Shiwoo, feeling a little smug, spoke to Mom as if boasting.</p>
 
@@ -178,7 +178,7 @@ chapter = 593
 
 <p>Mom spoke as if Shiwoo's question was annoying.</p>
 
-<p>「Just curious about what state you're in right now~ hehehe」</p>
+<p>「Just curious about what state you're in right now hehehe」</p>
 
 <p>Shiwoo chuckled awkwardly, reacting to Mom's curt tone.</p>
 
@@ -188,7 +188,7 @@ chapter = 593
 
 <p>Shiwoo found Mom's attitude, sending a text telling him to be gentle, convinced that he and Sejin Nuna would have sex, yet fretting that her son's masturbation might be discovered by her daughter, somehow both cute and amusing.</p>
 
-<p>「Ah~ I'm going to cum on Sejin Nuna's discarded panties~! I thought I could cum faster if I talked to Mom, so I was checking what you were doing right now~ Talking about these things with Mom makes me feel so strangely good~ hehe」</p>
+<p>「Ah I'm going to cum on Sejin Nuna's discarded panties! I thought I could cum faster if I talked to Mom, so I was checking what you were doing right now Talking about these things with Mom makes me feel so strangely good hehe」</p>
 
 <p>Shiwoo, pleased that he could naturally discuss his masturbation with Mom, spoke as if conveying his heartfelt feelings.</p>
 

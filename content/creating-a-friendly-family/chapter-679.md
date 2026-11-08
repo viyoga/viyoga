@@ -128,7 +128,7 @@ chapter = 679
 
 <p>Shiwoo commanded Seyoung to tidy up, as if trying to end the dinner time in a hurry.</p>
 
-<p>"Got it~! I'll clean up here! Shiwoo Oppa, are you going to talk more with Seonju?"</p>
+<p>"Got it! I'll clean up here! Shiwoo Oppa, are you going to talk more with Seonju?"</p>
 
 <p>Seyoung asked, sounding worried about Aunt Seonju after answering Shiwoo's command.</p>
 

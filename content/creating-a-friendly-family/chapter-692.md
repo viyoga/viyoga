@@ -84,7 +84,7 @@ chapter = 692
 
 <p>Beyond that tone, a sense of embarrassment and suchisim that she didn't want to be discovered was visible.</p>
 
-<p>[It matters~! From now on, the mindset itself will be different whether we're talking as mother and son or having sex in a master-slave relationship! hehe.]</p>
+<p>[It matters! From now on, the mindset itself will be different whether we're talking as mother and son or having sex in a master-slave relationship! hehe.]</p>
 
 <p>While acting playful on purpose, Shiwoo sends the message, pressing each word clearly to convey a message that is by no means light.</p>
 
@@ -106,7 +106,7 @@ chapter = 692
 
 <p>Mom spits out harsh words she wouldn't normally use, as if venting her pent-up anger and suchisim all at once.</p>
 
-<p>[hehehe, I guess you've come to understand that well now~? But I think it's also a bit of a problem that you react so fussily even though you know. You're going to do it anyway!]</p>
+<p>[hehehe, I guess you've come to understand that well now? But I think it's also a bit of a problem that you react so fussily even though you know. You're going to do it anyway!]</p>
 
 <p>[And even when we do it, I need to know exactly if you're a slave acting like a mom or a mom acting like a slave in front of me, so I can match that and enjoy myself, right? Isn't that so?]</p>
 
@@ -144,9 +144,9 @@ chapter = 692
 
 <p>Mom sends a message as if flaring up, but within that rebuttal pressed too quickly, there is a surge of hidden suchisim and complex emotions bursting out all at once.</p>
 
-<p>[If it's really hard, try using a 'safe word'~ You know it, right? Our family safe word! hehe. Have I ever not stopped even once when Mom used the safe word?]</p>
+<p>[If it's really hard, try using a 'safe word' You know it, right? Our family safe word! hehe. Have I ever not stopped even once when Mom used the safe word?]</p>
 
-<p>Shiwoo writes a message as if brazenly provoking Mom~</p>
+<p>Shiwoo writes a message as if brazenly provoking Mom</p>
 
 <p>Mom is silent for a moment, seemingly flustered by Shiwoo's suggestion to use a safe word if it's truly difficult.</p>
 
@@ -154,17 +154,17 @@ chapter = 692
 
 <p>Mom asks, reacting belatedly to Shiwoo's provocation.</p>
 
-<p>[See~ you say you're going to die or go crazy, but in the end, isn't this exactly the right amount for Mom? kkeuk kkeuk kkeuk.]</p>
+<p>[See you say you're going to die or go crazy, but in the end, isn't this exactly the right amount for Mom? kkeuk kkeuk kkeuk.]</p>
 
 <p>[The level where you feel like you're going to die but don't... and the level where you feel like you're going to go crazy but don't quite? That's exactly what fits Mom's disposition, isn't it?]</p>
 
 <p>Shiwoo speaks as if teasing Mom.</p>
 
-<p>[Ugh~ I should have just stopped talking to this wench of a son from the start!]</p>
+<p>[Ugh I should have just stopped talking to this wench of a son from the start!]</p>
 
 <p>Mom writes a message to Shiwoo that is tinged with resignation.</p>
 
-<p>[hehe, hurry up, get sorted, and come out~ Take all your clothes off! Seyoung and I are waiting!]</p>
+<p>[hehe, hurry up, get sorted, and come out Take all your clothes off! Seyoung and I are waiting!]</p>
 
 <p>Through the conversation with Mom, Shiwoo speaks to her, feeling intoxicated by a small sense of victory.</p>
 

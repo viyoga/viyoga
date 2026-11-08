@@ -6,7 +6,7 @@ chapter = 711
 +++
 <p>Seyoung stood up from the floor where she had been sitting on her knees.</p>
 
-<p>"Then I'll go down to the first floor first~ Shiwoo-oppa, you wash up quickly and come down too, okay~? Hehe~"</p>
+<p>"Then I'll go down to the first floor first Shiwoo-oppa, you wash up quickly and come down too, okay? Hehe"</p>
 
 <p>Seyoung spoke to Shiwoo with a triumphant smile, as if she had successfully completed a special mission.</p>
 
@@ -26,7 +26,7 @@ chapter = 711
 
 <p>Shiwoo flinched, reacting as if flustered by Seyoung's sudden threat and touch.</p>
 
-<p>"Kuhut! See you downstairs in a bit then~!"</p>
+<p>"Kuhut! See you downstairs in a bit then!"</p>
 
 <p>Seyoung let out a snort as if amused and then left the room.</p>
 
@@ -118,11 +118,11 @@ chapter = 711
 
 <p>Shiwoo passed the dressing room and approached the kitchen.</p>
 
-<p>"Oh my~ Shiwoo, you're up~? Welcome~!"</p>
+<p>"Oh my Shiwoo, you're up? Welcome!"</p>
 
 <p>Seonju-imo, who was sitting in a dining chair, was the first to greet Shiwoo with a smile as he came down from the second floor.</p>
 
-<p>"Yeah. Seonju-imo~ Did you sleep well with Sua yesterday?"</p>
+<p>"Yeah. Seonju-imo Did you sleep well with Sua yesterday?"</p>
 
 <p>Shiwoo raised the hand holding his smartphone and gave a light greeting to Seonju-imo and Sua.</p>
 
@@ -132,17 +132,17 @@ chapter = 711
 
 <p>Not only Seonju-imo but the rest of the family were all neatly dressed as usual.</p>
 
-<p>"Thanks to you, I slept well~ Huhut! But Shiwoo, didn't you not sleep well? I felt like I kept hearing noises until dawn~?"</p>
+<p>"Thanks to you, I slept well Huhut! But Shiwoo, didn't you not sleep well? I felt like I kept hearing noises until dawn?"</p>
 
 <p>Seonju-imo asked Shiwoo with a playful smile, subtly bringing up last night's story.</p>
 
-<p>"Ah~ I was awake until late~ but thanks to Seonju-imo and Sua, I ended up sleeping well too~ I guess~"</p>
+<p>"Ah I was awake until late but thanks to Seonju-imo and Sua, I ended up sleeping well too I guess"</p>
 
 <p>Shiwoo spoke nonchalantly, turning the atmosphere light like a pointless joke.</p>
 
 <p>Sua, with a flushed face, kept her head down and was shoveling the rice in front of her with a spoon.</p>
 
-<p>"You should have let our Shiwoo sleep a bit more since he must be tired. Eonni, what's the big deal about breakfast! We could just buy bread or gimbap~!"</p>
+<p>"You should have let our Shiwoo sleep a bit more since he must be tired. Eonni, what's the big deal about breakfast! We could just buy bread or gimbap!"</p>
 
 <p>Seonju-imo gradually raised her voice, glancing around with an exaggerated intonation as if for Mom to hear.</p>
 
@@ -166,14 +166,14 @@ chapter = 711
 
 <p>Mom, perhaps embarrassed by Shiwoo's gaze as he stood still and stared at her, began to nag Seyoung, something she would never normally do.</p>
 
-<p>"Heeing~~ I went up earlier and really worked hard to wake Shiwoo-oppa up~!"</p>
+<p>"Heeing I went up earlier and really worked hard to wake Shiwoo-oppa up!"</p>
 
 <p>Seyoung said as if protesting to Mom, pouting her lips as if it were unfair.</p>
 
-<p>"That's right~ Seyoung went up and down to the second floor twice with such difficulty~ Eonni, isn't it a bit too much to say that~?"</p>
+<p>"That's right Seyoung went up and down to the second floor twice with such difficulty Eonni, isn't it a bit too much to say that?"</p>
 
 <p>Seonju-imo cut in with a playful tone, teasing Mom as if poking at her words.</p>
 
-<p>"Exactly~ If you're that dissatisfied, from tomorrow, don't make Seyoung do it and Mom, you go up and wake Shiwoo yourself~"</p>
+<p>"Exactly If you're that dissatisfied, from tomorrow, don't make Seyoung do it and Mom, you go up and wake Shiwoo yourself"</p>
 
 <p>Even Sehee-nuna chimed in with a playful tone, defending Seyoung and pushing Mom as if they were on the same side.</p>

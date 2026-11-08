@@ -32,7 +32,7 @@ chapter = 713
 
 <p>Then, Seyoung approached the spot where Mom was sitting once again.</p>
 
-<p>"Thanks for always making us food even though you must be tired, Mom~"</p>
+<p>"Thanks for always making us food even though you must be tired, Mom"</p>
 
 <p>Suddenly, Seyoung wrapped her arms around Mom from behind in a tight hug.</p>
 
@@ -78,7 +78,7 @@ chapter = 713
 
 <p>Sehee-nuna spoke in a low, murmuring tone as she nonchalantly rinsed the dishes and utensils that Mom had scrubbed into a lather with a sponge.</p>
 
-<p>"Haaaaa~"</p>
+<p>"Haaaaa"</p>
 
 <p>Mom seemed to contemplate for a moment before letting out a short sigh.</p>
 
@@ -120,7 +120,7 @@ chapter = 713
 
 <p class="scene-break">· · ·</p>
 
-<p>"Finish cleaning the rest of that up and come to the master bedroom... I'll disinfect it and apply medicine for you~!"</p>
+<p>"Finish cleaning the rest of that up and come to the master bedroom... I'll disinfect it and apply medicine for you!"</p>
 
 <p>As the breakfast dishes were nearing completion, Sehee-nuna spoke to Mom while wiping her hands on a towel hanging next to the sink.</p>
 

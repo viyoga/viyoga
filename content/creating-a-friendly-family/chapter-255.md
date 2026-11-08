@@ -50,15 +50,15 @@ chapter = 255
 
 <p>Shiwoo pushes his hips forward, attempting a second penetration.</p>
 
-<p>-Jjugeoeok~!</p>
+<p>-Jjugeoeok!</p>
 
 <p>The flesh of Mom's vagina hole splits open, and Shiwoo's condom-covered penis is sucked into her vagina hole with a thick, liquid friction sound.</p>
 
-<p>"Haaeeuuut~!"</p>
+<p>"Haaeeuuut!"</p>
 
 <p>Mom lets out an impatient moaning sound like a sigh as Shiwoo's pillar of fire enters her body once again.</p>
 
-<p>-Ssukeok~! Ssukeok~! Ssukeok~!</p>
+<p>-Ssukeok! Ssukeok! Ssukeok!</p>
 
 <p>Shiwoo grabs Mom's waist and thrusts his penis deeply, as if ramming it in, so that the tip of his glans can touch the entrance of her womb.</p>
 
@@ -80,13 +80,13 @@ chapter = 255
 
 <p>Then, there was a timing when the strength in Mom's vaginal flesh gave out powerlessly.</p>
 
-<p>-Ssupeok~!!!</p>
+<p>-Ssupeok!!!</p>
 
 <p>Shiwoo gives strength to the hand holding Mom's pelvis and the waist that is moving, ramming the root of his pillar into Mom's hole.</p>
 
 <p>The flesh and bone near the root collide with Mom's crotch, and the massive penis pillar is planted into Mom's body as if it will pierce through her vagina hole.</p>
 
-<p>"Haeueueuk~!!"</p>
+<p>"Haeueueuk!!"</p>
 
 <p>Mom's body arches backward, and she lets out a scream-like moan.</p>
 
@@ -106,7 +106,7 @@ chapter = 255
 
 <p>The twitching and lingering tremors continue for a while, then soon begin to subside along with Mom's moaning sound.</p>
 
-<p>"Haaa~~haaa~~haaa~~"</p>
+<p>"Haaahaaahaaa"</p>
 
 <p>Only Mom's rough breathing was heard echoing in the room.</p>
 
@@ -144,7 +144,7 @@ chapter = 255
 
 <p>Shiwoo pulls his pelvis back and then gives a strong force, momentarily and deeply plunging his heavily erected penis into the inside of Mom's hole.</p>
 
-<p>"Haeung~!"</p>
+<p>"Haeung!"</p>
 
 <p>Mom's vagina hole, where Shiwoo's massive penis was planted to the root, convulsed as if churning.</p>
 
@@ -164,7 +164,7 @@ chapter = 255
 
 <p>A cracking sound that burst out instantaneously.</p>
 
-<p>"Haeut~!"</p>
+<p>"Haeut!"</p>
 
 <p>Mom's sweet moan.</p>
 
@@ -184,11 +184,11 @@ chapter = 255
 
 <p>Mom once again reaches her hand out over the bedside table and carefully pulls out a tissue from the tissue box.</p>
 
-<p>-Chalssak~!!!</p>
+<p>-Chalssak!!!</p>
 
 <p>Again, a loud cracking sound that is bursting out briefly and intensely, to the point where her head is flashing.</p>
 
-<p>"Haeueueung~! Heueueueuk~! Heueuk heuk...heueueuk..."</p>
+<p>"Haeueueung! Heueueueuk! Heueuk heuk...heueueuk..."</p>
 
 <p>Mom is now moaning as if she is sobbing.</p>
 
@@ -196,9 +196,9 @@ chapter = 255
 
 <p>Mom lies her upper body down sideways again, lying in the same state as before, facing Seyoung.</p>
 
-<p>"Didn't I tell you this evening~!? Tonight, I'm planning to make you eat all the cum I shoot out, Seonmi~!"</p>
+<p>"Didn't I tell you this evening!? Tonight, I'm planning to make you eat all the cum I shoot out, Seonmi!"</p>
 
-<p>-Jjigeok! Jjigeok! Jjigeok~!</p>
+<p>-Jjigeok! Jjigeok! Jjigeok!</p>
 
 <p>Shiwoo is still moving his penis that is inside Mom's body back and forth gently as he speaks.</p>
 
@@ -208,7 +208,7 @@ chapter = 255
 
 <p>Shiwoo commanded Mom as her master.</p>
 
-<p>"Haeuueuuu~~haeueueue~~~"</p>
+<p>"Haeuueuuuhaeueueue"</p>
 
 <p>Mom takes a deep breath as if hesitating for a moment.</p>
 

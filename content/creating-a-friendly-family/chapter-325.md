@@ -28,7 +28,7 @@ chapter = 325
 
 <p>-Though it's questionable if it will actually work-</p>
 
-<p>"Yes...I won't...say anything about your clothes...heu-eut~"</p>
+<p>"Yes...I won't...say anything about your clothes...heu-eut"</p>
 
 <p>Mom, even after hearing Sehee's harsh words, answers with an attitude of complete submission.</p>
 
@@ -56,7 +56,7 @@ chapter = 325
 
 <p>Shiwoo minimizes the paused video screen and opens the chat window to send a text to Sehee.</p>
 
-<p>'Yeah~ I just filmed it and sent it~'</p>
+<p>'Yeah I just filmed it and sent it'</p>
 
 <p>This time, Sehee's text comes back immediately without delay.</p>
 
@@ -66,7 +66,7 @@ chapter = 325
 
 <p>Shiwoo, not particularly caring, asks Sehee as if confirming the current situation.</p>
 
-<p>'Yeah~ I educated Seonmi so she understands! You heard it, right?'</p>
+<p>'Yeah I educated Seonmi so she understands! You heard it, right?'</p>
 
 <p>Sehee says to Shiwoo, boasting triumphantly.</p>
 
@@ -82,7 +82,7 @@ chapter = 325
 
 <p>Sehee seems to have become able to say things like talk of education or punishment without any sense of discomfort.</p>
 
-<p>'Okay, we need to punish Seonmi~! But Sehee, you also have to take off your clothes and go up to the second floor from now on!'</p>
+<p>'Okay, we need to punish Seonmi! But Sehee, you also have to take off your clothes and go up to the second floor from now on!'</p>
 
 <p>Shiwoo pretends to agree with Sehee's words, but in the end, he also orders her to take off her clothes and live on the second floor.</p>
 
@@ -90,7 +90,7 @@ chapter = 325
 
 <p>Sehee asks Shiwoo, sounding puzzled that he is giving her, as well as Mom, the order to take off her clothes and go upstairs.</p>
 
-<p>'It's true that we need to punish Seonmi as you said~! But you also need to be punished, Sehee! Because you decided on your own and ordered Seonmi to do that without my permission.'</p>
+<p>'It's true that we need to punish Seonmi as you said! But you also need to be punished, Sehee! Because you decided on your own and ordered Seonmi to do that without my permission.'</p>
 
 <p>Shiwoo explains to Sehee why she needs to be punished the same way as Mom.</p>
 
@@ -100,7 +100,7 @@ chapter = 325
 
 <p>Shiwoo sends a text to Sehee, almost threatening her.</p>
 
-<p>'No, how can you do that now? Okay, I got it, I'll take off my clothes and go up to the second floor too~'</p>
+<p>'No, how can you do that now? Okay, I got it, I'll take off my clothes and go up to the second floor too'</p>
 
 <p>Sehee reads the text Shiwoo sent and answers as if she has resigned herself to it.</p>
 
@@ -110,7 +110,7 @@ chapter = 325
 
 <p>Shiwoo gives Sehee one last order.</p>
 
-<p>'Okay~! Should I tell her to check it now?'</p>
+<p>'Okay! Should I tell her to check it now?'</p>
 
 <p>Sehee's text sounds somehow a bit more docile.</p>
 
@@ -188,7 +188,7 @@ chapter = 325
 
 <p>Shiwoo releases his hands that were covering his younger sisters' buttocks, takes out the smartphone that had just rung from his pocket, and checks the screen.</p>
 
-<p>'Mom says she's embarrassed to ask me every time she wants to drink water, so she wants me to let her drink water on her own now~'</p>
+<p>'Mom says she's embarrassed to ask me every time she wants to drink water, so she wants me to let her drink water on her own now'</p>
 
 <p>The message was from Sehee.</p>
 

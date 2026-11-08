@@ -70,7 +70,7 @@ chapter = 398
 
 <p>Shiwoo brings the cross-body bag he's carrying right in front of his penis and approaches Mom with quick steps.</p>
 
-<p>「Mom, I'm here~!」</p>
+<p>「Mom, I'm here!」</p>
 
 <p>Shiwoo goes close to where Mom is standing and acts like he knows her.</p>
 
@@ -122,11 +122,11 @@ chapter = 398
 
 <p>Shiwoo decides to take it easy and follows behind Mom.</p>
 
-<p>「I was a little worried because you didn't reply~ I thought something had happened to Mom...」</p>
+<p>「I was a little worried because you didn't reply I thought something had happened to Mom...」</p>
 
-<p>「Or that you might have run away somewhere again without saying anything~ You did that before, didn't you?」</p>
+<p>「Or that you might have run away somewhere again without saying anything You did that before, didn't you?」</p>
 
-<p>「It's not even because of me this time~ Right?」</p>
+<p>「It's not even because of me this time Right?」</p>
 
 <p>Shiwoo continues to talk in a nonchalant and provocative way, keeping a step or two away from Mom.</p>
 

@@ -70,7 +70,7 @@ chapter = 717
 
 <p>Seonju-imo continued her words of apology and reflection toward Mom, twisting her waist and suppressing her moans.</p>
 
-<p>"N-now, during the day... heu-eu... I won't mess with Unni. P-please forgive me~ heut...!"</p>
+<p>"N-now, during the day... heu-eu... I won't mess with Unni. P-please forgive me heut...!"</p>
 
 <p>She barely managed to spit out the remaining words, her shoulders and fingertips trembling uncontrollably.</p>
 
@@ -178,7 +178,7 @@ chapter = 717
 
 <p>With her head and elbows on the floor, Seonju-imo barely managed to catch her breath as she offered her apology to Shiwoo.</p>
 
-<p>"Seonju, you're hopeless~ Lie flat on your back! I'm going to ram you today until the discharge bursts out!"</p>
+<p>"Seonju, you're hopeless Lie flat on your back! I'm going to ram you today until the discharge bursts out!"</p>
 
 <p>Shiwoo nudged Seonju-imo's buttocks, commanding her as if flaunting his domination over her.</p>
 

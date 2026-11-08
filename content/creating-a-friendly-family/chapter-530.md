@@ -140,7 +140,7 @@ chapter = 530
 
 <p>Shiwoo said to her, sweeping his penis against Seyoung's back and waist, speaking in a firm tone as if demanding restraint.</p>
 
-<p>"Yeah, I understand... rules are rules! ~Hehe~ But do we have to do that even when it's just Seonmi and me?"</p>
+<p>"Yeah, I understand... rules are rules! Hehe But do we have to do that even when it's just Seonmi and me?"</p>
 
 <p>Seyoung nodded at Shiwoo's words with an innocent smile, then immediately followed up with a question as if checking the new household rules.</p>
 
@@ -148,7 +148,7 @@ chapter = 530
 
 <p>Shiwoo spoke to Seyoung in a calm voice.</p>
 
-<p>"Hehe, okay~! But Seonmi! She has one more thing to get scolded by Oppa for today~"</p>
+<p>"Hehe, okay! But Seonmi! She has one more thing to get scolded by Oppa for today"</p>
 
 <p>After hearing Shiwoo's answer, Seyoung immediately spoke to him as if tattling.</p>
 

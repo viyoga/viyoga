@@ -132,7 +132,7 @@ chapter = 142
 
 <p>It seems that while the everyday relationship between mother and son is being maintained, their understanding of the master-slave relationship is also not a lie.</p>
 
-<p>,Huuu~,</p>
+<p>,Huuu,</p>
 
 <p>Mom's suppressed sigh can be heard through the smartphone receiver.</p>
 
@@ -140,7 +140,7 @@ chapter = 142
 
 <p>Shiwoo continues to speak, acting like a son after hearing Mom's pitiful sigh.</p>
 
-<p>,Because you're friends... It's okay to lend money and all... But you should at least ask Mom for permission before lending it~,</p>
+<p>,Because you're friends... It's okay to lend money and all... But you should at least ask Mom for permission before lending it,</p>
 
 <p>Mom's voice is trembling as she speaks.</p>
 
@@ -162,11 +162,11 @@ chapter = 142
 
 <p>Mom is laying out the usual nagging as if she really doesn't know anything.</p>
 
-<p>,Okay, Mom! I love you~!,</p>
+<p>,Okay, Mom! I love you!,</p>
 
 <p>Shiwoo becomes a well-behaved son and adds the words 'I love you' to his answer to Mom.</p>
 
-<p>,Uh... Mom too... Loves you. Mom's going to hang up now~ Call Mom right away if anything happens at home, okay?,</p>
+<p>,Uh... Mom too... Loves you. Mom's going to hang up now Call Mom right away if anything happens at home, okay?,</p>
 
 <p>Mom, as if avoiding Shiwoo's blatant expression, receives Shiwoo's words with a trembling voice and says her goodbyes.</p>
 
@@ -196,7 +196,7 @@ chapter = 142
 
 <p>Shiwoo casually throws out a word that would surprise Mom, as if teasing her mischievously.</p>
 
-<p>,Wh... What are you talking about~! Why would she act like she knows me?!,</p>
+<p>,Wh... What are you talking about! Why would she act like she knows me?!,</p>
 
 <p>Mom's voice rises, flaring up as if she's flustered.</p>
 
@@ -204,7 +204,7 @@ chapter = 142
 
 <p>Even though they know each other's secrets, it seems to be a difficult issue for Mom to share her relationship with her son Shiwoo with her own younger sister at the same time.</p>
 
-<p>,Haha. I'm just kidding, just kidding~ Why are you so surprised? You're really cute when you get angry, Mom. I think I know why Seonju Imo teases you like that~,</p>
+<p>,Haha. I'm just kidding, just kidding Why are you so surprised? You're really cute when you get angry, Mom. I think I know why Seonju Imo teases you like that,</p>
 
 <p>Shiwoo says, teasing Mom until the end, laughing playfully.</p>
 
@@ -218,7 +218,7 @@ chapter = 142
 
 <p>The expression on Mom's face as she licks Shiwoo's penis along with Seonju Imo, looking distressed, seems to be drawn in Shiwoo's mind.</p>
 
-<p>,I'm sorry, I'm sorry! I understand, I understand... Why are you getting so angry? I'm just kidding... Hehe... I understand, so... I'll call Mom right away if anything happens~ Calm down and get some rest now~,</p>
+<p>,I'm sorry, I'm sorry! I understand, I understand... Why are you getting so angry? I'm just kidding... Hehe... I understand, so... I'll call Mom right away if anything happens Calm down and get some rest now,</p>
 
 <p>Shiwoo soothes and coaxes Mom, exchanging a few more words like that, and then ends the call with Mom.</p>
 

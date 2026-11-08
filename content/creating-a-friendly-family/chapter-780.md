@@ -8,7 +8,7 @@ chapter = 780
 
 <p>「Haa... are you going to finish on Mom's face now? ...Looking at her state, it seems our Mom has already been completely conquered by Shiwoo, hasn't she?」</p>
 
-<p>「...So... Mom... are you happy right now~?」</p>
+<p>「...So... Mom... are you happy right now?」</p>
 
 <p>Sejin Nuna whispered in a voice as hot and sticky as honey, letting Mom hear the sounds of her own masturbation.</p>
 
@@ -26,7 +26,7 @@ chapter = 780
 
 <p>Mom was talking to Sejin Nuna as if asking about her daily life, acting as if the sex and climax from just a moment ago hadn't even happened.</p>
 
-<p>「Heh... A lot has happened... but yeah~~! I've been doing well... thanks to Mom...」</p>
+<p>「Heh... A lot has happened... but yeah! I've been doing well... thanks to Mom...」</p>
 
 <p>Sejin Nuna snorted at Mom's bizarre attempt at a normal conversation, yet she played along and spoke as if nothing were out of the ordinary.</p>
 
@@ -44,7 +44,7 @@ chapter = 780
 
 <p>Mom continued, an awkward smile on her face that betrayed the complex emotions in her furrowed brow.</p>
 
-<p>「Yeah... I'm going to the hospital Seonju-nim recommended~ They say Sae-a is growing healthy and strong!」</p>
+<p>「Yeah... I'm going to the hospital Seonju-nim recommended They say Sae-a is growing healthy and strong!」</p>
 
 <p>Sejin Nuna spoke to Mom while explicitly stroking her bulging belly and her breasts, which were swollen and tight with milk.</p>
 
@@ -64,7 +64,7 @@ chapter = 780
 
 <p>「It's like that sometimes... but it's not like I can't stand being alone... Since Aunt, my other aunts, and Seyoung come to see me occasionally...」</p>
 
-<p>「Why~? Does Mom want to be by my side to attend to me when I give birth? If you have to take care of me and Sae-a, you'll be suffering all over again just like when you raised us. Are you sure you're okay with that~?」</p>
+<p>「Why? Does Mom want to be by my side to attend to me when I give birth? If you have to take care of me and Sae-a, you'll be suffering all over again just like when you raised us. Are you sure you're okay with that?」</p>
 
 <p>Sejin Nuna spoke in a playful tone, as if testing Mom.</p>
 
@@ -74,9 +74,9 @@ chapter = 780
 
 <p>Her eyes, desperately trying to maintain composure after her climax, were already wet and out of focus.</p>
 
-<p>「If you're acting like that in front of Shiwoo, it'll be hard to see her as just a granddaughter, won't it~?」</p>
+<p>「If you're acting like that in front of Shiwoo, it'll be hard to see her as just a granddaughter, won't it?」</p>
 
-<p>「Or maybe not? Since Mom's specialty is doing something and then pretending she didn't, maybe it doesn't matter~? Huhuhu~.」</p>
+<p>「Or maybe not? Since Mom's specialty is doing something and then pretending she didn't, maybe it doesn't matter? Huhuhu.」</p>
 
 <p>Sejin Nuna spoke with a relaxed attitude, as if trying to provoke Mom's shame to the fullest.</p>
 
@@ -94,7 +94,7 @@ chapter = 780
 
 <p>Mom couldn't say a word back to Sejin Nuna; she just squeezed her eyes shut and breathed heavily, trying to ignore the wet friction sounds Shiwoo was making.</p>
 
-<p>「Well... looking at Mom's state now... I think it would be fine if I packed my bags and went back today~ Right, Shiwoo~? Huhuhu!」</p>
+<p>「Well... looking at Mom's state now... I think it would be fine if I packed my bags and went back today Right, Shiwoo? Huhuhu!」</p>
 
 <p>Sejin Nuna spoke to Shiwoo for no reason, mocking Mom as if she were nothing more than a submissive toy between the two of them.</p>
 
@@ -108,7 +108,7 @@ chapter = 780
 
 <p>Paradoxically, the deeper that misery became, the hotter Mom's breathing grew.</p>
 
-<p>「What are you sorry for~? It's all in the past! I told Shiwoo too... I don't resent Mom... because I think of it as Sae-a coming back to us...」</p>
+<p>「What are you sorry for? It's all in the past! I told Shiwoo too... I don't resent Mom... because I think of it as Sae-a coming back to us...」</p>
 
 <p>「So I hope Mom doesn't resent me for the past either... and don't blame yourself too much...」</p>
 
@@ -138,7 +138,7 @@ chapter = 780
 
 <p>Mom's body flinched slightly, as if she were sinking into an uncontrollable pit of shame.</p>
 
-<p>「And I don't think we need to define the relationship between people by just one label... whether it's mother and son, wife and husband... or slave and master... isn't that right~?... Seonmi-ya~?!」</p>
+<p>「And I don't think we need to define the relationship between people by just one label... whether it's mother and son, wife and husband... or slave and master... isn't that right?... Seonmi-ya?!」</p>
 
 <p>Sejin Nuna kept moving her glistening hand over the screen, casting a persistent gaze as if demanding an answer from Mom.</p>
 
@@ -156,7 +156,7 @@ chapter = 780
 
 <p>Then, Mom made a shape with her mouth, letting out a barely audible raspy sound... It was likely one of the titles used to address Sejin Nuna.</p>
 
-<p>「Good girl, our Seonmi~」</p>
+<p>「Good girl, our Seonmi」</p>
 
 <p>Sejin Nuna spoke with a languid smile, as if satisfied by Mom's miserable submission.</p>
 

@@ -4,7 +4,7 @@ weight = 445
 [extra]
 chapter = 445
 +++
-<p>"Okay~ Mom needs to go wash up, so let go now, Seyoung-a~!"</p>
+<p>"Okay Mom needs to go wash up, so let go now, Seyoung-a!"</p>
 
 <p>Shiwoo says, gripping Seyoung's hand covering Mom's buttocks.</p>
 
@@ -14,11 +14,11 @@ chapter = 445
 
 <p>A sobbing, gasping breath escapes Mom's lips.</p>
 
-<p>"Okay, Oppa~ I need to finish setting the dinner table while Mom's washing up too~ Hehe~"</p>
+<p>"Okay, Oppa I need to finish setting the dinner table while Mom's washing up too Hehe"</p>
 
 <p>Seyoung says, covering Mom's buttocks with Shiwoo, burying her face in Mom's chest.</p>
 
-<p>"Mom~ I get it, so let me go now! I put the soup on the gas stove and need to check on it~!"</p>
+<p>"Mom I get it, so let me go now! I put the soup on the gas stove and need to check on it!"</p>
 
 <p>Seyoung says to Mom, trying to subtly pull her head back from Mom's arm.</p>
 
@@ -30,7 +30,7 @@ chapter = 445
 
 <p>Mom says, loosening her grip on Seyoung's head that she had pulled to her chest.</p>
 
-<p>"It'll take about 20 more minutes to finish dinner, so Oppa, change your clothes and come down with Sehee unni~ Hehe"</p>
+<p>"It'll take about 20 more minutes to finish dinner, so Oppa, change your clothes and come down with Sehee unni Hehe"</p>
 
 <p>Seyoung says, wiggling her hand again, which is nestled between Shiwoo's hand and Mom's buttocks.</p>
 
@@ -82,7 +82,7 @@ chapter = 445
 
 <p>Shiwoo asks Seyoung in the kitchen, as if checking on the whereabouts of the vibrator charger.</p>
 
-<p>"Yeah, it's on my desk~ Should I find it and bring it to you, Shiwoo oppa?"</p>
+<p>"Yeah, it's on my desk Should I find it and bring it to you, Shiwoo oppa?"</p>
 
 <p>Seyoung says to Shiwoo with a bright voice and expression, wiping her wet hands on her apron.</p>
 
@@ -90,7 +90,7 @@ chapter = 445
 
 <p>Shiwoo feels a chilling, tingling current run down his spine again.</p>
 
-<p>"No, it's okay~ I'll go get it~ I think I know where it is. You keep doing what you're doing!"</p>
+<p>"No, it's okay I'll go get it I think I know where it is. You keep doing what you're doing!"</p>
 
 <p>Shiwoo answers Seyoung and heads straight to Seyoung's room.</p>
 
@@ -206,7 +206,7 @@ chapter = 445
 
 <p>Shiwoo was sure that Mom was angry about the molestation he committed against her when she was with Seyoung.</p>
 
-<p>[Huh~? What~? Did something happen?]</p>
+<p>[Huh? What? Did something happen?]</p>
 
 <p>Shiwoo, of course, thinks she's trying to scold him for touching her buttocks when Seyoung was there.</p>
 

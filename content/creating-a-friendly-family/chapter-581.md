@@ -10,7 +10,7 @@ chapter = 581
 
 <p>Shiwoo asks, as if unable to understand Cheoljin's words.</p>
 
-<p>"Ah~ You wouldn't know since I haven't told you about this either, right? It seems like up until Sejin Nuna, your family was also trying to educate the daughters like that. It seems they stopped for some reason in the middle..."</p>
+<p>"Ah You wouldn't know since I haven't told you about this either, right? It seems like up until Sejin Nuna, your family was also trying to educate the daughters like that. It seems they stopped for some reason in the middle..."</p>
 
 <p>"Seyoung is attending the magic academy right now, right? The magic academy was originally created for that purpose..."</p>
 
@@ -50,7 +50,7 @@ chapter = 581
 
 <p>Shiwoo shakes his head and sighs deeply, as if tired of Cheoljin's persistent teasing.</p>
 
-<p>"Hmm... Anyway~ We said goodbye and parted ways back then, right? I was thinking of going straight home and looking into things related to the meeting a bit more..."</p>
+<p>"Hmm... Anyway We said goodbye and parted ways back then, right? I was thinking of going straight home and looking into things related to the meeting a bit more..."</p>
 
 <p>Cheoljin, satisfied with Shiwoo's serious reaction, composes his voice again and continues to speak...</p>
 
@@ -72,7 +72,7 @@ chapter = 581
 
 <p>Shiwoo, hearing Cheoljin's story that Yu Yena Teacher had called him, widens his eyes as if he is surprised this time.</p>
 
-<p>"She asked if I could come back there alone because she had something to talk about? I said okay~"</p>
+<p>"She asked if I could come back there alone because she had something to talk about? I said okay"</p>
 
 <p>Cheoljin says, looking down on Shiwoo with a smile full of superiority.</p>
 

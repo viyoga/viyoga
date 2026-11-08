@@ -52,7 +52,7 @@ chapter = 249
 
 <p>Perhaps sensing her brother's presence, Seyoung took her lips off the nipple she had been sucking on and turned to look at Shiwoo.</p>
 
-<p>,Oh? Oppa~! What's up? You came down early today~? Hehe~ ,</p>
+<p>,Oh? Oppa! What's up? You came down early today? Hehe ,</p>
 
 <p>Seyoung raised her upper body, turned to look at Shiwoo, and spoke with a bright expression.</p>
 
@@ -64,7 +64,7 @@ chapter = 249
 
 <p>Seyoung didn't show any signs of being flustered or awkward even after seeing Shiwoo's almost completely naked body.</p>
 
-<p>,Thinking about it~ It seems better to come down and watch Seyoung sleep until she falls asleep and then move her, rather than waiting until Seyoung's bedtime~,</p>
+<p>,Thinking about it It seems better to come down and watch Seyoung sleep until she falls asleep and then move her, rather than waiting until Seyoung's bedtime,</p>
 
 <p>I was subtly rubbing the pillow that was covering my crotch up and down as I answered Seyoung's question.</p>
 
@@ -72,7 +72,7 @@ chapter = 249
 
 <p>Mom could easily imagine the state under the pillow that I was covering.</p>
 
-<p>,It's okay, right, Mom~?,</p>
+<p>,It's okay, right, Mom?,</p>
 
 <p>I asked Mom, who was wearing a stiff expression.</p>
 
@@ -80,17 +80,17 @@ chapter = 249
 
 <p>Mom raised her upper body as if nervous and answered while pulling the blanket with both hands to cover her breasts.</p>
 
-<p>,Oppa, but~ Why are you taking your clothes off? Are you going to shower later~?,</p>
+<p>,Oppa, but Why are you taking your clothes off? Are you going to shower later?,</p>
 
 <p>Seyoung was holding a pillow in her underwear and looking at Shiwoo, who was covering his crotch, and asking innocently.</p>
 
 <p>Seyoung didn't seem to feel any shame in showing her brother that she was sucking on Mom's breasts, nor did she seem to feel any shyness in seeing her brother's bare skin.</p>
 
-<p>,Ah~ I took them off in front of the room door~ I thought I would sweat after moving Seyoung anyway, so I did it in advance~! And now, regardless of showering, it's okay to walk around naked at night, right~?,</p>
+<p>,Ah I took them off in front of the room door I thought I would sweat after moving Seyoung anyway, so I did it in advance! And now, regardless of showering, it's okay to walk around naked at night, right?,</p>
 
 <p>I answered Seyoung's words and expressed my lewd wishes and expectations.</p>
 
-<p>,I like it~~! Hehe~ Mom also sleeps without even her underwear on these days~,</p>
+<p>,I like it! Hehe Mom also sleeps without even her underwear on these days,</p>
 
 <p>Seyoung was answering as if she was exposing Mom's depravity in front of Shiwoo.</p>
 
@@ -110,19 +110,19 @@ chapter = 249
 
 <p>Mom said, desperately trying to pull Seyoung away.</p>
 
-<p>,What's wrong with it~? It's not like I've only seen Seyoung sucking on Mom's breasts once or twice~~ If I come down early to pick up Seyoung every day, I'll see it more often in the future anyway~,</p>
+<p>,What's wrong with it? It's not like I've only seen Seyoung sucking on Mom's breasts once or twice If I come down early to pick up Seyoung every day, I'll see it more often in the future anyway,</p>
 
 <p>I spoke as if it was nothing, using the tone I usually used with Mom.</p>
 
 <p>Mom hesitated at Shiwoo's words, but soon stopped resisting and trying to pull Seyoung away, giving her breasts to Seyoung and letting her breastfeed.</p>
 
-<p>,Haa-eueut~! ,</p>
+<p>,Haa-eueut! ,</p>
 
 <p>As Seyoung strongly sucked on Mom's breasts, which seemed to have given up resisting, a moaning sound momentarily escaped from Mom's mouth.</p>
 
 <p>Shiwoo's thing was once again filled with strength.</p>
 
-<p>,Don't mind me and keep putting Seyoung to sleep~ I'll lie down next to Mom until Seyoung falls asleep~,</p>
+<p>,Don't mind me and keep putting Seyoung to sleep I'll lie down next to Mom until Seyoung falls asleep,</p>
 
 <p>I said that and made a space behind where Mom was lying on her side.</p>
 
@@ -142,7 +142,7 @@ chapter = 249
 
 <p>I placed the condom box and smartphone I was holding in my hand on the bedside table next to the pillow.</p>
 
-<p>,Mom~ Hurry up and lie down~! You and I have to sleep well all night after putting Seyoung to sleep~!? ,</p>
+<p>,Mom Hurry up and lie down! You and I have to sleep well all night after putting Seyoung to sleep!? ,</p>
 
 <p>I said, raising my upper body from inside the blanket and caressing Mom's bare side up and down.</p>
 
@@ -218,6 +218,6 @@ chapter = 249
 
 <p>The slippery vaginal fluid on my palm was spread on Mom's buttocks and side.</p>
 
-<p>,Haaaaaaa~,</p>
+<p>,Haaaaaaa,</p>
 
 <p>Mom heavily exhaled the breath she had been holding in once again.</p>

@@ -4,13 +4,13 @@ weight = 758
 [extra]
 chapter = 758
 +++
-<p>"Aigoo~! You kids are in your prime, full of energy! I'm at an age where I'm not what I used to be! You have to compare things that are comparable!"</p>
+<p>"Aigoo! You kids are in your prime, full of energy! I'm at an age where I'm not what I used to be! You have to compare things that are comparable!"</p>
 
 <p>Mom spoke in a grumbling tone, as if laying out excuses.</p>
 
-<p>"What's wrong with Mom's age? Gyuri, who's the same age as Mom, maintains her figure well by doing yoga every day, and Seonju lives so healthily because she works hard at the gym and swimming~?"</p>
+<p>"What's wrong with Mom's age? Gyuri, who's the same age as Mom, maintains her figure well by doing yoga every day, and Seonju lives so healthily because she works hard at the gym and swimming?"</p>
 
-<p>"Come to think of it, among the women I've slept with, Mom is the only one who doesn't exercise regularly, besides the pregnant Sejin~!"</p>
+<p>"Come to think of it, among the women I've slept with, Mom is the only one who doesn't exercise regularly, besides the pregnant Sejin!"</p>
 
 <p>Shiwoo used the examples of Gyuri Ajumma and Seonju Aunt to shut down Mom's excuses.</p>
 
@@ -20,21 +20,21 @@ chapter = 758
 
 <p>Mom couldn't immediately respond to Shiwoo's obsessive teasing and simply glared at him with a cold, resentful gaze.</p>
 
-<p>"Well~ seeing as you maintain a body like this anyway, your genes must be something special~"</p>
+<p>"Well seeing as you maintain a body like this anyway, your genes must be something special"</p>
 
-<p>"Seeing that Mom's body is firmer than Gyuri or Seonju who exercise every day, I guess it's not necessary to work out every goddamn day~ right~?"</p>
+<p>"Seeing that Mom's body is firmer than Gyuri or Seonju who exercise every day, I guess it's not necessary to work out every goddamn day right?"</p>
 
 <p>Sensing the suddenly chilly atmosphere, Shiwoo shifted his attitude and spoke as if retracting what he had just said.</p>
 
-<p>"Besides, since Mom and Seyoung came back home, we've been burning calories together almost every night, so maybe you don't need separate exercise~?"</p>
+<p>"Besides, since Mom and Seyoung came back home, we've been burning calories together almost every night, so maybe you don't need separate exercise?"</p>
 
-<p>"Compared to what we do, the yoga and gym sessions Gyuri and Seonju do are practically just warm-ups~ isn't that right?"</p>
+<p>"Compared to what we do, the yoga and gym sessions Gyuri and Seonju do are practically just warm-ups isn't that right?"</p>
 
 <p>Shiwoo went as far as to mix in high-level obscene jokes, shamelessly acting cute.</p>
 
 <p>Mom was still glaring at Shiwoo with a flushed face.</p>
 
-<p>"For heaven's sake~! Stop talking nonsense and just move it~!"</p>
+<p>"For heaven's sake! Stop talking nonsense and just move it!"</p>
 
 <p>However, Mom spoke as she turned toward the entrance, as if her sharp tension had broken and she were giving in.</p>
 
@@ -94,7 +94,7 @@ chapter = 758
 
 <p>Mom glanced back and then awkwardly posed, as if she couldn't help it.</p>
 
-<p>"Our Mom is beautiful~ the lighting suits you too~ Close your legs and try raising your arms a bit more from there! Good~"</p>
+<p>"Our Mom is beautiful the lighting suits you too Close your legs and try raising your arms a bit more from there! Good"</p>
 
 <p>Shiwoo requested specific poses from Mom as if she were a model.</p>
 
@@ -110,7 +110,7 @@ chapter = 758
 
 <p>Mom adjusted her posture according to Shiwoo's careful touch, but her expression seemed somewhat uncomfortable.</p>
 
-<p>"Wow~ Mom, you really look like a model~ You have such a goddamn good frame in these shots~"</p>
+<p>"Wow Mom, you really look like a model You have such a goddamn good frame in these shots"</p>
 
 <p>Shiwoo praised her in an exaggerated tone, thrusting the photo he just took in front of Mom's face.</p>
 
@@ -160,7 +160,7 @@ chapter = 758
 
 <p>Mom checked her phone immediately upon hearing the message notification.</p>
 
-<p>[They came out well, right~? Seonmi, your tits and your hip line come out like a work of art no matter how I take the shot~]</p>
+<p>[They came out well, right? Seonmi, your tits and your hip line come out like a work of art no matter how I take the shot]</p>
 
 <p>Shiwoo sent an explicit text immediately after, as if to check Mom's reaction.</p>
 
@@ -170,7 +170,7 @@ chapter = 758
 
 <p>She sent the text in an agitated tone, even while trying to keep her facial expression nonchalant.</p>
 
-<p>[What else should I call my Mom but 'Mom'~? lol]</p>
+<p>[What else should I call my Mom but 'Mom'? lol]</p>
 
 <p>Shiwoo typed back with a mischievous smirk.</p>
 

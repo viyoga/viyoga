@@ -18,7 +18,7 @@ chapter = 215
 
 <p>-The door remained open-</p>
 
-<p>,Even though Unni and the kids are all here, is this really okay right now~?"</p>
+<p>,Even though Unni and the kids are all here, is this really okay right now?"</p>
 
 <p>Seonju Imo, seeing Shiwoo's firmly erect member, teased him playfully, as if mocking the young master.</p>
 
@@ -58,7 +58,7 @@ chapter = 215
 
 <p>Seonju Imo's eyes changed, as if begging Shiwoo.</p>
 
-<p>,Lick it all clean with your tongue! If even a little bit is left, I'll treat you like a dog in front of the whole family then~!"</p>
+<p>,Lick it all clean with your tongue! If even a little bit is left, I'll treat you like a dog in front of the whole family then!"</p>
 
 <p>Shiwoo wiggled his toes inside Seonju Imo's mouth, speaking as if threatening her.</p>
 
@@ -66,7 +66,7 @@ chapter = 215
 
 <p>Seonju Imo's wet tongue wrapped around Shiwoo's toes, licking and stroking them.</p>
 
-<p>,Chyu-ap~ Chyu-a-ap~ Hu-up~"</p>
+<p>,Chyu-ap Chyu-a-ap Hu-up"</p>
 
 <p>Seonju Imo meticulously sucked between Shiwoo's toes.</p>
 
@@ -104,7 +104,7 @@ chapter = 215
 
 <p>Shiwoo positioned his sole between Seonju Imo's legs and rubbed it up and down, as if pressing and spreading the split flesh.</p>
 
-<p>,Haa-eut~ Haa-a-eut~ Haa-eum~!"</p>
+<p>,Haa-eut Haa-a-eut Haa-eum!"</p>
 
 <p>Seonju Imo let out a labored groan, expressing the painful sensation of her crushed pussy lips.</p>
 
@@ -116,7 +116,7 @@ chapter = 215
 
 <p>Shiwoo's toes were wiggling as if teasing Seonju Imo's sensitive flesh for a moment.</p>
 
-<p>,Heu-eu-eung~ Heu-eu-eu~Haa-eu-eung~!"</p>
+<p>,Heu-eu-eung Heu-eu-euHaa-eu-eung!"</p>
 
 <p>Seonju Imo made sounds, moving her pelvis seductively back and forth like a child demanding something to eat.</p>
 
@@ -124,7 +124,7 @@ chapter = 215
 
 <p>Shiwoo continued to rub his foot against Seonju Imo's crotch and protruding pearl, saying.</p>
 
-<p>,Haa...heung... ....Yes~ I...I'll remember...I'll behave myself too~ I...I won't mess with Unni anymore~ Master-nim~!"</p>
+<p>,Haa...heung... ....Yes I...I'll remember...I'll behave myself too I...I won't mess with Unni anymore Master-nim!"</p>
 
 <p>Seonju Imo was speaking, spreading her legs wide to the sides and fixing them in place, as if completely submitting to Shiwoo's warning.</p>
 
@@ -132,7 +132,7 @@ chapter = 215
 
 <p>Shiwoo's big toe slid into the wet flesh.</p>
 
-<p>,Heu-eu-eung~Heu-eung~ Haa-eueuk~!"</p>
+<p>,Heu-eu-eungHeu-eung Haa-eueuk!"</p>
 
 <p>Seonju Imo tried to match the angle of Shiwoo's toe and her vaginal opening, which was being pushed into her pussy lips.</p>
 
@@ -144,7 +144,7 @@ chapter = 215
 
 <p>Shiwoo stretched out his toe and moved it back and forth as if doing a piston exercise.</p>
 
-<p>,Heut~ Heung~ Haa-a-aa~"</p>
+<p>,Heut Heung Haa-a-aa"</p>
 
 <p>Seonju Imo covered her mouth with both hands, as if afraid that her voice would leak out through the open door, and let out moans of pleasure.</p>
 
@@ -190,7 +190,7 @@ chapter = 215
 
 <p>Shiwoo's firmly erect penis was half-swallowed into Seonju Imo's hole.</p>
 
-<p>,Heut~!"</p>
+<p>,Heut!"</p>
 
 <p>Seonju Imo's upper body was lifted upwards as if her waist was bent,</p>
 
@@ -208,6 +208,6 @@ chapter = 215
 
 <p>But even so, Seonju Imo's inner pussy flesh always stimulated Shiwoo's meat rod anew each time he inserted it with a different kind of stickiness.</p>
 
-<p>-Ssuk-keok~! Ssuk-keok~! Ssuk-keok~! Ssuk-keok!!</p>
+<p>-Ssuk-keok! Ssuk-keok! Ssuk-keok! Ssuk-keok!!</p>
 
 <p>Shiwoo began to move his waist violently as it was.</p>

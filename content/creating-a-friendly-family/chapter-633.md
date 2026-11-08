@@ -28,7 +28,7 @@ chapter = 633
 
 <p>Along with the cheerful sound of the chime, a scent like an incantation tickled the tip of his nose. The subtle scent of herbs and vanilla, with a faint hint of spices, wrapped around Shiwoo as softly as magic. The cozy medieval European-style interior, illuminated by warm, dim lighting, came into view all at once. A dreamlike temperature and atmosphere, different from daily life, was transmitted to Shiwoo's skin and flesh.</p>
 
-<p>"Welcome~"</p>
+<p>"Welcome"</p>
 
 <p>The female staff member standing at the counter smiled quietly and greeted Shiwoo as she saw him. Her face, voice... and expression made it difficult to gauge her age... The faint wrinkles spread around her eyes and the corners of her mouth subtly revealed the time she had lived through. Rather than simply looking old, she possessed a deep and solid weight. Was she the female staff member Cheoljin said had guided him? She felt more like the owner of the shop than just an employee...</p>
 
@@ -48,7 +48,7 @@ chapter = 633
 
 <p>And across the space in front of the cafe counter, two separate doors were visible. Doors made to distinguish between men and women entering... It seemed as if another world existed inside, separated behind them. Faint sounds of conversation and light laughter leaked out from between them.</p>
 
-<p>"Shall I guide you inside~?"</p>
+<p>"Shall I guide you inside?"</p>
 
 <p>The middle-aged woman standing at the counter spoke to Shiwoo, who was looking around.</p>
 
@@ -84,6 +84,6 @@ chapter = 633
 
 <p>? Did it mean that, like the déjà vu Shiwoo was feeling, she felt like she had seen him somewhere but the memory was blurry? Or was it a cautious customer service line laid out to avoid any possible rudeness to a guest who might have visited several times?</p>
 
-<p>"We also operate as a Blackout Event Cafe during the day~ At that time, smartphones and other items are banned from being brought in, so we store them separately for you!"</p>
+<p>"We also operate as a Blackout Event Cafe during the day At that time, smartphones and other items are banned from being brought in, so we store them separately for you!"</p>
 
 <p>As if to resolve Shiwoo's curiosity, the staff member explained in detail with a kind smile.</p>

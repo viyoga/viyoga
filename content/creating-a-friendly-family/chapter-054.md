@@ -32,7 +32,7 @@ chapter = 54
 
 <p>Sehee Nuna, arriving in front of the adult lingerie corner led by Shiwoo's hand, realized Shiwoo's intention and felt embarrassed, breathing heavily.</p>
 
-<p>,Wow~ I wish I could have you try on everything here, once, Nuna. ,</p>
+<p>,Wow I wish I could have you try on everything here, once, Nuna. ,</p>
 
 <p>Shiwoo muttered quietly to himself, as if only Sehee Nuna could hear.</p>
 
@@ -42,7 +42,7 @@ chapter = 54
 
 <p>Most of them were underwear that evoked lewd sexual acts.</p>
 
-<p>,This looks like it would suit Nuna well~ Sehee Nuna, do you want to try this on?,</p>
+<p>,This looks like it would suit Nuna well Sehee Nuna, do you want to try this on?,</p>
 
 <p>Shiwoo said, pointing to the scarlet foreskin pattern lingerie set right in front of him.</p>
 
@@ -80,7 +80,7 @@ chapter = 54
 
 <p>Shiwoo hurriedly stopped Sehee Nuna, who was trying to enter the fitting room, and then grabbed the bra held in Sehee Nuna's hand with an assertive feeling.</p>
 
-<p>,I think the top can stay as it is~?,</p>
+<p>,I think the top can stay as it is?,</p>
 
 <p>Shiwoo said, openly looking at Sehee Nuna's breasts, where her nipples were erect and protruding under the fabric of her pink dress.</p>
 
@@ -134,7 +134,7 @@ chapter = 54
 
 <p>And he sent an additional text message as if to explain.</p>
 
-<p>,I just bought this for Sehee Nuna. She's in the fitting room changing into it now~,</p>
+<p>,I just bought this for Sehee Nuna. She's in the fitting room changing into it now,</p>
 
 <p>Shiwoo became curious about Mom's reaction.</p>
 

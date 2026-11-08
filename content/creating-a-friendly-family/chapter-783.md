@@ -64,7 +64,7 @@ chapter = 783
 
 <p>After some time passed, just as Mom's sobbing was dying down...</p>
 
-<p>「But are you planning to do more? Seeing how hard you are, Shiwoo, it doesn't look like you'll be finished after just once or twice~」</p>
+<p>「But are you planning to do more? Seeing how hard you are, Shiwoo, it doesn't look like you'll be finished after just once or twice」</p>
 
 <p>「If you're going to do more with Mom, can I go to the restroom for a bit? I think I've leaked too much sweat and other things since a while ago.」</p>
 
@@ -88,7 +88,7 @@ chapter = 783
 
 <p>Shiwoo spoke to her in a tone that felt like he was closing the curtain on a loud play and tidying up the stage. At Shiwoo's words, Mom moaned and trembled once more, as if trapped in her own unfinished cycle of torment.</p>
 
-<p>「Right~ Sometimes a sincere conversation like that is necessary between a couple! Hu-hoot~ Have a good talk about how you'll live and how you'll treat each other from now on...」</p>
+<p>「Right Sometimes a sincere conversation like that is necessary between a couple! Hu-hoot Have a good talk about how you'll live and how you'll treat each other from now on...」</p>
 
 <p>Sejin-nuna replied with a bright smile that was almost irritating, as if the whole situation was interesting and enjoyable.</p>
 

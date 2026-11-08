@@ -8,11 +8,11 @@ chapter = 416
 
 <p>Shiwoo was reconfirming Mom's statement from just now, that she wouldn't say anything even if he uploaded her pictures to the group chat.</p>
 
-<p>"Uh... yeah, you said you were going to show them to Sehee and Seyoung separately, right? If that's the case, just upload them... It won't make a difference whether you upload them or not anyway... Haa~ Was... was that your request?"</p>
+<p>"Uh... yeah, you said you were going to show them to Sehee and Seyoung separately, right? If that's the case, just upload them... It won't make a difference whether you upload them or not anyway... Haa Was... was that your request?"</p>
 
 <p>Mom spoke to Shiwoo, as if reconfirming her statement that she wouldn't say anything about uploading the video and pictures.</p>
 
-<p>"No! I'm just confirming what Mom said earlier~! Of course, I have a separate request for Mom!"</p>
+<p>"No! I'm just confirming what Mom said earlier! Of course, I have a separate request for Mom!"</p>
 
 <p>Shiwoo said to Mom as if he had another request in mind.</p>
 
@@ -86,11 +86,11 @@ chapter = 416
 
 <p>Shiwoo spoke to Mom again, urging her to answer.</p>
 
-<p>"Haaeeeee...heeeeeee~ Hoo....Haeut...! Haaaaaa..."</p>
+<p>"Haaeeeee...heeeeeee Hoo....Haeut...! Haaaaaa..."</p>
 
 <p>Mom was exhaling a long breath that sounded like sobbing over the receiver.</p>
 
-<p>"It's okay if you don't want to do it! I can just go home right now~ But I'm tired, so I think I'll have to turn off my smartphone for a while, would Mom be okay with that?"</p>
+<p>"It's okay if you don't want to do it! I can just go home right now But I'm tired, so I think I'll have to turn off my smartphone for a while, would Mom be okay with that?"</p>
 
 <p>Shiwoo said to Mom as if delivering a final notice.</p>
 
@@ -162,6 +162,6 @@ chapter = 416
 
 <p>Shiwoo added an explanation as if supplementing Mom's video and text.</p>
 
-<p>[Like this all of a sudden? Wow~ Unnie~ Isn't the progress in the room too fast with the kids around? You acted so stiff as if you'd never do something like this again in your life~ lol]</p>
+<p>[Like this all of a sudden? Wow Unnie Isn't the progress in the room too fast with the kids around? You acted so stiff as if you'd never do something like this again in your life lol]</p>
 
 <p>Seonju Imo was belatedly sending a playful text, teasing Mom.</p>

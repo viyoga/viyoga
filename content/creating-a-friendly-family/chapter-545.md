@@ -26,7 +26,7 @@ chapter = 545
 
 <p>Mom looked at Shiwoo with a puzzled expression.</p>
 
-<p>,It's a memento~! Keep it~ Isn't this the first time we've all gathered together to eat like this? And Mom, could you upload that on my behalf to the group chat room with Seonju and Sua?,</p>
+<p>,It's a memento! Keep it Isn't this the first time we've all gathered together to eat like this? And Mom, could you upload that on my behalf to the group chat room with Seonju and Sua?,</p>
 
 <p>Shiwoo instructed Mom to upload the video he had just filmed and sent to her to the group chat room where the enslaved family members were gathered.</p>
 
@@ -38,7 +38,7 @@ chapter = 545
 
 <p>Was it because she anticipated that Seonju Imo's teasing and ridicule would follow whatever photos or videos she uploaded or whatever she said in the publicly declared slave chat room?</p>
 
-<p>,Yeah, upload it now~! Immediately!,</p>
+<p>,Yeah, upload it now! Immediately!,</p>
 
 <p>Shiwoo commanded firmly, as if he had something in mind.</p>
 
@@ -48,7 +48,7 @@ chapter = 545
 
 <p>Then, as if immediately complying with Shiwoo's command, Mom manipulated her smartphone.</p>
 
-<p>Tti-ring~!</p>
+<p>Tti-ring!</p>
 
 <p>Soon, message notification sounds rang on Sehee Nuna and Shiwoo's smartphones.</p>
 
@@ -80,23 +80,23 @@ chapter = 545
 
 <p>Sehee Nuna, who was sitting next to Shiwoo, also turned to look at Shiwoo, looking a little surprised.</p>
 
-<p>「Oh my~ What is this~? Isn't that Master's? Did you secretly make curry for the kids like this? Unni~! What kind of resentment are you going to hear from Sehee and Seyoung again?」</p>
+<p>「Oh my What is this? Isn't that Master's? Did you secretly make curry for the kids like this? Unni! What kind of resentment are you going to hear from Sehee and Seyoung again?」</p>
 
 <p>Not long after, Seonju Imo, who had checked the video, reacted as if surprised and asked Mom a question.</p>
 
 <p>Mom seemed flustered after seeing Seonju Imo's text message and hurriedly moved her fingers.</p>
 
-<p>「It's not like that~! The kids already know... I sent them the video in a text message before they ate the curry~!」</p>
+<p>「It's not like that! The kids already know... I sent them the video in a text message before they ate the curry!」</p>
 
 <p>Mom wrote a text message in the chat room to explain, as if trying to clear up Seonju Imo's absurd misunderstanding.</p>
 
-<p>「Really~? The kids are eating like that even though they all know? Wow~」</p>
+<p>「Really? The kids are eating like that even though they all know? Wow」</p>
 
 <p>Seonju Imo wrote back as if genuinely impressed.</p>
 
-<p>「Now, whether it's night or day, you can take turns processing Master's load? I'm so jealous of Seonmi Unni~!」</p>
+<p>「Now, whether it's night or day, you can take turns processing Master's load? I'm so jealous of Seonmi Unni!」</p>
 
-<p>「Unni~! Should we move there and live there too? Hehe. We don't need a separate room... because we can sleep with Unni or Master~」</p>
+<p>「Unni! Should we move there and live there too? Hehe. We don't need a separate room... because we can sleep with Unni or Master」</p>
 
 <p>Seonju Imo continued to tease Mom in a playful tone.</p>
 
@@ -104,17 +104,17 @@ chapter = 545
 
 <p class="scene-break">· · ·</p>
 
-<p>,Oh, right~! Sehee, you took a picture of Mom here earlier, didn't you? You were going to send it to Mom to use as her smartphone background!,</p>
+<p>,Oh, right! Sehee, you took a picture of Mom here earlier, didn't you? You were going to send it to Mom to use as her smartphone background!,</p>
 
 <p>Shiwoo said, turning to look at Sehee Nuna next to him, as if he had just remembered.</p>
 
 <p>Sehee Nuna, who had been watching the situation in the group chat room on her smartphone, reacted as if slightly surprised at Shiwoo's words.</p>
 
-<p>,Oh?... That's right~! I was going to send it to Mom... Should I send it to Mom now?,</p>
+<p>,Oh?... That's right! I was going to send it to Mom... Should I send it to Mom now?,</p>
 
 <p>Sehee Nuna asked, mentioning the photo she had taken earlier, as if asking for permission whether she should send it to Mom right away.</p>
 
-<p>,No, not to Mom~! Could you upload it to the group chat room? So that other people can see it too!,</p>
+<p>,No, not to Mom! Could you upload it to the group chat room? So that other people can see it too!,</p>
 
 <p>Shiwoo was ordering Sehee Nuna to upload the photo of Mom's buttocks that she had taken earlier to the group chat room.</p>
 
@@ -148,17 +148,17 @@ chapter = 545
 
 <p>Mom, who had been looking at the smartphone screen under the table, looked up at Shiwoo again, startled after seeing the photo that had been uploaded to the group chat room.</p>
 
-<p>「This is what Seyoung took when it was just Mom and Seyoung~! Seyoung wrote the letters on her buttocks herself~ Seyoung has now decided to train Mom」</p>
+<p>「This is what Seyoung took when it was just Mom and Seyoung! Seyoung wrote the letters on her buttocks herself Seyoung has now decided to train Mom」</p>
 
 <p>Shiwoo ignored Mom's gaze and wrote in the group chat room, as if informing Seonju Imo and Sua of the situation that had taken place.</p>
 
-<p>「I knew it~ I thought so~! Unni can't hide things like that? She's been pretending to be innocent and saying that she can't do that with her own children~ Lately, it's all over her face that she can't stand wanting to be trained~! Hehehe」</p>
+<p>「I knew it I thought so! Unni can't hide things like that? She's been pretending to be innocent and saying that she can't do that with her own children Lately, it's all over her face that she can't stand wanting to be trained! Hehehe」</p>
 
 <p>Seonju Imo was teasing and ridiculing Mom again.</p>
 
-<p>「Sehee-ya~! Seyoung-ah~! Please take good care of Seonmi~! Seonmi is really an incurable masochist, so you don't need to be considerate and punish her firmly when you punish her~! Make her cry her eyes out~!」</p>
+<p>「Sehee-ya! Seyoung-ah! Please take good care of Seonmi! Seonmi is really an incurable masochist, so you don't need to be considerate and punish her firmly when you punish her! Make her cry her eyes out!」</p>
 
-<p>「She's probably already wetting herself at the thought of being punished by her daughters by getting her buttocks smacked? Check it out later~!」</p>
+<p>「She's probably already wetting herself at the thought of being punished by her daughters by getting her buttocks smacked? Check it out later!」</p>
 
 <p>Seonju Imo even omitted honorifics and called Mom's name, talking to her daughters as if she was condescending to her in front of them.</p>
 
@@ -194,6 +194,6 @@ chapter = 545
 
 <p>Mom answered Seyoung in an awkward voice.</p>
 
-<p>,But why are you hiding it~? Is there something I can't see?,</p>
+<p>,But why are you hiding it? Is there something I can't see?,</p>
 
 <p>Seyoung said playfully, as if she was disappointed by Mom's actions.</p>

@@ -168,7 +168,7 @@ chapter = 694
 
 <p>Looking at this, the way Mom felt and expressed shame and embarrassment might also be a talent or quality she was born with, adding to her naturally submissive and masochistic disposition.</p>
 
-<p>[Hehe, okay~ So I just need to turn off the living room light?]</p>
+<p>[Hehe, okay So I just need to turn off the living room light?]</p>
 
 <p>As he slowly moved his fingers to type the reply, he could feel the sadistic desire gradually spreading beneath his skin.</p>
 

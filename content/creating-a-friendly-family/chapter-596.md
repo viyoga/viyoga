@@ -24,7 +24,7 @@ chapter = 596
 
 <p>After a moment of silence, Sejin Nuna lifted her lowered head and looked back at Shiwoo.</p>
 
-<p>"You're staying for dinner tonight, aren't you? I bought ingredients for cream pasta just for you, Shiwoo, so eat before you go~"</p>
+<p>"You're staying for dinner tonight, aren't you? I bought ingredients for cream pasta just for you, Shiwoo, so eat before you go"</p>
 
 <p>Sejin Nuna, as if suddenly trying to change the subject, offered Shiwoo dinner with an awkward smile.</p>
 
@@ -40,7 +40,7 @@ chapter = 596
 
 <p>Shiwoo said, scratching his head as if a little troubled.</p>
 
-<p>"Then just eat a little! You can eat here and then eat again when you get home~ And what are you worried about now? Pointlessly..."</p>
+<p>"Then just eat a little! You can eat here and then eat again when you get home And what are you worried about now? Pointlessly..."</p>
 
 <p>Sejin Nuna said, her lips curling slightly as if Shiwoo's worries were cute. At the end of Sejin Nuna's words, a meaningful sentence was subtly added.</p>
 
@@ -48,7 +48,7 @@ chapter = 596
 
 <p>Shiwoo asked how long it would take to make the pasta, as if he had been swayed by Sejin Nuna's persuasion.</p>
 
-<p>"It won't even take 30 minutes. I'll make it quickly, so just watch TV and wait a bit~"</p>
+<p>"It won't even take 30 minutes. I'll make it quickly, so just watch TV and wait a bit"</p>
 
 <p>Sejin Nuna told Shiwoo the time it would take to prepare the cream pasta, as if she was confident. She put the cone ice cream she was holding into her mouth and finished organizing the groceries she had bought.</p>
 
@@ -68,7 +68,7 @@ chapter = 596
 
 <p>Shiwoo quickly let go of the penis he was gripping through his clothes, and stared at the TV screen as if nothing had happened.</p>
 
-<p>"I'm just going to the bathroom for a moment~!"</p>
+<p>"I'm just going to the bathroom for a moment!"</p>
 
 <p>Sejin Nuna said that and headed to the bathroom. It seemed she intended to quickly use the bathroom while the water was boiling.</p>
 

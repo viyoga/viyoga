@@ -34,7 +34,7 @@ chapter = 332
 
 <p>As Sua's feet lifted into the air, her pelvis pressed downwards under the force of gravity. Shiwoo's cock shaft was pressed against Sua's pelvis, resulting in an even deeper insertion. The cock shaft, which had been touching Sua's cervix, pushed upwards as if lifting her internal organs.</p>
 
-<p>"Haaah-eugh~!"</p>
+<p>"Haaah-eugh!"</p>
 
 <p>A moan, as if suppressing pain, escaped Sua's lips. With her hands, Sua desperately tried to balance herself, gripping Shiwoo's arms that supported her thighs.</p>
 
@@ -42,7 +42,7 @@ chapter = 332
 
 <p>After repeating this several times, Shiwoo confirmed that Sua's vaginal interior had softened like tender meat. Shiwoo completely released the strength from the hand that had been supporting Sua's thighs. Sua precariously balanced, supported by her legs draped over Shiwoo's knees, her hands gripping Shiwoo's arms, and Shiwoo's penis fitted snugly inside her vagina hole.</p>
 
-<p>"Hngh-eung~ Haah-euh..."</p>
+<p>"Hngh-eung Haah-euh..."</p>
 
 <p>Sua let out a moaning sound, as if in pain. Shiwoo wrapped his two arms around Sua's slender waist. He was now intending to begin the piston-like thrusting in earnest.</p>
 
@@ -90,7 +90,7 @@ chapter = 332
 
 <p>Shiwoo pulled his penis back, then observed Sua's trembling state.</p>
 
-<p>"Haaah... Hngh... Haaah~"</p>
+<p>"Haaah... Hngh... Haaah"</p>
 
 <p>Her breathing was ragged, and her expression was vacant, as if her mind had gone blank. In Sua's eyes, he could read a longing for it to end right there. Shiwoo's sadistic urges were strongly stimulated.</p>
 

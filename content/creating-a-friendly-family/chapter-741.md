@@ -20,7 +20,7 @@ chapter = 741
 
 <p>Shiwoo sent the text as if he were very worried about Seonju-imo's physical condition because of the acts he had performed yesterday and this morning. Soon, the number 1 next to the text Shiwoo sent disappeared, and a reply came from Seonju-imo.</p>
 
-<p>「Heeing~ My cheeks and my bottom are still a bit tingly, but I think I'm okay~ As soon as I woke up in Master-nim's room, I washed up, applied medicine, and made it home safely.」</p>
+<p>「Heeing My cheeks and my bottom are still a bit tingly, but I think I'm okay As soon as I woke up in Master-nim's room, I washed up, applied medicine, and made it home safely.」</p>
 
 <p>Seonju-imo was answering Shiwoo in a tone that mixed cuteness with a bit of a pout.</p>
 
@@ -28,7 +28,7 @@ chapter = 741
 
 <p>Shiwoo asked cautiously, as if testing Seonju-imo's reaction.</p>
 
-<p>「No~ It's only natural since I was punished for not listening to Master-nim and doing wrong... Please punish me a lot in the future too if I do something wrong. Hehe~」</p>
+<p>「No It's only natural since I was punished for not listening to Master-nim and doing wrong... Please punish me a lot in the future too if I do something wrong. Hehe」</p>
 
 <p>Seonju-imo spoke as if justifying Shiwoo's actions and her own faults, appearing to have high expectations for their future play as well.</p>
 
@@ -44,7 +44,7 @@ chapter = 741
 
 <p>Shiwoo reacted with surprise at the unexpected words he heard from Seonju-imo.</p>
 
-<p>「No~ I'm the one calling you Master-nim; Unni still just calls Master-nim 'Shiwoo' during the day...」 「Even though at night she calls you Master-nim or Honey... making all sorts of sounds that can be heard throughout the house... She's really just putting on an act of being innocent for no reason~」</p>
+<p>「No I'm the one calling you Master-nim; Unni still just calls Master-nim 'Shiwoo' during the day...」 「Even though at night she calls you Master-nim or Honey... making all sorts of sounds that can be heard throughout the house... She's really just putting on an act of being innocent for no reason」</p>
 
 <p>Seonju-imo corrected the part Shiwoo might be confused about, pointing out Mom's ambiguous attitude with a hint of sarcasm. Even though Mom didn't call him Master-nim herself, hearing that she scolded Seonju-imo to listen to him and not trouble him felt like a poignant, touching vibration in a corner of Shiwoo's chest. During the day, had Mom become able to allow conversations that acknowledged Shiwoo as the Master of Seonju-imo and the other slaves?</p>
 
@@ -52,7 +52,7 @@ chapter = 741
 
 <p>Shiwoo continued to ask, seemingly worried about her physical state.</p>
 
-<p>「I applied medicine there separately. But it stings every time water touches it... Master-nim's thing is too big to put in all at once~ You should have waited just a little bit until I was ready~ I was so surprised, hiing~」</p>
+<p>「I applied medicine there separately. But it stings every time water touches it... Master-nim's thing is too big to put in all at once You should have waited just a little bit until I was ready I was so surprised, hiing」</p>
 
 <p>Seonju-imo sent the message with a mix of disappointment and resentment, acting cute toward Shiwoo.</p>
 
@@ -60,7 +60,7 @@ chapter = 741
 
 <p>Checking Seonju-imo's message, Shiwoo spoke as if soothing her, feeling slightly apologetic.</p>
 
-<p>「Thank you for being so considerate, Master-nim~ I'll get ready quickly and let you know~ Please wait just a little bit~」</p>
+<p>「Thank you for being so considerate, Master-nim I'll get ready quickly and let you know Please wait just a little bit」</p>
 
 <p>Seonju-imo seemed like someone who enjoyed even the wait of shame and pain like a sweet prank, letting a faint trace of a smile seep into the end of her words. The sentence she sent leaned willingly into Shiwoo's words, subtly revealing her heart's intent to obey quietly, flowing softly into Shiwoo.</p>
 
@@ -88,7 +88,7 @@ chapter = 741
 
 <p>Shiwoo asked her back in an awkward tone, as if suppressing his embarrassment at the end of his words.</p>
 
-<p>「No, you can say it, but it's been a really long time since I've heard something like that...」 「And I never imagined I'd hear those words suddenly in a situation like this~」 「But is it true? Are you being serious? You're not joking, right?」</p>
+<p>「No, you can say it, but it's been a really long time since I've heard something like that...」 「And I never imagined I'd hear those words suddenly in a situation like this」 「But is it true? Are you being serious? You're not joking, right?」</p>
 
 <p>Before he knew it, Seonju-imo was speaking to Shiwoo informally, as if to confirm. Her reaction was much more honest than expected, and it seemed to carry a subtly excited energy.</p>
 
@@ -96,7 +96,7 @@ chapter = 741
 
 <p>A moment of hesitation flickered over him at her excessive reaction, but Shiwoo soon moved his fingers to speak to Seonju-imo as if taking her to task.</p>
 
-<p>「Hiing~ You used to scold me so much for not using informal speech~ I'm just surprised because you suddenly said that!」 「But thank you for saying it... I love you too, Master-nim. Please keep loving me in the future too~ Hiing~」</p>
+<p>「Hiing You used to scold me so much for not using informal speech I'm just surprised because you suddenly said that!」 「But thank you for saying it... I love you too, Master-nim. Please keep loving me in the future too Hiing」</p>
 
 <p>Seonju-imo was answering Shiwoo again with a mix of informal and formal speech. The last sentence that came back from her was a blend of a playful accent and a breath of subtle submission. That combination spread in a color so uniquely Seonju-imo that it seemed to touch something sincere deep in Shiwoo's chest. The thought that affection reaching through a text could spread so explicitly yet warmly, and the cozy sensation derived from it, was felt throughout his entire body.</p>
 

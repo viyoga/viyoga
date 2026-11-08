@@ -4,7 +4,7 @@ weight = 592
 [extra]
 chapter = 592
 +++
-<p>"The door lock password is Dad's birthday. You just enter the numbers and then press the star button, okay? Go on in and rest a bit~"</p>
+<p>"The door lock password is Dad's birthday. You just enter the numbers and then press the star button, okay? Go on in and rest a bit"</p>
 
 <p>Following that, Sejin Nuna tells Shiwoo the password for the house door lock.</p>
 
@@ -12,7 +12,7 @@ chapter = 592
 
 <p>Shiwoo asks Sejin Nuna as if confirming.</p>
 
-<p>"Yeah~ And is there anything you want to eat? Since I'm out at the supermarket, I'll buy it~ Fruit or drinks?"</p>
+<p>"Yeah And is there anything you want to eat? Since I'm out at the supermarket, I'll buy it Fruit or drinks?"</p>
 
 <p>Sejin Nuna was asking in a soft tone, as if meticulously taking care of Shiwoo.</p>
 
@@ -20,15 +20,15 @@ chapter = 592
 
 <p>Shiwoo shakes the black plastic bag in his hand, making a loud rustling sound, and answers Sejin Nuna as if telling her not to worry.</p>
 
-<p>"You're coming to Nuna's place to visit, why are you buying so much stuff? If there's anything you want to eat, you should tell Nuna~!"</p>
+<p>"You're coming to Nuna's place to visit, why are you buying so much stuff? If there's anything you want to eat, you should tell Nuna!"</p>
 
 <p>Sejin Nuna speaks to Shiwoo in a slightly disappointed voice and tone.</p>
 
-<p>"Ah~ Don't worry about it! This much is nothing~! But how long does it take to get back from the supermarket?"</p>
+<p>"Ah Don't worry about it! This much is nothing! But how long does it take to get back from the supermarket?"</p>
 
 <p>Shiwoo says as if it's nothing, asking Sejin Nuna how long it takes to return home from the supermarket.</p>
 
-<p>"I've pretty much bought everything I needed~ Now I just need to pay and head back! It'll probably take about 20 minutes, giving myself plenty of time~"</p>
+<p>"I've pretty much bought everything I needed Now I just need to pay and head back! It'll probably take about 20 minutes, giving myself plenty of time"</p>
 
 <p>Sejin Nuna speaks to Shiwoo in a gentle voice.</p>
 
@@ -36,11 +36,11 @@ chapter = 592
 
 <p>Shiwoo speaks with an active attitude, as if he's going to pick up Sejin Nuna right away.</p>
 
-<p>"No~ You're coming to Nuna's place to visit, why would you come out to pick me up? I'm driving anyway, so don't worry and just go up and relax~!"</p>
+<p>"No You're coming to Nuna's place to visit, why would you come out to pick me up? I'm driving anyway, so don't worry and just go up and relax!"</p>
 
 <p>Sejin Nuna, while appreciating Shiwoo's words, was telling him not to worry, as if trying to make him comfortable.</p>
 
-<p>"Okay, then I'll go up first and wait~"</p>
+<p>"Okay, then I'll go up first and wait"</p>
 
 <p>After Shiwoo had that conversation with Sejin Nuna, he hung up the phone.</p>
 

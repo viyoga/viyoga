@@ -12,7 +12,7 @@ chapter = 815
 
 <p>The smile hanging on her lips rarely faded, as if she were thoroughly enjoying a secret superiority that only she knew about.</p>
 
-<p>"Here~! Drink slowly~"</p>
+<p>"Here! Drink slowly"</p>
 
 <p>After filling a guest cup with water from the purifier, she placed it down on the table in front of Mother's seat.</p>
 
@@ -26,7 +26,7 @@ chapter = 815
 
 <p>"Ah... Well, these days navigation apps are so good that it wasn't that hard. Mother also came here with Se-hee yesterday..."</p>
 
-<p>"Is that so? That's a relief~ Actually, even though this is the downtown area, the location is in such a secluded building basement that it's hard to make a reservation and find it unless it's through someone's introduction or recommendation~"</p>
+<p>"Is that so? That's a relief Actually, even though this is the downtown area, the location is in such a secluded building basement that it's hard to make a reservation and find it unless it's through someone's introduction or recommendation"</p>
 
 <p>She continued to talk to Siu, smiling as if enjoying his every reaction in a leisurely manner.</p>
 
@@ -112,7 +112,7 @@ chapter = 815
 
 <p>"You can think of it as maximizing the vibration transmitted to the skin while blocking out as much noise leaking to the outside as possible."</p>
 
-<p>"I'll show you some samples in a bit... They're ready for you to experience firsthand~"</p>
+<p>"I'll show you some samples in a bit... They're ready for you to experience firsthand"</p>
 
 <p>Staring alternately at the crotches of Siu and Mother in a casual yet blatant manner, as if explaining the features of a state-of-the-art home appliance...</p>
 
@@ -148,7 +148,7 @@ chapter = 815
 
 <p>"While Siu-nim is showering, I'll disinfect the area where you got tattooed yesterday, Seon-mi..."</p>
 
-<p>"While I get the disinfectant ready, Seon-mi, could you go lock the front door over there~?"</p>
+<p>"While I get the disinfectant ready, Seon-mi, could you go lock the front door over there?"</p>
 
 <p>She slowly uncrossed her legs as she sat on the stool.</p>
 

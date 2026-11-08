@@ -14,13 +14,13 @@ chapter = 546
 
 <p>Unable to make eye contact with her daughter, Mom hung her head like a sinner.</p>
 
-<p>,It's okay~! I can just go to the room later and check with my smartphone~! ,</p>
+<p>,It's okay! I can just go to the room later and check with my smartphone! ,</p>
 
 <p>Seyoung spoke as if to herself while leaning towards Mom.</p>
 
 <p>Seyoung, with a benevolent smile on her face, seemed to understand Mom's situation even without being told.</p>
 
-<p>,Come on~ Mom, eat your rice quickly too~ I'll feed you~,</p>
+<p>,Come on Mom, eat your rice quickly too I'll feed you,</p>
 
 <p>Seyoung said again in a bright voice as if comforting Mom.</p>
 
@@ -82,7 +82,7 @@ chapter = 546
 
 <p>Seyoung brought her lips close to Mom's cheek.</p>
 
-<p>,Don't worry~ I'll... protect you~! Shiwoo Oppa still... doesn't seem to know... so...,</p>
+<p>,Don't worry I'll... protect you! Shiwoo Oppa still... doesn't seem to know... so...,</p>
 
 <p>Seyoung whispered into Mom's ear, speaking in a voice that could barely be heard by Shiwoo and Sehee Nuna across from them.</p>
 
@@ -178,7 +178,7 @@ chapter = 546
 
 <p>But even while doing so, Mom was answering Shiwoo in a tone as if she was annoyed, as if trying to hide her embarrassment.</p>
 
-<p>[Is that so~? Should I try collecting it in a condom and putting it in all at once next time? Hehe. By the way, Seyoung seems to have grown up well, right?]</p>
+<p>[Is that so? Should I try collecting it in a condom and putting it in all at once next time? Hehe. By the way, Seyoung seems to have grown up well, right?]</p>
 
 <p>Shiwoo joked as if accepting Mom's annoyance and playfully changed the subject.</p>
 
@@ -186,11 +186,11 @@ chapter = 546
 
 <p>Mom replied with a question mark to Shiwoo's text message as if she didn't understand the meaning.</p>
 
-<p>[Kids really grow up so fast~ Maybe it's because she resembles Mom, but when Seyoung was taking off her clothes earlier, her pelvis and waistline were no joke...]</p>
+<p>[Kids really grow up so fast Maybe it's because she resembles Mom, but when Seyoung was taking off her clothes earlier, her pelvis and waistline were no joke...]</p>
 
 <p>[And her thigh fat seems to have filled out well to that extent... and her breasts seem to have grown a lot now... and they'll grow even bigger than Mom or Sehee in the future, right?]</p>
 
-<p>[When I think about that, even though it hasn't been long since I came in Mom's mouth, I feel like I just want to rape Seyoung, rules or whatever?~]</p>
+<p>[When I think about that, even though it hasn't been long since I came in Mom's mouth, I feel like I just want to rape Seyoung, rules or whatever?]</p>
 
 <p>[I felt like I was really going crazy trying to hold back earlier hehe]</p>
 

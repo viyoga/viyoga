@@ -16,7 +16,7 @@ chapter = 542
 
 <p>Is it that feelings of intimacy and bonding towards Mom, who relies on him more than Sehee Nuna or Seyoung, are being amplified?</p>
 
-<p>,No~! I can't eat my own shit, can I? There are times when I have to eat it, but usually, you don't eat your own shit!,</p>
+<p>,No! I can't eat my own shit, can I? There are times when I have to eat it, but usually, you don't eat your own shit!,</p>
 
 <p>Shiwoo immediately rejects Mom's desperate and earnest request.</p>
 
@@ -24,7 +24,7 @@ chapter = 542
 
 <p>But Shiwoo deliberately refuses Mom's request, making things difficult for her.</p>
 
-<p>,Ask Seyoung or Sehee to lick it for you~! Or tell Seonju to come over now~! I think Seonju would come right away and do it without asking any questions?,</p>
+<p>,Ask Seyoung or Sehee to lick it for you! Or tell Seonju to come over now! I think Seonju would come right away and do it without asking any questions?,</p>
 
 <p>Then, Shiwoo throws out suggestions that Mom would find even more difficult.</p>
 
@@ -108,7 +108,7 @@ chapter = 542
 
 <p>Mom answers Sehee Nuna in a barely audible voice.</p>
 
-<p>"If you have something, tell me~! I'll listen~ Don't just secretly talk to Shiwoo behind my back with texts like a thief~"</p>
+<p>"If you have something, tell me! I'll listen Don't just secretly talk to Shiwoo behind my back with texts like a thief"</p>
 
 <p>Sehee Nuna now speaks to Mom in a gentle but slightly condescending tone.</p>
 

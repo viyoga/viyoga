@@ -90,7 +90,7 @@ chapter = 34
 
 <p>Shiwoo was so surprised by Seyoung's actions that he stared at Seyoung with wide eyes as if his breath had stopped for a moment.</p>
 
-<p>"I bought it for the first time today, hehe~"</p>
+<p>"I bought it for the first time today, hehe"</p>
 
 <p>Seyoung's innocent expression.</p>
 
@@ -126,7 +126,7 @@ chapter = 34
 
 <p class="scene-break">· · ·</p>
 
-<p>"Seyoung is pretty~ She's become a proper woman now?"</p>
+<p>"Seyoung is pretty She's become a proper woman now?"</p>
 
 <p>Shiwoo said as if he wanted Mom to hear him, and he reached out and stroked Seyoung's hair, who was exposing her underwear by pulling her clothes up to her neck.</p>
 
@@ -134,7 +134,7 @@ chapter = 34
 
 <p>"Hehe, Sua's birthday is later than mine, but she's been doing this kind of thing for much longer."</p>
 
-<p>"Ah, is that so? Well, it's good if you can do it now, I guess~"</p>
+<p>"Ah, is that so? Well, it's good if you can do it now, I guess"</p>
 
 <p>Shiwoo was thinking that since it was just a piece of cloth without wires anyway, was there a separate time when it was necessary to wear it?</p>
 
@@ -154,7 +154,7 @@ chapter = 34
 
 <p>Shiwoo said, as if flustered.</p>
 
-<p>"Just saying, hehe~"</p>
+<p>"Just saying, hehe"</p>
 
 <p>Seyoung said that and went into her room.</p>
 
@@ -222,7 +222,7 @@ chapter = 34
 
 <p>-Being careful not to hurt her-</p>
 
-<p>"Haaa~"</p>
+<p>"Haaa"</p>
 
 <p>Mom let out a long, empty breath as if she was frustrated.</p>
 
@@ -276,7 +276,7 @@ chapter = 34
 
 <p>He also applied it near Mom's nipple that Seyoung was suckling.</p>
 
-<p>"Heooo~"</p>
+<p>"Heooo"</p>
 
 <p>Mom let out another empty breath as if she was frustrated.</p>
 

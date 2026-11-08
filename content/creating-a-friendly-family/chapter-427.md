@@ -4,7 +4,7 @@ weight = 427
 [extra]
 chapter = 427
 +++
-<p>[Anyway, since you turned your head, you turned your head~ Mom admits it, right?]</p>
+<p>[Anyway, since you turned your head, you turned your head Mom admits it, right?]</p>
 
 <p>Shiwoo says to Mom, seemingly trying to find fault as he slowly starts up.</p>
 
@@ -36,7 +36,7 @@ chapter = 427
 
 <p>Mom protests to Shiwoo as if feeling wronged.</p>
 
-<p>[That's my prerogative! Hehe~ If I go in now, I don't think we'll be able to talk as leisurely as we are now, like Mom and son! So prepare yourself from now on! You know what I mean?]</p>
+<p>[That's my prerogative! Hehe If I go in now, I don't think we'll be able to talk as leisurely as we are now, like Mom and son! So prepare yourself from now on! You know what I mean?]</p>
 
 <p>Shiwoo, acting stubborn and petulant, speaks to Mom as if scaring her about what will happen in the future.</p>
 
@@ -62,17 +62,17 @@ chapter = 427
 
 <p>Shiwoo laughs as if he is pleased with Mom's satisfying reaction.</p>
 
-<p>[Sigh~! Are you that happy to see Mom suffering?]</p>
+<p>[Sigh! Are you that happy to see Mom suffering?]</p>
 
 <p>Mom asks Shiwoo in a tone mixed with resignation, as if she has given up halfway.</p>
 
-<p>[I'm happy to torment you, but that's because Mom likes it too~! ]</p>
+<p>[I'm happy to torment you, but that's because Mom likes it too! ]</p>
 
 <p>[I wouldn't have done it from the start if Mom didn't like it! I tell you every time, don't I?]</p>
 
 <p>Shiwoo answers Mom's question, confidently as if he has fully grasped her tendencies, as always.</p>
 
-<p>[It's hard if Mom is too sore~ My nipples and buttocks are still tingling, really...ㅜ_ㅠ]</p>
+<p>[It's hard if Mom is too sore My nipples and buttocks are still tingling, really...ㅜ_ㅠ]</p>
 
 <p>Mom was talking about the nipples and buttocks she had been hit on by Shiwoo, mixing in an emoticon of tears.</p>
 
@@ -84,7 +84,7 @@ chapter = 427
 
 <p>But without even having the time to examine or think about it in detail, Shiwoo's penis is filled with strength.</p>
 
-<p>[That's why I told you the safe word, right~? I told you to use it when you feel like you're going crazy while having sex with me, or when you feel like your pussy is melting and about to explode~!]</p>
+<p>[That's why I told you the safe word, right? I told you to use it when you feel like you're going crazy while having sex with me, or when you feel like your pussy is melting and about to explode!]</p>
 
 <p>Shiwoo deliberately puts high-level vulgar sexual jokes into the sentence and throws it out as if provoking Mom.</p>
 
@@ -100,7 +100,7 @@ chapter = 427
 
 <p>It might not be an exaggeration, though...</p>
 
-<p>[What does it matter? You can use it whenever you want to~ All I'm going to do is get Mom, Sehee, and Seyoung pregnant, right?]</p>
+<p>[What does it matter? You can use it whenever you want to All I'm going to do is get Mom, Sehee, and Seyoung pregnant, right?]</p>
 
 <p>Shiwoo tries to make high-level vulgar sexual jokes, provoking Mom a little more.</p>
 
@@ -122,7 +122,7 @@ chapter = 427
 
 <p>Shiwoo was feeling a different kind of excitement from what he had felt until now, in the atmosphere of the chat room that was flexibly and gradually changing.</p>
 
-<p>[You have to use it if you really feel like you're going to die~ I'm always thinking about making Mom go crazy, and I'm sincerely pounding into Mom's pussy!]</p>
+<p>[You have to use it if you really feel like you're going to die I'm always thinking about making Mom go crazy, and I'm sincerely pounding into Mom's pussy!]</p>
 
 <p>Shiwoo says, mixing in vulgar words and teasing Mom.</p>
 
@@ -160,7 +160,7 @@ chapter = 427
 
 <p>Is Mom someone who feels pleasure and security in the act of obedience itself, rather than being hit?</p>
 
-<p>[Well, if Mom says she's not, then she's not~ Okay~ I'll say you're not a maso~]</p>
+<p>[Well, if Mom says she's not, then she's not Okay I'll say you're not a maso]</p>
 
 <p>[But anyway, the rules are the rules, so you have to get hit, right? Don't you think? Hehe]</p>
 

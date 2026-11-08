@@ -12,7 +12,7 @@ chapter = 319
 
 <p>Shiwoo turns to Seyoung this time, asking as if he's concerned.</p>
 
-<p>,Yeah~ I need to go too~! Because of oppa... Heehee~!,</p>
+<p>,Yeah I need to go too! Because of oppa... Heehee!,</p>
 
 <p>Seyoung answers Shiwoo, touching her slightly damp hair as if gathering it with her thumb and forefinger.</p>
 
@@ -26,7 +26,7 @@ chapter = 319
 
 <p>Sua asks Shiwoo to borrow his card, thinking of buying wet wipes to clean the things in her bag that are covered in semen.</p>
 
-<p>,Sure, I'll lend you my card~ We can go into the convenience store together and buy them~!,</p>
+<p>,Sure, I'll lend you my card We can go into the convenience store together and buy them!,</p>
 
 <p>Shiwoo readily agrees to Sua's request, as if taking responsibility for what he's done.</p>
 
@@ -54,13 +54,13 @@ chapter = 319
 
 <p>Sua answers, looking down as if she's conscious of the vibrator installed in her panties.</p>
 
-<p>,Oh, right~! Before you go to the bathroom and clean up your bag with wet wipes, take a few pictures and send them to me! I'm going to show them to Seonju, too,'</p>
+<p>,Oh, right! Before you go to the bathroom and clean up your bag with wet wipes, take a few pictures and send them to me! I'm going to show them to Seonju, too,'</p>
 
 <p>Shiwoo, as if he just thought of it, is giving Sua the instruction to take pictures of the inside of her bag, which is covered in his semen, in the bathroom and send them to him.</p>
 
 <p>-Now, it seems natural for Shiwoo to call Seonju Imo's name without honorifics in front of Sua-</p>
 
-<p>,I'll take them with my phone and send them to you~! I have to show Seonju everything, even what oppa smeared on Sua's smartphone, heehee~,'</p>
+<p>,I'll take them with my phone and send them to you! I have to show Seonju everything, even what oppa smeared on Sua's smartphone, heehee,'</p>
 
 <p>Seyoung says to Shiwoo, holding up her smartphone and smiling brightly.</p>
 
@@ -162,13 +162,13 @@ chapter = 319
 
 <p>Shiwoo waits for his turn, passes through the ticket gate, and approaches his sisters.</p>
 
-<p>,If you can use the card like that, you can just carry the bag around without cleaning it~! You can carry it around like that all day and then tell Seonju to take care of it when you get home,'</p>
+<p>,If you can use the card like that, you can just carry the bag around without cleaning it! You can carry it around like that all day and then tell Seonju to take care of it when you get home,'</p>
 
 <p>Shiwoo approaches Sua and speaks to her in a small voice as if whispering in her ear.</p>
 
 <p>Sua shrinks her body slightly upon hearing Shiwoo's low and small voice.</p>
 
-<p>,You need to wipe your smartphone and use it right away, so buy one pack of wet wipes~! And buy one waterproof bandage just in case!,'</p>
+<p>,You need to wipe your smartphone and use it right away, so buy one pack of wet wipes! And buy one waterproof bandage just in case!,'</p>
 
 <p>Shiwoo continues, as if specifying the items they need to buy at the convenience store again.</p>
 

@@ -18,7 +18,7 @@ chapter = 786
 
 <p>A smile of conquest he couldn't hide spread across his lips at the sense of victory from having completely dominated her.</p>
 
-<p>『Just call me whatever you want~ Master, Honey, Hubby, or Shiwoo. There must be a title you've become at least a little comfortable with by now, right? Hehehe.』</p>
+<p>『Just call me whatever you want Master, Honey, Hubby, or Shiwoo. There must be a title you've become at least a little comfortable with by now, right? Hehehe.』</p>
 
 <p>Seeing Mom unable to even lift her head, soaked in shame, Shiwoo sends a mocking message as if pressing for her confirmation.</p>
 
@@ -38,7 +38,7 @@ chapter = 786
 
 <p>Her flushed face seemed to represent her complex inner state.</p>
 
-<p>『Should we just be Mom and son for now~? It feels like we went a bit too deep back at the motel.』</p>
+<p>『Should we just be Mom and son for now? It feels like we went a bit too deep back at the motel.』</p>
 
 <p>Shiwoo shook her composure by suggesting a normal relationship, as if granting a mischievous mercy.</p>
 
@@ -68,7 +68,7 @@ chapter = 786
 
 <p>But her desperate struggle to hide behind the mask of normalcy only served to heat Shiwoo's twisted desires even more.</p>
 
-<p>『Alright, I'll search for one now, so just wait a bit~』</p>
+<p>『Alright, I'll search for one now, so just wait a bit』</p>
 
 <p>Shiwoo replied and opened a navigation app on his smartphone to search for nearby cafes.</p>
 
@@ -98,7 +98,7 @@ chapter = 786
 
 <p>Mom answered as if resigned, recalling the humiliating exposure she had endured at the karaoke bar last time.</p>
 
-<p>『Isn't the love juice and the stuff I came inside you leaking out? Is it really okay to walk without panties~?』</p>
+<p>『Isn't the love juice and the stuff I came inside you leaking out? Is it really okay to walk without panties?』</p>
 
 <p>Shiwoo checked on her condition, mixing in explicit words.</p>
 
@@ -130,7 +130,7 @@ chapter = 786
 
 <p>At her son's blatant pointing out, Mom retorted as if it were unfair.</p>
 
-<p>『Heh~ No, Mom, do whatever you want from now on~』</p>
+<p>『Heh No, Mom, do whatever you want from now on』</p>
 
 <p>When Shiwoo replied as if amused, Mom's text came back immediately, snapping at him.</p>
 
@@ -138,7 +138,7 @@ chapter = 786
 
 <p>She was snapping at Shiwoo with a firm tone, as if she had completely returned to the role of a mother.</p>
 
-<p>『Alright~ But seriously, isn't it leaking down there? Looking at Sehee, it seemed like she couldn't even walk without a panty liner.』</p>
+<p>『Alright But seriously, isn't it leaking down there? Looking at Sehee, it seemed like she couldn't even walk without a panty liner.』</p>
 
 <p>Shiwoo poked at her sore spot once more, feigning pure curiosity.</p>
 

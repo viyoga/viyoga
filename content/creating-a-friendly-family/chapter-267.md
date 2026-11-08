@@ -46,7 +46,7 @@ chapter = 267
 
 <p>Mom must have hastily put the eye mask back on just before Shiwoo came downstairs.</p>
 
-<p>,You turned off the lights~ and put the eye mask back on~ How cute, our Seonmi~!\,"</p>
+<p>,You turned off the lights and put the eye mask back on How cute, our Seonmi!\,"</p>
 
 <p>Shiwoo said playfully, as if mocking Mom.</p>
 
@@ -168,7 +168,7 @@ chapter = 267
 
 <p>Shiwoo inserted his tongue into the crack between Mom's flesh and rubbed it obsessively up and down.</p>
 
-<p>,Haeueut! Haaaa...Haeut~ Haeung~"</p>
+<p>,Haeueut! Haaaa...Haeut Haeung"</p>
 
 <p>Mom was making a panting moaning sound as if the air was escaping.</p>
 
@@ -184,7 +184,7 @@ chapter = 267
 
 <p>Shiwoo sucked on her sensitive flesh for a long time, receiving Mom's spring water.</p>
 
-<p>,Haa~ Haeuk, Haat"</p>
+<p>,Haa Haeuk, Haat"</p>
 
 <p>Mom's pelvis began to convulse as if in agony.</p>
 
@@ -258,11 +258,11 @@ chapter = 267
 
 <p>Mom's lips, filled with filth, were slowly closing.</p>
 
-<p>,Olgak~! Olgak~! Olgak~!!"</p>
+<p>,Olgak! Olgak! Olgak!!"</p>
 
 <p>Mom swallowed her own vaginal fluid in her mouth behind her throat as Shiwoo commanded.</p>
 
-<p>,Good girl, Seonmi~"</p>
+<p>,Good girl, Seonmi"</p>
 
 <p>Shiwoo said, stroking Mom's head as if she was commendable.</p>
 
@@ -276,7 +276,7 @@ chapter = 267
 
 <p>Shiwoo overlapped his body on top of Mom's body, grabbed his penis pillar, and pushed the end of the pillar between Mom's cracked crevices.</p>
 
-<p>-Swoo-euk~!</p>
+<p>-Swoo-euk!</p>
 
 <p>Shiwoo's penis was sucked into Mom's hole.</p>
 
@@ -286,7 +286,7 @@ chapter = 267
 
 <p>After pushing his penis in halfway, Shiwoo brought his mouth to Mom's ear.</p>
 
-<p>,I'll let you lower your arms because you listened to me so well~ You can lower your arms now!"</p>
+<p>,I'll let you lower your arms because you listened to me so well You can lower your arms now!"</p>
 
 <p>Shiwoo said quietly, as if whispering to Mom, who had her arms attached to the headboard of the bed.</p>
 

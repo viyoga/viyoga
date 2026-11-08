@@ -14,7 +14,7 @@ chapter = 352
 
 <p>A slapping sound that echoed loudly within the vehicle's interior. As if trying to attract the driver ajeossi's attention in the front, Shiwoo boldly slapped Sua's buttocks once again.</p>
 
-<p>"Hauuum~"</p>
+<p>"Hauuum"</p>
 
 <p>Sua's pained sound, like a groan, escaped with her nasal breath.</p>
 
@@ -22,7 +22,7 @@ chapter = 352
 
 <p>Shiwoo raised his other hand as well, spanking Sua's buttocks. -Chalsseok! Chalsseok!</p>
 
-<p>"Hauueum~"</p>
+<p>"Hauueum"</p>
 
 <p>Again, the slapping sound of Shiwoo's palm exploding on Sua's buttocks, and Sua's nasal breath.</p>
 
@@ -64,7 +64,7 @@ chapter = 352
 
 <p>Shiwoo moved his waist rapidly, thrusting his penis in and out, as if trying to burn Sua's wet vaginal walls and the area around her vagina entrance with frictional heat.</p>
 
-<p>"Huup huum hum haup~!"</p>
+<p>"Huup huum hum haup!"</p>
 
 <p>Breathing sounds, scraping her vocal cords, seemed to escape with difficulty from Sua's throat through her nasal breath.</p>
 
@@ -80,7 +80,7 @@ chapter = 352
 
 <p>Shiwoo left the chat screen open, placed the smartphone on Sua's lower abdomen with the screen facing upwards. Sua lowered her head slightly, seemingly reading the text on the smartphone screen resting on her stomach.</p>
 
-<p>While Sua was reading, Seonju Imo-nim's message soon arrived. [Yes, Master-nim! I'll be ready. Hee-eung~ Please turn my daughter Sua into a fucking rag, just as Master-nim wishes.]</p>
+<p>While Sua was reading, Seonju Imo-nim's message soon arrived. [Yes, Master-nim! I'll be ready. Hee-eung Please turn my daughter Sua into a fucking rag, just as Master-nim wishes.]</p>
 
 <p>Seonju Imo-nim replied as if she was fully prepared. Seonju Imo-nim's words were no different from a vow that she would offer her only young daughter to her nephew Shiwoo, and wouldn't care if she was utterly and miserably defiled.</p>
 

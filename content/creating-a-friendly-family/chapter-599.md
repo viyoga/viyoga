@@ -4,11 +4,11 @@ weight = 599
 [extra]
 chapter = 599
 +++
-<p>"Ah... I remember~! Nuna, after you finished showering, you used to walk around in just your panties, didn't you? With your breasts completely exposed..."</p>
+<p>"Ah... I remember! Nuna, after you finished showering, you used to walk around in just your panties, didn't you? With your breasts completely exposed..."</p>
 
 <p>Shiwoo spoke as if recalling a welcome memory, alternately gazing at Sejin Nuna's breasts and face, which were positioned beyond the table laden with food.</p>
 
-<p>"...You remember~? How was it then?"</p>
+<p>"...You remember? How was it then?"</p>
 
 <p>Sejin Nuna swept the hand that was touching her belly upwards, making the back of her hand subtly support the underside of her breast.</p>
 
@@ -20,7 +20,7 @@ chapter = 599
 
 <p>Shiwoo, who had been watching Sejin Nuna's breasts as if in a daze, answered as if flustered, belatedly recognizing her question.</p>
 
-<p>"Really? So it was~?"</p>
+<p>"Really? So it was?"</p>
 
 <p>Sejin Nuna continued to stroke her swollen belly up and down, muttering softly as if responding to Shiwoo's words.</p>
 
@@ -34,7 +34,7 @@ chapter = 599
 
 <p>Shiwoo subtly inserted the word 'breast' instead of 'chest' and used the word 'nipples', speaking as if recalling Sejin Nuna's attire and appearance at that time.</p>
 
-<p>"Yeah~ That's right... You're right~ Shiwoo, you remember surprisingly well~?"</p>
+<p>"Yeah That's right... You're right Shiwoo, you remember surprisingly well?"</p>
 
 <p>Sejin Nuna, as if quite satisfied with Shiwoo's answer and reaction, spoke with a relaxed smile, the corners of her lips turned up.</p>
 
@@ -54,7 +54,7 @@ chapter = 599
 
 <p>A brief silence followed her words, and an indescribable emotion passed between the two of them.</p>
 
-<p>"Ah, but these days, Seyoung does that after she finishes showering, you know? It's like she's completely imitating Sejin Nuna from back then~! Even though her downy hair hasn't even gone away yet... and her breasts are so tiny..."</p>
+<p>"Ah, but these days, Seyoung does that after she finishes showering, you know? It's like she's completely imitating Sejin Nuna from back then! Even though her downy hair hasn't even gone away yet... and her breasts are so tiny..."</p>
 
 <p>Shiwoo playfully described Seyoung's actions, speaking as if trying to lighten the somber mood with laughter.</p>
 
@@ -62,7 +62,7 @@ chapter = 599
 
 <p>Sejin Nuna took Shiwoo's playful words and replied as if making a joke about miscarriage.</p>
 
-<p>"Well~ who knows~ When Dad and Seyoung secretly fell for each other or what happened..."</p>
+<p>"Well who knows When Dad and Seyoung secretly fell for each other or what happened..."</p>
 
 <p>Shiwoo replied with a mischievous laugh, as if agreeing with Sejin Nuna's words.</p>
 
@@ -74,7 +74,7 @@ chapter = 599
 
 <p>Sejin Nuna spoke as if genuinely curious and longing, asking about Seyoung's well-being.</p>
 
-<p>"Yeah~ She seems to have become quite feminine recently. Her breasts and hips seem to be growing beautifully too..."</p>
+<p>"Yeah She seems to have become quite feminine recently. Her breasts and hips seem to be growing beautifully too..."</p>
 
 <p>"Seyoung said she's been sleeping with Mom's breast in her mouth lately, didn't she? If she falls asleep in the master bedroom, I almost always move her to her own room every day, you know?"</p>
 
@@ -82,7 +82,7 @@ chapter = 599
 
 <p>Shiwoo conveyed his honest feelings about Seyoung's development to Sejin Nuna, implying that he had directly touched not only Sehee Nuna's breasts but also Seyoung's.</p>
 
-<p>"Really? It seems Seyoung is growing well thanks to Shiwoo~?"</p>
+<p>"Really? It seems Seyoung is growing well thanks to Shiwoo?"</p>
 
 <p>Sejin Nuna looked at Shiwoo with an amused smile, as if intrigued.</p>
 
@@ -130,7 +130,7 @@ chapter = 599
 
 <p>Then, as if asking Sejin Nuna for permission, Shiwoo asked in a slightly trembling voice.</p>
 
-<p>"Yes~ Come over here~ Could you kneel on the floor for a bit?"</p>
+<p>"Yes Come over here Could you kneel on the floor for a bit?"</p>
 
 <p>Sejin Nuna replied to Shiwoo with a gentle smile.</p>
 
@@ -146,7 +146,7 @@ chapter = 599
 
 <p>Shiwoo asked Sejin Nuna, as if unnecessarily asking for permission one more time.</p>
 
-<p>"Yes~"</p>
+<p>"Yes"</p>
 
 <p>She nodded, and replied gently once more.</p>
 
@@ -168,11 +168,11 @@ chapter = 599
 
 <p>Sejin Nuna asked Shiwoo, who was caressing her pregnant belly, as if curious.</p>
 
-<p>"Uh... It feels f-firmer than I thought? I thought it would be softer and more yielding... It's amazing~"</p>
+<p>"Uh... It feels f-firmer than I thought? I thought it would be softer and more yielding... It's amazing"</p>
 
 <p>Shiwoo, caressing Sejin Nuna's belly, honestly conveyed the sensation and impression he felt in his palm.</p>
 
-<p>"Really? Later, if Shiwoo wants to impregnate someone he loves, you should know about the state and process of pregnancy~ So touch it as much as you want now~"</p>
+<p>"Really? Later, if Shiwoo wants to impregnate someone he loves, you should know about the state and process of pregnancy So touch it as much as you want now"</p>
 
 <p>Sejin Nuna straightened her back, pushing her belly slightly forward, and spoke alluringly, looking at Shiwoo who was stroking her belly.</p>
 

@@ -24,13 +24,13 @@ chapter = 778
 
 <p>「</p>
 
-<p>"Wow... Shiwoo, you just whispered that in Mom's ear, didn't you? And Mom is actually doing exactly what you told her... Even so, you're still parent and child... what a pathetic sight~"</p>
+<p>"Wow... Shiwoo, you just whispered that in Mom's ear, didn't you? And Mom is actually doing exactly what you told her... Even so, you're still parent and child... what a pathetic sight"</p>
 
 <p>」</p>
 
 <p>Sejin Nuna sneered with a hollow laugh, as if she found it truly absurd.</p>
 
-<p>"...That's what she says~"</p>
+<p>"...That's what she says"</p>
 
 <p>Shiwoo pressed his lips against Mom's ear and whispered softly, as if egging her on to insult Sejin Nuna again.</p>
 
@@ -44,13 +44,13 @@ chapter = 778
 
 <p>「</p>
 
-<p>"Shiwoo, you're... incredible~ I really never imagined those kinds of lines would come out of Mom's mouth... I'm genuinely shocked!"</p>
+<p>"Shiwoo, you're... incredible I really never imagined those kinds of lines would come out of Mom's mouth... I'm genuinely shocked!"</p>
 
 <p>」</p>
 
 <p>「</p>
 
-<p>"Just how far do you plan to break Mom? Hehehe~ Then again, with a cock like that, I suppose Mom held out as long as she could?"</p>
+<p>"Just how far do you plan to break Mom? Hehehe Then again, with a cock like that, I suppose Mom held out as long as she could?"</p>
 
 <p>」</p>
 
@@ -118,7 +118,7 @@ chapter = 778
 
 <p>「</p>
 
-<p>"Haaaaa~"</p>
+<p>"Haaaaa"</p>
 
 <p>」</p>
 
@@ -126,7 +126,7 @@ chapter = 778
 
 <p>「</p>
 
-<p>"Shiwoo, aren't you making Mom say things that are a bit too harsh? Honestly, I've never heard Mom talk like that in my life! It's hilarious that she actually follows along just because you told her to~ I wonder if Mom will be okay when the reality check hits her on the way home? Kukut!"</p>
+<p>"Shiwoo, aren't you making Mom say things that are a bit too harsh? Honestly, I've never heard Mom talk like that in my life! It's hilarious that she actually follows along just because you told her to I wonder if Mom will be okay when the reality check hits her on the way home? Kukut!"</p>
 
 <p>」</p>
 
@@ -178,7 +178,7 @@ chapter = 778
 
 <p>「</p>
 
-<p>"Really? Then just make Mom masturbate or something and go to the restroom quickly~ I'll keep Mom warmed up in the meantime~"</p>
+<p>"Really? Then just make Mom masturbate or something and go to the restroom quickly I'll keep Mom warmed up in the meantime"</p>
 
 <p>」</p>
 

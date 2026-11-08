@@ -4,7 +4,7 @@ weight = 760
 [extra]
 chapter = 760
 +++
-<p>「What does age matter? Seonmi, you and I are already in a relationship as man and woman, having sex and all~ Why can't we get married just because I'm young?」</p>
+<p>「What does age matter? Seonmi, you and I are already in a relationship as man and woman, having sex and all Why can't we get married just because I'm young?」</p>
 
 <p>Shiwoo sent the text while feeling the minute physical reactions of his Mom, who was held fast in his arms, in real-time.</p>
 
@@ -16,19 +16,19 @@ chapter = 760
 
 <p>Even though it was just through text, Mom was now using the word 'sex' without hesitation in a conversation with her son...</p>
 
-<p>「What's the difference? If a mother and son have already had sex, they can get married if they get caught up in the mood too~ hehe」</p>
+<p>「What's the difference? If a mother and son have already had sex, they can get married if they get caught up in the mood too hehe」</p>
 
 <p>Shiwoo playfully countered his Mom's words.</p>
 
 <p>「Sex is something you do for a moment and then stop! Marriage requires you to think that way permanently!」</p>
 
-<p>「And in the first place, you and I are parent and child, so other people wouldn't even recognize something like marriage anyway~?」</p>
+<p>「And in the first place, you and I are parent and child, so other people wouldn't even recognize something like marriage anyway?」</p>
 
 <p>She ignored Shiwoo's hand as it kneaded her buttocks and sent the text with a firm, adamant attitude.</p>
 
 <p>「What other people? Who are you talking about?! Did we get permission from people to form a Master-Slave relationship and have sex as mother and son?」</p>
 
-<p>「Why do we even need to tell others about sex or marriage? We can just do it ourselves, and if others find out, we just let them find out~」</p>
+<p>「Why do we even need to tell others about sex or marriage? We can just do it ourselves, and if others find out, we just let them find out」</p>
 
 <p>「Besides, isn't a slave relationship something you have to live out like a daily routine? What exactly is the difference? If we get married, what's going to change from how it is now? Tell me?」</p>
 
@@ -56,7 +56,7 @@ chapter = 760
 
 <p>Mom replied hurriedly, her text riddled with typos as she tried to refute Shiwoo's words.</p>
 
-<p>「Then we can just get married with that same feeling~ What's the problem?」</p>
+<p>「Then we can just get married with that same feeling What's the problem?」</p>
 
 <p>Shiwoo moved his pinky finger as if sliding it into the crack of Mom's buttocks and sent the text mockingly.</p>
 
@@ -96,7 +96,7 @@ chapter = 760
 
 <p>The image of the Mom who had been nagging and shooting at Shiwoo through text just a moment ago was no longer visible to him.</p>
 
-<p>"I didn't mean it lightly... but since Seonmi reacted so stubbornly... I played a little joke afterward~"</p>
+<p>"I didn't mean it lightly... but since Seonmi reacted so stubbornly... I played a little joke afterward"</p>
 
 <p>"The talk about separate rooms earlier was also because I was thinking about what it would feel like to share a room with Seonmi like a married couple..."</p>
 
@@ -106,7 +106,7 @@ chapter = 760
 
 <p>Mom started to write some message to Shiwoo but stopped, suddenly letting out a deep sigh as if it were all futile. She deleted the characters in the input window and scrolled down the chat screen.</p>
 
-<p>"Ugh~!"</p>
+<p>"Ugh!"</p>
 
 <p>While still holding her smartphone, she thrust her hand into the pocket of Shiwoo's cardigan.</p>
 

@@ -10,7 +10,7 @@ chapter = 595
 
 <p>Cheolkeok! Dalkang!</p>
 
-<p>"Shiwoo-ya, I'm here~!"</p>
+<p>"Shiwoo-ya, I'm here!"</p>
 
 <p>Following the sound of the door opening and closing, Sejin Nuna's voice is heard.</p>
 
@@ -60,11 +60,11 @@ chapter = 595
 
 <p class="scene-break">· · ·</p>
 
-<p>"Oh~ Sejin Nuna, you're here?"</p>
+<p>"Oh Sejin Nuna, you're here?"</p>
 
 <p>Shiwoo says happily to Sejin Nuna, who is organizing things in front of the sink, as he comes out of the bathroom.</p>
 
-<p>"Yeah, Shiwoo-ya~ It's been a really long time since I've seen your face~ Right?"</p>
+<p>"Yeah, Shiwoo-ya It's been a really long time since I've seen your face Right?"</p>
 
 <p>When Shiwoo speaks to her as he comes out of the bathroom, Sejin Nuna stops organizing the items and turns around to greet Shiwoo.</p>
 
@@ -86,7 +86,7 @@ chapter = 595
 
 <p>She was clearly dressed and looked like a pregnant woman, but she still possessed an abundance of overflowing sex appeal and elegance within.</p>
 
-<p>"Oh, it's been a really long time~"</p>
+<p>"Oh, it's been a really long time"</p>
 
 <p>Shiwoo approaches Sejin Nuna and answers in response to her greeting.</p>
 
@@ -94,7 +94,7 @@ chapter = 595
 
 <p>Then, Shiwoo looks at her belly here and there, asking with a tone that seems to be filled with worry and curiosity.</p>
 
-<p>"Yeah! I'm good~ It's been about 7 months, and I'm getting regular checkups, and the hospital says I'm healthy, so there's nothing to worry about~"</p>
+<p>"Yeah! I'm good It's been about 7 months, and I'm getting regular checkups, and the hospital says I'm healthy, so there's nothing to worry about"</p>
 
 <p>Sejin Nuna strokes her belly and answers Shiwoo.</p>
 
@@ -122,21 +122,21 @@ chapter = 595
 
 <p>An awkward silence flows between Sejin Nuna and Shiwoo for a moment.</p>
 
-<p>"By the way, why did you buy these things at the convenience store? You can just come to Nuna's house empty-handed~"</p>
+<p>"By the way, why did you buy these things at the convenience store? You can just come to Nuna's house empty-handed"</p>
 
 <p>As if breaking the awkward silence, Sejin Nuna speaks first.</p>
 
-<p>"I just bought them because I wanted to eat them~ I have that much leeway! And it's been a long time~ Don't worry about it~"</p>
+<p>"I just bought them because I wanted to eat them I have that much leeway! And it's been a long time Don't worry about it"</p>
 
 <p>Shiwoo also responds quickly, agreeing with Sejin Nuna's words to erase the awkwardness.</p>
 
-<p>"Still... the ice cream will melt, so you should eat it quickly~ You should have put it in the freezer as soon as you came~ Here~!"</p>
+<p>"Still... the ice cream will melt, so you should eat it quickly You should have put it in the freezer as soon as you came Here!"</p>
 
 <p>Sejin Nuna, nagging like Mom, picks up one of the cone ice creams from the plastic bag with her hand.</p>
 
 <p>Sejin Nuna comes closer to Shiwoo and hands him the cone ice cream she just took out.</p>
 
-<p>"Ah! I forgot about the ice cream! That's right! I have to eat it quickly~"</p>
+<p>"Ah! I forgot about the ice cream! That's right! I have to eat it quickly"</p>
 
 <p>Shiwoo said as he received the ice cream from Sejin Nuna.</p>
 
@@ -146,7 +146,7 @@ chapter = 595
 
 <p>The melted and sticky ice cream dripped down Sejin Nuna's fingers.</p>
 
-<p>"Chureup chyuup~"</p>
+<p>"Chureup chyuup"</p>
 
 <p>Sejin Nuna sticks out her lips and tongue, licking the ice cream dripping down her fingers.</p>
 
@@ -180,21 +180,21 @@ chapter = 595
 
 <p>Shiwoo asks, looking at Sejin Nuna's buttocks explicitly.</p>
 
-<p>"Yeah~ It was around autumn, so it seems like it's been about that long~ Are the other family members doing well?"</p>
+<p>"Yeah It was around autumn, so it seems like it's been about that long Are the other family members doing well?"</p>
 
 <p>Sejin Nuna answers, recalling her memories and agreeing with Shiwoo's words, and asks about the well-being of the other family members.</p>
 
-<p>"They're doing well~ No matter what, everyone is probably doing better than Nuna, right?"</p>
+<p>"They're doing well No matter what, everyone is probably doing better than Nuna, right?"</p>
 
 <p>Shiwoo shrugs his shoulders and says to Sejin Nuna in a sarcastic tone.</p>
 
-<p>"Tsk~ How do you know how I'm doing~?"</p>
+<p>"Tsk How do you know how I'm doing?"</p>
 
 <p>Sejin Nuna reacted as if she was dumbfounded by Shiwoo's attitude and tone.</p>
 
-<p>"Well~ You're living alone like this, away from your family, right?"</p>
+<p>"Well You're living alone like this, away from your family, right?"</p>
 
-<p>"Mom, Sehee Nuna, and Seyoung are all worried about Sejin Nuna a lot~"</p>
+<p>"Mom, Sehee Nuna, and Seyoung are all worried about Sejin Nuna a lot"</p>
 
 <p>Shiwoo slightly changes the atmosphere and conveys the affectionate feelings of the family members who are worried about Sejin Nuna.</p>
 

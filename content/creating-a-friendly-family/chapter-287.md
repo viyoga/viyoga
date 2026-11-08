@@ -26,7 +26,7 @@ chapter = 287
 
 <p>Shiwoo asks, relentlessly grilling her about the relationship between Sehee Nuna and her friends, as if he's attacking her.</p>
 
-<p>,I'm...I'm sorry, Juein-nim~! I was wrong~ Heuuht!\</p>
+<p>,I'm...I'm sorry, Juein-nim! I was wrong Heuuht!\</p>
 
 <p>Sehee Nuna hugs Shiwoo and apologizes.</p>
 
@@ -52,7 +52,7 @@ chapter = 287
 
 <p>Shiwoo curses at Seonju Imo, and as if venting the uncontrollable excitement that's surging up, he slams his pelvis hard into Sehee Nuna's crotch.</p>
 
-<p>,Haaak~! Haeueuk~ Haaaang~! Haaaht!\</p>
+<p>,Haaak! Haeueuk Haaaang! Haaaht!\</p>
 
 <p>Sehee Nuna now lets out a moaning sound as if she's wailing.</p>
 
@@ -72,7 +72,7 @@ chapter = 287
 
 <p>Shiwoo says, brutally slamming his huge penis into Sehee Nuna's tightening hole, as if threatening her.</p>
 
-<p>,Haeuht~! Haeueuk~! Yes...Haeung...Si...Sinbi, I'll...I'll tell her exactly...Haeuheuk~\</p>
+<p>,Haeuht! Haeueuk! Yes...Haeung...Si...Sinbi, I'll...I'll tell her exactly...Haeuheuk\</p>
 
 <p>Sehee Nuna answers obediently to Shiwoo's words, moaning as if she's about to lose her breath.</p>
 
@@ -88,7 +88,7 @@ chapter = 287
 
 <p>Shiwoo forcefully shoves his penis back and forth, as if making a final spurt inside Sehee Nuna's pussy.</p>
 
-<p>,Haaak! Haeuht! Aeuuk! Aaaat~\</p>
+<p>,Haaak! Haeuht! Aeuuk! Aaaat\</p>
 
 <p>Sehee Nuna doesn't know what to do and moans loudly at Shiwoo's intense thrusting that's strongly stabbing her uterus.</p>
 
@@ -98,7 +98,7 @@ chapter = 287
 
 <p>Shiwoo's relentless piston-like thrusting continues with the momentum as if he's going to penetrate Sehee Nuna's uterus.</p>
 
-<p>,Haeueuk~ Haeueuht~ Haeueue Haaaang! Juein-nim~Haaaang~\</p>
+<p>,Haeueuk Haeueuht Haeueue Haaaang! Juein-nimHaaaang\</p>
 
 <p>Sehee Nuna's screaming moans gradually change into a wailing cry.</p>
 
@@ -112,19 +112,19 @@ chapter = 287
 
 <p class="scene-break">· · ·</p>
 
-<p>,Haaa~ Haaa~ Haaa~Haaa~\</p>
+<p>,Haaa Haaa HaaaHaaa\</p>
 
 <p>Shiwoo was lying on top of Sehee Nuna's body, catching his breath.</p>
 
 <p>A light and languid sense of fatigue seemed to cover Shiwoo and Sehee Nuna's bodies like a thin layer of air or fabric.</p>
 
-<p>,I have to go downstairs to eat, but I feel like I've lost all my energy~ Let's stay like this a little longer~\</p>
+<p>,I have to go downstairs to eat, but I feel like I've lost all my energy Let's stay like this a little longer\</p>
 
 <p>Shiwoo was talking with his penis, which hadn't completely lost its erection after ejaculation, still inserted inside Sehee Nuna's body.</p>
 
 <p>Sehee Nuna, who was intermittently twitching her body as if enjoying the afterglow of her climax.</p>
 
-<p>,Haaa...Euh...Eung...Th...That's right....Heuuht...Juu...Just a little...later...Haaa~\</p>
+<p>,Haaa...Euh...Eung...Th...That's right....Heuuht...Juu...Just a little...later...Haaa\</p>
 
 <p>Sehee Nuna also answers Shiwoo's words, catching her breath as if it's hard for her to get up right away.</p>
 
@@ -146,7 +146,7 @@ chapter = 287
 
 <p>Shiwoo looks down at the used condom, as if thinking about something for a moment.</p>
 
-<p>,I'll keep this and have Sehee give it to Mom later~\</p>
+<p>,I'll keep this and have Sehee give it to Mom later\</p>
 
 <p>Shiwoo pulls and ties the ring part of the condom and hands it to Sehee Nuna.</p>
 
@@ -154,7 +154,7 @@ chapter = 287
 
 <p>Sehee Nuna asks, receiving the condom that Shiwoo handed her with both hands, as if she's flustered.</p>
 
-<p>,I'll talk to Mom about it beforehand~! Don't worry too much~\</p>
+<p>,I'll talk to Mom about it beforehand! Don't worry too much\</p>
 
 <p>Shiwoo said to Sehee Nuna with a playful expression.</p>
 
@@ -176,17 +176,17 @@ chapter = 287
 
 <p>Just like he dressed Mom, Shiwoo was planning not to have Sehee Nuna wear underwear for the day.</p>
 
-<p>,Wear this today~ Don't wear underwear~\</p>
+<p>,Wear this today Don't wear underwear\</p>
 
 <p>Shiwoo brings the white long hoodie to the bed where Sehee Nuna is and says.</p>
 
 <p>Sehee Nuna takes the clothes that Shiwoo gives her and makes a troubled expression.</p>
 
-<p>,Mom is going to wear it like that today too~ Well~ If you don't want to wear it, Sehee, you can just be naked~\</p>
+<p>,Mom is going to wear it like that today too Well If you don't want to wear it, Sehee, you can just be naked\</p>
 
 <p>Shiwoo said to Sehee Nuna in a teasing tone, as if forcing her to wear the clothes he chose without underwear.</p>
 
-<p>,I...I'll wear it...Haaa~\</p>
+<p>,I...I'll wear it...Haaa\</p>
 
 <p>Sehee Nuna answers Shiwoo with a sigh, as if she can't help it.</p>
 
@@ -194,7 +194,7 @@ chapter = 287
 
 <p>Shiwoo was feeling a sense of inexplicable pride as he watched Sehee Nuna put on the clothes according to his command.</p>
 
-<p>,Then I'll go to my room and get dressed too~ Sehee, you go downstairs first!\</p>
+<p>,Then I'll go to my room and get dressed too Sehee, you go downstairs first!\</p>
 
 <p>Shiwoo says that and leaves Sehee Nuna's room, entering his own room.</p>
 

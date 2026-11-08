@@ -4,7 +4,7 @@ weight = 312
 [extra]
 chapter = 312
 +++
-<p>,Ah, right~~! Sua said that if we go to the amusement park today, she definitely wants to visit the haunted house~! She's too scared to have ever gone in before~,</p>
+<p>,Ah, right! Sua said that if we go to the amusement park today, she definitely wants to visit the haunted house! She's too scared to have ever gone in before,</p>
 
 <p>Seyoung, as if to tease Shiwoo again without a care, returns to a conversational topic that exudes an everyday atmosphere.</p>
 
@@ -16,17 +16,17 @@ chapter = 312
 
 <p>As if reacting to Shiwoo's smartphone sliding down to the lower part of her buttocks curve, Seyoung's buttock muscles twitch and tense up.</p>
 
-<p>,Yeah~ Before, we went to the amusement park with all our friends, but even then, Sua was the only one who was too scared to go in with us~! Hehe~,</p>
+<p>,Yeah Before, we went to the amusement park with all our friends, but even then, Sua was the only one who was too scared to go in with us! Hehe,</p>
 
 <p>Seyoung, despite Shiwoo's blatant molestation, was still answering Shiwoo's words with a nonchalant smile.</p>
 
-<p>,Ah~ So you went before? But if you were too scared to go in before, will you be okay today? Sua-ya?,</p>
+<p>,Ah So you went before? But if you were too scared to go in before, will you be okay today? Sua-ya?,</p>
 
 <p>Shiwoo turns his head towards Sua and asks as if confirming.</p>
 
 <p>Sua, conscious of the vibrator vibrating in her crotch and Shiwoo's hand covering her buttocks, can't answer right away.</p>
 
-<p>,Yeah~ Today, Shiwoo Oppa is with me, so I think I'll be okay~ Earlier, Oppa took Seonju into the house, right? At that time, Sua and I were waiting outside, and we kept talking about where we would go at the amusement park today!,</p>
+<p>,Yeah Today, Shiwoo Oppa is with me, so I think I'll be okay Earlier, Oppa took Seonju into the house, right? At that time, Sua and I were waiting outside, and we kept talking about where we would go at the amusement park today!,</p>
 
 <p>Seyoung was answering Shiwoo on behalf of Sua, who couldn't answer.</p>
 
@@ -36,7 +36,7 @@ chapter = 312
 
 <p>Shiwoo, slightly flustered, tries not to show it and answers Seyoung's words.</p>
 
-<p>,Yeah~! Hehe~!,</p>
+<p>,Yeah! Hehe!,</p>
 
 <p>Seyoung, as if responding to Shiwoo's words, was giving off a bright smile that was no different from usual.</p>
 
@@ -116,11 +116,11 @@ chapter = 312
 
 <p>Shiwoo uses his middle and ring fingers to firmly press the vibrator towards Sua's body.</p>
 
-<p>-Jiiiiing~!~!</p>
+<p>-Jiiiiing!!</p>
 
 <p>The vibration sound of the vibrator pressed between his fingers and pubic bone was getting louder.</p>
 
-<p>,Haa-euh~ Heueu... Heueum~,</p>
+<p>,Haa-euh Heueu... Heueum,</p>
 
 <p>Sua now makes a sound that is difficult to distinguish between a moan and a breath, shaking her body.</p>
 

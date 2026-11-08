@@ -80,7 +80,7 @@ chapter = 638
 
 <p>However, her tone and gaze were inducing a certain answer, and Shiwoo, without even fully understanding the meaning, nodded as if pushed by the atmosphere.</p>
 
-<p>"I heard from Seyoung-yang that your father passed away a few months ago~"</p>
+<p>"I heard from Seyoung-yang that your father passed away a few months ago"</p>
 
 <p>She spoke softly, in a tone mixed with sympathy and curiosity.</p>
 

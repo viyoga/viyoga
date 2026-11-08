@@ -196,7 +196,7 @@ chapter = 440
 
 <p>Mom immediately knelt down and grabbed Shiwoo's pants leg, begging.</p>
 
-<p>"P-Please, can't you just forgive me once? Master-nim... Hieing... It's too much to do this without even telling me properly~ Hieeeeeeeng~"</p>
+<p>"P-Please, can't you just forgive me once? Master-nim... Hieing... It's too much to do this without even telling me properly Hieeeeeeeng"</p>
 
 <p>Eventually, Mom burst into tears and begged Shiwoo.</p>
 

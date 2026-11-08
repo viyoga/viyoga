@@ -26,7 +26,7 @@ chapter = 180
 
 <p>Shiwoo's enormous penis, which is hard to capture in one screen, was shaking wildly within the frame.</p>
 
-<p>,Ah~! Seonju-ya! Sua! You fucking bitches!,</p>
+<p>,Ah! Seonju-ya! Sua! You fucking bitches!,</p>
 
 <p>Shiwoo calls out Seonju Imo and Sua's names side by side, spewing out expletives filled with passion.</p>
 
@@ -90,7 +90,7 @@ chapter = 180
 
 <p>Shiwoo asks, calling the mother, Seonju Imo, by her name without honorifics in the chat room where her daughter, Sua, is.</p>
 
-<p>,I'm cleaning up the mess that Shiwoo and I made~ I'm almost done. I'll go down in a bit.,</p>
+<p>,I'm cleaning up the mess that Shiwoo and I made I'm almost done. I'll go down in a bit.,</p>
 
 <p>Seonju Imo was answering as if it was nothing for Shiwoo to call her name without honorifics in front of her daughter.</p>
 
@@ -98,7 +98,7 @@ chapter = 180
 
 <p>Shiwoo asks how Seonju Imo dealt with the semen and urine he discharged into her body.</p>
 
-<p>,I roughly wiped it off with a wet towel, but my hair is all wet and I think there's still some taste left in my mouth~ Hiiiing~,</p>
+<p>,I roughly wiped it off with a wet towel, but my hair is all wet and I think there's still some taste left in my mouth Hiiiing,</p>
 
 <p>It seemed that Seonju Imo was not using honorifics or the title of Master, as Shiwoo had ordered.</p>
 
@@ -108,7 +108,7 @@ chapter = 180
 
 <p>This time, Shiwoo calls Seonju Imo ,you, and instructs her as if she were a subordinate.</p>
 
-<p>,Okay~Jagiya! I'll go down and shower~,</p>
+<p>,OkayJagiya! I'll go down and shower,</p>
 
 <p>Seonju Imo answers Shiwoo's command obediently, using the title ,Jagiya, instead of Master for Shiwoo.</p>
 
@@ -190,7 +190,7 @@ chapter = 180
 
 <p>Sua glanced at Shiwoo sideways, then shyly turned her head away as if she was embarrassed for a moment.</p>
 
-<p>,Oppa, are you done showering?! Hehe~ We haven't named him yet. If it's okay, would Shiwoo Oppa give him one?,</p>
+<p>,Oppa, are you done showering?! Hehe We haven't named him yet. If it's okay, would Shiwoo Oppa give him one?,</p>
 
 <p>Seyoung smiles brightly as if it's nothing to see her brother in his underwear.</p>
 

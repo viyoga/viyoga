@@ -28,7 +28,7 @@ chapter = 114
 
 <p>Sehee Nuna's realization was persistently continuing due to Shiwoo's tongue, which was wrapped around her clitoris.</p>
 
-<p>"Haa-euh... Heueu-eut~ Haa-euaht~"</p>
+<p>"Haa-euh... Heueu-eut Haa-euaht"</p>
 
 <p>Sehee Nuna's moaning sound, which was tearful and sweet.</p>
 
@@ -54,7 +54,7 @@ chapter = 114
 
 <p>-Jjigeo-eok!!!</p>
 
-<p>"Haaaaaak~!!!"</p>
+<p>"Haaaaaak!!!"</p>
 
 <p>Sehee Nuna's cry of pleasure.</p>
 
@@ -80,7 +80,7 @@ chapter = 114
 
 <p>Shiwoo's cock, which had become fully enlarged once again inside Sehee Nuna.</p>
 
-<p>"Heueueuk~"</p>
+<p>"Heueueuk"</p>
 
 <p>Sehee Nuna was embracing Shiwoo's body in a daze and making moaning sounds like empty air.</p>
 
@@ -96,7 +96,7 @@ chapter = 114
 
 <p>Shiwoo slightly turned his head to the side, put it near Sehee Nuna's ear, and said.</p>
 
-<p>"I'm going to keep it in like this all night! Sehee, you can just sleep if you're sleepy~! Got it?"</p>
+<p>"I'm going to keep it in like this all night! Sehee, you can just sleep if you're sleepy! Got it?"</p>
 
 <p>His low voice resonated in Sehee Nuna's eardrum.</p>
 
@@ -130,7 +130,7 @@ chapter = 114
 
 <p>Shiwoo brought his lips to Sehee Nuna's ear.</p>
 
-<p>"I'm going to send Seonju Imo the picture of you I took in the shower earlier~ I want you to know that too, Sehee!!"</p>
+<p>"I'm going to send Seonju Imo the picture of you I took in the shower earlier I want you to know that too, Sehee!!"</p>
 
 <p>Shiwoo whispered to Sehee Nuna, who was lying as if asleep, embracing Shiwoo.</p>
 
@@ -144,7 +144,7 @@ chapter = 114
 
 <p>-Jjigeok! Jjigeok! Jjigeok!!</p>
 
-<p>"Haa-euh. Heueue~eueue..."</p>
+<p>"Haa-euh. Heueueeueue..."</p>
 
 <p>Sehee Nuna's suppressed moaning sound.</p>
 
@@ -160,23 +160,23 @@ chapter = 114
 
 <p>The number next to the photo disappeared, and a reply came from Seonju Imo immediately.</p>
 
-<p>'Wow~ jagi~ I heard you two came back holding hands affectionately~ Did you do it today~?'</p>
+<p>'Wow jagi I heard you two came back holding hands affectionately Did you do it today?'</p>
 
 <p>Seonju Imo was replying as if it were natural, as if the day's gap was insignificant.</p>
 
-<p>'Yeah~!'</p>
+<p>'Yeah!'</p>
 
 <p>Shiwoo answered simply.</p>
 
-<p>'I knew it~!! I knew it would happen~ㅋㅋㅋ Then can we comfortably do it at your house now too?'</p>
+<p>'I knew it!! I knew it would happenㅋㅋㅋ Then can we comfortably do it at your house now too?'</p>
 
 <p>Seonju Imo was happily writing a text and sending it to Shiwoo.</p>
 
-<p>'Well~ Isn't that only because Mom and Seyoung aren't here?'</p>
+<p>'Well Isn't that only because Mom and Seyoung aren't here?'</p>
 
 <p>Shiwoo's heart was pounding at Seonju Imo's words, but he tried to answer calmly.</p>
 
-<p>'That's great~ Then all that's left is to fuck Sua and Seyoung and tell Unnie about our relationship? There's no need to be conscious of anyone at home now?ㅋㅋㅋ'</p>
+<p>'That's great Then all that's left is to fuck Sua and Seyoung and tell Unnie about our relationship? There's no need to be conscious of anyone at home now?ㅋㅋㅋ'</p>
 
 <p>Seonju Imo was saying something huge, like telling Mom, as if it were nothing.</p>
 
@@ -192,7 +192,7 @@ chapter = 114
 
 <p>-Peok!! Peok!! Peok!! Peok!! Peok!!!</p>
 
-<p>"Ha-eut Haa-aht Haa Haeung~"</p>
+<p>"Ha-eut Haa-aht Haa Haeung"</p>
 
 <p>Sehee Nuna wrapped her arms around Shiwoo's body, clinging to him.</p>
 
@@ -200,7 +200,7 @@ chapter = 114
 
 <p>Shiwoo barely regained his senses and stopped his hips.</p>
 
-<p>"Haa... Haa... Heueue~"</p>
+<p>"Haa... Haa... Heueue"</p>
 
 <p>Sehee Nuna's breath, as if she was disappointed.</p>
 
@@ -208,7 +208,7 @@ chapter = 114
 
 <p>Shiwoo sent a text to Seonju Imo, scolding her harshly with curses.</p>
 
-<p>'Hee-ing~ I'm sorry~ But I said that because I was thinking of jagi~ So don't be too angry~~ Yeobo~'</p>
+<p>'Hee-ing I'm sorry But I said that because I was thinking of jagi So don't be too angry Yeobo'</p>
 
 <p>Seonju Imo was mixing honorifics and adding a new title to Shiwoo.</p>
 
@@ -218,7 +218,7 @@ chapter = 114
 
 <p>Shiwoo was deliberately acting angry at Seonju Imo.</p>
 
-<p>'Yeobo~ I'll listen to you from now on. Please be gentle~!"</p>
+<p>'Yeobo I'll listen to you from now on. Please be gentle!"</p>
 
 <p>Seonju Imo was saying words that matched Shiwoo's lines, as if she was being coquettish.</p>
 
@@ -234,7 +234,7 @@ chapter = 114
 
 <p>Shiwoo sent a text to Seonju Imo in an oppressive tone, as if giving a warning.</p>
 
-<p>'Hee-ing~ Every day? All night? Until what time do I have to be naked?'</p>
+<p>'Hee-ing Every day? All night? Until what time do I have to be naked?'</p>
 
 <p>Seonju Imo was asking as if confirming the detailed conditions of the task Shiwoo had given her.</p>
 
@@ -242,11 +242,11 @@ chapter = 114
 
 <p>Shiwoo said as if driving a stake.</p>
 
-<p>'Why would I lie to Yeobo~?!! Can I do it from now on?'</p>
+<p>'Why would I lie to Yeobo?!! Can I do it from now on?'</p>
 
 <p>Seonju Imo, who seemed to have decided to call Shiwoo by the title Yeobo from now on, was continuing to call Shiwoo that with a coquettish tone.</p>
 
-<p>'Yeah~ From now on, so take a picture of yourself with your clothes off and send it right away!'</p>
+<p>'Yeah From now on, so take a picture of yourself with your clothes off and send it right away!'</p>
 
 <p>Shiwoo felt a strange feeling as he gave the order as if confirming for the last time.</p>
 

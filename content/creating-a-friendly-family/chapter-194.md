@@ -84,7 +84,7 @@ chapter = 194
 
 <p>Shiwoo answered Sora Nuna's question calmly.</p>
 
-<p>"Yeah~ That's a good idea~ It doesn't matter if we're a little late anyway, right? Let's play a little longer, Sinbi-ya~"</p>
+<p>"Yeah That's a good idea It doesn't matter if we're a little late anyway, right? Let's play a little longer, Sinbi-ya"</p>
 
 <p>Sora Nuna said, turning to Sinbi Nuna, who was waiting for Shiwoo in her seat.</p>
 
@@ -154,7 +154,7 @@ chapter = 194
 
 <p>Sinbi Nuna, who had been running while held by the wrist by Shiwoo, pulled her arm and stopped.</p>
 
-<p>"Huk~ huk~ Shiwoo-ya, wait, why... why are you doing this?" Sinbi Nuna asked Shiwoo, gasping for breath.</p>
+<p>"Huk huk Shiwoo-ya, wait, why... why are you doing this?" Sinbi Nuna asked Shiwoo, gasping for breath.</p>
 
 <p>"Sinbi Nuna! Huk! Huk! Those Hyeong-s seem to be dangerous! They put strange drugs in the liquor!"</p>
 

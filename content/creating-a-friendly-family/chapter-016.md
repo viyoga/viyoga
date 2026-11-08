@@ -280,6 +280,6 @@ chapter = 16
 
 <p>Tta-ak!!!</p>
 
-<p>Heo-eooo-eok~!!!</p>
+<p>Heo-eooo-eok!!!</p>
 
 <p>Mom let out a gasping moaning sound, trembling violently as if she were dying.</p>

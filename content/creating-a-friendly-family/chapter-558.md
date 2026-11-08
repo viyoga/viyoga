@@ -72,7 +72,7 @@ chapter = 558
 
 <p>Seyoung's face was as thick as if she had taken a large amount of moisturizing lotion and spread it out.</p>
 
-<p>"Now go! Be careful not to spill it~"</p>
+<p>"Now go! Be careful not to spill it"</p>
 
 <p>Shiwoo says, gently tapping Seyoung's forehead with his penis, which was starting to regain its strength.</p>
 

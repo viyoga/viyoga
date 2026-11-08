@@ -6,7 +6,7 @@ chapter = 207
 +++
 <p>The next morning,</p>
 
-<p>"Shiwoo-ya~! Big trouble! Wake up~ Shiwoo-ya~!"</p>
+<p>"Shiwoo-ya! Big trouble! Wake up Shiwoo-ya!"</p>
 
 <p>It was Sehee Nuna's urgent voice waking Shiwoo.</p>
 
@@ -28,7 +28,7 @@ chapter = 207
 
 <p>Before his eyes was Sehee Nuna, wearing the pink dress.</p>
 
-<p>"Shiwoo-ya~ What are we going to do now~?"</p>
+<p>"Shiwoo-ya What are we going to do now?"</p>
 
 <p>Sehee Nuna, kneeling in a seductive pose, was speaking to Shiwoo with a worried expression.</p>
 
@@ -42,7 +42,7 @@ chapter = 207
 
 <p>It was Sehee Nuna's smartphone, the one Shiwoo had unlocked the password and changed the background image on yesterday.</p>
 
-<p>"Take a look at this~!"</p>
+<p>"Take a look at this!"</p>
 
 <p>Sehee Nuna said, showing Shiwoo the smartphone screen with a worried expression.</p>
 
@@ -98,11 +98,11 @@ chapter = 207
 
 <p>Thinking about Mom's fickle mood and feelings, Shiwoo's 'thing' became even more erect.</p>
 
-<p>"It's okay~ Sehee, you don't have to worry! I'll take care of everything!"</p>
+<p>"It's okay Sehee, you don't have to worry! I'll take care of everything!"</p>
 
 <p>Shiwoo lowered his hand from Sehee Nuna's head and grabbed her large breasts, wrapped in the dress fabric, and said.</p>
 
-<p>"Heut~ uh... okay~"</p>
+<p>"Heut uh... okay"</p>
 
 <p>The way Sehee Nuna called Shiwoo and her tone had returned to normal, but her attitude and intonation still felt submissive, just like last night.</p>
 
@@ -130,7 +130,7 @@ chapter = 207
 
 <p>Then, Sehee Nuna's face began to change to an expression as if she was relieved by something.</p>
 
-<p>"Yes... Master-nim~!"</p>
+<p>"Yes... Master-nim!"</p>
 
 <p>Sehee Nuna knelt down and answered, slightly bowing her head.</p>
 
@@ -156,7 +156,7 @@ chapter = 207
 
 <p>And he aimed the tip of his cock precisely at Sehee Nuna's mouth, which was trying to cover his glans, and slowly pushed it inside.</p>
 
-<p>"Haap~ Hoo-oop~! Hoo-ap~"</p>
+<p>"Haap Hoo-oop! Hoo-ap"</p>
 
 <p>Sehee Nuna's mouth was filled with his glans and shaft.</p>
 
@@ -188,7 +188,7 @@ chapter = 207
 
 <p>Shiwoo was trying to finish the last ejaculation towards Sehee Nuna's face, neck, and breasts, which had reached its climax.</p>
 
-<p>"Pshyuk! Pshyuk~! Pshyuuuk~!"</p>
+<p>"Pshyuk! Pshyuk! Pshyuuuk!"</p>
 
 <p>Clumps of semen were mercilessly sprayed on Sehee Nuna's mouth, face, neck, and breasts.</p>
 
@@ -204,7 +204,7 @@ chapter = 207
 
 <p>Shiwoo's penis was sucked and pulled in Sehee Nuna's mouth as if being inhaled, and was being chewed in Sehee Nuna's mouth.</p>
 
-<p>"Eueu... eu-eut~"</p>
+<p>"Eueu... eu-eut"</p>
 
 <p>Sehee Nuna's bumpy tongue papillae brushed against his sensitive penis, creating a tingling sensation.</p>
 

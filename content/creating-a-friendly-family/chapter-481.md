@@ -72,7 +72,7 @@ chapter = 481
 
 <p>Looking at the latter part of the phrase where other family members were mentioned, she could clearly see that the video being filmed now would also be fully disclosed to other family members...</p>
 
-<p>"Keep going~ Seonmi-ya! We don't know when Seyoung will come in!"</p>
+<p>"Keep going Seonmi-ya! We don't know when Seyoung will come in!"</p>
 
 <p>Shiwoo said to Mom from beyond the camera, teasingly urging her on.</p>
 

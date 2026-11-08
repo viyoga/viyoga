@@ -28,7 +28,7 @@ chapter = 389
 
 <p>Shiwoo's tone was insulting and contemptuous.</p>
 
-<p>"Haa-eu-eung! Haa-heu-eu-eu~~ haa-heu-heuk! Haa-eung!"</p>
+<p>"Haa-eu-eung! Haa-heu-eu-eu haa-heu-heuk! Haa-eung!"</p>
 
 <p>Sora Nuna moaned, her voice soaked in pleasure, helplessly pressed under Shiwoo's body.</p>
 
@@ -36,7 +36,7 @@ chapter = 389
 
 <p>Shiwoo spat out, denouncing Sora Nuna.</p>
 
-<p>"Haa-eu-eung...I...I...I was wrong...haa-eu-eung~"</p>
+<p>"Haa-eu-eung...I...I...I was wrong...haa-eu-eung"</p>
 
 <p>Before she knew it, Sora Nuna was using respectful speech towards Shiwoo.</p>
 
@@ -46,7 +46,7 @@ chapter = 389
 
 <p>Shiwoo's denunciation and fierce pounding continued, scolding and rebuking.</p>
 
-<p>"Haa-aaa-aang... Haa-aaa-ak haa-eu-euk Ju... Ju-in-nim~~~!"</p>
+<p>"Haa-aaa-aang... Haa-aaa-ak haa-eu-euk Ju... Ju-in-nim!"</p>
 
 <p>Along with a moaning sound as if she was about to faint, Sora Nuna naturally shouted the title of Master.</p>
 
@@ -54,7 +54,7 @@ chapter = 389
 
 <p>Eventually, she even called out Sehee Nuna's name, who was in the living room, and begged.</p>
 
-<p>"Sa... Save me!! Haa-eu-eu~ heu-eu-eung!!"</p>
+<p>"Sa... Save me!! Haa-eu-eu heu-eu-eung!!"</p>
 
 <p>And Sora Nuna's last words, shouted as if in a desperate cry.</p>
 
@@ -138,7 +138,7 @@ chapter = 389
 
 <p>Shiwoo was now thrusting his long and large penis into Sora Nuna's vagina hole without any restrictions.</p>
 
-<p>"Haa-ak! Haa-aak! Hu-uk! Hu-u-up~! Hu-u-ut! Haa-eung! Haa-aang!"</p>
+<p>"Haa-ak! Haa-aak! Hu-uk! Hu-u-up! Hu-u-ut! Haa-eung! Haa-aang!"</p>
 
 <p>Sora Nuna screamed, as if she could no longer bear it, with moaning sounds close to screams, due to Shiwoo's pounding that seemed to be piercing through her uterus and intestines.</p>
 
@@ -152,15 +152,15 @@ chapter = 389
 
 <p>The bed sheets were already soaked with the sweat and secretions of the two people.</p>
 
-<p>"Au! A-uk! Hau-uk~ Sa... Save... Heo-eu-uk, Heu-eung~"</p>
+<p>"Au! A-uk! Hau-uk Sa... Save... Heo-eu-uk, Heu-eung"</p>
 
 <p>Her cries of pleasure had now changed to gasping, breathless sounds.</p>
 
 <p>She wanted to tilt her head back and let the pleasure of the climax, which was rising from her uterus along her spinal cord to her head, flow out, but Shiwoo's firm arms, which were wrapped around her head, would not allow it.</p>
 
-<p>"Haa-eu-eung Heu-eu-euk I...I was wro...He-eu-eung~ Pl... Please... Sa... Save me... Master~ Haa-eung...!"</p>
+<p>"Haa-eu-eung Heu-eu-euk I...I was wro...He-eu-eung Pl... Please... Sa... Save me... Master Haa-eung...!"</p>
 
-<p>"Wo... Women... Doing it... Is... Is okay to... Wa... Watch... Se... Sehee... Haa-eung~! Said that... Haa-eu-eung~ Hii-ing~ Eua-aang~ Haa-euk!"</p>
+<p>"Wo... Women... Doing it... Is... Is okay to... Wa... Watch... Se... Sehee... Haa-eung! Said that... Haa-eu-eung Hii-ing Eua-aang Haa-euk!"</p>
 
 <p>Sora Nuna was mumbling words that were difficult to understand, as if crying.</p>
 
@@ -168,7 +168,7 @@ chapter = 389
 
 <p>Even with Sora Nuna's desperate, tearful pleas, Shiwoo did not stop his intense pounding that seemed to pierce through her intestines.</p>
 
-<p>"Sa... Save me... I... I... Sai... Said... Haa-eu-eung~! Haa-eu-euk!... Ma... Master~... Haa-eu-eu..."</p>
+<p>"Sa... Save me... I... I... Sai... Said... Haa-eu-eung! Haa-eu-euk!... Ma... Master... Haa-eu-eu..."</p>
 
 <p>Sora Nuna's body seemed to stiffen as if it had hardened.</p>
 

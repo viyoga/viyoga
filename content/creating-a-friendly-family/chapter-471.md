@@ -126,7 +126,7 @@ chapter = 471
 
 <p>However, the taste and traces of the ice cream remaining on Mom's nipples alone would be enough to convey a different atmosphere and a lewd feeling to Seyoung than usual.</p>
 
-<p>"Ha-u-um...ha-a-ap...ha-a-a-u-up chyu-u-up chyu-a-ap~!"</p>
+<p>"Ha-u-um...ha-a-ap...ha-a-a-u-up chyu-u-up chyu-a-ap!"</p>
 
 <p>Mom licks Shiwoo's shaft with her tongue, responding as if complying with Shiwoo's command.</p>
 

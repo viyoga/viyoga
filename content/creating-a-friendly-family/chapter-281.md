@@ -86,7 +86,7 @@ chapter = 281
 
 <p>Shiwoo's huge penis was being pulled out as if leaping upward.</p>
 
-<p>"Uuuueok! Kulleok Kulleok Kek! Hau~heup!"</p>
+<p>"Uuuueok! Kulleok Kulleok Kek! Hauheup!"</p>
 
 <p>Mom put her hands on the floor and fell forward as if she was vomiting.</p>
 
@@ -106,7 +106,7 @@ chapter = 281
 
 <p>As if on purpose, Shiwoo's white liquid was poured all over Mom's gray top and purple skirt like splattering paint.</p>
 
-<p>"Haaaa~ Heuek~ Haaaa~ Hahheuek"</p>
+<p>"Haaaa Heuek Haaaa Hahheuek"</p>
 
 <p>Mom was making sounds as if sobbing while being hit by Shiwoo's semen.</p>
 
@@ -124,7 +124,7 @@ chapter = 281
 
 <p>Mom, with her eyes dimly open as if she was exhausted, was leaving everything to Shiwoo's whims.</p>
 
-<p>"Haeuup~ Haaaap~ Haeuek... Haeut~"</p>
+<p>"Haeuup Haaaap Haeuek... Haeut"</p>
 
 <p>Mom was kneeling and groaning, covered in Shiwoo's semen all over her head, face, mouth, and outerwear.</p>
 
@@ -134,7 +134,7 @@ chapter = 281
 
 <p>Mom seemed to have belatedly realized that Seyoung was in the kitchen.</p>
 
-<p>"Haeueueueue~"</p>
+<p>"Haeueueueue"</p>
 
 <p>Mom thought that even if Seyoung had heard the sounds coming from the dressing room, there was nothing she could do now?</p>
 
@@ -156,7 +156,7 @@ chapter = 281
 
 <p>In the dressing room, Mom was still kneeling and sitting, catching her breath while covered in Shiwoo's semen.</p>
 
-<p>"Mom~ I need to wash my hair. I think I need to wash my clothes too?"</p>
+<p>"Mom I need to wash my hair. I think I need to wash my clothes too?"</p>
 
 <p>Shiwoo spoke to Mom as if nothing had happened, just like usual.</p>
 
@@ -166,11 +166,11 @@ chapter = 281
 
 <p>-As if to confirm that his promise with Mom was still valid, he repeatedly attached the title Mom...-</p>
 
-<p>"Haeueue... Heueu~"</p>
+<p>"Haeueue... Heueu"</p>
 
 <p>Instead of answering, Mom was making humiliating breathing sounds in front of Shiwoo.</p>
 
-<p>"I'll pick out the clothes to change into and bring them to you~ Is that okay?"</p>
+<p>"I'll pick out the clothes to change into and bring them to you Is that okay?"</p>
 
 <p>Shiwoo asked Mom as if deliberately forcing her to answer.</p>
 
@@ -186,7 +186,7 @@ chapter = 281
 
 <p>Then, Shiwoo turned back to Mom as if he had remembered something.</p>
 
-<p>"That's right~! I'm going to go up to wake Sehee now, but after having sex with Mom yesterday, I left my condom in the master bedroom, right? I think I left it on the bed, but did you happen to put it away somewhere?"</p>
+<p>"That's right! I'm going to go up to wake Sehee now, but after having sex with Mom yesterday, I left my condom in the master bedroom, right? I think I left it on the bed, but did you happen to put it away somewhere?"</p>
 
 <p>Shiwoo asked Mom about the location of the condom he would use when having sex with Sehee, as if it had now become natural to wake Sehee and have sex with her.</p>
 
@@ -198,7 +198,7 @@ chapter = 281
 
 <p>That appearance of Mom was exactly the appearance of a sex slave being tamed by her new owner.</p>
 
-<p>"Or should I just do it raw from now on~? I don't mind~ After all, Sehee also..."</p>
+<p>"Or should I just do it raw from now on? I don't mind After all, Sehee also..."</p>
 
 <p>Shiwoo teased Mom, saying jokingly as if testing her.</p>
 
@@ -206,11 +206,11 @@ chapter = 281
 
 <p>Mom told Shiwoo the location of the condom in the master bedroom as if cutting off Shiwoo's words urgently.</p>
 
-<p>"You put it in there? Got it~ I'll bring Mom's clothes and then go up, so it'll probably take about 15 minutes, so wash up and come out slowly~"</p>
+<p>"You put it in there? Got it I'll bring Mom's clothes and then go up, so it'll probably take about 15 minutes, so wash up and come out slowly"</p>
 
 <p>Shiwoo informed Mom of the estimated time.</p>
 
-<p>"Ah~! And the letters must not be erased! You have to be like that all day today! Got it?"</p>
+<p>"Ah! And the letters must not be erased! You have to be like that all day today! Got it?"</p>
 
 <p>And following that, he said once again as if warning her to keep the phrases he had written on Mom's body with red lipstick as-is.</p>
 

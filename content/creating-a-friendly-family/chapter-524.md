@@ -6,7 +6,7 @@ chapter = 524
 +++
 <p>Mom, recalling the moment she had just begged Shiwoo to ram his cock into her pussy, suddenly recoiled as if feeling embarrassed and ashamed.</p>
 
-<p>"You need to practice going back to being Mom tomorrow, too~! You can't stammer and get flustered again like you did this morning in front of Seyoung, can you?"</p>
+<p>"You need to practice going back to being Mom tomorrow, too! You can't stammer and get flustered again like you did this morning in front of Seyoung, can you?"</p>
 
 <p>Shiwoo playfully teased Mom, reminding her of how awkwardly she had behaved this morning.</p>
 
@@ -124,7 +124,7 @@ chapter = 524
 
 <p>Mom let out an agitated moan, as if startled.</p>
 
-<p>Peok~! Peok! Peok! Peok! Peok! Peok! Peok!</p>
+<p>Peok! Peok! Peok! Peok! Peok! Peok! Peok!</p>
 
 <p>Shiwoo's intense and merciless fucking began, ramming in all the way to the very root.</p>
 

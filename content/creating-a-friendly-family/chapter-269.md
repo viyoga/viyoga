@@ -44,11 +44,11 @@ chapter = 269
 
 <p>Mom is making sobbing sounds as if she is half out of her mind.</p>
 
-<p>"After I rape Seyoung, I'll let Seonmi, you, fuck your daughter too~! Or would you rather be raped instead?"</p>
+<p>"After I rape Seyoung, I'll let Seonmi, you, fuck your daughter too! Or would you rather be raped instead?"</p>
 
 <p>Shiwoo again tells Mom provocative lines of humiliation.</p>
 
-<p>"Haaa-aaa...Haa-euu-eung...Haa-euuu-eut~"</p>
+<p>"Haaa-aaa...Haa-euu-eung...Haa-euuu-eut"</p>
 
 <p>Mom was now almost sobbing.</p>
 
@@ -94,7 +94,7 @@ chapter = 269
 
 <p>Shiwoo's massive thing pierces Mom's wet center.</p>
 
-<p>"Haa-euut~ Haa-at! Haa-ak! Haa-aang!"</p>
+<p>"Haa-euut Haa-at! Haa-ak! Haa-aang!"</p>
 
 <p>Mom's thighs and legs were already wrapped around Shiwoo's waist, holding on and shaking in time with Shiwoo's piston movements.</p>
 
@@ -102,7 +102,7 @@ chapter = 269
 
 <p>Shiwoo's pounding becomes faster and more violent.</p>
 
-<p>"Haa-euuu...Haeut Hae-eung...Haa-at Yeo...Yeobo~!...Haeut... Haa-aang! Master~!!"</p>
+<p>"Haa-euuu...Haeut Hae-eung...Haa-at Yeo...Yeobo!...Haeut... Haa-aang! Master!!"</p>
 
 <p>Mom now lets out moaning sounds close to orgasmic screams.</p>
 
@@ -122,7 +122,7 @@ chapter = 269
 
 <p>Shiwoo's penis was plunging roughly and violently into her cervix as if to burst Mom's insides.</p>
 
-<p>"Haa-at!... Haa-euung! Haa-euk! What do I do now~!"</p>
+<p>"Haa-at!... Haa-euung! Haa-euk! What do I do now!"</p>
 
 <p>The room is filled with Shiwoo's powerful pounding sound as he stamps on Mom and Mom's moaning sounds.</p>
 
@@ -130,13 +130,13 @@ chapter = 269
 
 <p>Shiwoo continues to thrust his penis into Mom's vagina hole and speaks as if answering her orgasmic screams.</p>
 
-<p>"Haa-euung~~! Haa-euk~~!! Yeobo~ Yeobo~! Haa-aang~ Yeobo~!"</p>
+<p>"Haa-euung! Haa-euk!! Yeobo Yeobo! Haa-aang Yeobo!"</p>
 
 <p>As if the last shackle of taboo that had been binding Mom had been released, she was uttering the title that Shiwoo wanted to hear without hesitation.</p>
 
 <p>Mom's hands, which had been attached to the bed headboard, also come down quickly as if shaking off the shackles and wrap around Shiwoo's neck and body as if grabbing them.</p>
 
-<p>-Jjil-peok~! Jjil-beok~! Jjik-peok~!</p>
+<p>-Jjil-peok! Jjil-beok! Jjik-peok!</p>
 
 <p>Mom's pelvis is now moving on its own, undulating in time with Shiwoo's pounding.</p>
 
@@ -150,11 +150,11 @@ chapter = 269
 
 <p>Shiwoo's penis and pelvis relentlessly strike, crushing and grinding Mom's vagina hole and vaginal entrance.</p>
 
-<p>"Hae-eung~ Haa-at~ Hae-eung~ I'm...go...going to die~! Haa-aang~'</p>
+<p>"Hae-eung Haa-at Hae-eung I'm...go...going to die! Haa-aang'</p>
 
 <p>Mom is now screaming as if she is out of her mind.</p>
 
-<p>"Shi...Shiwoo-ya! Haeut! Mo...Mom...really...I...now...what do I do~! Haeuk~ Yeobo~! Yeobo~!"</p>
+<p>"Shi...Shiwoo-ya! Haeut! Mo...Mom...really...I...now...what do I do! Haeuk Yeobo! Yeobo!"</p>
 
 <p>Mom is calling Shiwoo, mixing Shiwoo's name and the title Yeobo.</p>
 
@@ -182,7 +182,7 @@ chapter = 269
 
 <p>Then, Mom's upper body curls inward and clings to Shiwoo.</p>
 
-<p>"Haa-euk~ Hae-eung~ I'm...now...heuaa...Hae-eung Heu...heuk...heu-eu-eu-eut!"</p>
+<p>"Haa-euk Hae-eung I'm...now...heuaa...Hae-eung Heu...heuk...heu-eu-eu-eut!"</p>
 
 <p>Mom is clinging to Shiwoo's body and exhaling her last remaining breath of lust.</p>
 
@@ -206,7 +206,7 @@ chapter = 269
 
 <p>Shiwoo's penis explodes inside Mom's vagina hole, bursting out the overwhelming climax as if spewing it out.</p>
 
-<p>"Heu-eung...Yeo...Yeobo~!Haa-euuu-eut~!"</p>
+<p>"Heu-eung...Yeo...Yeobo!Haa-euuu-eut!"</p>
 
 <p>Mom moans, calling Shiwoo with a new title as if shouting at the same time as Shiwoo's ejaculation.</p>
 

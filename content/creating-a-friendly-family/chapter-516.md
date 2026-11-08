@@ -160,7 +160,7 @@ chapter = 516
 
 <p>Mom's vagina hole, which was gaining strength along with the tightening of her sphincter.</p>
 
-<p>" Chooop haljjak huroop...chooooeueup~ How was it? "</p>
+<p>" Chooop haljjak huroop...chooooeueup How was it? "</p>
 
 <p>Shiwoo, who had been frantically licking Mom's ear, asks while continuing to move his tongue.</p>
 

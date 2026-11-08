@@ -36,7 +36,7 @@ chapter = 824
 
 <p>Perhaps she had turned up the intensity of the device inside Haeun's body, as her screams grew even louder alongside a buzzing, crackling static noise.</p>
 
-<p>"Ahhn... I... I was wrong... ugh... ah... I... mmh... didn't know... ahhn~!"</p>
+<p>"Ahhn... I... I was wrong... ugh... ah... I... mmh... didn't know... ahhn!"</p>
 
 <p>Haeun shook her head frantically, drowning in the conflict between intense pain and pleasure.</p>
 

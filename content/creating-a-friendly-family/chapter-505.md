@@ -74,7 +74,7 @@ chapter = 505
 
 <p>Because it was something that could seriously change the lives and daily routines of the two people involved, it was something that was far beyond the range that young Seyoung could handle on her own.</p>
 
-<p>"Haaa...Haeu~Heueueueueu~"</p>
+<p>"Haaa...HaeuHeueueueueu"</p>
 
 <p>Seyoung reacted to Shiwoo's words, exhaling a hot, suppressed breath, as if acknowledging those situations.</p>
 

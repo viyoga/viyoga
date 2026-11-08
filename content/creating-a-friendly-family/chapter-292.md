@@ -4,7 +4,7 @@ weight = 292
 [extra]
 chapter = 292
 +++
-<p>'No way~! Eat it in front of Sehee~! Film it with your smartphone too~! Consider it punishment for hitting my head with the ladle~!'</p>
+<p>'No way! Eat it in front of Sehee! Film it with your smartphone too! Consider it punishment for hitting my head with the ladle!'</p>
 
 <p>Shiwoo, brushing aside Mom's pleas, once again orders her to eat his semen in front of Sehee Nuna.</p>
 
@@ -12,17 +12,17 @@ chapter = 292
 
 <p>Then, another text message arrives from Mom.</p>
 
-<p>'Aish, seriously~! Are you going to keep making things difficult for Mom? You hit me with the ladle this morning because Shiwoo, you kept trying to do weird things to me in front of Seyoung~! That's why you're spanking my ass tonight, right?! Why are you giving me another separate punishment?!'</p>
+<p>'Aish, seriously! Are you going to keep making things difficult for Mom? You hit me with the ladle this morning because Shiwoo, you kept trying to do weird things to me in front of Seyoung! That's why you're spanking my ass tonight, right?! Why are you giving me another separate punishment?!'</p>
 
-<p>'And we originally agreed to only do this after 9 PM~! You said you'd do that for me because Mom would be tired~! You said all that and now why are you doing this to me?! You said you wouldn't touch me at home when Seyoung is awake during the day? Shiwoo, you said with your own mouth that you wouldn't do what Mom hates, didn't you?'</p>
+<p>'And we originally agreed to only do this after 9 PM! You said you'd do that for me because Mom would be tired! You said all that and now why are you doing this to me?! You said you wouldn't touch me at home when Seyoung is awake during the day? Shiwoo, you said with your own mouth that you wouldn't do what Mom hates, didn't you?'</p>
 
 <p>Mom, as if lamenting her unfair treatment and Shiwoo's capricious attitude, strings together a lengthy text message.</p>
 
-<p>'I'm keeping my promise, aren't I~? I'm calling you Mom properly every time~ And I don't swear much in this chat room either! I only swear and give orders in the group chat room~! Hehehe'</p>
+<p>'I'm keeping my promise, aren't I? I'm calling you Mom properly every time And I don't swear much in this chat room either! I only swear and give orders in the group chat room! Hehehe'</p>
 
 <p>Shiwoo, replying to Mom's newly sent text, starts off smoothly with a sly tone.</p>
 
-<p>'I'm being careful in front of Seyoung too, in my own way~! If you think about it, I could have just done well with Seyoung this morning without getting caught, but didn't Mom's excessive reaction almost make Seyoung even more suspicious? And now, what does it matter if Seyoung finds out about us doing this?'</p>
+<p>'I'm being careful in front of Seyoung too, in my own way! If you think about it, I could have just done well with Seyoung this morning without getting caught, but didn't Mom's excessive reaction almost make Seyoung even more suspicious? And now, what does it matter if Seyoung finds out about us doing this?'</p>
 
 <p>Shiwoo, responding to Mom's lengthy text lamenting her unfairness, instead adopts a brazen attitude.</p>
 
@@ -34,7 +34,7 @@ chapter = 292
 
 <p>Shiwoo, pointing out Mom's actions from last night, speaks as if he's cornering her.</p>
 
-<p>'Aish, seriously~! Shiwoo, you made Mom do that yesterday, so I couldn't help it, could I?'</p>
+<p>'Aish, seriously! Shiwoo, you made Mom do that yesterday, so I couldn't help it, could I?'</p>
 
 <p>Mom, making excuses as if she's cornered in front of Shiwoo, who's pressing her with texts.</p>
 
@@ -100,7 +100,7 @@ chapter = 292
 
 <p>Mom's flustered and complicated feelings, conveyed in the nonverbal reply, are vividly transmitted to Shiwoo.</p>
 
-<p>'Don't worry too much~!'</p>
+<p>'Don't worry too much!'</p>
 
 <p>Shiwoo, as if trying to reassure Mom once again, says.</p>
 
@@ -124,11 +124,11 @@ chapter = 292
 
 <p>Mom, glaring sharply, says to Shiwoo with a serious expression.</p>
 
-<p>'I've already told Sehee that lesbian sex doesn't count as cheating, so Mom, don't worry about that either~ Hehehe'</p>
+<p>'I've already told Sehee that lesbian sex doesn't count as cheating, so Mom, don't worry about that either Hehehe'</p>
 
 <p>Ignoring Mom's serious expression, Shiwoo's words, playfully added as if urging Mom and Sehee Nuna to have sex, follow.</p>
 
-<p>'Ugh~! Is that something you should say to your Mom?!'</p>
+<p>'Ugh! Is that something you should say to your Mom?!'</p>
 
 <p>Mom said to Shiwoo as if she's finally losing her temper in the text message.</p>
 
@@ -154,11 +154,11 @@ chapter = 292
 
 <p>Mom seemed to be worried that she would completely lose her authority as a mother within the family, which was already tarnished, due to such acts with her daughters.</p>
 
-<p>'I'll educate them well~ I won't let Seyoung or Sehee treat Mom carelessly!'</p>
+<p>'I'll educate them well I won't let Seyoung or Sehee treat Mom carelessly!'</p>
 
 <p>Shiwoo, as if making a promise to Mom, says.</p>
 
-<p>'You'll educate them well~! How funny, my son! A little while ago, you told me to use respectful speech to Sehee when Seyoung and you go out together, right? To treat her with utmost courtesy, right?!'</p>
+<p>'You'll educate them well! How funny, my son! A little while ago, you told me to use respectful speech to Sehee when Seyoung and you go out together, right? To treat her with utmost courtesy, right?!'</p>
 
 <p>Mom, as if she doesn't believe Shiwoo's words, sends a text message mixing in respectful speech as if she's being sarcastic.</p>
 
@@ -166,16 +166,16 @@ chapter = 292
 
 <p>"my son."</p>
 
-<p>'I'm talking about when we go back to being Mom and daughters after that's over~ I'll make sure that Seonmi, you, can't treat you carelessly! Would that be enough?'</p>
+<p>'I'm talking about when we go back to being Mom and daughters after that's over I'll make sure that Seonmi, you, can't treat you carelessly! Would that be enough?'</p>
 
 <p>Shiwoo, subtly including and calling Mom by her name, speaks as if he's trying to calm her down.</p>
 
-<p>'Aish~! Why do I have to live worrying about this kind of thing at this age~!'</p>
+<p>'Aish! Why do I have to live worrying about this kind of thing at this age!'</p>
 
 <p>Mom, seeing Shiwoo's firm attitude and sly response, now laments as if she's almost given up.</p>
 
 <p>Mom is greatly worried about the way her daughters treat her, but she has overlooked Shiwoo calling her name several times.</p>
 
-<p>'It's all karma~ Seonmi, you originally like that kind of thing, don't you? Even while talking about this, your lower half is probably all wet, right? I don't even have to look to know~ Hehe'</p>
+<p>'It's all karma Seonmi, you originally like that kind of thing, don't you? Even while talking about this, your lower half is probably all wet, right? I don't even have to look to know Hehe'</p>
 
 <p>Shiwoo, seeing Mom's seemingly softened appearance, once again calls her name carelessly and sends a text message as if provoking her.</p>

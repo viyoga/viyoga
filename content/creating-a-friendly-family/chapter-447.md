@@ -78,7 +78,7 @@ chapter = 447
 
 <p>Mom flinches, stops the shower water that was running, and answers Shiwoo.</p>
 
-<p>"I brought the clothes you'll wear after showering~ I put them on the table..."</p>
+<p>"I brought the clothes you'll wear after showering I put them on the table..."</p>
 
 <p>Shiwoo speaks to her as if he were treating Mom normally, without any pretense.</p>
 
@@ -116,7 +116,7 @@ chapter = 447
 
 <p>To be exact, she was not confident that she could suppress her moaning sounds, which would leak into the kitchen through the thin glass door of the shower room and the passage in the dressing room, when Shiwoo attacked her in that way.</p>
 
-<p>"Yeah! There's plenty of time~ And Sehee is on the second floor too..."</p>
+<p>"Yeah! There's plenty of time And Sehee is on the second floor too..."</p>
 
 <p>Shiwoo answers, mentioning Sehee Nuna on the second floor as if reassuring her, as if he knew exactly what Mom was worried about.</p>
 

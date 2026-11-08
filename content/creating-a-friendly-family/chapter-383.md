@@ -204,7 +204,7 @@ chapter = 383
 
 <p>Seyoung smiled shyly when she saw Shiwoo, then quickly came over and linked arms with Shiwoo.</p>
 
-<p>"Next time we go to the cafe in the basement of the academy, Sua and I should get ten ice creams from Oppa. Hehe~"</p>
+<p>"Next time we go to the cafe in the basement of the academy, Sua and I should get ten ice creams from Oppa. Hehe"</p>
 
 <p>Seyoung buried her face in Shiwoo's arm and spoke as if complaining about what had just happened.</p>
 

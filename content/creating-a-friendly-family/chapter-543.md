@@ -4,7 +4,7 @@ weight = 543
 [extra]
 chapter = 543
 +++
-<p>,Alright~ I'll do it for you after we eat~! ,</p>
+<p>,Alright I'll do it for you after we eat! ,</p>
 
 <p>Sehee -nuna finally answers Mom after a long while, as if doing her a favor.</p>
 
@@ -12,7 +12,7 @@ chapter = 543
 
 <p>Mom, who had been fidgeting anxiously, seemed relieved to hear Sehee -nuna's answer.</p>
 
-<p>,Instead, make me a card like you gave Shiwoo~! Something I can use like cash~! Then I'll do whatever you want in my room, Mom...,</p>
+<p>,Instead, make me a card like you gave Shiwoo! Something I can use like cash! Then I'll do whatever you want in my room, Mom...,</p>
 
 <p>As soon as she hears Mom's relieved words, Sehee -nuna states her demands as if setting conditions.</p>
 
@@ -38,7 +38,7 @@ chapter = 543
 
 <p>Sehee -nuna is speaking as if reminding her of the time she wore a black fishnet T-shirt and got scolded for hiding cigarettes.</p>
 
-<p>,Anyway, I know that Shiwoo and Mom have been like that since then, so that's fine now~! But now I'm in a position where I can do that kind of thing with Mom too, right? So you have to do for me what you did for Shiwoo!,</p>
+<p>,Anyway, I know that Shiwoo and Mom have been like that since then, so that's fine now! But now I'm in a position where I can do that kind of thing with Mom too, right? So you have to do for me what you did for Shiwoo!,</p>
 
 <p>Sehee -nuna boldly asserts her claims and confidently demands what she wants from Mom.</p>
 
@@ -70,7 +70,7 @@ chapter = 543
 
 <p>Mom reacts as if she doesn't know what to do at Sehee -nuna's words.</p>
 
-<p>,Not too hot and not too cold~,</p>
+<p>,Not too hot and not too cold,</p>
 
 <p>Sehee -nuna continues to add picky demands as if it's nothing.</p>
 
@@ -90,7 +90,7 @@ chapter = 543
 
 <p>And below that, her light purple panties are hanging awkwardly down to the middle of her thighs.</p>
 
-<p>,Heeeuuueuum~,</p>
+<p>,Heeeuuueuum,</p>
 
 <p>Sehee -nuna makes a sound as if admiring Mom's state, wearing a faint smile.</p>
 
@@ -116,7 +116,7 @@ chapter = 543
 
 <p>Mom trembles, shivering with shame, and stands next to Sehee -nuna, watching her drink the water.</p>
 
-<p>,Hmm~ You seem to have gotten the water temperature just right~ Thanks for the trouble~ Get me water like this in the future too when I ask for it! You can go sit down now! Mom!,</p>
+<p>,Hmm You seem to have gotten the water temperature just right Thanks for the trouble Get me water like this in the future too when I ask for it! You can go sit down now! Mom!,</p>
 
 <p>Sehee -nuna is speaking as if she is using Mom like a slave or maid.</p>
 
@@ -160,17 +160,17 @@ chapter = 543
 
 <p>Her outfit is so ordinary and neat that it's hard to imagine Seyoung's appearance from just now, when she was walking around the living room naked.</p>
 
-<p>,Are you eating already~ Were you waiting for me? Hehe,</p>
+<p>,Are you eating already Were you waiting for me? Hehe,</p>
 
 <p>Seyoung comes to the table, sits in her seat, and says apologetically.</p>
 
-<p>,Yeah~ I told them to wait~ I thought it would be good to eat together when we eat something like this!,</p>
+<p>,Yeah I told them to wait I thought it would be good to eat together when we eat something like this!,</p>
 
 <p>Shiwoo says, pointing to the curry set out on the table.</p>
 
 <p>As if strongly appealing to his desire to feed the curry, which is full of his semen, to Mom, Sehee -nuna, and Seyoung at the same time...</p>
 
-<p>,Hehe~ Sounds delicious. I should mix mine too!,</p>
+<p>,Hehe Sounds delicious. I should mix mine too!,</p>
 
 <p>Seyoung picks up a spoon and diligently mixes the curry and rice.</p>
 
@@ -192,7 +192,7 @@ chapter = 543
 
 <p>In the meantime, Seyoung is the first to follow Shiwoo and eat the curry with a spoon.</p>
 
-<p>,Auuuum~!,</p>
+<p>,Auuuum!,</p>
 
 <p>Seyoung moves the rice she scooped up with her spoon into her mouth and chews it, munching.</p>
 
@@ -202,6 +202,6 @@ chapter = 543
 
 <p>Seyoung opens her mouth and exhales deeply, as if showing everyone that she swallowed the rice.</p>
 
-<p>,Haaa~huuu~,</p>
+<p>,Haaahuuu,</p>
 
 <p>Next, as if trying to feel the lingering scent of the curry and semen remaining in her mouth, Seyoung was breathing in and out slowly and leisurely with her mouth slightly open for quite a long time.</p>

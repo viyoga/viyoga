@@ -88,7 +88,7 @@ chapter = 533
 
 <p>Mom turned off the gas stove that was heating the curry pot and prepared a large bowl for the rice and curry.</p>
 
-<p>「You can take your time~ It'll probably take more than 10 minutes for Seyoung to come out after washing her hair. Sehee will probably only come down if I call her from the 2nd floor...」</p>
+<p>「You can take your time It'll probably take more than 10 minutes for Seyoung to come out after washing her hair. Sehee will probably only come down if I call her from the 2nd floor...」</p>
 
 <p>Shiwoo repeated what he had said in the chat, letting Mom know as if emphasizing again that there was plenty of time.</p>
 

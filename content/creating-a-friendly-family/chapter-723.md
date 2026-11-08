@@ -10,7 +10,7 @@ chapter = 723
 
 <p>It was a rule in the faculty office not to greet every single teacher individually. Shiwoo straightened his waist and held his head high, walking forward at a moderate pace to avoid drawing unnecessary attention. He crossed the wide office, which looked like two classrooms joined together, and soon approached the corner where his homeroom teacher sat.</p>
 
-<p>"Oh, Shiwoo, you're here~?"</p>
+<p>"Oh, Shiwoo, you're here?"</p>
 
 <p>The teacher looked up at the sound of his approach and greeted him lightly. Oh Yerin-seonsaengnim appeared to be in her early to mid-thirties. She wore a casual yet tidy suit. Between her neatly arranged hair, her plump and fair-skinned face radiated an inexplicable confidence and friendliness. Her soft, spreading smile seemed to hold a warmth that strangely pulled at one's heart.</p>
 
@@ -32,7 +32,7 @@ chapter = 723
 
 <p>"Overslept, more like! What kind of 'business' does an intermediate academy student have to handle so early that they're late for class? You live close by, too! Start showing up early!"</p>
 
-<p>"Besides, they've been complaining during the faculty meetings lately about how many unexcused absences and late arrivals there are in our class~"</p>
+<p>"Besides, they've been complaining during the faculty meetings lately about how many unexcused absences and late arrivals there are in our class"</p>
 
 <p>She didn't seem intent on making a big deal out of his lateness, but she was giving him a formal lecture as if to fulfill her duty as a teacher.</p>
 
@@ -90,17 +90,17 @@ chapter = 723
 
 <p>Seeing Shiwoo's puzzled expression, Oh Yerin-seonsaengnim elaborated on her question, asking again for confirmation. Shiwoo hesitated for a moment, his mind racing to think...</p>
 
-<p>"Ah~ yes... that's right... we're supposed to gather tomorrow... the whole family and all the relatives..."</p>
+<p>"Ah yes... that's right... we're supposed to gather tomorrow... the whole family and all the relatives..."</p>
 
 <p>"I was going to tell you when I got to the academy today, but I was so flustered because I was late that I forgot..."</p>
 
 <p>Shiwoo played along with the story Seulgi had apparently told the teacher.</p>
 
-<p>"Get your head in the game! How can a young kid be so scatterbrained already~?"</p>
+<p>"Get your head in the game! How can a young kid be so scatterbrained already?"</p>
 
 <p>The teacher let out an incredulous laugh and tossed a teasing remark at Shiwoo.</p>
 
-<p>"I'm sorry~ hehe..."</p>
+<p>"I'm sorry hehe..."</p>
 
 <p>Shiwoo scratched his head again, letting out a hollow laugh as he acted out his embarrassment.</p>
 
@@ -112,7 +112,7 @@ chapter = 723
 
 <p>Shiwoo reacted, trying to focus on the teacher's barely audible muttering.</p>
 
-<p>"Nothing~ Well, Seulgi's mother called, and the principal said he'd allow it, so I guess I don't need to have a separate call with your mother, right?"</p>
+<p>"Nothing Well, Seulgi's mother called, and the principal said he'd allow it, so I guess I don't need to have a separate call with your mother, right?"</p>
 
 <p>The teacher suddenly let slip mentions of Seulgi's mother and the principal, muttering to herself again. It was phrased as a question, but her tone suggested she was reaching her own conclusion rather than asking Shiwoo.</p>
 
@@ -120,7 +120,7 @@ chapter = 723
 
 <p>Shiwoo wanted to say something and ask the teacher, but fearing he might ruin whatever bold plan Seulgi had cooked up, he kept his mouth shut and stood there as if nothing were wrong.</p>
 
-<p>"Then I'll mark you down for an external experiential learning day for attendance, so keep that in mind~!"</p>
+<p>"Then I'll mark you down for an external experiential learning day for attendance, so keep that in mind!"</p>
 
 <p>The teacher spoke while organizing various certificates and documents, confirming the conclusion she had already reached.</p>
 
@@ -144,7 +144,7 @@ chapter = 723
 
 <p>Shiwoo, momentarily flustered, made an excuse for why he was wearing perfume.</p>
 
-<p>"Right, at your age, I suppose that's how it is~"</p>
+<p>"Right, at your age, I suppose that's how it is"</p>
 
 <p>The teacher showed a mischievous smile in her eyes. Shiwoo stood there awkwardly for a moment, realizing anew that he was indeed wearing perfume.</p>
 

@@ -44,7 +44,7 @@ chapter = 165
 
 <p>Naked, Seonju Imo, flashing a V-sign and smiling, and her sleeping niece and nephew were captured in a single frame.</p>
 
-<p>'Master-nim~ I really thought I was going to die in the early morning~ lol And with that thing still inside... It's a good thing Sehee was there, otherwise, if I had been alone, I probably would have been tormented by Master-nim all night and really ended up in the hospital!'</p>
+<p>'Master-nim I really thought I was going to die in the early morning lol And with that thing still inside... It's a good thing Sehee was there, otherwise, if I had been alone, I probably would have been tormented by Master-nim all night and really ended up in the hospital!'</p>
 
 <p>Seonju Imo, feigning coyness and exaggeration, reminded Shiwoo of last night's events via text.</p>
 
@@ -54,7 +54,7 @@ chapter = 165
 
 <p>Shiwoo twitched his majestically erect penis and checked Seonju Imo's next message.</p>
 
-<p>'If Seonmi-unnie says anything, Master-nim, you have to protect me~! I'll only trust Master-nim~'</p>
+<p>'If Seonmi-unnie says anything, Master-nim, you have to protect me! I'll only trust Master-nim'</p>
 
 <p>Seonju Imo coyly requested Shiwoo's mediation and protection regarding Mom.</p>
 
@@ -62,7 +62,7 @@ chapter = 165
 
 <p>Even with Seonju Imo's naturally optimistic and open personality, she seemed quite concerned about being scolded by Mom for the things she had done with her niece and nephew.</p>
 
-<p>'I'll clean up the living room and kitchen before I go. Have a good day at the academy~ See you later~!'</p>
+<p>'I'll clean up the living room and kitchen before I go. Have a good day at the academy See you later!'</p>
 
 <p>Along with the message, a photo of a vibrator, seemingly peeking out slightly from the cleavage of her crotch, was sent to Shiwoo's smartphone.</p>
 
@@ -96,7 +96,7 @@ chapter = 165
 
 <p>Shiwoo's penis was shoved ruthlessly into Sehee-nuna's hole.</p>
 
-<p>「Heu-eung~ Haa-euk!!」</p>
+<p>「Heu-eung Haa-euk!!」</p>
 
 <p>Sehee-nuna seemed somewhat accustomed to the intermittent lovemaking that had taken place last night.</p>
 
@@ -110,7 +110,7 @@ chapter = 165
 
 <p>Shiwoo roughly kissed Sehee-nuna and continued his fierce piston thrusts.</p>
 
-<p>「Haa-eut! Haa-aak! Haa-aat! Haa-eung! Master-nim~!」</p>
+<p>「Haa-eut! Haa-aak! Haa-aat! Haa-eung! Master-nim!」</p>
 
 <p>The honorific of submission, which she had cried out countless times in her dazed state throughout the night, burst from Sehee-nuna's still half-asleep mouth.</p>
 
@@ -124,7 +124,7 @@ chapter = 165
 
 <p>Shiwoo gradually increased the speed of his piston thrusts.</p>
 
-<p>「Haa-eung~! Master-nim~!! Haa-aang~! Haa-eut!!」</p>
+<p>「Haa-eung! Master-nim!! Haa-aang! Haa-eut!!」</p>
 
 <p>Sehee-nuna, with her mouth half-open and eyes closed, arched her body backward, trembling violently as if reaching climax.</p>
 
@@ -186,7 +186,7 @@ chapter = 165
 
 <p>Sehee-nuna continued with words that were likely to make Shiwoo feel even more disappointed.</p>
 
-<p>「We didn't talk about that~! Why suddenly?」</p>
+<p>「We didn't talk about that! Why suddenly?」</p>
 
 <p>Shiwoo, feeling disappointed and displeased by Sehee-nuna's unilateral announcement, raised his voice slightly.</p>
 
@@ -222,7 +222,7 @@ chapter = 165
 
 <p>Shiwoo stammered, looking around in embarrassment at Sehee-nuna's sudden, unexpected action.</p>
 
-<p>「But why did you ask for my smartphone password yesterday?! You should have known it right away! You blockhead~!」</p>
+<p>「But why did you ask for my smartphone password yesterday?! You should have known it right away! You blockhead!」</p>
 
 <p>Sehee-nuna spoke, her head still resting on Shiwoo's shoulder, seemingly oblivious to his embarrassment.</p>
 

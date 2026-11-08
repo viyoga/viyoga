@@ -20,7 +20,7 @@ chapter = 436
 
 <p>If it weren't for the numerous climaxes he had experienced today, an enormous pleasure and thrill, enough to make him ejaculate semen inside his clothes right away, shoots up his spine and pierces Shiwoo's spinal cord like a needle.</p>
 
-<p>[Cute~ Our Mom~! Since you listened so well, I should go give you a reward now~ hehehe]</p>
+<p>[Cute Our Mom! Since you listened so well, I should go give you a reward now hehehe]</p>
 
 <p>Shiwoo calls her Mom, yet speaks to her as if he's addressing someone beneath him.</p>
 
@@ -198,6 +198,6 @@ chapter = 436
 
 <p>Mom's crotch crack and the hard protrusion aligned with the tip of his tongue were about to veer away from Shiwoo's face.</p>
 
-<p>"Hae-eung hae-euk kkeu...it's over, Shiwoo-ya...! Haaaaaak~! It's over...Master-nim! Please...Heueueung...Haaht!"</p>
+<p>"Hae-eung hae-euk kkeu...it's over, Shiwoo-ya...! Haaaaaak! It's over...Master-nim! Please...Heueueung...Haaht!"</p>
 
 <p>Mom urgently informs Shiwoo that she has reached orgasm and tries to pull her pelvis back.</p>

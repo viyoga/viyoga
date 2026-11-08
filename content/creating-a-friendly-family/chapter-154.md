@@ -28,7 +28,7 @@ chapter = 154
 
 <p>The chicken porridge in front of Sehee-nuna remained untouched. -Just as it was, with Shiwoo's semen covering the chicken porridge, stirred with his penis...-</p>
 
-<p>「Sehee-nuna! You've waited a long time, haven't you? You must be so hungry. Why didn't you just keep eating~?」</p>
+<p>「Sehee-nuna! You've waited a long time, haven't you? You must be so hungry. Why didn't you just keep eating?」</p>
 
 <p>Shiwoo approached Sehee-nuna, brazenly extending his stiffly erect cock as if to flaunt it, and spoke to her.</p>
 
@@ -80,13 +80,13 @@ chapter = 154
 
 <p>Sehee-nuna received Shiwoo's blatant and aggressive breast fondling in front of the blindfolded Seonju Imo.</p>
 
-<p>「Ha-eup~!」</p>
+<p>「Ha-eup!」</p>
 
 <p>Sehee-nuna's moan, which she had been suppressing, mindful of Seonju Imo during Shiwoo's blatant fondling, momentarily escaped from her mouth.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>「Haaa~」</p>
+<p>「Haaa」</p>
 
 <p>Sehee-nuna cautiously observed Seonju Imo's facial expression, hidden by the blindfold, as she exhaled.</p>
 
@@ -100,7 +100,7 @@ chapter = 154
 
 <p>Shiwoo rubbed the damp liquid on his hand over Sehee-nuna's entire breast, as if spreading it.</p>
 
-<p>「Haa...heu-eu...ha-woop~」</p>
+<p>「Haa...heu-eu...ha-woop」</p>
 
 <p>Sehee-nuna, with her lips still pressed against Shiwoo's, was exhaling with difficulty, as if suppressing heated breaths.</p>
 
@@ -156,7 +156,7 @@ chapter = 154
 
 <p>Seonju Imo, as if responding to Shiwoo's kiss, immediately extended her tongue to meet Shiwoo.</p>
 
-<p>「Chyureup chyureup~!」</p>
+<p>「Chyureup chyureup!」</p>
 
 <p>Shiwoo and Seonju Imo's tongues intertwined, their saliva mixing intensely.</p>
 
@@ -168,7 +168,7 @@ chapter = 154
 
 <p>Shiwoo pulled away from Seonju Imo, as if shaking off her legs that were trying to wrap around him.</p>
 
-<p>「Haa-eung~」</p>
+<p>「Haa-eung」</p>
 
 <p>Seonju Imo, leaning her head forward, made a petulant sound as if regretting the loss of Shiwoo's lips.</p>
 

@@ -150,7 +150,7 @@ chapter = 482
 
 <p>But soon, Mom herself was able to confirm that those anxieties and concerns were unfounded.</p>
 
-<p>"Jiiiiiiiiing~"</p>
+<p>"Jiiiiiiiiing"</p>
 
 <p>The vibrator attached in front of Mom's clitoris began to vibrate.</p>
 

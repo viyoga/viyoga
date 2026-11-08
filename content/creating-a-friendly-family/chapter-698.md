@@ -6,7 +6,7 @@ chapter = 698
 +++
 <p>Shiwoo's rough thrusting continued while receiving stimulating oral and caresses from Seyoung and Sehee Nuna.</p>
 
-<p>"Ha-ang, ha-aaa... Master~ ha-ang, ha-eung... Master... Ha-at, ha-eut, ha-aaaa-at!"</p>
+<p>"Ha-ang, ha-aaa... Master ha-ang, ha-eung... Master... Ha-at, ha-eut, ha-aaaa-at!"</p>
 
 <p>Mom acted as if she was no longer conscious of the fact that her daughters were watching her have sex... And as if she had completely forgotten the fact that Aunt Seonju and Sua were asleep in Sejin Nuna's room... She was screaming out unrestrained, obscene moaning sounds. Strangely, contrary to the arousal rising within Shiwoo and the violently vibrating pleasure, the resonance of the peak spreading through the penis buried inside Mom's vagina hole was subsiding quietly, like a receding wave.</p>
 
@@ -32,7 +32,7 @@ chapter = 698
 
 <p>"Heu-eu... th-this... ha-eut... shouldn't be happening.... ha-aa... ha-eu-eu..."</p>
 
-<p>"Ma-Master... ha-aaa... I'm... I'm sorry... ha-eung... Master~ hi-it..."</p>
+<p>"Ma-Master... ha-aaa... I'm... I'm sorry... ha-eung... Master hi-it..."</p>
 
 <p>Even while reaching climax, Mom was apologizing with suppressed breath and a trembling voice, as if remembering Shiwoo's command to relax. Sehee Nuna and Seyoung's lips and tongue continued to sweep over the joined bodies of the two.</p>
 
@@ -52,7 +52,7 @@ chapter = 698
 
 <p>Shiwoo spoke in a tiny whisper only Mom could hear, calling her by the title 'Mom' to reassure her. At Shiwoo's secret voice melting into her ear, the arms and thighs of Mom, who was hugging Shiwoo, began to tremble finely.</p>
 
-<p>"Ha-uuu... heu-eut... heu-eu-eu-eup! Master.... heu-eu... A-Agassi... ha-eu-eu... ha-ang.. ha-uuu...! Too much... heu-eu-euk Master~... ha-ang... ha-aaa..."</p>
+<p>"Ha-uuu... heu-eut... heu-eu-eu-eup! Master.... heu-eu... A-Agassi... ha-eu-eu... ha-ang.. ha-uuu...! Too much... heu-eu-euk Master... ha-ang... ha-aaa..."</p>
 
 <p>Mom's vagina hole, which had been struggling to relax, suddenly tightened as if to wring out Shiwoo's penis. Shiwoo's penis also reacted to Mom's tightening, swelling up as if to fill the vagina hole completely. As if losing self-control, Mom lifted her feet from the floor and wrapped them around Shiwoo. Mom seemed to be trying to embrace Shiwoo with her arms, legs, the skin touching him, and the fitted mucous membrane flesh. Shiwoo pulled the arm wrapping around Mom's neck and shoulder, bringing his lips to her ear again.</p>
 
@@ -74,7 +74,7 @@ chapter = 698
 
 <p>Shiwoo whispered close to Mom's ear, letting the words flow out softly. However, within that whisper, harsh profanity and the trembling of calling her name affectionately were mixed together.</p>
 
-<p>"Ha-aaa.... ha-eu-eu... ha-uu-uuu.... Shiwoo-ya... ha-euk.... ha-eu-eung... ha-aang... Master! Master!... ha-eung... what do I do! Ha-aaa~ Darling! ...Heu-eu-eu-eung!"</p>
+<p>"Ha-aaa.... ha-eu-eu... ha-uu-uuu.... Shiwoo-ya... ha-euk.... ha-eu-eung... ha-aang... Master! Master!... ha-eung... what do I do! Ha-aaa Darling! ...Heu-eu-eu-eung!"</p>
 
 <p>Mom embraced Shiwoo tightly within her tightening vagina hole and surrounding limbs, vomiting out pleasure with unrestrained moans. The pride she had been trying to hold onto had long since collapsed, and in its place, complex emotions were entangled, seemingly creating confusion and conflict deep in her heart. The rough breath and moans erupting from her body, which was vibrating like an earthquake, mixed together, making pleasure and tension echo throughout the living room.</p>
 
@@ -82,7 +82,7 @@ chapter = 698
 
 <p>Shiwoo pulled his waist back long and then slammed it forward violently.</p>
 
-<p>"Ha-eu-eu-euk~!"</p>
+<p>"Ha-eu-eu-euk!"</p>
 
 <p>Mom arched her waist while hugging Shiwoo, taking the penis slamming into her vagina hole with her whole body.</p>
 
@@ -90,7 +90,7 @@ chapter = 698
 
 <p>Shiwoo shook and thrust the penis buried inside her body intensely, as if driving Mom to her final limit.</p>
 
-<p>"Ha-eung ha-aang ha-at ha-a-ak ha-gu-uk! Ha-euk ha-ang! Ha-aaaa-ang~!"</p>
+<p>"Ha-eung ha-aang ha-at ha-a-ak ha-gu-uk! Ha-euk ha-ang! Ha-aaaa-ang!"</p>
 
 <p>Mom could no longer even think about fixing the family hierarchy or the situation, moaning as if floundering, swept away by the collapsed pleasure. Within Shiwoo's ceaseless movement, a climax without ejaculation surged within him several times. His whole body was being consumed by a melting ecstasy, and Shiwoo's movements escalated more and more violently, continuing endlessly.</p>
 
@@ -114,6 +114,6 @@ chapter = 698
 
 <p>Seyoung meticulously licked the crevices of the auricle with the slightly wet tip of her tongue. Shiwoo reacted by shrinking his neck at that goosebump-inducing stimulation. Seyoung pulled her tongue back into her mouth and began to whisper.</p>
 
-<p>"At this rate, Sunmi might not be able to get up tomorrow~? He-het! But Shiwoo Oppa, you haven't come yet, have you?"</p>
+<p>"At this rate, Sunmi might not be able to get up tomorrow? He-het! But Shiwoo Oppa, you haven't come yet, have you?"</p>
 
 <p>She let those tickling whispers flow into Shiwoo's ear, words meant to sharpen his attention that wouldn't reach anyone else.</p>

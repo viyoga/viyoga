@@ -46,7 +46,7 @@ chapter = 600
 
 <p>Shiwoo checked the TV screen Sejin Nuna was watching over her shoulder and asked.</p>
 
-<p>"No~ I'm just looking~ Not planning to buy and wear it right away..."</p>
+<p>"No I'm just looking Not planning to buy and wear it right away..."</p>
 
 <p>Sejin Nuna, following Shiwoo's gaze, answered, her eyes fixed back on the TV screen.</p>
 

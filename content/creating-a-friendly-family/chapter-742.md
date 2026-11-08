@@ -24,7 +24,7 @@ chapter = 742
 
 <p>Mom asked as if to confirm, noticing that the number '1' next to her message disappeared instantly.</p>
 
-<p>[Yeah, I'm at the main gate! I'm waiting with bated breath, so hurry the fuck up~!]</p>
+<p>[Yeah, I'm at the main gate! I'm waiting with bated breath, so hurry the fuck up!]</p>
 
 <p>Shiwoo replied to her message with a bit of exaggeration, urging her to move faster.</p>
 
@@ -32,7 +32,7 @@ chapter = 742
 
 <p>Mom threw back the words with a slight grumble, as if Shiwoo's nagging had annoyed her just a bit.</p>
 
-<p>[It's because I want to see Mom's face~ Plus I'm hungry as hell lol]</p>
+<p>[It's because I want to see Mom's face Plus I'm hungry as hell lol]</p>
 
 <p>Shiwoo countered her grumbling with a playful joke.</p>
 
@@ -40,7 +40,7 @@ chapter = 742
 
 <p>Mom continued the conversation, playfully complaining along with Shiwoo's words.</p>
 
-<p>[True~ I guess I wasn't thinking. Maybe I should've just gone straight home the moment I ditched the academy like Mom said~]</p>
+<p>[True I guess I wasn't thinking. Maybe I should've just gone straight home the moment I ditched the academy like Mom said]</p>
 
 <p>[If I did, I might be lying on the bed right now sucking on Mom's tits instead of eating lunch...]</p>
 
@@ -56,7 +56,7 @@ chapter = 742
 
 <p>Shiwoo spoke as if calculating the day the milk would flow, assuming he were to get Mom pregnant right now.</p>
 
-<p>[For now, though~ I could just smear that new ice cream we bought yesterday on Mom's tits and lick it off~]</p>
+<p>[For now, though I could just smear that new ice cream we bought yesterday on Mom's tits and lick it off]</p>
 
 <p>[While Mom licks the ice cream off my cock... along with the cum I'll blast into your mouth at the end lol]</p>
 
@@ -74,25 +74,25 @@ chapter = 742
 
 <p>Mom continued, her tone becoming quite firm and stern as she issued a warning for Shiwoo not to cross the line any further.</p>
 
-<p>[No, it's not like that~ lol]</p>
+<p>[No, it's not like that lol]</p>
 
 <p>Shiwoo sent back a message with an awkward laugh, trying to smooth over the atmosphere with some charm.</p>
 
-<p>[I knew you'd eventually act like this, which is why I didn't want to start this with you! Ugh! I'm the fool for trusting you, Shiwoo, I really am~!]</p>
+<p>[I knew you'd eventually act like this, which is why I didn't want to start this with you! Ugh! I'm the fool for trusting you, Shiwoo, I really am!]</p>
 
 <p>Despite Shiwoo's charming text and laughter, Mom responded with a sentence filled with regret, complaints, and self-mockery, as if blaming herself.</p>
 
-<p>[Haha, but it's inevitable, isn't it? Mom was the one who signed the slave contract, and Mom was the one who voided it however she pleased~ After Dad died, this is just how things turned out, right?]</p>
+<p>[Haha, but it's inevitable, isn't it? Mom was the one who signed the slave contract, and Mom was the one who voided it however she pleased After Dad died, this is just how things turned out, right?]</p>
 
 <p>[Who would've known it would end up like this? We didn't even know what the situation was, so what else could we have done?]</p>
 
-<p>[And like I said before, I'm only teasing like this because Mom accepts it~ You know as well as I do that it wouldn't have gone this far if you'd said you really hated it from the start~]</p>
+<p>[And like I said before, I'm only teasing like this because Mom accepts it You know as well as I do that it wouldn't have gone this far if you'd said you really hated it from the start]</p>
 
 <p>Shiwoo spoke as if to remind Mom of reality, casually mentioning the details related to the contract.</p>
 
 <p>Perhaps due to the mention of the slave contract and Dad, Mom remained silent for a moment after seeing Shiwoo's message.</p>
 
-<p>[Alright, alright~ I'll stop for now~]</p>
+<p>[Alright, alright I'll stop for now]</p>
 
 <p>When Mom didn't reply for a while, Shiwoo backed off a step and coaxed her, feeling a bit anxious.</p>
 
@@ -142,7 +142,7 @@ chapter = 742
 
 <p>The version of her that was annoyed and stern in the chat just a moment ago was nowhere to be found.</p>
 
-<p>"Nah~ I was wandering around the department store looking at stuff, so I haven't been waiting here that long~"</p>
+<p>"Nah I was wandering around the department store looking at stuff, so I haven't been waiting here that long"</p>
 
 <p>Shiwoo spoke with a light smile, matching her upbeat tone.</p>
 
@@ -156,7 +156,7 @@ chapter = 742
 
 <p>Had she forgotten to take it off while showering and changing her clothes?</p>
 
-<p>"By the way, Mom, you look damn beautiful today~ It's been a long time since you wore that white dress, right? It really suits you."</p>
+<p>"By the way, Mom, you look damn beautiful today It's been a long time since you wore that white dress, right? It really suits you."</p>
 
 <p>While glancing at the red leather dog collar around Mom's neck, Shiwoo spoke as if praising her, acting as if it were nothing.</p>
 

@@ -10,7 +10,7 @@ chapter = 704
 
 <p>After opening the windows, Seyoung walked to the light switch and flicked off the living room lights. The bright living room was once again submerged in a flickering darkness illuminated only by the kitchen and TV screen.</p>
 
-<p>"We can wash up tomorrow! I think we can just let Seonmi and Sehee-eonni sleep like this~ Hehe~"</p>
+<p>"We can wash up tomorrow! I think we can just let Seonmi and Sehee-eonni sleep like this Hehe"</p>
 
 <p>Seyoung said as she approached the sofa where Shiwoo was sitting.</p>
 
@@ -20,7 +20,7 @@ chapter = 704
 
 <p>Was it because of that strange alienation? In Shiwoo's chest, having finished ejaculating not long ago, the heat of expectation and impulse began to wriggle and rear its head again. Simultaneously, he felt his penis twitching slightly as strength returned to it. Seyoung's gaze lingered on Shiwoo's crotch for a moment before moving back up to his face.</p>
 
-<p>"Shall we go up to the second floor now? I want to sleep in Shiwoo-oppa's room today~"</p>
+<p>"Shall we go up to the second floor now? I want to sleep in Shiwoo-oppa's room today"</p>
 
 <p>Seyoung held out the handle of the leash fastened to her and spoke with a bright smile. At that moment, Shiwoo's penis expanded rapidly and reared its head firmly. A mischievous smile spread across Seyoung's lips again. Shiwoo took the leash handle Seyoung offered. Grabbing his smartphone that he had tossed on the sofa, Shiwoo stood up with his penis fully erect.</p>
 
@@ -42,7 +42,7 @@ chapter = 704
 
 <p>Shiwoo snapped at Seyoung, who was feigning ignorance, his tone laced with slight irritation.</p>
 
-<p>"Ahhh~ That? Right! I did say I'd tell you, didn't I? But didn't I say I could tell you if you held out without cumming until midnight?"</p>
+<p>"Ahhh That? Right! I did say I'd tell you, didn't I? But didn't I say I could tell you if you held out without cumming until midnight?"</p>
 
 <p>Seyoung spoke with a playful smile, as if she had just remembered the conversation they had earlier, emphasizing the condition she had set.</p>
 
@@ -50,7 +50,7 @@ chapter = 704
 
 <p>Shiwoo argued his innocence, speaking urgently as if defending himself.</p>
 
-<p>"Ah~ Was that so~? Hehe~ Then I think I've pretty much told you everything...?"</p>
+<p>"Ah Was that so? Hehe Then I think I've pretty much told you everything...?"</p>
 
 <p>Seyoung murmured slyly, as if trying to keep Shiwoo in suspense.</p>
 
@@ -58,7 +58,7 @@ chapter = 704
 
 <p>Shiwoo asked back, puzzled by Seyoung's murmuring.</p>
 
-<p>"Seeing how Shiwoo-oppa is doing, I think you'll do fine on your own without me saying the rest, so I don't think you need to hear it from me separately~"</p>
+<p>"Seeing how Shiwoo-oppa is doing, I think you'll do fine on your own without me saying the rest, so I don't think you need to hear it from me separately"</p>
 
 <p>Seyoung looked down at Shiwoo's towering penis and spoke with a smile, her tone slyly teasing him. Shiwoo felt a sudden surge of irritation at Seyoung's playful attitude.</p>
 
@@ -66,11 +66,11 @@ chapter = 704
 
 <p>Shiwoo raised his voice, grabbing Seyoung's shoulders with the hand holding his smartphone and the leash. This was perhaps the first time he had been seriously angry with Seyoung outside of a 'play' situation. That much sincere desperation and earnestness could be felt in Shiwoo's voice, expression, and gaze.</p>
 
-<p>"Heeeee~ I was just joking a little..."</p>
+<p>"Heeeee I was just joking a little..."</p>
 
 <p>Seyoung trailed off, looking slightly flustered but still wearing a smile mixed with aegyo and playfulness. Shiwoo said nothing and continued to stare at Seyoung with a serious gaze.</p>
 
-<p>"Alright, alright~ You're that curious and want to know, right? Fine, I'll tell you when we get to the second floor~ Is that okay?"</p>
+<p>"Alright, alright You're that curious and want to know, right? Fine, I'll tell you when we get to the second floor Is that okay?"</p>
 
 <p>Seyoung pouted her lips petulantly and tapped Shiwoo's arm, which was gripping her shoulders, as if she had no choice. Only then did Shiwoo release his grip on Seyoung's shoulders. Seyoung gave a relaxed smirk and tried to turn around to walk toward the stairs. Seeing her relaxed expression, a sense of irritation and impatience surged again for some reason.</p>
 

@@ -80,7 +80,7 @@ chapter = 575
 
 <p>Or he might be pretending not to know, testing Shiwoo...</p>
 
-<p>「Ah~ It worked out well somehow~ My aunt just happened to be nearby... so she came to pick me up right after you guys left.」</p>
+<p>「Ah It worked out well somehow My aunt just happened to be nearby... so she came to pick me up right after you guys left.」</p>
 
 <p>Shiwoo mentions the word 'aunt' as if giving a hint, without directly mentioning Yu Yena Teacher.</p>
 
@@ -92,7 +92,7 @@ chapter = 575
 
 <p>Shiwoo vaguely glosses over the story about Yu Yena Teacher and continues the question as if diverting Cheoljin's attention.</p>
 
-<p>「Ah- don't even mention it... I got scolded by my mom the whole way home... I don't know why she nagged so much even though I'm old enough~ I thought my ears were going to fall off that day~」</p>
+<p>「Ah- don't even mention it... I got scolded by my mom the whole way home... I don't know why she nagged so much even though I'm old enough I thought my ears were going to fall off that day」</p>
 
 <p>Cheoljin rambles on as if telling a story about what he experienced on the way home with Gyuri Ajumma that day, as if joking.</p>
 
@@ -146,9 +146,9 @@ chapter = 575
 
 <p>Common sense was just like a futile line, and the moment he crossed that line, he felt as if everything contradictory was scattering and collapsing.</p>
 
-<p>「The funny thing is that most of the nagging my mom did was about your face, Shiwoo~! She kept asking me why I was with you and let you get to that state. I got bruised here and there too, you know.」</p>
+<p>「The funny thing is that most of the nagging my mom did was about your face, Shiwoo! She kept asking me why I was with you and let you get to that state. I got bruised here and there too, you know.」</p>
 
-<p>「At first, she kept badgering me, asking if I had hit you with the hyungs~! It seems like my mom feels really special about you, like a lover or husband, after doing it once~ Isn't that really pathetic for an old woman? Kik!」</p>
+<p>「At first, she kept badgering me, asking if I had hit you with the hyungs! It seems like my mom feels really special about you, like a lover or husband, after doing it once Isn't that really pathetic for an old woman? Kik!」</p>
 
 <p>Cheoljin once again throws a joke that crosses the line at Shiwoo, treating the sexual relationship between his mom and his friend as a light joke, as if it were a trivial everyday story.</p>
 
@@ -168,7 +168,7 @@ chapter = 575
 
 <p class="scene-break">· · ·</p>
 
-<p>「By the way, you haven't forgotten that you were going to let me touch Sinbi's breasts that day, have you? I've been really looking forward to it since then~! That's why I had no choice but to leave Sehee and my partner Semi as they were and come down~」</p>
+<p>「By the way, you haven't forgotten that you were going to let me touch Sinbi's breasts that day, have you? I've been really looking forward to it since then! That's why I had no choice but to leave Sehee and my partner Semi as they were and come down」</p>
 
 <p>Opening the steel door and stepping onto the academy building's rooftop, Cheoljin still speaks as if throwing a light joke.</p>
 

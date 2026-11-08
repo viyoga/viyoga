@@ -8,7 +8,7 @@ chapter = 461
 
 <p>Mom apologized to Seyoung for making her prepare dinner instead.</p>
 
-<p>"No~ it's okay, sometimes things happen~ Mom does all this almost every day by herself anyway~ It's fine, if Mom's busy, I'll do it now~"</p>
+<p>"No it's okay, sometimes things happen Mom does all this almost every day by herself anyway It's fine, if Mom's busy, I'll do it now"</p>
 
 <p>Seyoung answered with a bright smile, as if she understood Mom's situation completely.</p>
 
@@ -20,7 +20,7 @@ chapter = 461
 
 <p>Mom, in particular, glanced at the orange collar around Seyoung's neck, then couldn't meet her eyes properly afterward, awkwardly averting her gaze as if embarrassed.</p>
 
-<p>"Mom, you can sit here! Come here~ next to me~"</p>
+<p>"Mom, you can sit here! Come here next to me"</p>
 
 <p>Seyoung was designating a seat for Mom, who was standing awkwardly across from Shiwoo, unsure of where to put herself.</p>
 
@@ -58,7 +58,7 @@ chapter = 461
 
 <p>Mom spoke to Shiwoo with a slightly stubborn, defiant tone.</p>
 
-<p>"Is that so? Well... Mom will take care of it herself~... whatever happens later..."</p>
+<p>"Is that so? Well... Mom will take care of it herself... whatever happens later..."</p>
 
 <p>Shiwoo picked up the chopsticks on the table, muttering to himself in a voice barely audible.</p>
 
@@ -68,13 +68,13 @@ chapter = 461
 
 <p>Shiwoo picked up a side dish, placed it on his rice, then began to scoop and eat the rice with the side dish using his spoon.</p>
 
-<p>"Oppa, eat a lot~ Mom too~"</p>
+<p>"Oppa, eat a lot Mom too"</p>
 
 <p>Seyoung sat next to Mom and spoke to Shiwoo and Mom.</p>
 
 <p>Seyoung, sitting diagonally across from Shiwoo, smiled innocently as if she knew nothing.</p>
 
-<p>"Yeah, I'll eat well~ Seyoung-ah~"</p>
+<p>"Yeah, I'll eat well Seyoung-ah"</p>
 
 <p>Shiwoo pulled his chair close to the table, leaning his body forward as he spoke.</p>
 
@@ -86,15 +86,15 @@ chapter = 461
 
 <p class="scene-break">· · ·</p>
 
-<p>"Wow, this is really delicious~! Seyoung really is a good cook~"</p>
+<p>"Wow, this is really delicious! Seyoung really is a good cook"</p>
 
 <p>Shiwoo bit into the chicken and potatoes of the well-seasoned spicy braised chicken, praising Seyoung with a sincere tone.</p>
 
-<p>"Hehe~ I did it just like Mom taught me~"</p>
+<p>"Hehe I did it just like Mom taught me"</p>
 
 <p>Seyoung, pleased by Shiwoo's praise, spoke excitedly.</p>
 
-<p>"Seyoung, you could get married right away once you find a man~?"</p>
+<p>"Seyoung, you could get married right away once you find a man?"</p>
 
 <p>Shiwoo threw a joke at Seyoung, as if making light conversation.</p>
 
@@ -102,19 +102,19 @@ chapter = 461
 
 <p>felt Mom, who was holding his foot squeezed between her knees, flinch significantly at the word 'marriage'.</p>
 
-<p>"No~ not another man! I promised to live with Mom forever~ Right, Mom? Hehe~"</p>
+<p>"No not another man! I promised to live with Mom forever Right, Mom? Hehe"</p>
 
 <p>Seyoung leaned into Mom, who was sitting next to her, embracing her as she playfully brushed off Shiwoo's joke.</p>
 
 <p>Mom tensed her body once more when Seyoung suddenly hugged her.</p>
 
-<p>"But didn't you put too much effort into the cooking? You even put out two kinds of soup~ If you do this every time, you'll get tired quickly, won't you?"</p>
+<p>"But didn't you put too much effort into the cooking? You even put out two kinds of soup If you do this every time, you'll get tired quickly, won't you?"</p>
 
 <p>Shiwoo spoke to her as if making casual conversation, while using his toes to pry open the space between Mom's knees, which were still tense.</p>
 
 <p>Mom's eyes clouded over as she listened to Shiwoo's words, and she slowly relaxed the tension in her squeezed knees.</p>
 
-<p>"One is what Mom made this morning, and the other is what I made earlier! Try both~ It's good to be able to taste several things at once, isn't it~"</p>
+<p>"One is what Mom made this morning, and the other is what I made earlier! Try both It's good to be able to taste several things at once, isn't it"</p>
 
 <p>Seyoung said, pointing to the beef bone soup and cold cucumber soup on the table.</p>
 
@@ -122,7 +122,7 @@ chapter = 461
 
 <p>Mom's body seemed to be reacting to Seyoung's audacious words.</p>
 
-<p>"Is that so? Well, for me, it's even better if I can taste several things at once~ Days like this aren't common... Mom, don't you think something like this is okay sometimes?"</p>
+<p>"Is that so? Well, for me, it's even better if I can taste several things at once Days like this aren't common... Mom, don't you think something like this is okay sometimes?"</p>
 
 <p>Shiwoo spoke, shoving his foot, which had been wedged between her knees, deep into Mom's now slack thighs.</p>
 
@@ -168,7 +168,7 @@ chapter = 461
 
 <p>Mom merely spoke to her daughter, who was leaning against her, urgently nagging her as if pouring out complaints.</p>
 
-<p>"...Okay~ Mom, hehe~"</p>
+<p>"...Okay Mom, hehe"</p>
 
 <p>Seyoung released her arms from around Mom, straightened her posture, and sat back in her seat as she replied.</p>
 

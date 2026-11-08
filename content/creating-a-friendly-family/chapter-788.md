@@ -24,7 +24,7 @@ chapter = 788
 
 <p>In contrast to the lips uttering words of refusal, Mom's body collapsed helplessly wherever Shiwoo's touch reached. It was as if she were complying and surrendering herself to her son, entrusting him with everything.</p>
 
-<p>「So, did you like it~? Being treated like that by me in front of all those people?」</p>
+<p>「So, did you like it? Being treated like that by me in front of all those people?」</p>
 
 <p>Shiwoo's fingers fumbled over her breasts, searching for the prominent, protruding buds.</p>
 
@@ -140,7 +140,7 @@ chapter = 788
 
 <p>Shiwoo struck her buttocks hard once more.</p>
 
-<p>「Ha-eut~!」</p>
+<p>「Ha-eut!」</p>
 
 <p>Mom's moan, mixed with a sharp scream, burst out through the humid air.</p>
 

@@ -10,7 +10,7 @@ chapter = 725
 
 <p>Yesterday, Cheoljin had checked the Slave Contract of Lee Jina-nim that Shiwoo had sent via smartphone. So, if he were talking about Lee Jina-nim in that manner, at least there would be some context... but bringing up their current class teacher, Oh Yerin-nim, just because Shiwoo had been called to the faculty office, seemed like nothing more than Cheoljin running his mouth to tease him.</p>
 
-<p>「Oh~? Weren't you taking tomorrow off? Weren't you going to talk to the class teacher to get your stories straight?」</p>
+<p>「Oh? Weren't you taking tomorrow off? Weren't you going to talk to the class teacher to get your stories straight?」</p>
 
 <p>Despite Shiwoo's stern reaction, Cheoljin maintained his sly attitude and a smirk as he questioned him.</p>
 
@@ -22,7 +22,7 @@ chapter = 725
 
 <p>Normally, he might have just let Cheoljin's playful tone slide, but today, for some reason, it felt like he was being unnecessarily sensitive.</p>
 
-<p>「Aha~! I guess you don't know yet? Pu-hi-hi-hit ! Well, I suppose they don't exactly announce it to the students...」</p>
+<p>「Aha! I guess you don't know yet? Pu-hi-hi-hit ! Well, I suppose they don't exactly announce it to the students...」</p>
 
 <p>Cheoljin nodded as if he had grasped and understood everything, wearing a boastful smirk as if he held the upper hand.</p>
 
@@ -34,7 +34,7 @@ chapter = 725
 
 <p>Regardless of Shiwoo's fed-up reaction, Cheoljin lowered his voice further, as if he had made up his mind to expose some illicit secret.</p>
 
-<p>「 Ehyu ~!」</p>
+<p>「 Ehyu !」</p>
 
 <p>Shiwoo let out a sigh, already exhausted by the start of Cheoljin's guessing game.</p>
 
@@ -56,7 +56,7 @@ chapter = 725
 
 <p>realization.</p>
 
-<p>「Well~ it's not like it's rare for people to miss class for menstrual leave or other reasons in every class, but it seems like quite a few of them overlap for tomorrow~?」</p>
+<p>「Well it's not like it's rare for people to miss class for menstrual leave or other reasons in every class, but it seems like quite a few of them overlap for tomorrow?」</p>
 
 <p>Cheoljin raised the end of his sentence questioningly, shrugging his shoulders as if he couldn't be certain himself, playing it off with a smirk.</p>
 

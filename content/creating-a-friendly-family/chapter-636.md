@@ -4,7 +4,7 @@ weight = 636
 [extra]
 chapter = 636
 +++
-<p>"And here is a blanket~"</p>
+<p>"And here is a blanket"</p>
 
 <p>She places the blanket she brought over Shiwoo's bag, which was resting on his crotch.</p>
 
@@ -14,7 +14,7 @@ chapter = 636
 
 <p>Shiwoo unconsciously let out a faint, barely audible gasp and umjjil -ed his body.</p>
 
-<p>"It's not summer, but we keep the air conditioning on quite high, so customers often look for these~ A blanket~"</p>
+<p>"It's not summer, but we keep the air conditioning on quite high, so customers often look for these A blanket"</p>
 
 <p>Within the female clerk's smile, there was a strange lingering feeling, making it hard to tell if it was intentional or not.</p>
 
@@ -22,7 +22,7 @@ chapter = 636
 
 <p>-Maybe she already noticed...-</p>
 
-<p>"The turn will come soon, so please wait just a moment~"</p>
+<p>"The turn will come soon, so please wait just a moment"</p>
 
 <p>She spoke calmly while looking at Shiwoo.</p>
 
@@ -30,9 +30,9 @@ chapter = 636
 
 <p>Shiwoo asked as if he hadn't immediately understood her words.</p>
 
-<p>"The tarot reading order! After just two more tables, it'll be 'Shiwoo'-ssi's turn~"</p>
+<p>"The tarot reading order! After just two more tables, it'll be 'Shiwoo'-ssi's turn"</p>
 
-<p>"It's better to decide on one question in advance~ So it's not too vague, make it specific..."</p>
+<p>"It's better to decide on one question in advance So it's not too vague, make it specific..."</p>
 
 <p>"Because you'll be able to hear not only the meaning of the cards you choose but also advice related to them."</p>
 
@@ -66,7 +66,7 @@ chapter = 636
 
 <p>Shiwoo looked up at her and asked in a tone mixed with surprise, suspicion, and shyness.</p>
 
-<p>"Of course! You're quite famous around here~"</p>
+<p>"Of course! You're quite famous around here"</p>
 
 <p>She answered Shiwoo while laughing playfully, as if it were no big deal at all.</p>
 
@@ -74,7 +74,7 @@ chapter = 636
 
 <p>Shiwoo asked cautiously, squeezing out his short breath as if barely managing to continue the conversation.</p>
 
-<p>"Questions are for later~ Ask carefully! We aren't the only ones here! Huhut ~!"</p>
+<p>"Questions are for later Ask carefully! We aren't the only ones here! Huhut !"</p>
 
 <p>The female clerk spoke in a tone that lightly cautioned Shiwoo while narrowing the space between her eyebrows.</p>
 
@@ -168,7 +168,7 @@ chapter = 636
 
 <p>Holding the neatly organized tarot cards with both hands, the girl approached Shiwoo.</p>
 
-<p>"Hello~ You ordered the special event beverage and a tarot reading, right?"</p>
+<p>"Hello You ordered the special event beverage and a tarot reading, right?"</p>
 
 <p>The young girl approached Shiwoo and greeted him with a bright smile...</p>
 
@@ -180,7 +180,7 @@ chapter = 636
 
 <p>Shiwoo stared at her blankly for a moment, then belatedly snapped out of it and spoke as if repeating her words.</p>
 
-<p>"Then, I'll give you a simple tarot reading here starting now~"</p>
+<p>"Then, I'll give you a simple tarot reading here starting now"</p>
 
 <p>She said as she pulled out the chair opposite Shiwoo and sat down.</p>
 
@@ -196,8 +196,8 @@ chapter = 636
 
 <p>At her sudden question, Shiwoo reacted by stuttering as if his mind had momentarily become tangled.</p>
 
-<p>"Ah~ It's hard to think of something suddenly, right? It's okay~ In that case, something like 'today's fortune' is also good."</p>
+<p>"Ah It's hard to think of something suddenly, right? It's okay In that case, something like 'today's fortune' is also good."</p>
 
-<p>"Or I can just get a feel for it and pick anything for you~"</p>
+<p>"Or I can just get a feel for it and pick anything for you"</p>
 
 <p>Lightly grooming the ends of her robe sleeves, she skillfully led the atmosphere in a prepared tone.</p>

@@ -34,7 +34,7 @@ chapter = 589
 
 <p>After a few seconds, a reply came from Gyuri Ajumma.</p>
 
-<p>[Yeah~ How have you been, Jagi? Is your body okay? Why haven't you contacted me? I thought you had forgotten about me~]</p>
+<p>[Yeah How have you been, Jagi? Is your body okay? Why haven't you contacted me? I thought you had forgotten about me]</p>
 
 <p>Gyuri Ajumma calls Shiwoo by the term</p>
 
@@ -56,7 +56,7 @@ chapter = 589
 
 <p>Shiwoo is holding his smartphone and continuing to look at it, as if Gyuri Ajumma's reply will come back soon.</p>
 
-<p>[I see~ You don't have to worry about that~ You really don't have to worry about that person! From now on, feel free to contact me often~! Because I've only been thinking about you since that day~]</p>
+<p>[I see You don't have to worry about that You really don't have to worry about that person! From now on, feel free to contact me often! Because I've only been thinking about you since that day]</p>
 
 <p>Gyuri Ajumma sends Shiwoo a sentence that sounds like she's whispering affectionately.</p>
 
@@ -72,7 +72,7 @@ chapter = 589
 
 <p>Shiwoo, now feeling somewhat confident, was now teasingly asking why Gyuri Ajumma hadn't contacted him.</p>
 
-<p>[No! I really wanted to contact Jagi a lot~! But what can I do, I'm also conscious of Jagi's Mom. Besides, I'm not family, so I can't interfere in the owner-nim's daily life without permission...]</p>
+<p>[No! I really wanted to contact Jagi a lot! But what can I do, I'm also conscious of Jagi's Mom. Besides, I'm not family, so I can't interfere in the owner-nim's daily life without permission...]</p>
 
 <p>Gyuri Ajumma sends a message like an excuse, with urgent yet coquettish confessions.</p>
 
@@ -130,13 +130,13 @@ chapter = 589
 
 <p>Everyone gathered in the group chat room has confirmed that Gyuri Ajumma has entered.</p>
 
-<p>[Oh my~ Is Gyuri Unnie now a member of our family too?]</p>
+<p>[Oh my Is Gyuri Unnie now a member of our family too?]</p>
 
-<p>[Well~ If you listen to what they're saying, it wouldn't be strange if they had been a family a long time ago~! Besides, she was caught by our owner-nim, so she came in after getting a proper massage, right? Hehe]</p>
+<p>[Well If you listen to what they're saying, it wouldn't be strange if they had been a family a long time ago! Besides, she was caught by our owner-nim, so she came in after getting a proper massage, right? Hehe]</p>
 
 <p>Seonju Imo is the first to greet Gyuri Ajumma with a mischievous joke.</p>
 
-<p>[Welcome~! Gyuri Unnie~ Welcome and please take care of me in the future~!]</p>
+<p>[Welcome! Gyuri Unnie Welcome and please take care of me in the future!]</p>
 
 <p>Then, she immediately writes and sends a message as if welcoming the new participant.</p>
 
@@ -144,7 +144,7 @@ chapter = 589
 
 <p>Shiwoo immediately speaks to such Seonju Imo in a harsh and resolute tone, as if rebuking her.</p>
 
-<p>[Hiiiing~ I'm sorry, owner-nim~ When I saw Gyuri Unnie, I remembered the old days and I was so happy that I did that]</p>
+<p>[Hiiiing I'm sorry, owner-nim When I saw Gyuri Unnie, I remembered the old days and I was so happy that I did that]</p>
 
 <p>Seonju Imo shows a playful apology to Shiwoo, acting cute.</p>
 
@@ -170,7 +170,7 @@ chapter = 589
 
 <p>Shiwoo speaks to Mom as if giving her a warning with a strict and firm attitude.</p>
 
-<p>[What can Mom say now... Gyuri, you're really something too! To a kid who's like your son... Tsk\~!]</p>
+<p>[What can Mom say now... Gyuri, you're really something too! To a kid who's like your son... Tsk\!]</p>
 
 <p>Mom spits out words mixed with complaints and sighs in the text, as if she knows that it is useless to say anything more to Shiwoo's strict and firm attitude.</p>
 
@@ -180,7 +180,7 @@ chapter = 589
 
 <p>Shiwoo then speaks to Seyoung and Sua.</p>
 
-<p>[Please take care of me, Gyuri Ajumma~ Hehe~ I was wondering when you were coming in~ Our cute Gyuri~]</p>
+<p>[Please take care of me, Gyuri Ajumma Hehe I was wondering when you were coming in Our cute Gyuri]</p>
 
 <p>Seyoung greets Gyuri Ajumma with a bright smile, as if she knows her.</p>
 
@@ -194,6 +194,6 @@ chapter = 589
 
 <p>Shiwoo also spoke to Sehee Nuna.</p>
 
-<p>[Welcome~ Gyuri Ajumma, please take good care of me in the future]</p>
+<p>[Welcome Gyuri Ajumma, please take good care of me in the future]</p>
 
 <p>Sehee Nuna also greeted Gyuri Ajumma, welcoming her, as ordered by Shiwoo.</p>

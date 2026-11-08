@@ -200,7 +200,7 @@ chapter = 566
 
 <p>Mom's reply, diligently returning as if to let Shiwoo know that she has checked the video...</p>
 
-<p>[Mom~ What are you doing right now?]</p>
+<p>[Mom What are you doing right now?]</p>
 
 <p>As soon as Shiwoo sees Mom's reply in ellipsis, he sends a text message with the feeling of asking about her daily well-being.</p>
 

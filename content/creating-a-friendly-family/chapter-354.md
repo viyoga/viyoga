@@ -134,7 +134,7 @@ chapter = 354
 
 <p>But Shiwoo wanted to let Seonju Imo-nim know in advance that he had arrived home with his younger sisters.</p>
 
-<p>"You've arrived, Master~"</p>
+<p>"You've arrived, Master"</p>
 
 <p>Seonju Imo-nim, who had checked Shiwoo and his younger sisters' appearance on the intercom screen, greeted Shiwoo with a sweet voice.</p>
 

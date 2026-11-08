@@ -34,7 +34,7 @@ chapter = 423
 
 <p>The fierce and intense sounds of Mating that Mom and Shiwoo were creating were mixed with the rhythm of the karaoke accompaniment and filled the room.</p>
 
-<p>"Master Haa~ Haaat! Master! Haeu-eut! Haa-eu-eung!"</p>
+<p>"Master Haa Haaat! Master! Haeu-eut! Haa-eu-eung!"</p>
 
 <p>Mom seemed to have quickly reached her Climax and called out to Shiwoo in a suppressed voice.</p>
 
@@ -116,7 +116,7 @@ chapter = 423
 
 <p>Shiwoo now pressed down on Mom's back with his upper body, grabbed her waist with his arms, and made his last piston strokes for Ejaculation.</p>
 
-<p>"Ah~! Mom....Ah....Eueu....Mee...Sorry!! Haeueu!"</p>
+<p>"Ah! Mom....Ah....Eueu....Mee...Sorry!! Haeueu!"</p>
 
 <p>Pusyuk pusyuk pusyusyuk pusyuk pusyuuuk!</p>
 
@@ -192,7 +192,7 @@ chapter = 423
 
 <p>Shiwoo asked as if he was worried about Mom's mood and condition.</p>
 
-<p>"Hooooooo... Haaaaaaa~"</p>
+<p>"Hooooooo... Haaaaaaa"</p>
 
 <p>Mom, who would have usually scolded and reprimanded Shiwoo, asking if he was okay.</p>
 

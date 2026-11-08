@@ -92,7 +92,7 @@ chapter = 463
 
 <p>Around her neck, without fail, was the purple leather dog collar that Shiwoo had bought her.</p>
 
-<p>,Sehee Nuna's clothes are so pretty~ The underwear is so pretty too. Her body is so amazing...hehe~ I hope I can wear something like that later, like Sehee Nuna~"</p>
+<p>,Sehee Nuna's clothes are so pretty The underwear is so pretty too. Her body is so amazing...hehe I hope I can wear something like that later, like Sehee Nuna"</p>
 
 <p>Seyoung, looking at Sehee Nuna with admiring eyes, did not spare words of praise, as if she was impressed.</p>
 
@@ -108,7 +108,7 @@ chapter = 463
 
 <p>And also the fact that Seyoung knew about it...</p>
 
-<p>,Nuna, aren't you hungry? If you didn't come down, I was going to tell Mom to go get you! Come and sit down~ There are still a lot of side dishes, so eat quickly!"</p>
+<p>,Nuna, aren't you hungry? If you didn't come down, I was going to tell Mom to go get you! Come and sit down There are still a lot of side dishes, so eat quickly!"</p>
 
 <p>Seyoung pointed to Sehee Nuna's empty seat and spoke.</p>
 
@@ -128,11 +128,11 @@ chapter = 463
 
 <p>Mom, sitting across from Shiwoo with her head lowered, felt as if her weakness had been exposed and flinched.</p>
 
-<p>,It seems like Mom and Sehee showered a bit early~ I think we can let this slide?"</p>
+<p>,It seems like Mom and Sehee showered a bit early I think we can let this slide?"</p>
 
 <p>Shiwoo spoke as if arguing to Seyoung on behalf of Mom and Sehee Nuna.</p>
 
-<p>,Really? Then I took a lot of showers today too, so I'll wear comfortable clothes now~!"</p>
+<p>,Really? Then I took a lot of showers today too, so I'll wear comfortable clothes now!"</p>
 
 <p>Seyoung straightened her body, sat back in her seat, and spoke as if asserting her rights.</p>
 

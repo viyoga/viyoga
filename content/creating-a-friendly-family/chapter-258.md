@@ -26,7 +26,7 @@ chapter = 258
 
 <p>The sound of wet flesh enveloping the meat stick is exaggeratedly heard from inside Mom's hole.</p>
 
-<p>"Haaa-aaaaa~ Haeu-eu-eut!"</p>
+<p>"Haaa-aaaaa Haeu-eu-eut!"</p>
 
 <p>A weary sigh and moaning sound escape from Mom's mouth, filled with exhaustion.</p>
 
@@ -48,13 +48,13 @@ chapter = 258
 
 <p>The mucous membranes inside the hole are strongly constricted around Shiwoo's penis, scraping as if being pulled in and out.</p>
 
-<p>-Soo-euk~! Jjil-geok! Seu-euk~! Jjil-geo-eok! Ssoo-euk~! Jjil-geok!</p>
+<p>-Soo-euk! Jjil-geok! Seu-euk! Jjil-geo-eok! Ssoo-euk! Jjil-geok!</p>
 
 <p>Shiwoo's smooth penis movement, caressing the sensitive flesh inside Mom's vagina hole after she has already experienced multiple orgasms.</p>
 
 <p>The movement was slower and calmer compared to the previous intense pounding, but it was rather delivering even greater thrills and stimulation to Mom's hole.</p>
 
-<p>"Haaa-aaaaaa~ Haeu-eu-heu-heuk...Haaa-aaaaaang~ Haeu-heuk...heuk...heuk..."</p>
+<p>"Haaa-aaaaaa Haeu-eu-heu-heuk...Haaa-aaaaaang Haeu-heuk...heuk...heuk..."</p>
 
 <p>Mom was expressing the sensation of smooth pleasure felt inside her vagina hole with her voice, letting out dreamy moaning sounds in time with Shiwoo's piston movements.</p>
 
@@ -82,7 +82,7 @@ chapter = 258
 
 <p>Even though they were busily and noisily doing it with Mom just a moment ago, Seyoung doesn't seem like she's going to wake up.</p>
 
-<p>"Seyoung's breasts are pretty~ I wonder if they'll grow as big as Sehee's or Seonmi's later~?"</p>
+<p>"Seyoung's breasts are pretty I wonder if they'll grow as big as Sehee's or Seonmi's later?"</p>
 
 <p>Shiwoo moves his hips leisurely and casually, whispering in Mom's ear.</p>
 
@@ -98,35 +98,35 @@ chapter = 258
 
 <p>The tender and soft jelly-like chest was changing shape in Shiwoo's hand as if melting pleasantly.</p>
 
-<p>"It feels good to grab Seyoung's squishy breasts in my hand~ It's a little damp because Seonmi, your saliva is on it~"</p>
+<p>"It feels good to grab Seyoung's squishy breasts in my hand It's a little damp because Seonmi, your saliva is on it"</p>
 
 <p>Shiwoo speaks in a whispering voice as if relaying the molestation he is doing to Seyoung to Mom, who has her eyes covered, in real-time.</p>
 
-<p>-Jji-geok~! Jji-geok~! Jji-geok~!</p>
+<p>-Jji-geok! Jji-geok! Jji-geok!</p>
 
 <p>At the same time as speaking, Shiwoo slightly increases the speed of his hips.</p>
 
 <p>Even more strength was going into Mom's arms and legs that were hugging Shiwoo.</p>
 
-<p>"Haeu~ Haeu-euk~ Haa-ak~! Hii-ii-ing~"</p>
+<p>"Haeu Haeu-euk Haa-ak! Hii-ii-ing"</p>
 
 <p>Mom's voice, sounding ecstatic as if she had lost her mind.</p>
 
-<p>"I wonder if Seyoung is awake? Seeing that she's not waking up even though I'm rubbing her breasts like this~"</p>
+<p>"I wonder if Seyoung is awake? Seeing that she's not waking up even though I'm rubbing her breasts like this"</p>
 
 <p>Shiwoo says as if teasing Mom, speaking close to her ear.</p>
 
-<p>-Jji-geok~! Jji-geo-eok~! Chu-geok~! Cheok! Chu-geo-eok~!</p>
+<p>-Jji-geok! Jji-geo-eok! Chu-geok! Cheok! Chu-geo-eok!</p>
 
 <p>Shiwoo's hips create a rhythmic movement.</p>
 
 <p>He is scraping Mom's vaginal walls with his massive penis, which is tightly filled inside Mom's hole, as if violating them.</p>
 
-<p>"Heu-eu...Haeu-euk...Haeu-eut...Haa-ak~Haaaa..."</p>
+<p>"Heu-eu...Haeu-euk...Haeu-eut...Haa-akHaaaa..."</p>
 
 <p>A sobbing tremor was gradually being added to Mom's moaning sound.</p>
 
-<p>"Should I flick Seyoung's nipples hard with my fingers once, like I did to you, Seonmi? Then I'll be able to tell whether Seyoung is pretending to be asleep or not~?!"</p>
+<p>"Should I flick Seyoung's nipples hard with my fingers once, like I did to you, Seonmi? Then I'll be able to tell whether Seyoung is pretending to be asleep or not?!"</p>
 
 <p>Shiwoo says playfully, intending to disturb Mom's mind.</p>
 
@@ -138,7 +138,7 @@ chapter = 258
 
 <p>Shiwoo brings his lips to Mom's ear, speaking as if vibrating her vocal cords.</p>
 
-<p>"Haeu-eup~!"</p>
+<p>"Haeu-eup!"</p>
 
 <p>Mom stops breathing and hugs Shiwoo's body as if stiffened.</p>
 
@@ -152,7 +152,7 @@ chapter = 258
 
 <p>Mom, perhaps stimulated by Shiwoo's impious words, tightly grabs Shiwoo's body and begins to twist her body violently as if reaching her climax.</p>
 
-<p>"Heu-eut... Yeobo~!! Haeu-eung~!! Haeu-eut~ Haa-ak~!"</p>
+<p>"Heu-eut... Yeobo!! Haeu-eung!! Haeu-eut Haa-ak!"</p>
 
 <p>One word bursts out like an exclamation, releasing the breath that had been stopped for a moment.</p>
 

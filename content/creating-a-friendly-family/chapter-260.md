@@ -10,7 +10,7 @@ chapter = 260
 
 <p>She pulled her lips away from Seyoung's.</p>
 
-<p>「Ol-gak~! Ol-gak~! Ol-gak~!」</p>
+<p>「Ol-gak! Ol-gak! Ol-gak!」</p>
 
 <p>Mom was swallowing down her throat, without leaving any behind, the semen that had moved into her own mouth.</p>
 
@@ -68,23 +68,23 @@ chapter = 260
 
 <p>Mom was covering her breasts and crotch area with her arms and hands.</p>
 
-<p>「I'll take Seyoung to Sehee's room now and come back~」</p>
+<p>「I'll take Seyoung to Sehee's room now and come back」</p>
 
 <p>Shiwoo moved Mom's arm away that had been covering her breasts.</p>
 
 <p>And, gripping her large breasts with one hand, he said in a calm voice.</p>
 
-<p>「Haa-eueueu~」</p>
+<p>「Haa-eueueu」</p>
 
 <p>Mom's long moaning sound leaked out as if she was flustered.</p>
 
 <p>Mom probably seemed worried, seeing Shiwoo's erect thing, that something might happen between the two of them while he moved Seyoung to her room.</p>
 
-<p>「Don't worry~! I won't do it with Seyoung today~」</p>
+<p>「Don't worry! I won't do it with Seyoung today」</p>
 
 <p>Shiwoo said, strongly kneading Mom's breasts.</p>
 
-<p>「Haa-eueu~ Heut...Heu-eung...」</p>
+<p>「Haa-eueu Heut...Heu-eung...」</p>
 
 <p>A sigh as if relieved and moans of lust burst consecutively from Mom's mouth.</p>
 
@@ -96,11 +96,11 @@ chapter = 260
 
 <p>Shiwoo's hot cock shaft was laid horizontally on Mom's forehead.</p>
 
-<p>「Heut~!」</p>
+<p>「Heut!」</p>
 
 <p>As she felt the hot chunk of flesh touch her forehead, Mom bit her lower lip tightly as if enduring shame.</p>
 
-<p>「Instead, Seonmi, don't even think about sleeping today~! Understood?」</p>
+<p>「Instead, Seonmi, don't even think about sleeping today! Understood?」</p>
 
 <p>Shiwoo said as if warning, smearing the pre-cum flowing from the tip of his glans and the filth still clinging to it onto Mom's forehead.</p>
 
@@ -118,7 +118,7 @@ chapter = 260
 
 <p>On the tip of Shiwoo's penis, Seyoung's saliva and his own semen were still clinging, not yet dry.</p>
 
-<p>「Ah~! Before taking Seyoung, this!」</p>
+<p>「Ah! Before taking Seyoung, this!」</p>
 
 <p>As if suddenly remembering, Shiwoo brought his stiffly erect cock shaft to Mom's mouth and said.</p>
 
@@ -134,7 +134,7 @@ chapter = 260
 
 <p>But that was only for a moment; soon, rolling her tongue, she began to suck Seyoung's saliva and Shiwoo's semen smeared on his cock, along with Shiwoo's newly flowing pre-cum.</p>
 
-<p>「Chyurup~ Chyuup~ Chyuuuuup~!!」</p>
+<p>「Chyurup Chyuup Chyuuuuup!!」</p>
 
 <p>Lewd mouth sounds were heard from Mom's mouth.</p>
 
@@ -142,7 +142,7 @@ chapter = 260
 
 <p>Seeing the lewd act of mother and daughter, his penis had become erect again with blood rushing to his center, but the sensitive sensation right after ejaculation still seemed to linger on the tip of his glans.</p>
 
-<p>「Heut... Heu-eueueu~ Aaa...」</p>
+<p>「Heut... Heu-eueueu Aaa...」</p>
 
 <p>Moaning sounds were leaking from Shiwoo's mouth, regardless of his own will.</p>
 
@@ -152,11 +152,11 @@ chapter = 260
 
 <p>Mom's fellatio continued for a short while.</p>
 
-<p>「Ol-gak~! Ol-gak~! Ol-gak~!!」</p>
+<p>「Ol-gak! Ol-gak! Ol-gak!!」</p>
 
 <p>Mom gathered the filth that had been clinging to Shiwoo's cock, then began to swallow it down her throat.</p>
 
-<p>「Chyurup~! Chyuruup~!」</p>
+<p>「Chyurup! Chyuruup!」</p>
 
 <p>Releasing the vacuum in her mouth, Mom licked Shiwoo's cock clean with her tongue as if finishing up.</p>
 
@@ -164,7 +164,7 @@ chapter = 260
 
 <p>When the cleaning was almost finished, almost right before ejaculating, Shiwoo pulled his hips back and took his penis out of Mom's mouth.</p>
 
-<p>「Haaaa~ Haaaa~ Haaaa~」</p>
+<p>「Haaaa Haaaa Haaaa」</p>
 
 <p>Shiwoo caught his breath for a moment, as if calming the sensation of ejaculation that had rushed in.</p>
 
@@ -178,15 +178,15 @@ chapter = 260
 
 <p>Seonju Imo's reply regarding the photos and videos he had filmed and sent a little while ago had arrived.</p>
 
-<p>「Oh my~ Older sister, you're doing things like that in front of Master-nim now~? So incredibly lewd~! As expected, our Master-nim overflows with talent in this area~!」</p>
+<p>「Oh my Older sister, you're doing things like that in front of Master-nim now? So incredibly lewd! As expected, our Master-nim overflows with talent in this area!」</p>
 
 <p>Seonju Imo spoke playfully, commenting on the photos and videos.</p>
 
-<p>「Please educate our older sister well so she can't even make a peep from now on~! Master-nim~! lol But isn't Seyoung sleeping right now? If she wakes up, it'll be a huge mess~?」</p>
+<p>「Please educate our older sister well so she can't even make a peep from now on! Master-nim! lol But isn't Seyoung sleeping right now? If she wakes up, it'll be a huge mess?」</p>
 
 <p>Seonju Imo spoke playfully, mixing informal and formal speech, as if not knowing who she was talking to.</p>
 
-<p>「Or is she already awake? If you look closely at Seyoung too, she's like older sister, subtly very coy, you know~ lol」</p>
+<p>「Or is she already awake? If you look closely at Seyoung too, she's like older sister, subtly very coy, you know lol」</p>
 
 <p>Following her overly meddlesome request regarding Mom, Seonju Imo was making a fuss-like, seemingly concerned remark regarding Seyoung.</p>
 

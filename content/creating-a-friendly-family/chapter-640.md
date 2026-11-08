@@ -190,7 +190,7 @@ chapter = 640
 
 <p>Shiwoo answered awkwardly, unable to keep up with her shifted atmosphere.</p>
 
-<p>"That's a relief~ Please use us a lot next time too~ I don't know when that will be, but hehe~"</p>
+<p>"That's a relief Please use us a lot next time too I don't know when that will be, but hehe"</p>
 
 <p>She returned to her child-like way of speaking and wore a mischievous smile.</p>
 
@@ -204,7 +204,7 @@ chapter = 640
 
 <p>As if she had forgotten something, she whipped her head around and looked back at Shiwoo.</p>
 
-<p>"This is a discount coupon. Check the expiration date carefully, and if you visit again within that period, you can receive a discount service~!"</p>
+<p>"This is a discount coupon. Check the expiration date carefully, and if you visit again within that period, you can receive a discount service!"</p>
 
 <p>She spoke while handing Shiwoo a piece of paper she had pulled from the loose sleeve of her robe.</p>
 

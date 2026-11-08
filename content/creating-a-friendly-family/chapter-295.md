@@ -164,7 +164,7 @@ chapter = 295
 
 <p>And the shape of the split woman, divided between the triangular groove, is shown explicitly before Shiwoo's eyes.</p>
 
-<p>"Shiwoo Oppa, are you all ready to go~?"</p>
+<p>"Shiwoo Oppa, are you all ready to go?"</p>
 
 <p>When her eyes meet Shiwoo's, Seyoung speaks to Shiwoo as if nothing is wrong.</p>
 
@@ -172,7 +172,7 @@ chapter = 295
 
 <p>Shiwoo answers, looking at Seyoung's breasts and private parts with his eyes slightly widened.</p>
 
-<p>"I have to wait a little longer to dry my hair and get dressed~! Hehe~"</p>
+<p>"I have to wait a little longer to dry my hair and get dressed! Hehe"</p>
 
 <p>Seyoung says to Shiwoo, raising her arms to touch her hair.</p>
 
@@ -192,13 +192,13 @@ chapter = 295
 
 <p>-At the same time, treating Mom, who is tidying up in the kitchen, as if she doesn't exist...-</p>
 
-<p>"What's wrong with that~?! Oppa also came out of the shower naked without a towel and walked around before going upstairs, right?"</p>
+<p>"What's wrong with that?! Oppa also came out of the shower naked without a towel and walked around before going upstairs, right?"</p>
 
 <p>Seyoung says as if she saw Shiwoo coming out of Mom's room naked, covering his front with Mom's clothes, stopping by the dressing room, and going up to the second floor.</p>
 
 <p>That is also an implication that Seyoung had confirmed Shiwoo's masturbation attempt before going up the stairs with a condom on his erect penis.</p>
 
-<p>"And if Mom says anything, Oppa can just talk to her well! Mom can't do anything to Oppa now anyway! Hehe~"</p>
+<p>"And if Mom says anything, Oppa can just talk to her well! Mom can't do anything to Oppa now anyway! Hehe"</p>
 
 <p>Seyoung's words sound like she is mocking Mom.</p>
 
@@ -210,7 +210,7 @@ chapter = 295
 
 <p>Seyoung looks down at Shiwoo with a slight smile, narrowing her eyes slightly.</p>
 
-<p>"I'm thirsty after showering! I'm going to get some water and go in~"</p>
+<p>"I'm thirsty after showering! I'm going to get some water and go in"</p>
 
 <p>Seyoung says that and walks briskly to the water purifier in the kitchen.</p>
 

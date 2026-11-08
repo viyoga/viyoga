@@ -8,13 +8,13 @@ chapter = 170
 
 <p>Shiwoo asks Seyoung, looking at the heart-shaped glass bottle placed on the table.</p>
 
-<p>,It's perfume made at the magic academy. I learned how to make perfume in class this time~ Hehe~,</p>
+<p>,It's perfume made at the magic academy. I learned how to make perfume in class this time Hehe,</p>
 
 <p>Seyoung says, sitting in the chair right next to Shiwoo.</p>
 
 <p>Seyoung gives Shiwoo a bright smile.</p>
 
-<p>,They make things like this at the magic academy too~ How fascinating~,</p>
+<p>,They make things like this at the magic academy too How fascinating,</p>
 
 <p>Shiwoo picks up the glass bottle and shakes it as if examining the contents inside.</p>
 
@@ -28,11 +28,11 @@ chapter = 170
 
 <p>But even so, Shiwoo was quite conscious of Seyoung, who was sitting right next to him, pretending not to know from the start.</p>
 
-<p>,They say you should spray it every three hours while carrying it around~!,</p>
+<p>,They say you should spray it every three hours while carrying it around!,</p>
 
 <p>Seyoung was explaining how to use the perfume she brought as a gift to Shiwoo, smiling innocently.</p>
 
-<p>,I think I can use it when Sehee Unnie and I go to the gathering after school tomorrow~ Hehe,</p>
+<p>,I think I can use it when Sehee Unnie and I go to the gathering after school tomorrow Hehe,</p>
 
 <p>For some reason, Seyoung seemed to know the details of Shiwoo and Sehee Nuna's schedule for tomorrow.</p>
 
@@ -50,7 +50,7 @@ chapter = 170
 
 <p>Looking at Seyoung's face, who is smiling innocently, Shiwoo is unleashing all sorts of imaginations, making his penis pillar even more massively erect.</p>
 
-<p>,Aren't our babies so admirable? They said they've been making it since Monday, thinking of Shiwoo~ You have to use the perfume every time you go out! Right, Shiwoo?! Kikik!,</p>
+<p>,Aren't our babies so admirable? They said they've been making it since Monday, thinking of Shiwoo You have to use the perfume every time you go out! Right, Shiwoo?! Kikik!,</p>
 
 <p>Seonju Imo says to Shiwoo nonchalantly, as if she doesn't know anything.</p>
 
@@ -58,17 +58,17 @@ chapter = 170
 
 <p>Shiwoo was feeling displeasure at Seonju Imo's presumptuous and arrogant attitude.</p>
 
-<p>,Uh...I should. Seyoung-ah! Sua-ah! Thank you~ I'll really use this well~,</p>
+<p>,Uh...I should. Seyoung-ah! Sua-ah! Thank you I'll really use this well,</p>
 
 <p>After answering Seonju Imo, Shiwoo thanks his younger sisters and brings the perfume in front of him.</p>
 
 <p>Shiwoo seems to be lost in thought for a moment, then asks Seyoung and Sua.</p>
 
-<p>,I'd feel bad just receiving~ Is there anything you guys want? I want to give Seyoung and Sua something as a gift too!,</p>
+<p>,I'd feel bad just receiving Is there anything you guys want? I want to give Seyoung and Sua something as a gift too!,</p>
 
 <p>Although Seonju Imo's attitude was annoying, it was true that he was grateful for Seyoung and Sua's hearts.</p>
 
-<p>,Shiwoo Oppa, then I~ I want to go eat ice cream cake with Shiwoo Oppa! At the cafe under the academy! With Sua! Hehe~ Can you buy it for me?,</p>
+<p>,Shiwoo Oppa, then I I want to go eat ice cream cake with Shiwoo Oppa! At the cafe under the academy! With Sua! Hehe Can you buy it for me?,</p>
 
 <p>Seyoung says to Shiwoo, her eyes sparkling as if she had been waiting for it.</p>
 
@@ -76,17 +76,17 @@ chapter = 170
 
 <p>Shiwoo asks Seyoung, pointing to the refrigerator where the ice cream cake is, as if questioning.</p>
 
-<p>,Hehe~ Still! Ice cream cake is so delicious~ I want to go with Oppa and try other flavors too,,</p>
+<p>,Hehe Still! Ice cream cake is so delicious I want to go with Oppa and try other flavors too,,</p>
 
 <p>Seyoung answers without pretense, giving a clear smile.</p>
 
-<p>,Okay~ Let's definitely go together next time! But still, I'm trying to give you this as a reward for the perfume! Isn't there anything else you want?,</p>
+<p>,Okay Let's definitely go together next time! But still, I'm trying to give you this as a reward for the perfume! Isn't there anything else you want?,</p>
 
 <p>Shiwoo seemed to feel like he definitely wanted to repay Seyoung for the perfume.</p>
 
 <p>Seyoung hesitates for a moment, then glances at Sua once before turning her gaze to Seonju Imo.</p>
 
-<p>,Then how about Shiwoo taking the kids to the mall around the weekend and buying them some clothes to wear in the spring? Watch a movie and ride the Ferris wheel too~! And look around the aquarium~ Kikik!,</p>
+<p>,Then how about Shiwoo taking the kids to the mall around the weekend and buying them some clothes to wear in the spring? Watch a movie and ride the Ferris wheel too! And look around the aquarium Kikik!,</p>
 
 <p>Seonju Imo was speaking to Shiwoo in a playful tone, instead of Seyoung who was hesitating.</p>
 
@@ -132,7 +132,7 @@ chapter = 170
 
 <p>Shiwoo looked at Seonju Imo with a triumphant expression, as if looking down on her.</p>
 
-<p>,Oh my~ What is that?,</p>
+<p>,Oh my What is that?,</p>
 
 <p>But Seonju Imo was speaking to Shiwoo with a still relaxed expression and tone, unlike what he had expected.</p>
 
@@ -146,7 +146,7 @@ chapter = 170
 
 <p>Shiwoo brings his finger to the smartphone screen once more, as if checking the operating status of the vibrator.</p>
 
-<p>'Jiiiiiiiiing~!'</p>
+<p>'Jiiiiiiiiing!'</p>
 
 <p>The vibration of Shiwoo's smartphone, which starts ringing again by the touch of his finger.</p>
 
@@ -160,7 +160,7 @@ chapter = 170
 
 <p>Shiwoo, feeling a surge of anger, pushes the intensity of the vibrator to the maximum at once.</p>
 
-<p>,Juwaaaaaang~!</p>
+<p>,Juwaaaaaang!</p>
 
 <p>The heavy vibration sound of the vibrator, as if mincing and crushing soft flesh.</p>
 
@@ -168,7 +168,7 @@ chapter = 170
 
 <p>It was then.</p>
 
-<p>,Haaeeuuut~,</p>
+<p>,Haaeeuuut,</p>
 
 <p>Sua, who was sitting next to Seonju Imo, that is, diagonally across from Shiwoo, was curling her body forward and making a moaning sound.</p>
 

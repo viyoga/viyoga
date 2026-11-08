@@ -56,7 +56,7 @@ chapter = 74
 
 <p>Shiwoo hadn't been able to say anything since hearing that Sehee Nuna and Sinbi Nuna had decided to go on that diet.</p>
 
-<p>Sinbi Nuna's last words, 'This time, it really has to be a secret~!!?'</p>
+<p>Sinbi Nuna's last words, 'This time, it really has to be a secret!!?'</p>
 
 <p>Those words seemed to be spoken knowing that Shiwoo had flaunted the secrets Sinbi Nuna had secretly told him before, to Sehee Nuna on the subway yesterday.</p>
 
@@ -84,11 +84,11 @@ chapter = 74
 
 <p>Messy thoughts, impossible to grasp, were stirring Shiwoo's head.</p>
 
-<p>"Hey~ Yu Shiwoo, aren't you coming quickly~!!? If you dawdle like that, I'll just leave you on the street~!!"</p>
+<p>"Hey Yu Shiwoo, aren't you coming quickly!!? If you dawdle like that, I'll just leave you on the street!!"</p>
 
 <p>Sehee Nuna, who was walking ahead, glanced back and spoke to Shiwoo.</p>
 
-<p>"Uh...yeah~!!"</p>
+<p>"Uh...yeah!!"</p>
 
 <p>Shiwoo's awkward reply.</p>
 
@@ -104,7 +104,7 @@ chapter = 74
 
 <p>Sinbi Nuna approached Shiwoo.</p>
 
-<p>"Don't forget what you promised to do for me~!! You know, right~!!?"</p>
+<p>"Don't forget what you promised to do for me!! You know, right!!?"</p>
 
 <p>Sinbi Nuna, smiling playfully, spoke to Shiwoo in a small voice, quiet enough not to be heard by Sehee Nuna.</p>
 
@@ -130,13 +130,13 @@ chapter = 74
 
 <p>As soon as he entered, the voices of Cheoljin and his friends, busily chattering, could be heard inside the classroom.</p>
 
-<p>"They opened an academy in front of the station~ It was in a building, you know?~"</p>
+<p>"They opened an academy in front of the station It was in a building, you know?"</p>
 
 <p>Surrounded by classmates, Cheoljin was busily chattering about something, like someone selling goods.</p>
 
 <p>On Cheoljin's desk, several photos were placed.</p>
 
-<p>"In this industry, she seems quite famous~ Not only are her skills outstanding, but her looks are also exceptional~ so she seems to be quite popular."</p>
+<p>"In this industry, she seems quite famous Not only are her skills outstanding, but her looks are also exceptional so she seems to be quite popular."</p>
 
 <p>Cheoljin, like someone unpacking a bundle and selling goods, was eagerly explaining about someone to his friends, adding trite rhetoric.</p>
 
@@ -144,7 +144,7 @@ chapter = 74
 
 <p>Looking closer, the photos on the desk captured a close-up of a beautiful woman performing a magic show.</p>
 
-<p>"Yo~ Shiwoo, you here?"</p>
+<p>"Yo Shiwoo, you here?"</p>
 
 <p>Seeing Shiwoo approach, Cheoljin greeted him.</p>
 
@@ -152,7 +152,7 @@ chapter = 74
 
 <p>Shiwoo, instead of greeting, pointed at the photos on Cheoljin's desk and asked.</p>
 
-<p>"Ah~~!! Want to see too?"</p>
+<p>"Ah!! Want to see too?"</p>
 
 <p>Cheoljin showed Shiwoo the video on the smartphone he was holding as he spoke.</p>
 
@@ -162,7 +162,7 @@ chapter = 74
 
 <p>Recently, what he was doing and where he was going seemed to be causing a lot of worry for Gyuri Ajumma, and he seemed to be engrossed in finding a new object for his hobby.</p>
 
-<p>"You know that new magic academy that opened a few months ago in front of the station? It even advertises on TV sometimes... The director teacher there~!! Isn't she pretty?"</p>
+<p>"You know that new magic academy that opened a few months ago in front of the station? It even advertises on TV sometimes... The director teacher there!! Isn't she pretty?"</p>
 
 <p>Cheoljin, for some reason, was chattering about the director teacher of the magic academy that Shiwoo would visit today.</p>
 
@@ -174,7 +174,7 @@ chapter = 74
 
 <p>Seeing the excited Cheoljin, Shiwoo deliberately replied as if uninterested.</p>
 
-<p>"She seems to have a lot of novel magic tricks~ But no matter how much I investigate, I can't find information like her family relations, education, or where she lives, you know?! This person is completely shrouded in mystery! And she's such a beauty~!! She seems fluent in foreign languages, and with her exotic looks, she seems mixed-race too..."</p>
+<p>"She seems to have a lot of novel magic tricks But no matter how much I investigate, I can't find information like her family relations, education, or where she lives, you know?! This person is completely shrouded in mystery! And she's such a beauty!! She seems fluent in foreign languages, and with her exotic looks, she seems mixed-race too..."</p>
 
 <p>Perhaps to draw the attention and interest of the surrounding kids, Cheoljin continued speaking, mixing in exaggerations.</p>
 
@@ -186,7 +186,7 @@ chapter = 74
 
 <p>Someone supposedly shrouded in mystery couldn't possibly be an after-school teacher at an elementary academy.</p>
 
-<p>"Though it's hard to believe, there are rumors she's a real psychic~ There are also whispers that she's a famous wealthy man's mistress~ and talk of her brainwashing academy kids and using them for prostitution..."</p>
+<p>"Though it's hard to believe, there are rumors she's a real psychic There are also whispers that she's a famous wealthy man's mistress and talk of her brainwashing academy kids and using them for prostitution..."</p>
 
 <p>Cheoljin suddenly lowered his voice and spoke, as if secretly divulging secrets that shouldn't leak out.</p>
 
@@ -200,11 +200,11 @@ chapter = 74
 
 <p>If he just listened to these occult enthusiasts' nonsensical chatter, and strange rumors about the academy spread, it could become a troublesome matter for him as Seyoung's older brother.</p>
 
-<p>"Hey~! Hold on, hold on~! I'm going to that academy today for a guardian interview for my younger sister~!! And that Yu Yena person is Seyoung's elementary academy's after-school teacher~!!! Stop with the weird talk~!!!"</p>
+<p>"Hey! Hold on, hold on! I'm going to that academy today for a guardian interview for my younger sister!! And that Yu Yena person is Seyoung's elementary academy's after-school teacher!!! Stop with the weird talk!!!"</p>
 
 <p>At Shiwoo's words, as if shouting a rebuke, the kids gathered around began to murmur.</p>
 
-<p>"Kids who should know better, why are you listening to such ridiculous talk~!!! That's the academy my younger sister attends, so stop with the absurd talk now!! Come on~! Come on~!!"</p>
+<p>"Kids who should know better, why are you listening to such ridiculous talk!!! That's the academy my younger sister attends, so stop with the absurd talk now!! Come on! Come on!!"</p>
 
 <p>Saying that, Shiwoo squeezed into the gap between Cheoljin and the gathered kids and began to disperse them.</p>
 

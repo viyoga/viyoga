@@ -184,7 +184,7 @@ chapter = 334
 
 <p>As if trying to take care of all the liquid on Sua's entire crotch with her mouth...</p>
 
-<p>,Olgak~ Olgak~ Olgak~!"</p>
+<p>,Olgak Olgak Olgak!"</p>
 
 <p>Seyoung swallowed the liquid she had gathered into her mouth.</p>
 
@@ -192,7 +192,7 @@ chapter = 334
 
 <p>Soon after, Sua's body arched backward as if she had reached her climax.</p>
 
-<p>,Haaaaaang~!!"</p>
+<p>,Haaaaaang!!"</p>
 
 <p>The video ended with Sua's moaning sound as she reached her climax.</p>
 

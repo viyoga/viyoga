@@ -204,7 +204,7 @@ chapter = 587
 
 <p>Mom answers Shiwoo as if controlling her complicated emotions.</p>
 
-<p>[Yeah~ I'm going to stop by the cafe in the basement of the academy building too. I'm going to buy a lot of ice cream for Sae-a~]</p>
+<p>[Yeah I'm going to stop by the cafe in the basement of the academy building too. I'm going to buy a lot of ice cream for Sae-a]</p>
 
 <p>Shiwoo was teasing Mom again, using Mom's masturbation as a topic, with a mischievous feeling.</p>
 

@@ -22,7 +22,7 @@ chapter = 232
 
 <p>The soft vulva, soaked with lubricant, and the surrounding tender flesh were becoming a mess, mixed with the saliva applied to Shiwoo's glans.</p>
 
-<p>"Heeuu-euuuut~!"</p>
+<p>"Heeuu-euuuut!"</p>
 
 <p>A faint and blurry moaning sound leaks from Sehee Nuna's mouth, who was lying powerlessly backward on the bed.</p>
 
@@ -72,11 +72,11 @@ chapter = 232
 
 <p>Shiwoo bites Sehee Nuna's neck with his lips as if to devour her, then gathers the flesh of Sehee Nuna's neck into his mouth and puckers it up.</p>
 
-<p>"Jjuu-uup~~~!"</p>
+<p>"Jjuu-uup!"</p>
 
 <p>Shiwoo was sucking on Sehee Nuna's neck flesh, covering it with his lips and strongly inhaling as if sucking it.</p>
 
-<p>"Haa-euuu-eut~! Haaa-aaa... Heung~ Eung...!"</p>
+<p>"Haa-euuu-eut! Haaa-aaa... Heung Eung...!"</p>
 
 <p>Sehee Nuna writhes or squirms as if twisting her sensitive body, emitting a pitiful moaning sound of affirmation.</p>
 
@@ -92,7 +92,7 @@ chapter = 232
 
 <p>Shiwoo's thing is fully contained inside Sehee Nuna's body, all the way to the root.</p>
 
-<p>"Haa-euuu...!! Heuu-eung~!! Heueuk~!"</p>
+<p>"Haa-euuu...!! Heuu-eung!! Heueuk!"</p>
 
 <p>Sehee Nuna's moans, flowing out lowly, divided into several parts as if sobbing.</p>
 
@@ -100,7 +100,7 @@ chapter = 232
 
 <p>Shiwoo says, looking down at Sehee Nuna's face in a strong tone as if suppressing her.</p>
 
-<p>"Jjuu-up! Jjuu-uup~! Chu-up!"</p>
+<p>"Jjuu-up! Jjuu-uup! Chu-up!"</p>
 
 <p>Shiwoo again brings his lips to Sehee Nuna's neck several times and strongly pulls as if inhaling.</p>
 
@@ -116,7 +116,7 @@ chapter = 232
 
 <p>Red hickey marks were connected around Sehee Nuna's neck circumference, like paint spreading in water.</p>
 
-<p>"Haa...haa...haa~..."</p>
+<p>"Haa...haa...haa..."</p>
 
 <p>Sehee Nuna breathes as if panting, with her chest rising and falling.</p>
 
@@ -142,7 +142,7 @@ chapter = 232
 
 <p>Each time he stroked, Shiwoo's glans was stabbing as if it would pierce Sehee Nuna's cervix.</p>
 
-<p>"Haa-eut~! Haa-ak~! Haa-at~! Hang! Haa-euuu-eut!"</p>
+<p>"Haa-eut! Haa-ak! Haa-at! Hang! Haa-euuu-eut!"</p>
 
 <p>Sehee Nuna was barely suppressing the moans that seemed to be driving her crazy, clinging to Shiwoo and twisting her body.</p>
 
@@ -150,7 +150,7 @@ chapter = 232
 
 <p>-Peok!! Peok!! Peok!! Peok!! Peok!!</p>
 
-<p>"Haa-eung! Haa-euuu-euk~! Haa-at! Haa-euk! Heuu-euuu...Heuu!"</p>
+<p>"Haa-eung! Haa-euuu-euk! Haa-at! Haa-euk! Heuu-euuu...Heuu!"</p>
 
 <p>Sehee Nuna's breathing, which was gradually starting to become disordered.</p>
 
@@ -194,7 +194,7 @@ chapter = 232
 
 <p>Sehee Nuna's body vibrates and bounces as if flustered.</p>
 
-<p>"Juin-nim ~Haaa-ak! Haa-euuu-eut Haa-eung Haa-aang~!!"</p>
+<p>"Juin-nim Haaa-ak! Haa-euuu-eut Haa-eung Haa-aang!!"</p>
 
 <p>Sehee Nuna, who was climaxing as if regretting, was shaking her body violently as if writhing in climax, flailing alone on the bed as if having a seizure.</p>
 
@@ -206,7 +206,7 @@ chapter = 232
 
 <p>Shiwoo waited for Sehee Nuna's moans and tremors to subside.</p>
 
-<p>"Haa-eu~ Haa-euuu~ Haa-euuu!"</p>
+<p>"Haa-eu Haa-euuu Haa-euuu!"</p>
 
 <p>As Sehee Nuna was calming down, Shiwoo takes out Mom's lingerie panties from his pocket.</p>
 

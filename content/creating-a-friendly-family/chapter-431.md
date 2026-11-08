@@ -70,7 +70,7 @@ chapter = 431
 
 <p>Mom, as if the situations she was currently experiencing were truly confusing and embarrassing, was speaking with a changed tone mixed with informal speech, as if appealing her difficult circumstances to her son, Si-woo.</p>
 
-<p>"Why would you explain? You can just run away~! Even if you meet them later, you can just feign ignorance and pretend you don't remember! The thing Mom is usually good at!"</p>
+<p>"Why would you explain? You can just run away! Even if you meet them later, you can just feign ignorance and pretend you don't remember! The thing Mom is usually good at!"</p>
 
 <p>Si-woo was also answering her by returning to the tone he usually uses with Mom to match her.</p>
 
@@ -162,7 +162,7 @@ chapter = 431
 
 <p>Si-woo thinks while recalling the incident at the last Saturday family gathering.</p>
 
-<p>"But I had quit all of this for a while! I even got all the permission from your Dad in the past~! Back then I said I couldn't do it because I was afraid it would become like this with you, Si-woo-ya, hi-ing~"</p>
+<p>"But I had quit all of this for a while! I even got all the permission from your Dad in the past! Back then I said I couldn't do it because I was afraid it would become like this with you, Si-woo-ya, hi-ing"</p>
 
 <p>Mom was speaking in a whining tone to Si-woo, just like Aunt Seon-ju or Se-hee nuna.</p>
 

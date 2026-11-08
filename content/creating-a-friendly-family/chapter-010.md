@@ -16,7 +16,7 @@ chapter = 10
 
 <p>Mom didn't answer. Shiwoo slowly detached Seyoung's sleeping mouth from Mom's breast. Even in her sleep, Seyoung's lips continued to mumble, as if instinctively searching for Mom's nipple like a baby. Mom's nipple and the surrounding flesh were soaked and smeared with Seyoung's saliva, reflecting a glistening, lustrous light. Shiwoo's cock instantly strained, feeling as if it would burst. His head felt dizzy.</p>
 
-<p>「Mom~?」 Shiwoo called out to Mom again, softly. Though he was calling Mom, if she were to wake up at Shiwoo's voice, it would be Shiwoo who would be in immediate trouble. If Mom took off her blindfold and saw Shiwoo's aroused state, what excuse could he possibly make? Even risking such a perilous situation, he wanted to confirm that Mom was truly asleep. Even Shiwoo himself didn't know why.</p>
+<p>「Mom?」 Shiwoo called out to Mom again, softly. Though he was calling Mom, if she were to wake up at Shiwoo's voice, it would be Shiwoo who would be in immediate trouble. If Mom took off her blindfold and saw Shiwoo's aroused state, what excuse could he possibly make? Even risking such a perilous situation, he wanted to confirm that Mom was truly asleep. Even Shiwoo himself didn't know why.</p>
 
 <p>Shiwoo had come downstairs to move Seyoung, as Mom had requested. Before his eyes was a daughter suckling at her blindfolded Mom's breast. Mom's nipple, wet with her daughter's saliva, glistened with a sheen. That was all. That was all, yet he had to confirm that Mom was asleep.</p>
 

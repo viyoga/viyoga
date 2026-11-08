@@ -38,7 +38,7 @@ chapter = 710
 
 <p>As if meeting a moment of inevitable liberation, he slowly released the tension in his sphincter that had been fighting against Seyoung's suction.</p>
 
-<p>"Chu-ru-up, chu-aaa-ap, chu-uuuu-ub, ha-aaaa-am! Chu-uuuu-uuuu-ub~!"</p>
+<p>"Chu-ru-up, chu-aaa-ap, chu-uuuu-ub, ha-aaaa-am! Chu-uuuu-uuuu-ub!"</p>
 
 <p>Under the vacuum of Seyoung's mouth that felt like it was pulling out his very soul, Shiwoo's spread legs and the arms supporting him from behind began to tremble violently.</p>
 
@@ -160,7 +160,7 @@ chapter = 710
 
 <p>With her eyes shut tight, Seyoung swallowed Shiwoo's semen in several gulps, her throat bobbing as she did.</p>
 
-<p>"Hu-waaaaa~"</p>
+<p>"Hu-waaaaa"</p>
 
 <p>Having swallowed every last drop, her breath soaked the room's air.</p>
 
@@ -180,7 +180,7 @@ chapter = 710
 
 <p>Then she brought her face back to Shiwoo's penis and stuck out her tongue.</p>
 
-<p>"Chu-rub, su-ap, su-ub, ha-am~ hu-ub, sa-rab!"</p>
+<p>"Chu-rub, su-ap, su-ub, ha-am hu-ub, sa-rab!"</p>
 
 <p>After swallowing the cum, she began to lick off the remaining mess from Shiwoo's penis, cleaning him up.</p>
 

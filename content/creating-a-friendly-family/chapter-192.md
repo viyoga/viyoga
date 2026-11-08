@@ -14,7 +14,7 @@ chapter = 192
 
 <p>Cheoljin-i looks at Shiwoo, smiling with a mischievous expression.</p>
 
-<p>"Ah, shit! Don't beat around the bush~ If you're going to tell me, answer quickly~! What happened!"</p>
+<p>"Ah, shit! Don't beat around the bush If you're going to tell me, answer quickly! What happened!"</p>
 
 <p>Shiwoo says to Cheoljin-i in an annoyed, almost bullying tone.</p>
 
@@ -28,7 +28,7 @@ chapter = 192
 
 <p>Shiwoo frowns and retorts at Cheoljin-i's sudden question.</p>
 
-<p>"I knew right away~ Who was who~! Puhihit~!"</p>
+<p>"I knew right away Who was who! Puhihit!"</p>
 
 <p>Cheoljin-i says something Shiwoo can't understand and leaves the restroom.</p>
 
@@ -154,7 +154,7 @@ chapter = 192
 
 <p>When the explicit scenes appeared, it was practically pornography.</p>
 
-<p>"It seems when they film scenes like that, even regular actors go all the way to penetration~"</p>
+<p>"It seems when they film scenes like that, even regular actors go all the way to penetration"</p>
 
 <p>Sinbi Nuna, her voice languid as if slightly tipsy, whispered into Shiwoo's ear.</p>
 
@@ -196,7 +196,7 @@ chapter = 192
 
 <p>Sora Nuna, who had been sitting on the floor for a while, her blouse unbuttoned, receiving intense caresses from Seongguk Hyeong, spoke to Sinbi Nuna with a suggestive gaze.</p>
 
-<p>"Yeah~ I think I should go now~ Is that okay, everyone?"</p>
+<p>"Yeah I think I should go now Is that okay, everyone?"</p>
 
 <p>Sinbi Nuna spoke with Sora Nuna as if exchanging pre-arranged lines.</p>
 
@@ -224,7 +224,7 @@ chapter = 192
 
 <p>It seemed the perfume bottle he had put in his jacket pocket had broken.</p>
 
-<p>"Ah~ shit~ Just a moment! I'll be right back from the restroom~"</p>
+<p>"Ah shit Just a moment! I'll be right back from the restroom"</p>
 
 <p>Shiwoo said that to Sinbi Nuna and got up from his seat.</p>
 

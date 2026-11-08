@@ -96,7 +96,7 @@ chapter = 419
 
 <p>Mom trailed off as she answered Shiwoo's question.</p>
 
-<p>"Really? Sounds delicious~"</p>
+<p>"Really? Sounds delicious"</p>
 
 <p>Shiwoo felt a strange, erotic feeling and pleasure at Mom's answer, which was neither completely polite nor impolite.</p>
 
@@ -116,7 +116,7 @@ chapter = 419
 
 <p>Then, as if realizing the situation she was in, Mom answered in a polite tone.</p>
 
-<p>"So, her lewdness, appearance, and tastes are all like her mom's? But her personality seems really different~ right?"</p>
+<p>"So, her lewdness, appearance, and tastes are all like her mom's? But her personality seems really different right?"</p>
 
 <p>Shiwoo gently removed his hand from Mom's hand, which was wrapped around his penis, and spoke as if to himself.</p>
 

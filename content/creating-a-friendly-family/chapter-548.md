@@ -68,7 +68,7 @@ chapter = 548
 
 <p>Sehee says to Mom, as if scolding her with a slightly annoyed tone.</p>
 
-<p>"Se...Sehee, you don't have to worry about it... Ju, just eat your meal quickly~! You have to prepare to go to the academy soon, too!"</p>
+<p>"Se...Sehee, you don't have to worry about it... Ju, just eat your meal quickly! You have to prepare to go to the academy soon, too!"</p>
 
 <p>Mom says to Sehee, trying to get through the situation, in a stern tone.</p>
 
@@ -84,7 +84,7 @@ chapter = 548
 
 <p>Sehee holds her back and neck straight and looks down at Mom as if looking down on her.</p>
 
-<p>"Seriously! How can I not worry? Looking at what Mom is doing now, how can I eat without worrying~!"</p>
+<p>"Seriously! How can I not worry? Looking at what Mom is doing now, how can I eat without worrying!"</p>
 
 <p>Then, she says as if criticizing Mom's clumsy behavior.</p>
 
@@ -108,7 +108,7 @@ chapter = 548
 
 <p>Shiwoo says to Sehee as if discussing Mom's condition with her.</p>
 
-<p>"Well... I guess~ Anyway, Seyoung is already..."</p>
+<p>"Well... I guess Anyway, Seyoung is already..."</p>
 
 <p>Sehee doesn't clearly finish her sentence, and answers Shiwoo as if letting the words flow as Mom is listening.</p>
 
@@ -164,7 +164,7 @@ chapter = 548
 
 <p>Seyoung is holding a smartphone in her hand.</p>
 
-<p>"I'm back~ Mom!"</p>
+<p>"I'm back Mom!"</p>
 
 <p>Seyoung returns to her seat, puts her smartphone on the table, and says to Mom as she sits lightly on the chair.</p>
 
@@ -184,7 +184,7 @@ chapter = 548
 
 <p>Shiwoo asks, staring blatantly at Seyoung's pudding-like breasts, protruding nipples, and fair skin.</p>
 
-<p>"Yeah~ There was curry on my clothes, so I just took them off~! I don't want to get them dirty again if I change into another outfit~"</p>
+<p>"Yeah There was curry on my clothes, so I just took them off! I don't want to get them dirty again if I change into another outfit"</p>
 
 <p>Seyoung explains to Shiwoo the reason why she took off her clothes.</p>
 
@@ -192,7 +192,7 @@ chapter = 548
 
 <p>While Shiwoo is thinking that, Seyoung turns her head towards Mom.</p>
 
-<p>"It's okay if I'm wearing panties, right Mom? Hehe~"</p>
+<p>"It's okay if I'm wearing panties, right Mom? Hehe"</p>
 
 <p>Seyoung smiles brightly and asks Mom a surprise question.</p>
 

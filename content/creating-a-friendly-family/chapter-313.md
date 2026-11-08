@@ -140,7 +140,7 @@ chapter = 313
 
 <p>It wasn't so noticeable at first glance.</p>
 
-<p>"It's okay to go like this~! The smell isn't that strong, and it looks just like lotion or oil has been applied."</p>
+<p>"It's okay to go like this! The smell isn't that strong, and it looks just like lotion or oil has been applied."</p>
 
 <p>Shiwoo emphasizes that the vaginal fluid applied to Sua and Seyoung's hair and body is not noticeable, and speaks in a cheerful voice as if trying to reassure them.</p>
 
@@ -160,7 +160,7 @@ chapter = 313
 
 <p>Shiwoo breaks the silence that had come about due to his own bizarre behavior and speaks to his younger sisters as if confirming.</p>
 
-<p>"Yeah...I have a transportation card~"</p>
+<p>"Yeah...I have a transportation card"</p>
 
 <p>Seyoung, who is tidying up her clothes, answers Shiwoo's question as if she has already returned to her usual tone and expression.</p>
 
@@ -180,7 +180,7 @@ chapter = 313
 
 <p>Shiwoo is asking questions with the intention of making his younger sisters continue to speak.</p>
 
-<p>"Let's do that...I don't mind~ Shiwoo Oppa hehe~"</p>
+<p>"Let's do that...I don't mind Shiwoo Oppa hehe"</p>
 
 <p>"Yeah...me too..."</p>
 

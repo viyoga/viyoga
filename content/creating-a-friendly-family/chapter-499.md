@@ -4,7 +4,7 @@ weight = 499
 [extra]
 chapter = 499
 +++
-<p>"Okay~ I'll do as Oppa says~ I just use this as is, right?"</p>
+<p>"Okay I'll do as Oppa says I just use this as is, right?"</p>
 
 <p>Seyoung-ie seemed to think for a moment, then reached out her hand towards the lavender eye patch Shiwoo was holding and said.</p>
 
@@ -30,7 +30,7 @@ chapter = 499
 
 <p>Shiwoo cautiously asked, observing Seyoung-ie, whose eyes were covered.</p>
 
-<p>"Yeah, it's fine~ But being like this, I feel like I'll fall asleep right away~ Hehe~"</p>
+<p>"Yeah, it's fine But being like this, I feel like I'll fall asleep right away Hehe"</p>
 
 <p>Seyoung-ie, with her eyes covered by the eye patch, let her head droop and spoke in a languid voice.</p>
 
@@ -40,7 +40,7 @@ chapter = 499
 
 <p>Shiwoo covered Seyoung-ie's empty chest with his palm and spoke.</p>
 
-<p>"Yeah, it doesn't matter~ now..."</p>
+<p>"Yeah, it doesn't matter now..."</p>
 
 <p>Seyoung-ie replied, echoing Shiwoo's words as if in agreement.</p>
 

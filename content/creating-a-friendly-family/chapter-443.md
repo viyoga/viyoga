@@ -154,13 +154,13 @@ chapter = 443
 
 <p>Opening the entrance door, Shiwoo and Mom enter the house where Sehee and Seyoung are.</p>
 
-<p>"We're home~"</p>
+<p>"We're home"</p>
 
 <p>Shiwoo informs Sehee and Seyoung, who are in the house, that he has returned with Mom.</p>
 
 <p>Shiwoo and Mom take off their shoes at the entrance and step up into the living room.</p>
 
-<p>"Oppa! Mom~! You're back?"</p>
+<p>"Oppa! Mom! You're back?"</p>
 
 <p>Seyoung, who had been preparing dinner in the kitchen, runs out towards the entrance and greets Mom and Shiwoo happily.</p>
 
@@ -170,7 +170,7 @@ chapter = 443
 
 <p>She hasn't even managed to hide the hickey above her neck, the vaginal fluid flowing between her lower thighs, and the swimsuit bottoms hanging on her thigh.</p>
 
-<p>"Mom~!"</p>
+<p>"Mom!"</p>
 
 <p>Seyoung, whether she knows Mom's feelings or not, suddenly comes forward and hugs her tightly.</p>
 
@@ -184,7 +184,7 @@ chapter = 443
 
 <p>Regardless, Seyoung buries her face in Mom's chest and wraps her arms around her waist and pelvis.</p>
 
-<p>"I made dinner~! I thought Mom was busy~ Hehe! But you contacted us to say you were coming, and you were so late that I thought something had happened to Oppa and Mom~!"</p>
+<p>"I made dinner! I thought Mom was busy Hehe! But you contacted us to say you were coming, and you were so late that I thought something had happened to Oppa and Mom!"</p>
 
 <p>Seyoung hugs Mom tightly and rubs her cheek against Mom's chest as if acting spoiled.</p>
 

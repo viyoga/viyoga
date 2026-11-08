@@ -6,15 +6,15 @@ chapter = 7
 +++
 <p>It was on the way back from Cheoljin's house. Next to the restroom in the park near home, a group of female students, who looked like high schoolers, were gathered there. Glancing sideways, Shiwoo saw them in their academy uniforms, cigarettes dangling from their lips, looking far from ordinary. Shiwoo tried to pass by them with quick, inconspicuous steps, hoping to get through safely. But from that group, a familiar voice called out to Shiwoo, stopping him.</p>
 
-<p>「Hey! Yu Shiwoo~!! Come here!!」</p>
+<p>「Hey! Yu Shiwoo!! Come here!!」</p>
 
 <p>The owner of that voice was none other than Sehee Nuna. Sehee Nuna, wearing heavy makeup, held a lit cigarette in one hand, and as she squatted, her skirt had ridden up slightly, revealing her sleek thighs provocatively.</p>
 
-<p>「Oh? Nuna, what are you doing here? These must be your friends~」</p>
+<p>「Oh? Nuna, what are you doing here? These must be your friends」</p>
 
 <p>Like a pet dog narrowly rescued by its owner after almost being sold to the black market for food, Shiwoo, feeling an inexplicable sense of relief, greeted his Nuna as warmly as possible.</p>
 
-<p>「Hello, Shiwoo~」</p>
+<p>「Hello, Shiwoo」</p>
 
 <p>Another gentle, warm voice was heard.</p>
 
@@ -24,11 +24,11 @@ chapter = 7
 
 <p>When Sehee Nuna quit exercising, Sinbi Nuna seemed to have followed suit. While they each might have had their reasons, there was no doubt they were close. -It was Sinbi Nuna who told Shiwoo why Sehee Nuna quit exercising- Sinbi Nuna had folded her academy uniform skirt up short, wearing it like a mini-skirt. Standing next to Sehee Nuna, her plump yet shapely thighs seemed to exude a charm quite different from Sehee Nuna's.</p>
 
-<p>「Hello~ So you're Sehee's younger brother, Shiwoo?」 「Oh my, you're as handsome as I heard?」 「Are you coming back from the academy now?」</p>
+<p>「Hello So you're Sehee's younger brother, Shiwoo?」 「Oh my, you're as handsome as I heard?」 「Are you coming back from the academy now?」</p>
 
 <p>To the left and right of Sehee Nuna and Sinbi Nuna were three more Nunas Shiwoo hadn't seen before. All three of them had a slightly delinquent vibe, but their looks were stunning, easily rivaling Sehee Nuna and Sinbi Nuna. His Nuna's friends also wore provocative makeup or short skirts. Among them, one Nuna had unbuttoned about three buttons of her academy uniform blouse, deliberately exposing her underwear. However, despite their tough-looking exteriors, their manners were all soft and gentle.</p>
 
-<p>「Ah, yes, hello~ I'm Yu Shiwoo, Sehee Nuna's younger brother.」</p>
+<p>「Ah, yes, hello I'm Yu Shiwoo, Sehee Nuna's younger brother.」</p>
 
 <p>Shiwoo bowed respectfully to his Nuna's friends whom he was meeting for the first time. After greeting them, he directed his gaze to what had been bothering him earlier. The cigarette held between his Nuna's left index and middle fingers.</p>
 
@@ -40,7 +40,7 @@ chapter = 7
 
 <p>Sehee Nuna, perhaps trying to act tough in front of her friends, stood up, approached Shiwoo, and offered him the cigarette she was smoking.</p>
 
-<p>「Ah, what are you talking about? I'm good~」</p>
+<p>「Ah, what are you talking about? I'm good」</p>
 
 <p>Shiwoo waved his hand, refusing.</p>
 
@@ -86,15 +86,15 @@ chapter = 7
 
 <p>「He really just talks back to his own Nuna all the time. I'm not stopping you, so just get lost! Go sleep your ass off or whatever!!!」</p>
 
-<p>「I swear, I'm speechless~ Speak nicely, will you?! I'm leaving.」</p>
+<p>「I swear, I'm speechless Speak nicely, will you?! I'm leaving.」</p>
 
 <p>Their conversation ended, much like typical siblings, showcasing their rough yet strong sibling bond to those around them.</p>
 
-<p>「Leaving already?」 「Stay and chat a bit longer~」 「Oh dear, he must be sleepy. Goodbye, see you later~」</p>
+<p>「Leaving already?」 「Stay and chat a bit longer」 「Oh dear, he must be sleepy. Goodbye, see you later」</p>
 
 <p>Sehee Nuna's friends, standing nearby, said regretfully.</p>
 
-<p>「Shiwoo, see you in a bit~~」</p>
+<p>「Shiwoo, see you in a bit」</p>
 
 <p>Sinbi Nuna gave Shiwoo a wry smile, as if feeling sorry and sympathetic for him. Shiwoo bowed respectfully to the Nunas and headed home.</p>
 
@@ -106,7 +106,7 @@ chapter = 7
 
 <p>Following the loud, explosive sounds like flesh tearing, intense moans filled the entrance hall.</p>
 
-<p>『Aaaah~』</p>
+<p>『Aaaah』</p>
 
 <p>He fastened a red collar around her neck, then tied her hands behind her back with a rope. Forcing her face into the floor, he struck her buttocks once more, and Shiwoo shouted.</p>
 
@@ -126,25 +126,25 @@ chapter = 7
 
 <p>The woman tied up on the floor with her hands bound behind her back was none other than Sehee Nuna. Shiwoo was so startled his heart felt like it plummeted.</p>
 
-<p>『Aaaahhh~ Nuna, why are you doing that there!?』 『I'm going to tell Mom everything about this!! You'll get beaten to death and kicked out of the house, you hear me!!!』</p>
+<p>『Aaaahhh Nuna, why are you doing that there!?』 『I'm going to tell Mom everything about this!! You'll get beaten to death and kicked out of the house, you hear me!!!』</p>
 
 <p>Sehee Nuna, her eyes glaring fiercely, yelled.</p>
 
-<p>『Aaaah~~ Nuna, I didn't do that! I'm sorry, please save me, Nuna!"』</p>
+<p>『Aaaah Nuna, I didn't do that! I'm sorry, please save me, Nuna!"』</p>
 
 <p>Shiwoo reached out to grab his Nuna, but she wasn't there to be caught. Shiwoo thrashed his hands in the air.</p>
 
-<p>「Aaaahhhh~~~ Nuna~~~」</p>
+<p>「Aaaahhhh Nuna」</p>
 
 <p>Shiwoo screamed in his dream. But in reality, all he could manage was a muffled groan.</p>
 
-<p>「Ughhh~ Ughhh...」</p>
+<p>「Ughhh Ughhh...」</p>
 
-<p>「Shiwoo~ Shiwoo? Are you okay?」</p>
+<p>「Shiwoo Shiwoo? Are you okay?」</p>
 
 <p>Sinbi Nuna was talking to Shiwoo, waking him as he regained consciousness.</p>
 
-<p>「What kind of dream did you have to make such strange noises? Shiwoo, wake up, I've boiled ramen~ Let's eat ramen.」</p>
+<p>「What kind of dream did you have to make such strange noises? Shiwoo, wake up, I've boiled ramen Let's eat ramen.」</p>
 
 <p>As Shiwoo opened his eyes, Sinbi Nuna was before him, her lips moving delicately as she smiled like an angel. After such a bizarre dream, to see such a blissful smile—Shiwoo vaguely felt that life was truly strange.</p>
 
@@ -164,7 +164,7 @@ chapter = 7
 
 <p>Sehee Nuna, startled, pulled her skirt down and held it, looking around at her surroundings. Then she suddenly rushed at Shiwoo and delivered a low kick.</p>
 
-<p>「Why are you doing this to me? I didn't do it~」</p>
+<p>「Why are you doing this to me? I didn't do it」</p>
 
 <p>Shiwoo, suddenly assaulted, cried out as if wronged.</p>
 

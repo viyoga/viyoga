@@ -4,15 +4,15 @@ weight = 739
 [extra]
 chapter = 739
 +++
-<p>[Hehe, what do you mean by 'such a thing'? I was just thinking about lying down quietly with Mom and resting for a bit~ I guess Mom was thinking about something else?]</p>
+<p>[Hehe, what do you mean by 'such a thing'? I was just thinking about lying down quietly with Mom and resting for a bit I guess Mom was thinking about something else?]</p>
 
 <p>Shiwoo replies to his mother's words, adding a layer of sly, playful mischief.</p>
 
-<p>[Goodness~ Have you ever actually stayed still when you're with Mom? Like someone possessed, your hands and your waist can never just stay still, yet you claim you'll lie there quietly!]</p>
+<p>[Goodness Have you ever actually stayed still when you're with Mom? Like someone possessed, your hands and your waist can never just stay still, yet you claim you'll lie there quietly!]</p>
 
 <p>Mom grumbled, venting the frustration and irritation she had been bottling up toward Shiwoo. Her current attitude was a stark contrast to the way she had been last night—trembling with heat and letting out disheveled moans...</p>
 
-<p>[Why? You don't think I can stay still? Then come and see for yourself today~]</p>
+<p>[Why? You don't think I can stay still? Then come and see for yourself today]</p>
 
 <p>Shiwoo maintained his sly demeanor, sending messages that mixed playful jokes with subtle provocations.</p>
 
@@ -20,7 +20,7 @@ chapter = 739
 
 <p>Mom wrote back, her words a mix of exasperation and petulance, as if she were at a loss for words.</p>
 
-<p>[Got it, I'll stop now~ Hehe. Then let's make it 1 PM in front of the department store main entrance. Text me when you're about to leave the house, Mom~]</p>
+<p>[Got it, I'll stop now Hehe. Then let's make it 1 PM in front of the department store main entrance. Text me when you're about to leave the house, Mom]</p>
 
 <p>Shiwoo finalized the time and place, ending the conversation as if to soothe his mother's irritation.</p>
 
@@ -52,7 +52,7 @@ chapter = 739
 
 <p>[So, I'll let you wear underwear like usual... You don't need to use things like the anal plug or the vibrator today.]</p>
 
-<p>[I want to just walk around with Mom normally today. So, come out fully dressed properly~!]</p>
+<p>[I want to just walk around with Mom normally today. So, come out fully dressed properly!]</p>
 
 <p>Shiwoo spoke as if he planned to make no excessive demands of Mom, limited to today.</p>
 
@@ -62,7 +62,7 @@ chapter = 739
 
 <p>[Why? Do you want to come out without underwear, wearing Gyuri's vibrator and even Seyoung's anal plug?]</p>
 
-<p>[Or do you want to come out wearing just a single T-shirt like last time? I don't mind~]</p>
+<p>[Or do you want to come out wearing just a single T-shirt like last time? I don't mind]</p>
 
 <p>Shiwoo sent her a text as if playing a wicked joke.</p>
 
@@ -70,7 +70,7 @@ chapter = 739
 
 <p>Mom replied in a flustered outburst to Shiwoo's teasing joke.</p>
 
-<p>[I know, I know~ I just said it because your reaction is so cute and fun when I tease you, Mom~]</p>
+<p>[I know, I know I just said it because your reaction is so cute and fun when I tease you, Mom]</p>
 
 <p>[Mom likes things to be clear too, right? Hehe. You don't have to do anything strange, so just come out dressed beautifully and modestly today!]</p>
 
@@ -120,7 +120,7 @@ chapter = 739
 
 <p>Mom seemed to be asking while hiding her flustered state after checking Shiwoo's text.</p>
 
-<p>[Just because... I just thought of it... I've arrived. See you at the department store later~]</p>
+<p>[Just because... I just thought of it... I've arrived. See you at the department store later]</p>
 
 <p>Shiwoo wrote back to Mom, as if glossing it over.</p>
 

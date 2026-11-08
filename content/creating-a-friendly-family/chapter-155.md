@@ -40,7 +40,7 @@ chapter = 155
 
 <p>And at the same time, a faint vibrating sound was heard from Seonju Imo's crotch.</p>
 
-<p>「Haaaeuugh~! Keueuk!」</p>
+<p>「Haaaeuugh! Keueuk!」</p>
 
 <p>As if it were natural, muffled moaning sounds and coughing sounds leaked out from inside Seonju Imo's mouth, which was open and holding chicken porridge, echoing with the vibrating sound.</p>
 
@@ -166,7 +166,7 @@ chapter = 155
 
 <p>Tongues extended and entwined as if crossing.</p>
 
-<p>「Chyu-rup! Chyu-wap! Ha-up~!」</p>
+<p>「Chyu-rup! Chyu-wap! Ha-up!」</p>
 
 <p>Chicken porridge mixed with Shiwoo's semen was being exchanged back and forth between Sehee-nuna's and Seonju Imo's mouths.</p>
 

@@ -152,7 +152,7 @@ chapter = 392
 
 <p>,Haa-euk... Seonmi... Haa-eung! Haa-euk!... Secretly... Without... Without Master knowing... Heu-eu-eung!,</p>
 
-<p>,...We... We also had to... Confirm... What Master wants... Haa-ak! Haa-aang! Haa-eu-eung~!,</p>
+<p>,...We... We also had to... Confirm... What Master wants... Haa-ak! Haa-aang! Haa-eu-eung!,</p>
 
 <p>Sinbi Nuna was being relentlessly pounded by Shiwoo, and she was answering in a broken, moaning voice as if she was about to pass out.</p>
 
@@ -194,7 +194,7 @@ chapter = 392
 
 <p>Shiwoo spoke in a low, threatening voice into Sinbi Nuna's ear.</p>
 
-<p>,Haa-eu-eu-eu~,</p>
+<p>,Haa-eu-eu-eu,</p>
 
 <p>Sinbi Nuna made a pitiful moan as she was crushed by Shiwoo's body in a prone position, with her neck being strangled.</p>
 

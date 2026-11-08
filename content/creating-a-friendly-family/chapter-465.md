@@ -8,11 +8,11 @@ chapter = 465
 
 <p>Mom, perhaps thinking her current attire and body condition were beyond words to accept Seyoung's help, refused Seyoung's friendly yet mischievous offer.</p>
 
-<p>"Alright~ I can help with moving the dishes and rinsing them~ Seyoung, you go get ready for bed first. You've showered many times today, so you just need to brush your teeth, right?"</p>
+<p>"Alright I can help with moving the dishes and rinsing them Seyoung, you go get ready for bed first. You've showered many times today, so you just need to brush your teeth, right?"</p>
 
 <p>Shiwoo steps forward, offering to help Mom, and speaks to Seyoung as if trying to tidy up the situation. Adding a question that might make Seyoung recall the unusual events of the day...</p>
 
-<p>"That's right, I showered too much today from running around outside~ If I do it more, I'll turn all squishy like a fish~ So I'll go get ready for bed first~"</p>
+<p>"That's right, I showered too much today from running around outside If I do it more, I'll turn all squishy like a fish So I'll go get ready for bed first"</p>
 
 <p>Seyoung answers in an aegyo-laced voice, as if complying with Shiwoo's words.</p>
 
@@ -40,7 +40,7 @@ chapter = 465
 
 <p>Was he satisfied with the situations where he mischievously cornered Mom and made her submit at the dinner table with the family gathered? Shiwoo's penis, without any direct stimulation, was throbbing on its own for a long time, as if steeped in climax.</p>
 
-<p>"Then I'll go brush my teeth and get ready for bed first~"</p>
+<p>"Then I'll go brush my teeth and get ready for bed first"</p>
 
 <p>Seyoung, watching the conversation between Mom and her older brother, gets up at an opportune moment and speaks.</p>
 
@@ -80,7 +80,7 @@ chapter = 465
 
 <p>Mom, who had her back turned, could be felt flinching, unable to respond after hearing Sehee Nuna's words. Mom seemed inwardly stung by the fact that she had put on the apron without Shiwoo's permission.</p>
 
-<p>"Why aren't you wearing a skirt? I told you earlier that you could pick one out yourself~?"</p>
+<p>"Why aren't you wearing a skirt? I told you earlier that you could pick one out yourself?"</p>
 
 <p>Shiwoo was asking as if confirming the reason why Sehee Nuna wasn't wearing a skirt.</p>
 
@@ -88,13 +88,13 @@ chapter = 465
 
 <p>Sehee Nuna continues to speak, provoking Mom and seemingly asking for Shiwoo's intentions. Sehee Nuna makes one imagine a day when all the family members will live naked in their daily lives, while maintaining the family's hierarchy and bonds.</p>
 
-<p>"Well~ I was planning to strip Mom completely first...but that fucking bitch Seonmi won't listen...so it doesn't matter~"</p>
+<p>"Well I was planning to strip Mom completely first...but that fucking bitch Seonmi won't listen...so it doesn't matter"</p>
 
 <p>Shiwoo spoke as if slandering Mom, matching Sehee Nuna's lewd imagination.</p>
 
 <p>Mom stood frozen in place as if her body had stiffened. In this situation where she was being verbally blamed and harassed by her son and daughter, what feelings was she experiencing right now?</p>
 
-<p>"Mom! Seyoung's in the shower room, so it's just us now, that's why I'm saying this~"</p>
+<p>"Mom! Seyoung's in the shower room, so it's just us now, that's why I'm saying this"</p>
 
 <p>Shiwoo spoke to Mom, who stood frozen, unable to respond to her children's disrespectful conversation, as if deliberately confiding a secret.</p>
 
@@ -114,7 +114,7 @@ chapter = 465
 
 <p>Sehee Nuna, sitting next to them, asks as if she's caught Mom's flustered expression, curious about this matter between Mom and Shiwoo that she's hearing for the first time. And she naturally changes her address for Mom from 'Mom' to 'Seonmi'...</p>
 
-<p>"Ah~ Tonight, when we sleep, Mom and I decided to live as a married couple in front of Seyoung~ Mom and I are going to have our wedding night tonight..."</p>
+<p>"Ah Tonight, when we sleep, Mom and I decided to live as a married couple in front of Seyoung Mom and I are going to have our wedding night tonight..."</p>
 
 <p>Shiwoo, deliberately maintaining the honorific 'Mom' unlike Sehee Nuna. Shiwoo explains to Sehee Nuna about the play he would have with Mom tonight, as if ignoring the embarrassed Mom.</p>
 

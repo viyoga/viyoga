@@ -16,7 +16,7 @@ chapter = 386
 
 <p>Shiwoo answers Seyoung absentmindedly.</p>
 
-<p>,I'm going to the shower room now~! Hehe~ Oppa must be tired too~ Go up to your room, change your clothes, and get some rest~! ,</p>
+<p>,I'm going to the shower room now! Hehe Oppa must be tired too Go up to your room, change your clothes, and get some rest! ,</p>
 
 <p>Seyoung seemed worried about Shiwoo being held by the Nunas as soon as he got home.</p>
 
@@ -56,7 +56,7 @@ chapter = 386
 
 <p>Shiwoo feels a strange sense of discomfort from the Nunas.</p>
 
-<p>,Your Mom went out to get groceries a while ago~,</p>
+<p>,Your Mom went out to get groceries a while ago,</p>
 
 <p>Sora Nuna tells Shiwoo with a playful expression.</p>
 
@@ -64,7 +64,7 @@ chapter = 386
 
 <p>Shiwoo says, as if muttering to himself.</p>
 
-<p>,She must have forgotten something~,</p>
+<p>,She must have forgotten something,</p>
 
 <p>Sora Nuna was responding to each of Shiwoo's muttering words, as if answering them one by one.</p>
 
@@ -124,7 +124,7 @@ chapter = 386
 
 <p>The thoughts floating in his head become chaotically intertwined.</p>
 
-<p>,...Your Mom is so cute~!,</p>
+<p>,...Your Mom is so cute!,</p>
 
 <p>Sora Nuna's words, thrown out as if driving a wedge, after seeing Shiwoo, who was confused with all sorts of thoughts.</p>
 
@@ -198,7 +198,7 @@ chapter = 386
 
 <p>Sora Nuna's words, spoken as if joking and teasing, also linger in his ears.</p>
 
-<p>'Your Mom is so cute~'</p>
+<p>'Your Mom is so cute'</p>
 
 <p>The Nunas must have run into Mom, who was undressing and obeying Sehee Nuna, before Mom left the house.</p>
 

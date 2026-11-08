@@ -4,9 +4,9 @@ weight = 576
 [extra]
 chapter = 576
 +++
-<p>,I don't know about that~ But if it came out, Sinbi Nuna doesn't seem like she's completely closed off in that way either... She probably has a lot of experience with that kind of thing, right?"</p>
+<p>,I don't know about that But if it came out, Sinbi Nuna doesn't seem like she's completely closed off in that way either... She probably has a lot of experience with that kind of thing, right?"</p>
 
-<p>,Why don't you talk to her and see if you can make something happen? I'll talk to Semi and let you touch her breasts too~ On her bare skin!"</p>
+<p>,Why don't you talk to her and see if you can make something happen? I'll talk to Semi and let you touch her breasts too On her bare skin!"</p>
 
 <p>Cheoljin nudges Shiwoo with his shoulder, playfully urging and coaxing him.</p>
 
@@ -86,7 +86,7 @@ chapter = 576
 
 <p>Cheoljin looks at Shiwoo's expression for a moment, as if examining it.</p>
 
-<p>,I just thought there were some things we haven't talked about between us~ Wouldn't it be good to ask each other if we have any questions?"</p>
+<p>,I just thought there were some things we haven't talked about between us Wouldn't it be good to ask each other if we have any questions?"</p>
 
 <p>Cheoljin answers Shiwoo as if he's making excuses in a sly way.</p>
 
@@ -96,7 +96,7 @@ chapter = 576
 
 <p>The expression that appeared on Cheoljin's face after seeing the picture of the slave contract that Shiwoo sent earlier may have been simply due to the bewilderment and curiosity mixed with the emotions of seeing a slave contract for the first time.</p>
 
-<p>,What are you curious about? Ask me if you have anything you want to ask~ Who knows? Maybe I'll let you touch other women's breasts to your heart's content, even if it's not Sinbi or Sehee's?"</p>
+<p>,What are you curious about? Ask me if you have anything you want to ask Who knows? Maybe I'll let you touch other women's breasts to your heart's content, even if it's not Sinbi or Sehee's?"</p>
 
 <p>Shiwoo tests Cheoljin and makes a suggestion, as if he's letting out information about the slave ledger more explicitly.</p>
 
@@ -114,7 +114,7 @@ chapter = 576
 
 <p>For the first time in his conversation with Cheoljin, a strange sense of awareness and pleasure that he was in control of the overall flow rises from deep within his chest.</p>
 
-<p>,But I have something I need to check before class, so I'd like to finish what we have to say here as quickly as possible~?"</p>
+<p>,But I have something I need to check before class, so I'd like to finish what we have to say here as quickly as possible?"</p>
 
 <p>Shiwoo glances at the clock on his smartphone screen and throws words at Cheoljin as if he's busy for no reason, acting important.</p>
 
@@ -158,7 +158,7 @@ chapter = 576
 
 <p>Shiwoo asks back in an annoyed tone at Cheoljin's voice, which he can't hear well.</p>
 
-<p>,Ah~ No... You don't have to answer this. I think I know roughly~"</p>
+<p>,Ah No... You don't have to answer this. I think I know roughly"</p>
 
 <p>Cheoljin was smiling in a way that was hard to tell whether he was happy or dejected, and was telling Shiwoo as if he was saving his questions.</p>
 

@@ -132,7 +132,7 @@ chapter = 727
 
 <p>Shiwoo lowered his voice slightly and asked again.</p>
 
-<p>"Ah~ the kids taking tomorrow off? What are you going to do once you know~?"</p>
+<p>"Ah the kids taking tomorrow off? What are you going to do once you know?"</p>
 
 <p>Cheoljin said with a sly, smiling look in his eyes.</p>
 
@@ -140,7 +140,7 @@ chapter = 727
 
 <p>Shiwoo leaned toward Cheoljin and spoke as if suppressing his frustration, lest anyone hear.</p>
 
-<p>"What, are you going to try blackmailing them? Like you did with Yerin? But do you think that'll work~?"</p>
+<p>"What, are you going to try blackmailing them? Like you did with Yerin? But do you think that'll work?"</p>
 
 <p>Cheoljin looked at Shiwoo with a smirk, as if he already knew the contents of the conversation Shiwoo had with Oh Yerin Teacher during class just now.</p>
 
@@ -148,7 +148,7 @@ chapter = 727
 
 <p>Shiwoo was unable to continue, seemingly flustered by Cheoljin's words, and reacted only by blinking his eyes.</p>
 
-<p>"Well~ you'll find out naturally when tomorrow comes! Don't make it so obvious and just wait patiently~ I'm also in the middle of searching hard right now..."</p>
+<p>"Well you'll find out naturally when tomorrow comes! Don't make it so obvious and just wait patiently I'm also in the middle of searching hard right now..."</p>
 
 <p>Cheoljin spoke nonchalantly and shrugged his shoulders, as if he had already read all of Shiwoo's thoughts.</p>
 
@@ -162,13 +162,13 @@ chapter = 727
 
 <p>A sound that didn't quite form into proper words leaked out of Shiwoo's mouth in fragments.</p>
 
-<p>"How do I know about the class teacher's business? Why are you curious about something like that? I just know~ pui-hi-hi-hit!"</p>
+<p>"How do I know about the class teacher's business? Why are you curious about something like that? I just know pui-hi-hi-hit!"</p>
 
 <p>Cheoljin answered with a playful laugh, as if it were something obvious.</p>
 
 <p>Shiwoo stood there blankly, his mind going white, not knowing how to react.</p>
 
-<p>"If you really can't wait, go ask Seulgi right now and come back~ I'm curious too~ Didn't Seulgi say earlier she had something to tell you, Shiwoo?"</p>
+<p>"If you really can't wait, go ask Seulgi right now and come back I'm curious too Didn't Seulgi say earlier she had something to tell you, Shiwoo?"</p>
 
 <p>Cheoljin glanced at Shiwoo's surprised expression and added in a tone as if deliberately giving him a hint about the source of the story he had heard.</p>
 
@@ -176,7 +176,7 @@ chapter = 727
 
 <p>Shiwoo asked Cheoljin, barely squeezing out his voice, feeling as if the edges of his lips were going dry.</p>
 
-<p>"I wonder~ was there something I heard from Seulgi~?"</p>
+<p>"I wonder was there something I heard from Seulgi?"</p>
 
 <p>Cheoljin deliberately tilted his head as if he didn't know, letting an answer that wasn't an answer float dubiously into the air.</p>
 

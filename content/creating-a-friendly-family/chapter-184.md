@@ -134,7 +134,7 @@ chapter = 184
 
 <p>To hear an explanation about the meeting, Shiwoo sent a simple message to Sehee Nuna.</p>
 
-<p>'What do you mean 'what to do'?! Come pick me up after the academy~'</p>
+<p>'What do you mean 'what to do'?! Come pick me up after the academy'</p>
 
 <p>Sehee Nuna immediately replied to Shiwoo's message as if it were obvious.</p>
 
@@ -166,7 +166,7 @@ chapter = 184
 
 <p>Shiwoo, feeling annoyed, asked Sehee Nuna another question.</p>
 
-<p>'I'll know when I get there, you dummy! You be careful~! We shouldn't get caught being siblings while we're out.'</p>
+<p>'I'll know when I get there, you dummy! You be careful! We shouldn't get caught being siblings while we're out.'</p>
 
 <p>Sehee Nuna spoke, giving a warning, as if she didn't care about Shiwoo's feelings.</p>
 
@@ -186,11 +186,11 @@ chapter = 184
 
 <p>Sehee Nuna said to Shiwoo as if asking why he didn't know such a thing.</p>
 
-<p>'If Nuna doesn't tell me, how would I know~?!'</p>
+<p>'If Nuna doesn't tell me, how would I know?!'</p>
 
 <p>Shiwoo, dumbfounded, sent the message, trying his best to convey his sorrow in it.</p>
 
-<p>'I thought Cheoljin would have told you~ You two are really close!'</p>
+<p>'I thought Cheoljin would have told you You two are really close!'</p>
 
 <p>Sehee Nuna replied nonchalantly.</p>
 

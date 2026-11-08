@@ -10,7 +10,7 @@ chapter = 257
 
 <p>The sound of resilient flesh echoed loudly in the master bedroom.</p>
 
-<p>「Haa-eut~!」</p>
+<p>「Haa-eut!」</p>
 
 <p>A moaning sound, like an exclamation, burst from Mom's lips as she lay face down, trembling, held by the leash.</p>
 
@@ -24,7 +24,7 @@ chapter = 257
 
 <p>As if urging a response, Shiwoo pulls the leash of the dog collar he was holding in the air, creating a tense cracking sound.</p>
 
-<p>「Haa-eut~! Y-yes... yes...」</p>
+<p>「Haa-eut! Y-yes... yes...」</p>
 
 <p>A flustered answer comes from Mom's mouth.</p>
 
@@ -44,7 +44,7 @@ chapter = 257
 
 <p>When Shiwoo's hand touches and rubs against those buttocks, Mom flinches for a moment as if startled.</p>
 
-<p>「Huuuooo~」</p>
+<p>「Huuuooo」</p>
 
 <p>Mom takes a deep breath, as if a stinging, burning pain is rushing in, with Seyoung's nipple in her mouth.</p>
 
@@ -76,11 +76,11 @@ chapter = 257
 
 <p>Shiwoo begins to move his hips greatly.</p>
 
-<p>-Cheolbeok~ Cheolbeok~ Cheolbeok~!</p>
+<p>-Cheolbeok Cheolbeok Cheolbeok!</p>
 
 <p>The sound of wet flesh rubbing together can be heard from Mom's pussy hole, which is leaking a lot of water.</p>
 
-<p>「Huu-eung~! Huu-eut~! Huuuu-uup~~!」</p>
+<p>「Huu-eung! Huu-eut! Huuuu-uup!」</p>
 
 <p>Mom is desperately trying not to let go of Seyoung's breast in her mouth while enduring Shiwoo's fucking.</p>
 
@@ -90,11 +90,11 @@ chapter = 257
 
 <p>Shiwoo begins to move his hips in earnest.</p>
 
-<p>-Ssupeok~! Ssupeok~! Ssupeok~! Ssupeok~~!! Peok! Peok!</p>
+<p>-Ssupeok! Ssupeok! Ssupeok! Ssupeok!! Peok! Peok!</p>
 
 <p>Shiwoo's pelvis hits Mom's buttocks, creating an intense striking sound.</p>
 
-<p>「Haa-eung~! Haa-aat!! Huu-uup~! Please!! Haa-aang~!」</p>
+<p>「Haa-eung! Haa-aat!! Huu-uup! Please!! Haa-aang!」</p>
 
 <p>Mom moans as if she has lost her mind to Shiwoo's huge thing, which is tearing through the vaginal walls and stabbing as if to pierce through the entrance of her womb.</p>
 
@@ -110,7 +110,7 @@ chapter = 257
 
 <p>Shiwoo's brutal fucking continued for a long time.</p>
 
-<p>「Haa-ak~! Haa-eut! Huu-eueung~! Sh-Shiwoo-ya... Mom... now~ Haa-euueuk~! Shiwoo-yaang!」</p>
+<p>「Haa-ak! Haa-eut! Huu-eueung! Sh-Shiwoo-ya... Mom... now Haa-euueuk! Shiwoo-yaang!」</p>
 
 <p>Mom, who had already climaxed several times from Shiwoo's piston strokes, desperately calls Shiwoo's name, eventually pulling her knees back and giving up.</p>
 
@@ -122,7 +122,7 @@ chapter = 257
 
 <p>Shiwoo notices Mom's state, which is on the verge of passing out, and stops his thrusting as if catching his breath, leaving his thing inside Mom's pussy hole.</p>
 
-<p>「Haaa... haa-eueung... haaaaa~」</p>
+<p>「Haaa... haa-eueung... haaaaa」</p>
 
 <p>Mom's breath, shaking her body finely, is being taken roughly.</p>
 
@@ -130,7 +130,7 @@ chapter = 257
 
 <p>Shiwoo slaps Mom's buttocks, which are stretched out and tense, mercilessly with his palm.</p>
 
-<p>「Ha-at! Hheu-eung~ Hheuh-heuk~」</p>
+<p>「Ha-at! Hheu-eung Hheuh-heuk」</p>
 
 <p>The wretched moaning sound of a mother, as if she is about to burst into tears.</p>
 
@@ -140,7 +140,7 @@ chapter = 257
 
 <p>Shiwoo was speaking to Mom, scolding her as if to confirm their hierarchical relationship.</p>
 
-<p>「Y-yes... yes... haaaa~ I'm... I'm sorry... Hheuk... hheuh-heuk... hheueueung~」</p>
+<p>「Y-yes... yes... haaaa I'm... I'm sorry... Hheuk... hheuh-heuk... hheueueung」</p>
 
 <p>Mom answers Shiwoo with honorifics, making a sobbing sound.</p>
 
@@ -152,13 +152,13 @@ chapter = 257
 
 <p>That thought, which had risen up, was entangling with the various emotions that were blooming in her heart, paralyzing her reason.</p>
 
-<p>-Ssupeok~! Ssupeok~! Ssupeok~! Ssupeok! Ssupeoeok!!</p>
+<p>-Ssupeok! Ssupeok! Ssupeok! Ssupeok! Ssupeoeok!!</p>
 
 <p>Shiwoo is fucking, as if rubbing the flesh inside Mom's pussy that is wrapped around his penis, which is contained within Mom's crack.</p>
 
 <p>Struggling not to lose her consciousness, which is gradually fading away, Mom desperately grabs her son's penis tightly with the entrance of her pussy hole and the flesh of her vaginal walls.</p>
 
-<p>「Haa-eung....haa-euut~ M-Master-nim~ hheueueuk~! Master-nim~!」</p>
+<p>「Haa-eung....haa-euut M-Master-nim hheueueuk! Master-nim!」</p>
 
 <p>Mom is moaning, repeating the title of Master-nim to Shiwoo.</p>
 
@@ -168,11 +168,11 @@ chapter = 257
 
 <p>Shiwoo shouts at Mom, riding on top of her body and continuing to shake his hips.</p>
 
-<p>「Peok! Peok! Peok! Peok~! Peok~!」</p>
+<p>「Peok! Peok! Peok! Peok! Peok!」</p>
 
 <p>Shiwoo is slamming his penis all the way to the root, as if rebuking Mom's frivolity.</p>
 
-<p>「Haaa... haa-eut~ I'm... I'm sorry... Master-nim... ha-at... ha-aang... P-please... forgive me! Haa-eung~」</p>
+<p>「Haaa... haa-eut I'm... I'm sorry... Master-nim... ha-at... ha-aang... P-please... forgive me! Haa-eung」</p>
 
 <p>Mom is speaking to Shiwoo as if apologizing, making lewd moaning sounds.</p>
 
@@ -190,7 +190,7 @@ chapter = 257
 
 <p>Shiwoo's intense fucking continues mercilessly.</p>
 
-<p>「Haa-eung~! Master-nim~ hheueueung~ I'm... I'm... r-really... g-going to die~! Haa-eut~~! Haa-eueueung~!」</p>
+<p>「Haa-eung! Master-nim hheueueung I'm... I'm... r-really... g-going to die! Haa-eut! Haa-eueueung!」</p>
 
 <p>Mom is speaking to Shiwoo as if begging, shaking her body as if soaked in pleasure.</p>
 
@@ -200,11 +200,11 @@ chapter = 257
 
 <p>Even in the midst of that, Mom was trying to endure Shiwoo's fucking by stiffening her body as if desperately trying not to lose consciousness.</p>
 
-<p>-Ssuuk~!</p>
+<p>-Ssuuk!</p>
 
 <p>Shiwoo pulls out the penis that was stuck inside Mom's body.</p>
 
-<p>-Chalssak~!</p>
+<p>-Chalssak!</p>
 
 <p>Shiwoo slaps Mom's buttocks, which are tense and full of strength.</p>
 
@@ -212,7 +212,7 @@ chapter = 257
 
 <p>Mom's exclamation, shaking her body.</p>
 
-<p>「Seonmi, you like this, don't you~? Now lie straight!!」</p>
+<p>「Seonmi, you like this, don't you? Now lie straight!!」</p>
 
 <p>Shiwoo commands in a tone as if he is playing with Mom.</p>
 

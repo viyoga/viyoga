@@ -26,7 +26,7 @@ chapter = 424
 
 <p>Shiwoo picked up his smartphone and first stopped the vibration of the vibrator, which was continuously stimulating his penis.</p>
 
-<p>"Hauuuuu~"</p>
+<p>"Hauuuuu"</p>
 
 <p>Only then did Mom let out a deep breath and loosely stretch her body.</p>
 

@@ -28,7 +28,7 @@ chapter = 40
 
 <p>「Because I made Mom faint??」</p>
 
-<p>「No~」</p>
+<p>「No」</p>
 
 <p>「Because I did terrible things to Mom and swore at her?」</p>
 
@@ -86,7 +86,7 @@ chapter = 40
 
 <p>Mom, who had checked the photo, didn't immediately rush to Shiwoo to stop his actions, but Shiwoo had been worried all along that Mom might have belatedly taken Seyoung to Seonju Imo's house to protect her from Shiwoo.</p>
 
-<p>「Seyoung would worry a lot if Mom wasn't there, wouldn't she~ She can't even sleep well alone.」</p>
+<p>「Seyoung would worry a lot if Mom wasn't there, wouldn't she She can't even sleep well alone.」</p>
 
 <p>Mom gave an easy-to-understand answer, as if it was nothing.</p>
 
@@ -106,7 +106,7 @@ chapter = 40
 
 <p>Shiwoo was persistently asking again.</p>
 
-<p>「Just a moment~」</p>
+<p>「Just a moment」</p>
 
 <p>Mom's message, sent as if she understood something.</p>
 
@@ -132,11 +132,11 @@ chapter = 40
 
 <p>「Yeah, just now.」</p>
 
-<p>「But Mom's breasts are really pretty too~ Even though no milk comes out, Seyoung is sucking them well while she sleeps?」</p>
+<p>「But Mom's breasts are really pretty too Even though no milk comes out, Seyoung is sucking them well while she sleeps?」</p>
 
-<p>「Exactly, when she sucks like this, it makes me feel really strange~」</p>
+<p>「Exactly, when she sucks like this, it makes me feel really strange」</p>
 
-<p>「I think I know how that feels now~ haha. I wish I could suck Mom's breasts like Seyoung when I sleep too.」</p>
+<p>「I think I know how that feels now haha. I wish I could suck Mom's breasts like Seyoung when I sleep too.」</p>
 
 <p>Before they knew it, the mother and son were naturally engaging in lewd talk, using Seyoung as the subject.</p>
 
@@ -204,15 +204,15 @@ chapter = 40
 
 <p>Shiwoo teased Mom, as if making a joke.</p>
 
-<p>「Ugh~!! You keep making Mom do these kinds of things!! What are you going to do if Mom really becomes strange because of you?」</p>
+<p>「Ugh!! You keep making Mom do these kinds of things!! What are you going to do if Mom really becomes strange because of you?」</p>
 
 <p>Mom, embarrassed, flared up easily as usual.</p>
 
-<p>「How will you become strange? I'd like to see that~」</p>
+<p>「How will you become strange? I'd like to see that」</p>
 
 <p>「I don't know!! Shiwoo, you go take the laundry out of the washing machine and hang it up!!! It'll smell if you leave it too long!」</p>
 
-<p>「Haha, okay, I'll do it now~」</p>
+<p>「Haha, okay, I'll do it now」</p>
 
 <p>With Mom's flustered complaints and cute resistance, the long conversation with Mom was finally coming to an end.</p>
 
@@ -248,7 +248,7 @@ chapter = 40
 
 <p>It wasn't hot enough to sweat just from moving a little.</p>
 
-<p>「Mom just contacted me~ It seems she'll be staying at Seonju Imo's house for a few days before coming back.」</p>
+<p>「Mom just contacted me It seems she'll be staying at Seonju Imo's house for a few days before coming back.」</p>
 
 <p>Shiwoo said, staring at Sehee Nuna's flesh-toned outline visible through the glass door.</p>
 

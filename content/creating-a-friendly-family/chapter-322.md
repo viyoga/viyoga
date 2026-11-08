@@ -28,7 +28,7 @@ chapter = 322
 
 <p>Sua flinched and recoiled as if startled by Seyoung's hand suddenly being thrust in front of her face.</p>
 
-<p>"Here~!"</p>
+<p>"Here!"</p>
 
 <p>In the screen, Seyoung made a sound as she held out her hand, as if instructing the recoiling Sua to do something specific.</p>
 
@@ -36,7 +36,7 @@ chapter = 322
 
 <p>Sua's opening lips and the red tongue that emerged between them as if growing out touched Seyoung's hand familiarly.</p>
 
-<p>"Chu-oop~ Chuu-uup~ Su-eup~!"</p>
+<p>"Chu-oop Chuu-uup Su-eup!"</p>
 
 <p>Sua, her face flushed as if she had a fever, licked Seyoung's semen-smeared finger as if sweeping it upwards.</p>
 
@@ -48,11 +48,11 @@ chapter = 322
 
 <p>This time, Sua's tongue swept between Seyoung's fingers as if delicately wiping them clean.</p>
 
-<p>"Shu-oop~ Suru-oop~! Shu-ap~!"</p>
+<p>"Shu-oop Suru-oop! Shu-ap!"</p>
 
 <p>Sua's red tongue, smeared with Shiwoo's semen, finished wiping Seyoung's hand and then returned to her dainty mouth.</p>
 
-<p>"Olgak~! Olgak~! Olgak~!"</p>
+<p>"Olgak! Olgak! Olgak!"</p>
 
 <p>Then, Sua swallowed the semen gathered in her mouth down her throat.</p>
 
@@ -90,7 +90,7 @@ chapter = 322
 
 <p>After roughly wiping all the filth on her hand onto Sua's hair, Seyoung focused the camera on Sua's face.</p>
 
-<p>"Shiwoo oppa~ Should I tell you something good?"</p>
+<p>"Shiwoo oppa Should I tell you something good?"</p>
 
 <p>Seyoung suddenly spoke to the camera as if she was talking to Shiwoo.</p>
 
@@ -98,7 +98,7 @@ chapter = 322
 
 <p>Shiwoo perked up his ears and waited for Seyoung's words to continue in the video.</p>
 
-<p>"Sua told me before, you know? That she wants to date oppa? Sua, it seems like you like oppa~! Kikikik~"</p>
+<p>"Sua told me before, you know? That she wants to date oppa? Sua, it seems like you like oppa! Kikikik"</p>
 
 <p>Seyoung was conveying a secret, but not really a secret, to Shiwoo with an unlike her mischievous tone and laughter.</p>
 
@@ -106,7 +106,7 @@ chapter = 322
 
 <p>Sua, flustered by Seyoung's sudden revelation, tried to grab Seyoung's hand holding the smartphone.</p>
 
-<p>"Why~? You told me before, didn't you? To ask Shiwoo oppa if he has a girlfriend~!"</p>
+<p>"Why? You told me before, didn't you? To ask Shiwoo oppa if he has a girlfriend!"</p>
 
 <p>The screen shook and showed other things as Seyoung shook off Sua's hand and they seemed to be struggling.</p>
 
@@ -116,7 +116,7 @@ chapter = 322
 
 <p>Sua made a flustered voice and seemed to be stopping Seyoung.</p>
 
-<p>"What's wrong with that? We're going to do it with oppa anyway today~! If oppa doesn't know that Sua is like that and we do it, he'll regret it later~! Kikikik!"</p>
+<p>"What's wrong with that? We're going to do it with oppa anyway today! If oppa doesn't know that Sua is like that and we do it, he'll regret it later! Kikikik!"</p>
 
 <p>Seyoung spoke as if playfully persuading Sua.</p>
 
@@ -128,7 +128,7 @@ chapter = 322
 
 <p>Sua let out a painful breath like a moan, whether because of the vibrator that was vibrating or because her secret that she had shared with Seyoung had been revealed.</p>
 
-<p>"If you've wiped your smartphone clean, see if the screen turns on~! Shiwoo oppa has to see it too~"</p>
+<p>"If you've wiped your smartphone clean, see if the screen turns on! Shiwoo oppa has to see it too"</p>
 
 <p>Seyoung said to Sua as if to show Shiwoo that the screen of Sua's smartphone turned on.</p>
 
@@ -136,7 +136,7 @@ chapter = 322
 
 <p>Was Seyoung trying to let Shiwoo know that Sua could now use her smartphone?</p>
 
-<p>"Luckily, it doesn't seem to be broken? Shiwoo oppa's stuff was smeared on it so thickly that I was worried~ Is it okay? Hehe~"</p>
+<p>"Luckily, it doesn't seem to be broken? Shiwoo oppa's stuff was smeared on it so thickly that I was worried Is it okay? Hehe"</p>
 
 <p>Seyoung spoke as if joking, expressing Shiwoo's semen, and then laughed innocently.</p>
 
@@ -182,7 +182,7 @@ chapter = 322
 
 <p>Shiwoo conveyed the specific details needed for the lewd act to his younger sisters.</p>
 
-<p>'Okay, I got it~ When the vibrator stops, I'll take it out and put it in the bag as oppa said~'</p>
+<p>'Okay, I got it When the vibrator stops, I'll take it out and put it in the bag as oppa said'</p>
 
 <p>Seyoung answered Shiwoo's order clearly and without any unnecessary words.</p>
 

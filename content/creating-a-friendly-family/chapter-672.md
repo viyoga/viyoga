@@ -106,11 +106,11 @@ chapter = 672
 
 <p>The filth that had leaked out from the gaps of her flesh must have been felt by the tip of Aunt Sunju's tongue as well...</p>
 
-<p>"Huaaaaaaaaa~"</p>
+<p>"Huaaaaaaaaa"</p>
 
 <p>Aunt Sunju finally lifted her head and opened her mouth, letting out a long breath of the heat left behind by the alcohol she had swallowed.</p>
 
-<p>"Try a piece of sushi too~ One of the ones near the belly... pick whatever you want."</p>
+<p>"Try a piece of sushi too One of the ones near the belly... pick whatever you want."</p>
 
 <p>Siu pointed to the sushi that was smeared with his own semen, suggesting Aunt Sunju have one as a palate cleanser after the drink.</p>
 
@@ -156,17 +156,17 @@ chapter = 672
 
 <p>Although the situation where her daughter was treated as a plate or a cup was novel, she didn't seem to have much of a rejection to the play itself.</p>
 
-<p>"If we were going to do it like this, I shouldn't have bothered preparing chopsticks and side plates~ Hehe~"</p>
+<p>"If we were going to do it like this, I shouldn't have bothered preparing chopsticks and side plates Hehe"</p>
 
 <p>Seyoung, who was sitting next to Siu, spoke with a playful voice as if she were feeling regretful.</p>
 
-<p>"Right~? I should have mentioned earlier that we wouldn't need chopsticks or side plates~ I made Seyoung work for nothing, didn't I? Sorry~"</p>
+<p>"Right? I should have mentioned earlier that we wouldn't need chopsticks or side plates I made Seyoung work for nothing, didn't I? Sorry"</p>
 
 <p>Siu spoke as if playing along with Seyoung's playful joke.</p>
 
 <p>"No, eating like this looks more delicious, and I think it'll stay in my memory more!"</p>
 
-<p>"I want to try eating one like Aunt Sunju too~"</p>
+<p>"I want to try eating one like Aunt Sunju too"</p>
 
 <p>After saying that to Siu, Seyoung got up from her seat and bit into a piece of sushi placed on Sua's stomach with her lips.</p>
 
@@ -198,7 +198,7 @@ chapter = 672
 
 <p>Siu reached his hand forward and stroked Seyoung's head as if she were being a good girl.</p>
 
-<p>"Hehe~"</p>
+<p>"Hehe"</p>
 
 <p>Seyoung made a sound of satisfaction as her head was stroked by Siu's hand, along with her decorative ears.</p>
 
@@ -206,6 +206,6 @@ chapter = 672
 
 <p>Soon, Sua's triangular valley was filled to the brim with clear liquor.</p>
 
-<p>"Seyoung, you drink some too~"</p>
+<p>"Seyoung, you drink some too"</p>
 
 <p>Siu offered the drink to Seyoung just as he had for Aunt Sunju.</p>

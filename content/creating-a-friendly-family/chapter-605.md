@@ -194,7 +194,7 @@ chapter = 605
 
 <p>Sejin Nuna's nipple was sucked in, and yellowish breast milk gushed from its tip.</p>
 
-<p>"Give me the smartphone~ It's inconvenient with one hand, isn't it? I'll hold it..."</p>
+<p>"Give me the smartphone It's inconvenient with one hand, isn't it? I'll hold it..."</p>
 
 <p>She extended her hand towards the smartphone Shiwoo was holding and spoke.</p>
 

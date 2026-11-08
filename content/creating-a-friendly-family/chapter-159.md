@@ -18,7 +18,7 @@ chapter = 159
 
 <p>Shiwoo warned Seonju Imo, as if sternly and fiercely pressing her.</p>
 
-<p>"Heeueueueup~"</p>
+<p>"Heeueueueup"</p>
 
 <p>Seonju Imo, holding Sehee-nuna's panties in her mouth, was moaning as if sobbing, nodding her head up and down.</p>
 
@@ -64,7 +64,7 @@ chapter = 159
 
 <p>Sehee-nuna inserted Seonju Imo's prominently protruding peak into her mouth and sucked on it as if inhaling.</p>
 
-<p>"Heum~! Heeueup...heum..."</p>
+<p>"Heum! Heeueup...heum..."</p>
 
 <p>Seonju Imo let out a languid moaning sound, as if in pain.</p>
 
@@ -74,7 +74,7 @@ chapter = 159
 
 <p>Sehee-nuna's tongue, moistening Seonju Imo's firmly erect nipple with saliva, was rubbing it as if creating friction.</p>
 
-<p>"Hooeueup~ Hawooeup~"</p>
+<p>"Hooeueup Hawooeup"</p>
 
 <p>Seonju Imo was fully feeling the sensation of Sehee-nuna's tongue with the peak of her breast.</p>
 
@@ -94,7 +94,7 @@ chapter = 159
 
 <p>The two, with Seonju Imo's breasts, which were blindfolded and bound, unable to offer any resistance, sucked on them as if worshipping them in their own ways.</p>
 
-<p>"Haap...heu...heu...heung~"</p>
+<p>"Haap...heu...heu...heung"</p>
 
 <p>Seonju Imo, from Shiwoo and Sehee-nuna's persistent tongue and lip caresses, squirmed and twisted her body, letting out moans.</p>
 
@@ -118,7 +118,7 @@ chapter = 159
 
 <p>Shiwoo gently began to stroke Sehee-nuna's head. Then, as if to show Sehee-nuna, Shiwoo took a mouthful of Seonju Imo's nipple and the breast flesh around the areola, and bit down hard, as if biting into a fruit.</p>
 
-<p>"Haeueu... Haeueueup~!"</p>
+<p>"Haeueu... Haeueueup!"</p>
 
 <p>Seonju Imo trembled, letting out a distorted moan as if in pain.</p>
 
@@ -132,7 +132,7 @@ chapter = 159
 
 <p>Sehee-nuna seemed momentarily flustered, but soon, as if imitating Shiwoo's actions, she bit into Seonju Imo's breast with her teeth.</p>
 
-<p>"Heeueuk! Haa-aak~ Haa-aak!"</p>
+<p>"Heeueuk! Haa-aak Haa-aak!"</p>
 
 <p>Seonju Imo's scream-like moaning sound, sharp and piercing.</p>
 
@@ -182,6 +182,6 @@ chapter = 159
 
 <p>Extending her tongue, as if drawing circles, Sehee-nuna was widening Seonju Imo's crevice.</p>
 
-<p>"Haeueu~!"</p>
+<p>"Haeueu!"</p>
 
 <p>Seonju Imo, from the sensitive tongue stimulation that made her waist slightly lift, was moaning, not knowing what to do.</p>

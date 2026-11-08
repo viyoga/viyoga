@@ -8,7 +8,7 @@ chapter = 675
 
 <p>Aunt Sunju did not pull her mouth away after dropping the sushi; instead, she extended her tongue and licked Sua's lips. Then, cupping Sua's jaw with one hand, she overlapped her lips onto the girl's. It was as if Aunt Sunju knew exactly what Shiwoo wanted. Aunt Sunju pushed her tongue into Sua's open mouth, trying to share the texture and taste of the sushi held within.</p>
 
-<p>"Eum-am... hu-am. Ha-a-am~ Ha-u-u-um"</p>
+<p>"Eum-am... hu-am. Ha-a-am Ha-u-u-um"</p>
 
 <p>Sua accepted Aunt Sunju's tongue, mixing the taste and sensation of the sushi in her mouth with their shared breath.</p>
 

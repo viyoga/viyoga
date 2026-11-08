@@ -20,7 +20,7 @@ chapter = 510
 
 <p>Mom continued to nag, listing complaints mixed with resentment towards Shiwoo.</p>
 
-<p>,That's why I turned off the lights~ I even covered her eyes with an eye mask! Seyoung was pretending to sleep until I took her to the second floor and laid her down. This time, let's just pretend she was sleeping and all pretend we don't know anything, since it's a situation where we can just move on,"</p>
+<p>,That's why I turned off the lights I even covered her eyes with an eye mask! Seyoung was pretending to sleep until I took her to the second floor and laid her down. This time, let's just pretend she was sleeping and all pretend we don't know anything, since it's a situation where we can just move on,"</p>
 
 <p>Shiwoo replied to Mom's nagging as if it was nothing.</p>
 

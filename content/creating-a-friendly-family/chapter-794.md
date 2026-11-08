@@ -4,7 +4,7 @@ weight = 794
 [extra]
 chapter = 794
 +++
-<p>"Since the video calls with Sejin Nuna and the recordings of us fucking are all automatically saved, I might as well just send those too~"</p>
+<p>"Since the video calls with Sejin Nuna and the recordings of us fucking are all automatically saved, I might as well just send those too"</p>
 
 <p>Shiwoo was cornered Mom, as if he wouldn't allow her even a single opening to escape.</p>
 
@@ -12,7 +12,7 @@ chapter = 794
 
 <p>Mom turned pale as a ghost, hurriedly waving her hands in the air as she tried to stop him.</p>
 
-<p>"If I show them everything, from when we were walking around the department store to the texts we exchanged after coming out of that unmanned motel after having sex, Sehee and Seyoung will understand in no time without me even needing to explain, right~?!"</p>
+<p>"If I show them everything, from when we were walking around the department store to the texts we exchanged after coming out of that unmanned motel after having sex, Sehee and Seyoung will understand in no time without me even needing to explain, right?!"</p>
 
 <p>At the end, he added a threatening tone as if he were truly going to expose everything to her daughters, shouting it out as if he didn't care whether the people at the next table heard him or not.</p>
 
@@ -24,7 +24,7 @@ chapter = 794
 
 <p>Only then did Shiwoo stop the words he had been spewing at his own whim, looking at Mom with a triumphant smile.</p>
 
-<p>"Then... should we just not talk about it~?"</p>
+<p>"Then... should we just not talk about it?"</p>
 
 <p>Shiwoo spoke to her in a gentle voice after staring at Mom intently for a long time.</p>
 
@@ -42,7 +42,7 @@ chapter = 794
 
 <p>Then, he stared intensely at Mom with a gaze that showed he had made a firm decision.</p>
 
-<p>"This won't do~ Come here!"</p>
+<p>"This won't do Come here!"</p>
 
 <p>Shiwoo extended both feet under the table, trapping Mom's legs between his own and pulling her toward him.</p>
 
@@ -94,7 +94,7 @@ chapter = 794
 
 <p>Mom muttered as if grumbling, avoiding Shiwoo's eyes as if his confession was incredibly embarrassing.</p>
 
-<p>"You knew it would end up like this anyway~ Our Mom is so cute~ Hehe~"</p>
+<p>"You knew it would end up like this anyway Our Mom is so cute Hehe"</p>
 
 <p>Shiwoo smiled as if he had anticipated the whole situation, releasing Mom's hand and legs.</p>
 
@@ -108,7 +108,7 @@ chapter = 794
 
 <p>Mom barely managed to lift her head to show her face to Shiwoo, murmuring in an unconfident tone.</p>
 
-<p>"How are you going to tell them~?"</p>
+<p>"How are you going to tell them?"</p>
 
 <p>Shiwoo asked, narrowing his eyes as if enjoying the situation.</p>
 
@@ -116,7 +116,7 @@ chapter = 794
 
 <p>After answering Shiwoo, Mom bit her lip as if feeling an immense sense of shame.</p>
 
-<p>"Is that so~? So you agreed~? Aren't you going to tell them like you did to Sejin Nuna at the motel earlier?"</p>
+<p>"Is that so? So you agreed? Aren't you going to tell them like you did to Sejin Nuna at the motel earlier?"</p>
 
 <p>Shiwoo caught onto the end of Mom's words and teased her, mischievously bringing up the situation at the motel.</p>
 
@@ -124,7 +124,7 @@ chapter = 794
 
 <p>Mom looked startled as if something had occurred to her after hearing Shiwoo's words, and she asked back.</p>
 
-<p>"Yeah... You were making such a fuss, saying 'fuck, fuck' and all that~? If you don't do that in front of Sehee and Seyoung too, then the practice you did with Sejin Nuna will be for nothing~?"</p>
+<p>"Yeah... You were making such a fuss, saying 'fuck, fuck' and all that? If you don't do that in front of Sehee and Seyoung too, then the practice you did with Sejin Nuna will be for nothing?"</p>
 
 <p>Shiwoo spoke to Mom, intentionally reminding her of the situation at that time.</p>
 
@@ -134,7 +134,7 @@ chapter = 794
 
 <p>After receiving Shiwoo's serious yet embarrassing confession once more, Mom was speaking as if she had returned to her usual motherly self from the image of a shy and submissive bitch.</p>
 
-<p>"Well, I guess Mom will handle that on her own later~? I'll be right there by your side to help out while watching the atmosphere~ So just do whatever you want, Mom~!"</p>
+<p>"Well, I guess Mom will handle that on her own later? I'll be right there by your side to help out while watching the atmosphere So just do whatever you want, Mom!"</p>
 
 <p>Shiwoo continued to persistently remind her of the play he had with Mom at the unmanned motel, speaking as if leaving behind lingering feelings and possibilities.</p>
 
@@ -164,7 +164,7 @@ chapter = 794
 
 <p>Mom spoke hurriedly, waving her hands as she checked her surroundings.</p>
 
-<p>"Really~? Are you going to eat every last bit that I want when we get home?"</p>
+<p>"Really? Are you going to eat every last bit that I want when we get home?"</p>
 
 <p>Shiwoo pressed her for confirmation with a strange smile at Mom's answer.</p>
 

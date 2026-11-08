@@ -6,21 +6,21 @@ chapter = 38
 +++
 <p>The next morning</p>
 
-<p>,Shiwoo-ya, wake up~ Hey, Yoo Shiwoo~!"</p>
+<p>,Shiwoo-ya, wake up Hey, Yoo Shiwoo!"</p>
 
 <p>Sehee Nuna was shaking Shiwoo awake.</p>
 
-<p>"Ah... eum-eum~~ Nuna, I'm sorry, but can't I lie down for just 5 more minutes?"</p>
+<p>"Ah... eum-eum Nuna, I'm sorry, but can't I lie down for just 5 more minutes?"</p>
 
 <p>Shiwoo, feeling fatigued from exerting himself too much yesterday, mumbled to Nuna.</p>
 
-<p>"Hey! You said that earlier and passed out! It's not dawn, it's morning, so get up already~!!"</p>
+<p>"Hey! You said that earlier and passed out! It's not dawn, it's morning, so get up already!!"</p>
 
 <p>At Sehee Nuna's words, Shiwoo squinted one eye and looked towards the window.</p>
 
 <p>A stark white light was passing through the window, diffusely filling the room.</p>
 
-<p>"Get up and read this once~ Mom took Seyoung and went to Seonju Imo's house~"</p>
+<p>"Get up and read this once Mom took Seyoung and went to Seonju Imo's house"</p>
 
 <p>Seeing Shiwoo squinting and checking the window, Sehee Nuna frantically waved a fluorescent sticky note in front of Shiwoo's eyes as she spoke.</p>
 
@@ -68,7 +68,7 @@ chapter = 38
 
 <p>-Because Mom always made sure to prepare breakfast for the children, even on weekends and holidays-</p>
 
-<p>"I sent a text, so she'll probably contact me soon~!"</p>
+<p>"I sent a text, so she'll probably contact me soon!"</p>
 
 <p>Shiwoo said to Sehee Nuna, smiling as if trying to appear nonchalant.</p>
 
@@ -160,13 +160,13 @@ chapter = 38
 
 <p>Shiwoo replied, forcing a bright smile.</p>
 
-<p>"Hmm~ is that so?"</p>
+<p>"Hmm is that so?"</p>
 
 <p>Nuna was looking at Shiwoo as if something was still bothering her, letting out a long, dubious exclamation.</p>
 
 <p>Shiwoo answered, trying to appear as calm as possible, to Nuna's suspicions and questions, which he didn't know how far they reached.</p>
 
-<p>"Anyway, cheer up~ It's weird for you to look so down just because Mom left, when you're usually fine even after staying up all night!?"</p>
+<p>"Anyway, cheer up It's weird for you to look so down just because Mom left, when you're usually fine even after staying up all night!?"</p>
 
 <p>Shiwoo closed his mouth at Sehee Nuna's words that Mom had left the house.</p>
 
@@ -174,17 +174,17 @@ chapter = 38
 
 <p>Sehee Nuna and Shiwoo were eating in silence after that.</p>
 
-<p>"Sigh~"</p>
+<p>"Sigh"</p>
 
 <p>Sehee Nuna sighed, looking at Shiwoo, who looked so gloomy, with pity.</p>
 
-<p>"Shiwoo, wait here for a second~!?"</p>
+<p>"Shiwoo, wait here for a second!?"</p>
 
 <p>Sehee Nuna went up to her room on the second floor as if she had thought of something, and came down a little later.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>"Ta-da~!!"</p>
+<p>"Ta-da!!"</p>
 
 <p>Sehee Nuna was coming down the stairs wearing the black see-through t-shirt that Imo had bought her.</p>
 
@@ -216,7 +216,7 @@ chapter = 38
 
 <p>"Pictures?"</p>
 
-<p>"Yeah, this is a pretty outfit that I like, but it's a waste to just return it today! I should at least leave it like this, come on~ kikik, hurry!"</p>
+<p>"Yeah, this is a pretty outfit that I like, but it's a waste to just return it today! I should at least leave it like this, come on kikik, hurry!"</p>
 
 <p>Shiwoo, flustered, picked up the smartphone that he hadn't let go of -because he was checking if Mom had read his text- and took pictures of Sehee Nuna posing on the stairs.</p>
 
@@ -226,7 +226,7 @@ chapter = 38
 
 <p>Click!!!</p>
 
-<p>"Did you take them well? Let me see~"</p>
+<p>"Did you take them well? Let me see"</p>
 
 <p>Sehee Nuna, who had been changing poses and being photographed, took Shiwoo's smartphone, saying she wanted to see the pictures he had just taken.</p>
 
@@ -248,7 +248,7 @@ chapter = 38
 
 <p>Sehee Nuna in a black see-through shirt, exposing her armpits as she swept her hair up with both arms.</p>
 
-<p>"Just leave it like this for today~! Okay!? Cheer up~!!!"</p>
+<p>"Just leave it like this for today! Okay!? Cheer up!!!"</p>
 
 <p>Smack!</p>
 

@@ -176,7 +176,7 @@ chapter = 450
 
 <p>Looking down at the crying Sehee Nuna, Shiwoo's large penis, embedded inside Sehee Nuna's body, had somehow grown even harder.</p>
 
-<p>"Alright, now that I know~ Stop crying already!"</p>
+<p>"Alright, now that I know Stop crying already!"</p>
 
 <p>Returning to a gentle tone, Shiwoo spoke as if comforting Sehee Nuna.</p>
 

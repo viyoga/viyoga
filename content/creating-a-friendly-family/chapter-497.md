@@ -24,7 +24,7 @@ chapter = 497
 
 <p>She seemed to be touching and fiddling with something by touching the screen, and then, with a satisfied expression, she handed the smartphone to Shiwoo.</p>
 
-<p>"Shiwoo Oppa, here~!"</p>
+<p>"Shiwoo Oppa, here!"</p>
 
 <p>Seyoung forced a proud smile, her face covered in a mess of tears, sweat, and regurgitated digestive fluids.</p>
 
@@ -64,11 +64,11 @@ chapter = 497
 
 <p>Shiwoo answered, trying to recall as much as possible the sensation of Seyoung's mouth and throat on his penis.</p>
 
-<p>"Hehe, that's great~"</p>
+<p>"Hehe, that's great"</p>
 
 <p>Seyoung said, smiling at Shiwoo with a happy eye smile.</p>
 
-<p>"Seonmi is staying still, so she must be asleep~ She sleeps well even with something weird inside her? I wonder if she won't wake up for a while until I fall asleep? Hehe~"</p>
+<p>"Seonmi is staying still, so she must be asleep She sleeps well even with something weird inside her? I wonder if she won't wake up for a while until I fall asleep? Hehe"</p>
 
 <p>Seyoung then lightly mocked Mom, who was pretending to be asleep with a vibrator inside her, in a condescending way.</p>
 
@@ -76,7 +76,7 @@ chapter = 497
 
 <p>Mom trembled her eyes and surrounding muscles, trying to relax the area Seyoung was stroking.</p>
 
-<p>"Yeah, Seonmi doesn't wake up easily once she falls asleep like this... I know it well because I've experienced it a few times~"</p>
+<p>"Yeah, Seonmi doesn't wake up easily once she falls asleep like this... I know it well because I've experienced it a few times"</p>
 
 <p>Shiwoo whispered quietly, as if for Mom to hear, while grabbing Mom's breasts.</p>
 
@@ -94,7 +94,7 @@ chapter = 497
 
 <p>Shiwoo watched the reversed relationship between the two women and asked Seyoung with a slightly curious tone.</p>
 
-<p>"If I let her suck my breast like this, I think she'll sleep better than if I were sucking it~ It feels like I've really become a mom~ Hehe~"</p>
+<p>"If I let her suck my breast like this, I think she'll sleep better than if I were sucking it It feels like I've really become a mom Hehe"</p>
 
 <p>Seyoung said to Shiwoo with a blissful expression on her face, which still had traces of filth.</p>
 
@@ -106,19 +106,19 @@ chapter = 497
 
 <p>Considering the fact that Seyoung had been pretending to be asleep when having sex with Mom before, it was questionable whether her infantile regression had already been alleviated a long time ago...</p>
 
-<p>"Really? That's great~ But then, besides Seonmi or Sehee, you can sleep well as long as there's someone next to you sucking Seyoung's breast, right?"</p>
+<p>"Really? That's great But then, besides Seonmi or Sehee, you can sleep well as long as there's someone next to you sucking Seyoung's breast, right?"</p>
 
 <p>Shiwoo looked at Seyoung's empty other breast and asked, subtly implying the play he would be doing with her in the future.</p>
 
-<p>"Is that so~? Well~ I can sleep with Sehee Unni or Seonju Imo now, so~ I guess I don't care who I sleep with as long as they can suck my breast~ Right? Hehe~"</p>
+<p>"Is that so? Well I can sleep with Sehee Unni or Seonju Imo now, so I guess I don't care who I sleep with as long as they can suck my breast Right? Hehe"</p>
 
 <p>Seyoung seemed to be aware of what Shiwoo was trying to say, and she grabbed her own petite breast with her hand as she spoke.</p>
 
-<p>"That's right~ Our family has become quite close~ From now on, anyone can pair up with Seyoung at night and suck Seyoung's breast"</p>
+<p>"That's right Our family has become quite close From now on, anyone can pair up with Seyoung at night and suck Seyoung's breast"</p>
 
 <p>After Shiwoo said this, he suddenly raised his upper body and brought his lips to Mom's nipple.</p>
 
-<p>"Chuu-oop~!"</p>
+<p>"Chuu-oop!"</p>
 
 <p>Shiwoo strongly grabbed Mom's breast and strongly sucked her nipple with his lips.</p>
 
@@ -158,7 +158,7 @@ chapter = 497
 
 <p>Shiwoo took his mouth off Mom's nipple and asked Seyoung as if being cautious.</p>
 
-<p>"Yeah~ I think it's okay now~ Hehe~"</p>
+<p>"Yeah I think it's okay now Hehe"</p>
 
 <p>Seyoung answered Shiwoo with a smile as if there was no problem.</p>
 

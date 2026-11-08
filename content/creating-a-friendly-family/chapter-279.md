@@ -22,7 +22,7 @@ chapter = 279
 
 <p>Foam and moisture were dripping, making a mess of the dressing room floor, but Mom couldn't utter a single word.</p>
 
-<p>,Look~ As soon as I saw that Mom was cleaning up the semen I shot, it got hard like this right away!\,"</p>
+<p>,Look As soon as I saw that Mom was cleaning up the semen I shot, it got hard like this right away!\,"</p>
 
 <p>Shiwoo spoke, shaking his erect penis in front of Mom's face, as if proving that the words he had jokingly said to Mom earlier were not false.</p>
 
@@ -36,7 +36,7 @@ chapter = 279
 
 <p>After hesitating for a moment as if conflicted about something, she eventually sighed and returned her gaze to Shiwoo's erect penis as if she couldn't help it.</p>
 
-<p>,Yesterday, you were clinging to me, calling me 'Yeobo' as if you were about to faint from pleasure~!"</p>
+<p>,Yesterday, you were clinging to me, calling me 'Yeobo' as if you were about to faint from pleasure!"</p>
 
 <p>Shiwoo approached, bringing his fully erect penis close to Mom's face as if thrusting it at her.</p>
 
@@ -80,7 +80,7 @@ chapter = 279
 
 <p>Each time she cowered as if excited, Mom's head drooped downward.</p>
 
-<p>,You need to lift your head! Mom~!"</p>
+<p>,You need to lift your head! Mom!"</p>
 
 <p>Shiwoo stopped the hand that was shaking his penis and pressed his cock shaft against Mom's forehead, commanding her.</p>
 
@@ -154,7 +154,7 @@ chapter = 279
 
 <p>Mom flinched and closed her eyes tightly at the words of abuse and condemnation she was hearing from her son.</p>
 
-<p>,Haaaaa~"</p>
+<p>,Haaaaa"</p>
 
 <p>Mom took a deep breath as if enduring her humiliating feelings, and then opened her eyes again and looked at Shiwoo's face.</p>
 

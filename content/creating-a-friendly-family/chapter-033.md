@@ -166,7 +166,7 @@ chapter = 33
 
 <p>Then, she wrote a long message and sent it a moment later.</p>
 
-<p>'Haa~ Where did such a strange son come from!! Why are you tormenting Mom like this?! Mom should really be angry at Shiwoo right now, but the problem is that I'm not angry!! I'm going crazy too, so stop asking me!!! -_-^'</p>
+<p>'Haa Where did such a strange son come from!! Why are you tormenting Mom like this?! Mom should really be angry at Shiwoo right now, but the problem is that I'm not angry!! I'm going crazy too, so stop asking me!!! -_-^'</p>
 
 <p>Mom's inner thoughts.</p>
 

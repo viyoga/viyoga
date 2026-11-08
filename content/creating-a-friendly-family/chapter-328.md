@@ -16,7 +16,7 @@ chapter = 328
 
 <p>Because they were seated in a corner booth with walls forming a right angle, and with his sisters on either side, Shiwoo's penis would be hidden by the table, out of sight to others.</p>
 
-<p>"The weather's like early summer today~ The air's cool, but the sun's strong, I guess?"</p>
+<p>"The weather's like early summer today The air's cool, but the sun's strong, I guess?"</p>
 
 <p>Shiwoo unbuttoned his navy blue, oversized checkered shirt, slightly lifting the white t-shirt underneath. As if feeling hot, he grabbed the neck of the t-shirt and fanned himself.</p>
 
@@ -102,11 +102,11 @@ chapter = 328
 
 <p>Just then, the announcement of their order number came from the counter.</p>
 
-<p>"Seyoung, can you go get it? I don't think I can move right now~"</p>
+<p>"Seyoung, can you go get it? I don't think I can move right now"</p>
 
 <p>Shiwoo said, handing the order number to Seyoung.</p>
 
-<p>"Okay... I'll go get it~"</p>
+<p>"Okay... I'll go get it"</p>
 
 <p>Seyoung, looking down at Shiwoo's penis, answered cheerfully as if understanding, and stood up.</p>
 
@@ -160,6 +160,6 @@ chapter = 328
 
 <p>Seyoung asked Shiwoo, curious, as if requesting additional explanation.</p>
 
-<p>"Yeah. It seemed to move along a rail, and it looked like a basket. It was attached to the ceiling and rotated, and it seemed to be a device that allowed you to look down at the inside of the department store at a glance~ Do you want to go ride it?"</p>
+<p>"Yeah. It seemed to move along a rail, and it looked like a basket. It was attached to the ceiling and rotated, and it seemed to be a device that allowed you to look down at the inside of the department store at a glance Do you want to go ride it?"</p>
 
 <p>Shiwoo explained about the device he had seen before entering the store as kindly as possible, and immediately suggested to his sisters that they go ride it without hesitation.</p>

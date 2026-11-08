@@ -52,7 +52,7 @@ chapter = 208
 
 <p>However, Sehee Nuna stood in front of Shiwoo with a blushing face, as if she were somewhat shy.</p>
 
-<p>"Why~?"</p>
+<p>"Why?"</p>
 
 <p>Shiwoo asked, carefully examining Sehee Nuna's facial expression.</p>
 
@@ -60,11 +60,11 @@ chapter = 208
 
 <p>Sehee Nuna answered Shiwoo, stammering with a small voice.</p>
 
-<p>"What is~?"</p>
+<p>"What is?"</p>
 
 <p>Shiwoo asked, pretending not to know on purpose to see Sehee Nuna's reaction, even though he was inwardly guessing Sehee Nuna's condition.</p>
 
-<p>"Shiwoo, your... semen~! Haa~ How much did you ejaculate inside me, anyway?! What if I really get pregnant because of this?"</p>
+<p>"Shiwoo, your... semen! Haa How much did you ejaculate inside me, anyway?! What if I really get pregnant because of this?"</p>
 
 <p>Sehee Nuna brought her mouth close to Shiwoo's face and spoke in a worried tone, sighing deeply as if complaining.</p>
 
@@ -76,11 +76,11 @@ chapter = 208
 
 <p>Shiwoo raised his hand slightly above her waist as-is.</p>
 
-<p>-Jjal-ssak~!!</p>
+<p>-Jjal-ssak!!</p>
 
 <p>Shiwoo strongly slapped Sehee Nuna's firm and luscious buttocks covered in the dress fabric.</p>
 
-<p>"Haa-eut~!"</p>
+<p>"Haa-eut!"</p>
 
 <p>Sehee Nuna reacted, startled and flinching as if surprised by Shiwoo's palm slapping her buttocks at an unexpected timing.</p>
 
@@ -112,7 +112,7 @@ chapter = 208
 
 <p>Shiwoo said, covering his stiffly erect penis under his clothes with the jacket hanging on his arm.</p>
 
-<p>"Haaa-aaaa~"</p>
+<p>"Haaa-aaaa"</p>
 
 <p>Sehee Nuna glanced back and unknowingly let out a deep sigh.</p>
 
@@ -192,7 +192,7 @@ chapter = 208
 
 <p>The sound of vaginal mucous membrane and Shiwoo's finger rubbing against each other was heard from inside Sehee Nuna's body.</p>
 
-<p>"Haa-eueut~"</p>
+<p>"Haa-eueut"</p>
 
 <p>Sehee Nuna groaned, grabbing the pillar and trembling her body.</p>
 
@@ -226,6 +226,6 @@ chapter = 208
 
 <p>Shiwoo lowered his hand from Sehee Nuna's waist and grabbed her hand.</p>
 
-<p>"Let's do this kind of thing with me every day from now on~! I'll make you lose weight for the rest of your life~!"</p>
+<p>"Let's do this kind of thing with me every day from now on! I'll make you lose weight for the rest of your life!"</p>
 
 <p>Shiwoo said to Sehee Nuna, looking at her and declaring seriously in a tone that didn't seem like a joke.</p>

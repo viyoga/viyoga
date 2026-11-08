@@ -8,7 +8,7 @@ chapter = 41
 
 <p>Shiwoo was asking Sehee Nuna, who was showering, while masturbating with Sehee Nuna's panties.</p>
 
-<p>"Hmm~ I'm going to leave around 11, so be ready~"</p>
+<p>"Hmm I'm going to leave around 11, so be ready"</p>
 
 <p>Sehee Nuna's answer could be heard from beyond the sliding, opaque glass door of the bathroom.</p>
 
@@ -30,7 +30,7 @@ chapter = 41
 
 <p>Shiwoo deliberately struck up a conversation with Sehee Nuna while masturbating, in order to hear Sehee Nuna's voice more.</p>
 
-<p>"Yeah, I'll treat you~"</p>
+<p>"Yeah, I'll treat you"</p>
 
 <p>Sehee Nuna must have checked Shiwoo's traces, which he had poured all over Sehee Nuna's clothes that she had taken off and left in the basket, and the smell of Shiwoo's male musk filling the changing room, before going in to shower.</p>
 
@@ -44,17 +44,17 @@ chapter = 41
 
 <p>"Shiwoo, you haven't been to the aquarium in the department store yet, have you?"</p>
 
-<p>"No~ I've never been there. Have you been there, Nuna?"</p>
+<p>"No I've never been there. Have you been there, Nuna?"</p>
 
-<p>"I've been there a few times after school~"</p>
+<p>"I've been there a few times after school"</p>
 
 <p>"Alone?"</p>
 
-<p>"No~ with my friends~ The atmosphere there is really nice, you know?"</p>
+<p>"No with my friends The atmosphere there is really nice, you know?"</p>
 
 <p>"Really?"</p>
 
-<p>"Yeah, I think we can watch a movie after lunch, stop by the aquarium, and then come home. We have plenty of time, so we can look around for shopping too~"</p>
+<p>"Yeah, I think we can watch a movie after lunch, stop by the aquarium, and then come home. We have plenty of time, so we can look around for shopping too"</p>
 
 <p>Sehee Nuna was briefly explaining the schedule she would be spending with Shiwoo today.</p>
 
@@ -62,7 +62,7 @@ chapter = 41
 
 <p>While continuing the conversation and masturbating, Shiwoo was imagining Sehee Nuna's seductive movements of bending over or crouching down beyond the opaque glass door, and imagining Sehee Nuna swimming around naked in the aquarium.</p>
 
-<p>"Sehee Nuna~ Is that thing you were going to do with Sinbi Nuna going well?"</p>
+<p>"Sehee Nuna Is that thing you were going to do with Sinbi Nuna going well?"</p>
 
 <p>Shiwoo brought up the conversation that Sinbi Nuna had come to play and the two of them had excluded Shiwoo, as if ostracizing him.</p>
 
@@ -72,7 +72,7 @@ chapter = 41
 
 <p>Shiwoo knew what the Nunas were talking about from Sinbi Nuna, but he pretended not to know and spoke as if testing Sehee Nuna.</p>
 
-<p>"Oh? Ah~ yeah, well, something like that~."</p>
+<p>"Oh? Ah yeah, well, something like that."</p>
 
 <p>Sehee Nuna answered as if she was mumbling something.</p>
 
@@ -92,7 +92,7 @@ chapter = 41
 
 <p>Imagining Sehee Nuna's moaning sound being suppressed under Shiwoo's body, a thrilling pleasure vibrated and stirred his entire body, and a sense of ejaculation seemed to rush in.</p>
 
-<p>"Sehee Nuna~ I think you don't need to lose weight if I look at you now~ You look too good?"</p>
+<p>"Sehee Nuna I think you don't need to lose weight if I look at you now You look too good?"</p>
 
 <p>Shiwoo said, fixing his eyes on the outline of Sehee Nuna's body visible through the opaque glass.</p>
 
@@ -104,7 +104,7 @@ chapter = 41
 
 <p>Sehee Nuna, who had been silent for a while, opened her mouth.</p>
 
-<p>"You'll gain weight quickly if you let your guard down~</p>
+<p>"You'll gain weight quickly if you let your guard down</p>
 
 <p>Mom always makes sure to prepare meals so diligently for us."</p>
 
@@ -120,7 +120,7 @@ chapter = 41
 
 <p>"So, are you going to do that diet with Sinbi Nuna?"</p>
 
-<p>"I haven't decided yet~"</p>
+<p>"I haven't decided yet"</p>
 
 <p>"Does it have any effect?"</p>
 
@@ -132,7 +132,7 @@ chapter = 41
 
 <p>Sehee Nuna said to Shiwoo in a tone that suggested she was uncomfortable with Shiwoo's interest in the diet.</p>
 
-<p>"No, I was going to help Sehee Nuna if there was anything I could do~"</p>
+<p>"No, I was going to help Sehee Nuna if there was anything I could do"</p>
 
 <p>"Ha- Do you even know what it is?"</p>
 
@@ -152,13 +152,13 @@ chapter = 41
 
 <p>Nuna was silent again for a while.</p>
 
-<p>"I haven't decided whether to do it or not yet~ I have to talk to Sinbi more too... And you can't do it anyway, Shiwoo."</p>
+<p>"I haven't decided whether to do it or not yet I have to talk to Sinbi more too... And you can't do it anyway, Shiwoo."</p>
 
 <p>Sehee Nuna said, drawing a line as if to separate herself from Shiwoo.</p>
 
 <p>"Why?"</p>
 
-<p>"There's a reason~!!"</p>
+<p>"There's a reason!!"</p>
 
 <p>Through the conversation with Sehee Nuna, Shiwoo was now convinced that the diet that Sehee Nuna and Sinbi Nuna were trying to do was the diet that Shiwoo knew about.</p>
 
@@ -208,9 +208,9 @@ chapter = 41
 
 <p>Then, looking towards Sehee Nuna, he does the final climax piston strokes to ejaculate.</p>
 
-<p>Tak tak tak tak tak~!!</p>
+<p>Tak tak tak tak tak!!</p>
 
-<p>"Eueueut...eueum haa~"</p>
+<p>"Eueueut...eueum haa"</p>
 
 <p>Shiwoo starts ejaculating while making a moaning sound.</p>
 

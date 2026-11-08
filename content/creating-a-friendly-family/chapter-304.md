@@ -6,7 +6,7 @@ chapter = 304
 +++
 <p>Seonju Imo releases her arms from hugging Sua and Seyoung, and approaches as if to hug Shiwoo this time.</p>
 
-<p>,Shiwoo too~ Have fun and be careful~!,</p>
+<p>,Shiwoo too Have fun and be careful!,</p>
 
 <p>Seonju Imo says, hugging Shiwoo head-on.</p>
 
@@ -22,7 +22,7 @@ chapter = 304
 
 <p>His younger sisters were right next to them, a few steps away, watching Shiwoo and Seonju Imo's hug with bright eyes.</p>
 
-<p>,If anything happens, contact me right away~! Got it?,</p>
+<p>,If anything happens, contact me right away! Got it?,</p>
 
 <p>Seonju Imo says to Shiwoo in an unnecessarily more subtle and affectionate voice, while hugging him.</p>
 
@@ -120,7 +120,7 @@ chapter = 304
 
 <p>Seonju Imo takes a deep breath and calms her quickened breathing, and then brings her lips to Shiwoo's ear.</p>
 
-<p>,You can violate Sua as much as you want all day long, Master~,</p>
+<p>,You can violate Sua as much as you want all day long, Master,</p>
 
 <p>Seonju Imo says, whispering as if tickling Shiwoo's ear.</p>
 
@@ -130,11 +130,11 @@ chapter = 304
 
 <p>Shiwoo's thing reacts much faster than the flow of thoughts in his disorganized mind.</p>
 
-<p>,I charged the vibrator I received from Master and attached it to Sua's clitoris~ It seems to last for two hours, so you can turn it on whenever you feel like it, Master~,</p>
+<p>,I charged the vibrator I received from Master and attached it to Sua's clitoris It seems to last for two hours, so you can turn it on whenever you feel like it, Master,</p>
 
 <p>Seonju Imo continues to convey lewd words to Shiwoo's ear.</p>
 
-<p>,Because it's her first time, if her hymen is torn, there might be a lot of blood, so I attached a pad to her underwear. I also matched her panties and clothes to be reddish~! Did I do well~?,</p>
+<p>,Because it's her first time, if her hymen is torn, there might be a lot of blood, so I attached a pad to her underwear. I also matched her panties and clothes to be reddish! Did I do well?,</p>
 
 <p>This time, Seonju Imo is bringing her lips to the opposite ear and continuing to speak.</p>
 
@@ -148,7 +148,7 @@ chapter = 304
 
 <p>Seonju Imo is also aware of such situations that Shiwoo is thinking about, and her body is trembling again in Shiwoo's arms.</p>
 
-<p>,Ah~, and when you turn on the vibrator, I also prepared a fan to turn on together. Because people might look strangely at the vibrator's vibration sound.,</p>
+<p>,Ah, and when you turn on the vibrator, I also prepared a fan to turn on together. Because people might look strangely at the vibrator's vibration sound.,</p>
 
 <p>While her body is trembling, Seonju Imo finally explains in detail the identity of the mini fan hanging around Sua's neck, as if trying to resolve the doubts Shiwoo had.</p>
 
@@ -156,7 +156,7 @@ chapter = 304
 
 <p>When he shifts his gaze to the fan hanging around Sua's neck, Sua avoids his eyes and twists her body as if embarrassed.</p>
 
-<p>,Ah~ Sua will take care of that, so Master doesn't have to worry about it~! Master, just enjoy my daughter~!,</p>
+<p>,Ah Sua will take care of that, so Master doesn't have to worry about it! Master, just enjoy my daughter!,</p>
 
 <p>Just as Seonju Imo's words, which had been flowing confusedly in his head, were being organized, Seonju Imo said that to Shiwoo as if she had just remembered it.</p>
 
@@ -168,7 +168,7 @@ chapter = 304
 
 <p class="scene-break">· · ·</p>
 
-<p>,I have something to talk about with Seonju inside for a moment~! You guys wait here for a bit!,</p>
+<p>,I have something to talk about with Seonju inside for a moment! You guys wait here for a bit!,</p>
 
 <p>Shiwoo says urgently to his younger sisters with a rough breath, as if he is finally about to explode his excitement.</p>
 

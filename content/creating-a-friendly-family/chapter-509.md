@@ -86,7 +86,7 @@ chapter = 509
 
 <p>A chaotic unease seemed to be subtly raising its head inside Shiwoo's chest.</p>
 
-<p>"Seonmi-ya~ Why are you out here? Is it too noisy for you to sleep?"</p>
+<p>"Seonmi-ya Why are you out here? Is it too noisy for you to sleep?"</p>
 
 <p>Shiwoo nonchalantly pretended not to notice, pushing his erect penis forward and approaching Mom, jokingly speaking to her.</p>
 

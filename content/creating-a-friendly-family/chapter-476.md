@@ -14,7 +14,7 @@ chapter = 476
 
 <p>Shiwoo commanded the two, who were catching their breath, their shoulders heaving as if flushed.</p>
 
-<p>,Yes, Master~ I'll shower and come out~"</p>
+<p>,Yes, Master I'll shower and come out"</p>
 
 <p>Sehee Nuna, who was kneeling and looking up at Shiwoo with a submissive expression, answered Shiwoo before Mom.</p>
 
@@ -40,7 +40,7 @@ chapter = 476
 
 <p>After ending the recording, Shiwoo pulled up his lowered pants and covered his penis with his t-shirt.</p>
 
-<p>,Let's go, Mom~! There's still Shiwoo's semen in Mom's hair, so I'll clean it up with my mouth before I brush my teeth~"</p>
+<p>,Let's go, Mom! There's still Shiwoo's semen in Mom's hair, so I'll clean it up with my mouth before I brush my teeth"</p>
 
 <p>Sehee Nuna, who had been kneeling on the kitchen floor, stood up and reached out her hand to Mom, speaking in a friendly manner.</p>
 
@@ -56,7 +56,7 @@ chapter = 476
 
 <p>Mom hesitated for a moment, then grabbed Sehee Nuna's outstretched hand and stood up.</p>
 
-<p>,A lot of water splashed and your t-shirt is all wet~! Be more careful when you're doing the dishes, Mom!"</p>
+<p>,A lot of water splashed and your t-shirt is all wet! Be more careful when you're doing the dishes, Mom!"</p>
 
 <p>Sehee Nuna touched the crotch area of Mom's t-shirt, which was wet at the hem, and spoke.</p>
 

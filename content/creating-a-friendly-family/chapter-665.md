@@ -8,13 +8,13 @@ chapter = 665
 
 <p>After some time had passed, Shiwoo sent a message to Seonju Imo as if lightly checking in.</p>
 
-<p>[I'm almost there~ I'm passing right in front of the park near your house now!]</p>
+<p>[I'm almost there I'm passing right in front of the park near your house now!]</p>
 
 <p>Seonju Imo replied to Shiwoo in a tone that wasn't much different from usual.</p>
 
 <p>If she was in front of the park, it was a distance that would take about 15 to 20 minutes at Seonju Imo's walking pace.</p>
 
-<p>[I've set the table so we can eat as soon as you get here, so come quickly~!]</p>
+<p>[I've set the table so we can eat as soon as you get here, so come quickly!]</p>
 
 <p>Shiwoo spoke while maintaining a calm sense of distance within their familiar conversation.</p>
 
@@ -26,7 +26,7 @@ chapter = 665
 
 <p>If Seonju Imo had checked the videos and photos, she would certainly know what Shiwoo's words implied.</p>
 
-<p>[Yes... I'll be there soon~]</p>
+<p>[Yes... I'll be there soon]</p>
 
 <p>Seonju Imo replied to Shiwoo with a lingering trail of thought that was easy to discern.</p>
 

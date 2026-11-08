@@ -30,17 +30,17 @@ chapter = 118
 
 <p>To Shiwoo's call coming with the masturbation sounds, Mom blankly responded as if startled.</p>
 
-<p>-Tak! Tak! Tak! Tak~! Tak~! Tak~! Tak! Tak! Tak!</p>
+<p>-Tak! Tak! Tak! Tak! Tak! Tak! Tak! Tak! Tak!</p>
 
 <p>Shiwoo deliberately adjusted the speed of the hand masturbating, changing the sounds to be heard by Mom.</p>
 
 <p>Mom's breathing was slightly quickening.</p>
 
-<p>"Hmm~ what are you doing?"</p>
+<p>"Hmm what are you doing?"</p>
 
 <p>Shiwoo asked, as if urging Mom to make a sound while continuing to masturbate.</p>
 
-<p>"Jus...just getting ready to sleep~"</p>
+<p>"Jus...just getting ready to sleep"</p>
 
 <p>Mom stuttered as if flustered, answering Shiwoo.</p>
 
@@ -52,11 +52,11 @@ chapter = 118
 
 <p>Mom was trying hard to faithfully answer Shiwoo's questions.</p>
 
-<p>"Sehee Nuna also seems to be sleeping well next to you~"</p>
+<p>"Sehee Nuna also seems to be sleeping well next to you"</p>
 
 <p>Shiwoo said, squeezing and kneading Sehee Nuna's large breasts with his semen-covered hand.</p>
 
-<p>"Heueueung~"</p>
+<p>"Heueueung"</p>
 
 <p>Sehee Nuna's moaning sound faintly leaked out.</p>
 
@@ -72,7 +72,7 @@ chapter = 118
 
 <p>Shiwoo put Sehee Nuna's clitoris between his index and middle fingers and gently rolled it.</p>
 
-<p>"Heueueup~Haaaat!"</p>
+<p>"HeueueupHaaaat!"</p>
 
 <p>Even though he only gently pressed and rolled it, a rough, suppressed sigh burst out from Sehee Nuna's mouth.</p>
 
@@ -116,11 +116,11 @@ chapter = 118
 
 <p>Soon, the 1 next to the text disappeared.</p>
 
-<p>"Haaaa~"</p>
+<p>"Haaaa"</p>
 
 <p>Mom, letting out a small sigh, was silent for a while without any reaction.</p>
 
-<p>"Mom~?"</p>
+<p>"Mom?"</p>
 
 <p>Shiwoo called out to Mom as if nothing had happened.</p>
 
@@ -150,7 +150,7 @@ chapter = 118
 
 <p>After a while, Mom's text arrived.</p>
 
-<p>'Shiwoo~ but do I have to do it now? Sehee is sleeping next to you, right?'</p>
+<p>'Shiwoo but do I have to do it now? Sehee is sleeping next to you, right?'</p>
 
 <p>Mom, troubled by Shiwoo's command.</p>
 
@@ -168,7 +168,7 @@ chapter = 118
 
 <p>Shiwoo asked with an innocent, kind tone.</p>
 
-<p>"Uh? Uh...I'm...I'm okay~"</p>
+<p>"Uh? Uh...I'm...I'm okay"</p>
 
 <p>Mom answered, trembling her voice with a flustered mind.</p>
 
@@ -188,7 +188,7 @@ chapter = 118
 
 <p>Mom, unable to say anything either through chat or call.</p>
 
-<p>"Wait a moment, Mom~!"</p>
+<p>"Wait a moment, Mom!"</p>
 
 <p>Shiwoo said that to Mom with a gentle and friendly tone, then stopped masturbating and approached Sehee Nuna.</p>
 
@@ -234,7 +234,7 @@ chapter = 118
 
 <p>Mom was making a sound as if responding reflexively to Shiwoo's words.</p>
 
-<p>"I told you that you don't have to worry about that anymore~!"</p>
+<p>"I told you that you don't have to worry about that anymore!"</p>
 
 <p>Shiwoo was saying as if reassuring Mom.</p>
 
@@ -244,7 +244,7 @@ chapter = 118
 
 <p>Shiwoo's thing was twitching as if it would burst at any moment.</p>
 
-<p>"Haeueueu...eu~"</p>
+<p>"Haeueueu...eu"</p>
 
 <p>Mom's trembling sigh, coming from beyond the smartphone's earpiece for a long time.</p>
 
@@ -270,11 +270,11 @@ chapter = 118
 
 <p>Shiwoo's hand, stopped again.</p>
 
-<p>"Sh...Shiwoo-ya~!"</p>
+<p>"Sh...Shiwoo-ya!"</p>
 
 <p>Mom's urgent voice, heard through the speakerphone.</p>
 
-<p>"Yeah~?"</p>
+<p>"Yeah?"</p>
 
 <p>Shiwoo, answering right away.</p>
 
@@ -290,7 +290,7 @@ chapter = 118
 
 <p>Mom was saying to Shiwoo as if confirming with a feeling of pleading and clinging.</p>
 
-<p>"Ah~~yeah! I have to."</p>
+<p>"Ahyeah! I have to."</p>
 
 <p>Shiwoo answered with a calm voice as if he understood.</p>
 
@@ -300,7 +300,7 @@ chapter = 118
 
 <p>A text arrived from Mom a while later.</p>
 
-<p>'I'll do everything you tell me to do now, Master~ Please forgive me just once'</p>
+<p>'I'll do everything you tell me to do now, Master Please forgive me just once'</p>
 
 <p>It was Mom's text as if declaring her submission, using Sehee Nuna as an excuse.</p>
 
@@ -308,7 +308,7 @@ chapter = 118
 
 <p>'Squeak! Squeak! Squeak!'</p>
 
-<p>"Haaak! Haaat! Heueueuk~!"</p>
+<p>"Haaak! Haaat! Heueueuk!"</p>
 
 <p>Soon, the sound of moist rubber rubbing and moaning sounds were heard from Shiwoo's smartphone.</p>
 
@@ -342,6 +342,6 @@ chapter = 118
 
 <p>"Hang!"</p>
 
-<p>"Haeueung~!"</p>
+<p>"Haeueung!"</p>
 
 <p>The room was being filled with the unrestrained lewd sounds of flesh and moans of a mother and her siblings.</p>

@@ -6,7 +6,7 @@ chapter = 653
 +++
 <p>It might have looked like he was merely confirming an appointment, but a chilling warning and a sense of wariness permeated the end of Shiwoo's words. It was a cautionary message from Shiwoo, as if to say that if anything were to happen to Mom or Sehee-nuna, he wouldn't leave her alone when he visited tomorrow...</p>
 
-<p>[Yes~ I'm looking forward to you coming to our shop with Seonmi tomorrow~]</p>
+<p>[Yes I'm looking forward to you coming to our shop with Seonmi tomorrow]</p>
 
 <p>As if her familiar smile was being transmitted through the text, she replied with a soft, calculated tone. She had likely understood Shiwoo's warning. Though the anxiety and discomfort in a corner of his heart didn't vanish, Shiwoo thought that they had at least reached a basic agreement regarding surface-level balance and safety.</p>
 

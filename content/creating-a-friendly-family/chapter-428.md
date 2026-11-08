@@ -50,7 +50,7 @@ chapter = 428
 
 <p>Shiwoo speaks as if taking a step back after receiving Mom's apology.</p>
 
-<p>「Alright~ Then anything is possible except getting your clitoris hit with a flick and getting pregnant, right?」</p>
+<p>「Alright Then anything is possible except getting your clitoris hit with a flick and getting pregnant, right?」</p>
 
 <p>Shiwoo asks as if he is going to readjust the punishments he will give her.</p>
 

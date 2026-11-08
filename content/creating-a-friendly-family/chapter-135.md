@@ -66,7 +66,7 @@ chapter = 135
 
 <p>Gyuri Ajumma's slippery vaginal fluid was generously coating Shiwoo's finger as if it were being applied.</p>
 
-<p>"Ah... it doesn't hurt... Hmm... Eum... that area... Heueut~"</p>
+<p>"Ah... it doesn't hurt... Hmm... Eum... that area... Heueut"</p>
 
 <p>Gyuri Ajumma trailed off her words, replacing her current feelings with moaning sounds.</p>
 
@@ -92,7 +92,7 @@ chapter = 135
 
 <p>Shiwoo diligently massaged Gyuri Ajumma, intending to loosen her stiff muscles along with his caresses.</p>
 
-<p>"Heueueum~"</p>
+<p>"Heueueum"</p>
 
 <p>Gyuri Ajumma was making a sound as if feeling refreshed.</p>
 
@@ -100,7 +100,7 @@ chapter = 135
 
 <p>Shiwoo asked Gyuri Ajumma, gently pressing a pressure point on her calf.</p>
 
-<p>"Eum... Eung... it feels cool~ Shiwoo, you're so good at massage... Did you learn it somewhere?" Gyuri Ajumma asked, praising Shiwoo in a relaxed, husky voice.</p>
+<p>"Eum... Eung... it feels cool Shiwoo, you're so good at massage... Did you learn it somewhere?" Gyuri Ajumma asked, praising Shiwoo in a relaxed, husky voice.</p>
 
 <p>"I didn't learn it separately, I just often watched Sehee Nuna getting massages when she exercised," Shiwoo replied, stroking her calves again as if caressing them.</p>
 

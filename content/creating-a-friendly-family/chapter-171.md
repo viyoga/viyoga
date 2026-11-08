@@ -18,7 +18,7 @@ chapter = 171
 
 <p>If Seyoung hadn't been there, Shiwoo might have immediately put his impulsive fantasy into action.</p>
 
-<p>「Awu~ It's hot! I'll go to the bathroom for a bit!」</p>
+<p>「Awu It's hot! I'll go to the bathroom for a bit!」</p>
 
 <p>Seonju Imo got up from her seat and headed to the bathroom, as if trying to irresponsibly leave all these situations unattended.</p>
 
@@ -38,7 +38,7 @@ chapter = 171
 
 <p>Seyoung asked with a worried expression as she got up from her seat and approached Sua, who was sitting across the table.</p>
 
-<p>「Ugh...uh...I'm...I'm okay~ Haa...」</p>
+<p>「Ugh...uh...I'm...I'm okay Haa...」</p>
 
 <p>Sua shuddered once and answered while looking at Seyoung.</p>
 
@@ -46,7 +46,7 @@ chapter = 171
 
 <p>Seyoung's expression seemed to genuinely worry as she stroked Sua's back.</p>
 
-<p>「I think the ice cream we ate earlier was too cold...It's nothing~」</p>
+<p>「I think the ice cream we ate earlier was too cold...It's nothing」</p>
 
 <p>Sua smiles and answers, as if trying to reassure Seyoung.</p>
 
@@ -72,11 +72,11 @@ chapter = 171
 
 <p>Shiwoo, in front of Seyoung, without even thinking about the consequences, is swept away by a deep unconscious desire and commits an irreversible impulsive act.</p>
 
-<p>-Jjwaaaaaang~!</p>
+<p>-Jjwaaaaaang!</p>
 
 <p>The vibrator, which had been set to the highest intensity, starts operating again with a loud vibrating sound.</p>
 
-<p>「Haaeeeuuueuk! Shi...Shiwoo Oppa~!」</p>
+<p>「Haaeeeuuueuk! Shi...Shiwoo Oppa!」</p>
 
 <p>Sua, startled by the sudden vibration of the vibrator, lets out a rough moaning sound and desperately calls out to Shiwoo.</p>
 
@@ -118,7 +118,7 @@ chapter = 171
 
 <p>Shiwoo reacts as if confused because he can't sort out the situation from just now and Seonju Imo's words.</p>
 
-<p>「Shiwoo, you're so healthy?! It's different because you're young~! Or is it just Shiwoo who's special? Kikik!」</p>
+<p>「Shiwoo, you're so healthy?! It's different because you're young! Or is it just Shiwoo who's special? Kikik!」</p>
 
 <p>Seonju Imo was talking to Shiwoo in a teasing tone, as if impressed.</p>
 
@@ -154,7 +154,7 @@ chapter = 171
 
 <p>Shiwoo asks back, checking Sua's condition.</p>
 
-<p>「She didn't even let me rest all night~! Kikik」</p>
+<p>「She didn't even let me rest all night! Kikik」</p>
 
 <p>Seonju Imo was saying things to Shiwoo that Seyoung in the living room shouldn't hear.</p>
 
@@ -180,7 +180,7 @@ chapter = 171
 
 <p>Shiwoo says to Seonju Imo as if scolding her, worrying about his young cousin.</p>
 
-<p>「She'll do it on her own even if I leave her alone~ She knows everything now anyway~」</p>
+<p>「She'll do it on her own even if I leave her alone She knows everything now anyway」</p>
 
 <p>Seonju Imo answers Shiwoo, smiling as if it's nothing and joking at his worries.</p>
 
@@ -188,7 +188,7 @@ chapter = 171
 
 <p>Shiwoo raises his voice slightly, as if telling Seonju Imo to resolve this situation.</p>
 
-<p>「If you're really worried, why don't Master-nim go to Sua right now? I'm okay~! I can take Seyoung and the puppy for a walk~ Kikik」</p>
+<p>「If you're really worried, why don't Master-nim go to Sua right now? I'm okay! I can take Seyoung and the puppy for a walk Kikik」</p>
 
 <p>Seonju Imo brings one hand to her mouth and covers it, and whispers to Shiwoo in a voice that Seyoung can't hear.</p>
 

@@ -54,7 +54,7 @@ chapter = 528
 
 <p>As he approached the kitchen, the smell of the food Mom was preparing permeated Shiwoo's nose thickly and softly.</p>
 
-<p>,Hmm~ It smells delicious? Are you making breakfast?"</p>
+<p>,Hmm It smells delicious? Are you making breakfast?"</p>
 
 <p>Shiwoo speaks to Mom as if starting an everyday conversation.</p>
 
@@ -64,7 +64,7 @@ chapter = 528
 
 <p>However, it seemed inevitable that the situation of having to return to being a mom after having master-slave sex with her son all night felt somewhat awkward.</p>
 
-<p>,Yeah! My back is a bit tight, but other than that, I slept well~ What about you, Mom? Were you okay last night? I think I tossed and turned too much, so you probably didn't sleep well because you kept waking up?"</p>
+<p>,Yeah! My back is a bit tight, but other than that, I slept well What about you, Mom? Were you okay last night? I think I tossed and turned too much, so you probably didn't sleep well because you kept waking up?"</p>
 
 <p>Shiwoo asks, pretending not to know, as if trying to make Mom recall the endless sex without climax that they had shared during the night.</p>
 
@@ -74,7 +74,7 @@ chapter = 528
 
 <p>Seeing Mom answering with lies that didn't need to be told, even though they both knew the truth, Shiwoo felt strangely satisfied.</p>
 
-<p>,That's a relief~ I was worried that you might not have slept well because of me~"</p>
+<p>,That's a relief I was worried that you might not have slept well because of me"</p>
 
 <p>Shiwoo pushes his pelvis forward, speaking with a bright expression and voice as if making a playful remark.</p>
 
@@ -88,11 +88,11 @@ chapter = 528
 
 <p>Shiwoo naturally changes the subject and tries to continue the everyday conversation with Mom.</p>
 
-<p>,U-um... Today, chicken curry and a simple rolled omelet... The rice will be ready soon, so please wait a little bit~"</p>
+<p>,U-um... Today, chicken curry and a simple rolled omelet... The rice will be ready soon, so please wait a little bit"</p>
 
 <p>Mom gives an awkward smile and tries to act naturally in front of Shiwoo.</p>
 
-<p>,Wow~ That sounds delicious~ It already smells good? Is there anything I can help with?"</p>
+<p>,Wow That sounds delicious It already smells good? Is there anything I can help with?"</p>
 
 <p>Shiwoo takes two or three steps towards the kitchen where Mom is and asks, exaggerating as he smells the surroundings.</p>
 
@@ -130,7 +130,7 @@ chapter = 528
 
 <p>Perhaps Mom was enjoying even these situations as a masochist?</p>
 
-<p>,Really? I need to wash up too~ Would it be okay to go in now? You haven't washed up yet either, have you, Mom?"</p>
+<p>,Really? I need to wash up too Would it be okay to go in now? You haven't washed up yet either, have you, Mom?"</p>
 
 <p>Shiwoo throws out words that provoke Mom and watches her reaction as if examining her.</p>
 
@@ -140,7 +140,7 @@ chapter = 528
 
 <p>As expected, Mom was maintaining her attitude as a mom, but she didn't seem to have any intention of intervening in Shiwoo's actions.</p>
 
-<p>,Sehee will probably come down around mealtime if I call her... Well~ Since all the family members haven't gathered yet, then I'll go take a shower now?"</p>
+<p>,Sehee will probably come down around mealtime if I call her... Well Since all the family members haven't gathered yet, then I'll go take a shower now?"</p>
 
 <p>Shiwoo puts his elbows up and puts his hands behind his head, clasping them together, and speaks playfully as if talking to himself.</p>
 

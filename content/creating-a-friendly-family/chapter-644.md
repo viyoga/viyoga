@@ -14,7 +14,7 @@ chapter = 644
 
 <p>Seyoung spoke as if giving a warning, lightly gripping the penis she was pressing against his belly. Beneath her hand, resting over the jacket, Shiwoo's penis throbbed violently...</p>
 
-<p>"As expected... is one day still not enough for this size? He-he-he ~"</p>
+<p>"As expected... is one day still not enough for this size? He-he-he "</p>
 
 <p>Seyoung spoke while pressing down, as if measuring the size of Shiwoo's penis with her hand.</p>
 
@@ -24,7 +24,7 @@ chapter = 644
 
 <p>Lost in a daze within this unfamiliar situation, Shiwoo walked slowly behind her. Sua immediately stood up from her seat as well, walking in step beside Shiwoo. With every stride he took, he could feel the continuous stimulation of Seyoung's fingers against his penis.</p>
 
-<p>"I have something to show Shiwoo-oppa in a bit~"</p>
+<p>"I have something to show Shiwoo-oppa in a bit"</p>
 
 <p>Seyoung spoke quietly as she guided Shiwoo toward the counter at the back of the cafe.</p>
 
@@ -32,7 +32,7 @@ chapter = 644
 
 <p>Shiwoo asked cautiously, looking at Seyoung with eyes filled with a mixture of anxiety and curiosity.</p>
 
-<p>"In a bit~ I'll show you when we get back to our seats! He-he ~"</p>
+<p>"In a bit I'll show you when we get back to our seats! He-he "</p>
 
 <p>Seyoung said this and looked ahead, smiling as if playing innocent, pretending nothing was happening. Shiwoo felt a simultaneous rush of awkward tension and sweet anticipation at Seyoung's behavior. Strength surged into his penis once more as Seyoung pressed down on it, but she maintained her smile, feigning ignorance as they walked toward the counter.</p>
 
@@ -48,7 +48,7 @@ chapter = 644
 
 <p>Shiwoo asked tentatively, looking at Seyoung as if worried the ice cream would melt while they ate their meal and headed home.</p>
 
-<p>"If we pack it with dry ice, it'll be fine for two or three hours~"</p>
+<p>"If we pack it with dry ice, it'll be fine for two or three hours"</p>
 
 <p>Seyoung answered Shiwoo as if she were well-versed in the melting times of ice cream.</p>
 
@@ -56,7 +56,7 @@ chapter = 644
 
 <p>Shiwoo asked back cautiously, as if hanging on Seyoung's words.</p>
 
-<p>"Yeah~ But Sae-a will probably eat more than Seonmi, so we should pick something Sae-a would like~ Oppa~ He-he ~"</p>
+<p>"Yeah But Sae-a will probably eat more than Seonmi, so we should pick something Sae-a would like Oppa He-he "</p>
 
 <p>Seyoung spoke with a bright smile, as if she were keeping in mind Mom's masturbation using Sae-a. Blood rushed to Shiwoo's penis again, causing it to twitch. Seyoung pressed her palm firmly against Shiwoo's belly, as if soothing the movement felt through his pants and jacket. All the while, Seyoung moved her gaze as if browsing the ice cream inside the glass case.</p>
 
@@ -76,11 +76,11 @@ chapter = 644
 
 <p>Then, he reached his arm around the back of the girl who was linked to his arm and wrapped it around her waist.</p>
 
-<p>"Sae-a doesn't like sweet things much, so a tart strawberry ice cream! And since Oppa likes sweet and milky things like I do, the Caramel Brittle Milk ice cream would be good~"</p>
+<p>"Sae-a doesn't like sweet things much, so a tart strawberry ice cream! And since Oppa likes sweet and milky things like I do, the Caramel Brittle Milk ice cream would be good"</p>
 
 <p>Standing as if they were embracing each other, Seyoung recommended the ice cream menu to Shiwoo. Every time she called out the name of a menu item, Seyoung's hand would subtly tighten and then release its grip.</p>
 
-<p>"Sua, you're having the Mint Vanilla Cookie ice cream you always get, right? I want to try something new! Pecan Chocolate ice cream. I'll give you some, so Oppa and Sua should try a bite too~ He-he ~"</p>
+<p>"Sua, you're having the Mint Vanilla Cookie ice cream you always get, right? I want to try something new! Pecan Chocolate ice cream. I'll give you some, so Oppa and Sua should try a bite too He-he "</p>
 
 <p>Seyoung spoke with confidence, as if she knew everyone's tastes perfectly, not just her own.</p>
 
@@ -92,7 +92,7 @@ chapter = 644
 
 <p>Sua, who was standing beside them, spoke to the clerk as if summarizing the menu items Seyoung had mentioned.</p>
 
-<p>"Yes~ One family-size strawberry ice cream with ice packing, and one each of Caramel Brittle Milk, Pecan Chocolate, and Mint Vanilla Cookie to eat in the shop, correct? If you take a seat, we'll bring them to you shortly!"</p>
+<p>"Yes One family-size strawberry ice cream with ice packing, and one each of Caramel Brittle Milk, Pecan Chocolate, and Mint Vanilla Cookie to eat in the shop, correct? If you take a seat, we'll bring them to you shortly!"</p>
 
 <p>The clerk answered with a kind smile. While pretending to look elsewhere, her eyes repeatedly flicked across the back of Seyoung's hand, which was resting on Shiwoo's belly.</p>
 
@@ -112,7 +112,7 @@ chapter = 644
 
 <p>Shiwoo turned to Seyoung and asked curiously.</p>
 
-<p>"Yeah... I'll show you~ Before that... Shiwoo-oppa?"</p>
+<p>"Yeah... I'll show you Before that... Shiwoo-oppa?"</p>
 
 <p>After saying that, Seyoung nonchalantly picked up the blanket Shiwoo had set aside and deliberately dropped it on the floor, far under the table.</p>
 

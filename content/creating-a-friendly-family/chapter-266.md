@@ -14,15 +14,15 @@ chapter = 266
 
 <p>Mom was now expressing her dissatisfaction not about the sex or contraception in the videos and photos, but about Shiwoo breaking the rules they had set between them.</p>
 
-<p>'Hehehe, maybe I should've shown this to Seonju first~?'</p>
+<p>'Hehehe, maybe I should've shown this to Seonju first?'</p>
 
 <p>Shiwoo said with a sly laugh, as if teasing Mom.</p>
 
-<p>'Ugh~! Why even film something like this in the first place? What if someone who doesn't know sees it?!'</p>
+<p>'Ugh! Why even film something like this in the first place? What if someone who doesn't know sees it?!'</p>
 
 <p>Mom replied to Shiwoo's words, completely reverting to her usual chat tone.</p>
 
-<p>'I don't really care if it's shown~? Hehe. If I'm going to show it anyway, should I charge money for it?'</p>
+<p>'I don't really care if it's shown? Hehe. If I'm going to show it anyway, should I charge money for it?'</p>
 
 <p>Shiwoo replied to Mom's worried words as if showing off a false bravado.</p>
 
@@ -30,7 +30,7 @@ chapter = 266
 
 <p>Mom sent a text message as if warning Shiwoo.</p>
 
-<p>'If you run away abroad, I'll chase after you and make you my wife, remember? For me, that's better than living here anyway~! Hehehe, do you want to be my wife?'</p>
+<p>'If you run away abroad, I'll chase after you and make you my wife, remember? For me, that's better than living here anyway! Hehehe, do you want to be my wife?'</p>
 
 <p>Shiwoo said, as if reminding Mom of their past chat conversation.</p>
 
@@ -38,11 +38,11 @@ chapter = 266
 
 <p>Mom reacted as if Shiwoo's joke was uncomfortable and embarrassing.</p>
 
-<p>'Just think of this as a game! What's wrong with that? We've even had sex~ And earlier, when you were with me, even with Seyoung next to you, you called me</p>
+<p>'Just think of this as a game! What's wrong with that? We've even had sex And earlier, when you were with me, even with Seyoung next to you, you called me</p>
 
 <p>"yeobo"</p>
 
-<p>just fine~ hehehe'</p>
+<p>just fine hehehe'</p>
 
 <p>Shiwoo said, remembering the honorific 'yeobo' that Mom had let slip during their intense sex, teasing her mischievously.</p>
 
@@ -50,7 +50,7 @@ chapter = 266
 
 <p>Mom replied, embarrassed and seemingly flustered by Shiwoo's teasing.</p>
 
-<p>'If words like that can slip out while getting pounded by your son's cock, weren't you really thinking that inside? When I heard that from your mouth, I really thought Mom had agreed to be my wife~ hehehe. Can't you do it again next time we do it?'</p>
+<p>'If words like that can slip out while getting pounded by your son's cock, weren't you really thinking that inside? When I heard that from your mouth, I really thought Mom had agreed to be my wife hehehe. Can't you do it again next time we do it?'</p>
 
 <p>Shiwoo said, mixing in explicit words as if escalating the intensity, provoking Mom.</p>
 
@@ -58,11 +58,11 @@ chapter = 266
 
 <p>Mom was speaking to Shiwoo as if fed up, using her characteristic emoticon.</p>
 
-<p>'Alright~ alright~ But I'm still calling you Mom properly here, aren't I?'</p>
+<p>'Alright alright But I'm still calling you Mom properly here, aren't I?'</p>
 
 <p>Shiwoo said, as if placating Mom, who was looking serious.</p>
 
-<p>'I won't tell you to do it right away~ But instead, it's okay if I think whatever I want when we do it this time, right?'</p>
+<p>'I won't tell you to do it right away But instead, it's okay if I think whatever I want when we do it this time, right?'</p>
 
 <p>Shiwoo added a sentence at the end, while placating Mom.</p>
 
@@ -70,7 +70,7 @@ chapter = 266
 
 <p>Mom immediately retorted, as if ready to argue back.</p>
 
-<p>'When I have sex with Mom in a bit, I'll be thinking of myself as Mom's husband~ hehe'</p>
+<p>'When I have sex with Mom in a bit, I'll be thinking of myself as Mom's husband hehe'</p>
 
 <p>Shiwoo provoked and teased Mom once again.</p>
 
@@ -130,7 +130,7 @@ chapter = 266
 
 <p>As soon as Shiwoo heard Mom's reply, he lightly began to shake the hand holding his cock.</p>
 
-<p>"Just wanted to hear your voice~ What are you doing?"</p>
+<p>"Just wanted to hear your voice What are you doing?"</p>
 
 <p>Shiwoo asked Mom, making conversation for no particular reason.</p>
 
@@ -146,7 +146,7 @@ chapter = 266
 
 <p>Mom asked back as if flustered by Shiwoo's question.</p>
 
-<p>"No~ what I asked in the text earlier! If it's okay for me to think of myself as Mom's husband when I go down and do it with Mom in a bit!"</p>
+<p>"No what I asked in the text earlier! If it's okay for me to think of myself as Mom's husband when I go down and do it with Mom in a bit!"</p>
 
 <p>Shiwoo mischievously repeated the question he had texted to Mom once again.</p>
 
@@ -158,7 +158,7 @@ chapter = 266
 
 <p>Shiwoo called out to Mom, as if urging an answer.</p>
 
-<p>"Aish~! Do whatever you want! What can Mom say about that?! Y-you're going to do whatever you want anyway, so why bother asking Mom something like that?"</p>
+<p>"Aish! Do whatever you want! What can Mom say about that?! Y-you're going to do whatever you want anyway, so why bother asking Mom something like that?"</p>
 
 <p>Mom replied to Shiwoo as if annoyed.</p>
 
@@ -178,7 +178,7 @@ chapter = 266
 
 <p>Shiwoo recited the names of the family members he intended to enslave, as if listing them.</p>
 
-<p>"Should I buy birth control pills too?... Who knows what'll happen with Seyoung in the future~ Hmm... I could even do it raw with Mom without a condom~"</p>
+<p>"Should I buy birth control pills too?... Who knows what'll happen with Seyoung in the future Hmm... I could even do it raw with Mom without a condom"</p>
 
 <p>Shiwoo continued masturbating, casually tossing provocative remarks to Mom as if talking to himself.</p>
 

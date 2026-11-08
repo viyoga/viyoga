@@ -22,7 +22,7 @@ chapter = 553
 
 <p>Shiwoo recalled the sadistic acts he had committed against Mom, and as if making excuses to Seyoung, he slowly moved his hips again.</p>
 
-<p>,Hmm~! Is that how she's... adapting?,</p>
+<p>,Hmm! Is that how she's... adapting?,</p>
 
 <p>Seyoung smiled playfully at Shiwoo, ending her sentence with a question as if teasing.</p>
 
@@ -78,7 +78,7 @@ chapter = 553
 
 <p>Shiwoo spoke as if emphasizing the complex feelings and confusion he felt at that time.</p>
 
-<p>,Hmm~ Was that so? Our Shiwoo Oppa is amazing after all~?,</p>
+<p>,Hmm Was that so? Our Shiwoo Oppa is amazing after all?,</p>
 
 <p>Seyoung was responding to Shiwoo's words, as if comforting and praising a young child.</p>
 
@@ -96,7 +96,7 @@ chapter = 553
 
 <p>Shiwoo was now openly talking as if boasting about the sadistic acts he had committed against Mom.</p>
 
-<p>,Show it to me now~ I want to see it~!,</p>
+<p>,Show it to me now I want to see it!,</p>
 
 <p>Seyoung picked up the smartphone that was placed near her head and spoke to Shiwoo with a curious expression.</p>
 
@@ -126,7 +126,7 @@ chapter = 553
 
 <p>The sight of himself doing that felt very unfamiliar, yet it aroused a strange excitement.</p>
 
-<p>,Heueueueum~!,</p>
+<p>,Heueueueum!,</p>
 
 <p>Seyoung checked the photo of Mom that Shiwoo had sent and was making a sound as if she found it interesting.</p>
 
@@ -140,7 +140,7 @@ chapter = 553
 
 <p>Shiwoo was somehow flustered and replied as if he was being questioned by Seyoung about the sadistic play he had been doing to Mom.</p>
 
-<p>,Is that so? Still, it was fortunate for us then~? Hehet...,</p>
+<p>,Is that so? Still, it was fortunate for us then? Hehet...,</p>
 
 <p>Seyoung let out a light laugh and looked up at Shiwoo again.</p>
 
@@ -194,7 +194,7 @@ chapter = 553
 
 <p>Only then, as if she finally had some room to spare, Seyoung was able to catch her breath and look up at Shiwoo again...</p>
 
-<p>,Haa...haaaa...haaaa...Shiwoo Oppa... You...were thinking of our...family like that all along~?,</p>
+<p>,Haa...haaaa...haaaa...Shiwoo Oppa... You...were thinking of our...family like that all along?,</p>
 
 <p>Seyoung made eye contact with Shiwoo again, catching her breath and talking to him.</p>
 

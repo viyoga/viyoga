@@ -6,7 +6,7 @@ chapter = 222
 +++
 <p>Mom didn't seem to react much even after seeing the photo.</p>
 
-<p>,I was originally going to give what's in Seonju -imo's mouth to Seonmi~,</p>
+<p>,I was originally going to give what's in Seonju -imo's mouth to Seonmi,</p>
 
 <p>Shiwoo sent a message to Mom, teasing her as if she wasn't reacting.</p>
 
@@ -36,7 +36,7 @@ chapter = 222
 
 <p>It was a message that came to Shiwoo and Mom's 1:1 chat, not the group chat with Seonju -imo.</p>
 
-<p>,How's your body~? hehe,</p>
+<p>,How's your body? hehe,</p>
 
 <p>Shiwoo ignored Mom's question and sent a playful text to her 1:1 chat.</p>
 
@@ -46,17 +46,17 @@ chapter = 222
 
 <p>Mom was speaking with direct expressions about her sexual relationship with Shiwoo, unlike before.</p>
 
-<p>,I tried to control myself and do it gently, but it must have been really hard for you~~?,</p>
+<p>,I tried to control myself and do it gently, but it must have been really hard for you?,</p>
 
 <p>Shiwoo still sent a playful text, teasing Mom.</p>
 
-<p>,Ugh~! Control or whatever, how am I supposed to endure when you're shoving that big thing in like that!? And the kids are here!!,</p>
+<p>,Ugh! Control or whatever, how am I supposed to endure when you're shoving that big thing in like that!? And the kids are here!!,</p>
 
 <p>Mom was speaking to Shiwoo, making direct mention of sex with him once again, protesting with genuine intensity.</p>
 
 <p>This kind of conversation with Mom, which hadn't happened before, seemed to make the back of Shiwoo's neck tingle.</p>
 
-<p>,I didn't even put it all the way in earlier~~ Seonju and Sehee can handle it just fine even when I shove it all the way in and pound them hard for a while~? Isn't it just that Mom's body is a bit weak? And you fainted on me last time too~ I guess our Seonmi needs to exercise a bit~ㅋㅋㅋ,</p>
+<p>,I didn't even put it all the way in earlier Seonju and Sehee can handle it just fine even when I shove it all the way in and pound them hard for a while? Isn't it just that Mom's body is a bit weak? And you fainted on me last time too I guess our Seonmi needs to exercise a bitㅋㅋㅋ,</p>
 
 <p>Shiwoo mentioned his sex with Seonju -imo and Sehee, teasing Mom again.</p>
 
@@ -64,17 +64,17 @@ chapter = 222
 
 <p>Mom was getting worked up like Sehee at Shiwoo's teasing words.</p>
 
-<p>,ㅋㅋㅋ Well, Gyuri Ajumma does yoga too~ But she can't handle it for long when I pound her hard and faints~ So is it just an age thing, regardless of exercise?,</p>
+<p>,ㅋㅋㅋ Well, Gyuri Ajumma does yoga too But she can't handle it for long when I pound her hard and faints So is it just an age thing, regardless of exercise?,</p>
 
 <p>Shiwoo continued to tease Mom mischievously, even mentioning his sex with Gyuri Ajumma.</p>
 
-<p>,That's ridiculous~! How much age difference is there between Seonju and me!?,</p>
+<p>,That's ridiculous! How much age difference is there between Seonju and me!?,</p>
 
 <p>Mom was reacting as if she was getting worked up again at Shiwoo's talk about age.</p>
 
 <p>Mom seemed to have completely forgotten about what she was originally going to argue with Shiwoo about, and lost her way.</p>
 
-<p>,hehehe~ I wonder if it'll go in well with Seyoung and Sua~?,</p>
+<p>,hehehe I wonder if it'll go in well with Seyoung and Sua?,</p>
 
 <p>Shiwoo's text seemed to be trying to provoke Mom again.</p>
 
@@ -84,7 +84,7 @@ chapter = 222
 
 <p class="scene-break">· · ·</p>
 
-<p>,Mom~ I think we should go now~!,</p>
+<p>,Mom I think we should go now!,</p>
 
 <p>Sua, who had been playing with the dog for a while, looked at the wall clock in the living room and spoke towards the kitchen where Seonju -imo was.</p>
 
@@ -92,13 +92,13 @@ chapter = 222
 
 <p>Shiwoo momentarily took his eyes off the smartphone screen he had been looking at and spoke to Sua.</p>
 
-<p>,Yeah... it's almost time for our kids at home to eat, so Mom and I have to go now~ Uh... it seems like Mom's business is over too...,</p>
+<p>,Yeah... it's almost time for our kids at home to eat, so Mom and I have to go now Uh... it seems like Mom's business is over too...,</p>
 
 <p>Sua said shyly, unable to make eye contact with Shiwoo.</p>
 
 <p>Was it because she found Mom being harassed by Shiwoo and was trying to rescue her?</p>
 
-<p>,Ah... really? Then I guess you have to go~,</p>
+<p>,Ah... really? Then I guess you have to go,</p>
 
 <p>Shiwoo felt a slightly unnatural sense of discomfort at Sua's trailing words, but just ignored it and answered.</p>
 
@@ -114,7 +114,7 @@ chapter = 222
 
 <p>Shiwoo left Seonju -imo, who had gotten up from her seat, behind him and headed towards the dressing room where Mom was.</p>
 
-<p>,Mom~ Seonju -imo and Sua are going home now~!,</p>
+<p>,Mom Seonju -imo and Sua are going home now!,</p>
 
 <p>Shiwoo said loudly to Mom, who was in the dressing room.</p>
 
@@ -124,7 +124,7 @@ chapter = 222
 
 <p>Mom was flustered and blurted out an answer to Shiwoo's loud words.</p>
 
-<p>,Yeah~ They have to go feed the dog~ And Seonju -imo's business is all done too~,</p>
+<p>,Yeah They have to go feed the dog And Seonju -imo's business is all done too,</p>
 
 <p>Shiwoo conveyed the words he had heard from Sua to Mom as they were.</p>
 
@@ -140,7 +140,7 @@ chapter = 222
 
 <p>It seemed that Mom was uncomfortable with the situation where only Sehee and Seyoung were in the house as soon as she came out of the shower.</p>
 
-<p>,Okay, I'll tell them to wait a bit, so get dressed and come out quickly~,</p>
+<p>,Okay, I'll tell them to wait a bit, so get dressed and come out quickly,</p>
 
 <p>Shiwoo was talking as if reassuring Mom.</p>
 
@@ -186,7 +186,7 @@ chapter = 222
 
 <p>Perhaps under the gray flared skirt that covered her knees, she was wearing obscene white lingerie panties with her crotch exposed.</p>
 
-<p>,Mom, what's that necklace~?,</p>
+<p>,Mom, what's that necklace?,</p>
 
 <p>Seyoung, who was in the living room, said, seeing Mom coming out of the dressing room.</p>
 
@@ -194,7 +194,7 @@ chapter = 222
 
 <p>Mom stuttered as if a little flustered when Seyoung found the dog collar she was wearing and asked about it.</p>
 
-<p>,No~ Mom, it's so pretty~ Red~ hehe~,</p>
+<p>,No Mom, it's so pretty Red hehe,</p>
 
 <p>Seyoung praised Mom with a tone that seemed to genuinely admire her beauty, speaking with a bright smile.</p>
 
@@ -210,13 +210,13 @@ chapter = 222
 
 <p>Sehee seemed to be blushing as she looked at Mom wearing the red dog collar and Shiwoo standing proudly next to her.</p>
 
-<p>,Oh, right~ I was thinking of taking Seyoung and Sua to the department store tomorrow to buy some dog supplies, is that okay? Mom?,</p>
+<p>,Oh, right I was thinking of taking Seyoung and Sua to the department store tomorrow to buy some dog supplies, is that okay? Mom?,</p>
 
 <p>Shiwoo was asking Mom, who was wearing the dog collar.</p>
 
 <p>Mom looked at Shiwoo silently for a moment, as if a little flustered.</p>
 
-<p>,I think we'll leave right after breakfast and come back late in the afternoon~~ Is it okay if we go and come back~?,</p>
+<p>,I think we'll leave right after breakfast and come back late in the afternoon Is it okay if we go and come back?,</p>
 
 <p>Shiwoo was asking Mom, looking straight at her face as if urging her to answer.</p>
 
@@ -224,6 +224,6 @@ chapter = 222
 
 <p>Mom was answering as if her spirit had been broken by Shiwoo's oppressive question.</p>
 
-<p>,That's great~ Then I'll pick you up with Seyoung right after breakfast tomorrow~ Sua, get ready at home too~!,</p>
+<p>,That's great Then I'll pick you up with Seyoung right after breakfast tomorrow Sua, get ready at home too!,</p>
 
 <p>Shiwoo said to Sua with a satisfied expression as soon as he heard Mom's answer.</p>

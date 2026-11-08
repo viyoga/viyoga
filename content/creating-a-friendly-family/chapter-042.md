@@ -40,7 +40,7 @@ chapter = 42
 
 <p>-In fact, it wasn't very painful, just a little loud-</p>
 
-<p>"That was my favorite~! You moron~!!"</p>
+<p>"That was my favorite! You moron!!"</p>
 
 <p>Sehee Nuna was speaking to Shiwoo, who looked surprised to be hit on the head, as if she was dissatisfied.</p>
 
@@ -122,7 +122,7 @@ chapter = 42
 
 <p>Shiwoo asked Sehee Nuna casually, feeling a bit disappointed.</p>
 
-<p>"Y-yes, I took it off yesterday because the shoulder straps were showing since I was only wearing it for a little while~ I usually wear it like this!"</p>
+<p>"Y-yes, I took it off yesterday because the shoulder straps were showing since I was only wearing it for a little while I usually wear it like this!"</p>
 
 <p>Sehee Nuna was kindly explaining to Shiwoo, showing him the thin transparent strap of the bra above her shoulder with her thumb and forefinger.</p>
 
@@ -134,13 +134,13 @@ chapter = 42
 
 <p class="scene-break">· · ·</p>
 
-<p>"Sehee Nuna, wait a minute~! Let's take a few more pictures of Nuna before we go out~"</p>
+<p>"Sehee Nuna, wait a minute! Let's take a few more pictures of Nuna before we go out"</p>
 
 <p>Shiwoo said, calling out to Sehee Nuna, who had finished getting ready to go out and was about to leave the house.</p>
 
 <p>"Pictures? I'm going to wear this often in the future, so why?"</p>
 
-<p>"Nuna, you look so good right now~ It's a waste if we don't take pictures since you're wearing it for the first time! And I need a picture to use as my smartphone background tomorrow..."</p>
+<p>"Nuna, you look so good right now It's a waste if we don't take pictures since you're wearing it for the first time! And I need a picture to use as my smartphone background tomorrow..."</p>
 
 <p>"Smartphone background? You took one earlier, didn't you?"</p>
 

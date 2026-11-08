@@ -6,7 +6,7 @@ chapter = 756
 +++
 <p>Mom seemed flustered, as if she didn't know how to react to this dizzying stimulation she was facing for the first time.</p>
 
-<p>"This way~!"</p>
+<p>"This way!"</p>
 
 <p>Shiwoo spoke as if gently guiding the way, wrapping his arm around Mom's waist and pulling her toward him.</p>
 
@@ -24,7 +24,7 @@ chapter = 756
 
 <p>The ice cream she was holding began to melt slightly.</p>
 
-<p>"If you're not going to eat it right away, I'll hold it~ If you stay like that, it'll melt and get all over your hands, won't it?"</p>
+<p>"If you're not going to eat it right away, I'll hold it If you stay like that, it'll melt and get all over your hands, won't it?"</p>
 
 <p>Shiwoo spoke as he snatched the vanilla ice cream Mom was holding.</p>
 
@@ -32,7 +32,7 @@ chapter = 756
 
 <p>When Shiwoo suddenly snatched the ice cream, Mom fumbled in the air with her fingertips, looking as if she didn't know where to put her empty hand.</p>
 
-<p>"Put your hand in my knit cardigan pocket like before~"</p>
+<p>"Put your hand in my knit cardigan pocket like before"</p>
 
 <p>Shiwoo spoke to Mom after roughly licking up ( halt ) the cream dripping around the cone.</p>
 
@@ -94,7 +94,7 @@ chapter = 756
 
 <p>Shiwoo muttered to himself in a small voice, barely audible, as if she were praiseworthy, while patting the upper part of Mom's buttocks.</p>
 
-<p>"Ugh~!"</p>
+<p>"Ugh!"</p>
 
 <p>As if she were feeling cranky at Shiwoo's muttering, Mom put full strength into her hand and stroked down his penis.</p>
 

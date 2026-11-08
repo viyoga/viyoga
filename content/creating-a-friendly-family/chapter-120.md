@@ -52,7 +52,7 @@ chapter = 120
 
 <p>Sehee Nuna directed the showerhead towards her clitoris. Smelling Shiwoo's semen on her hands, Sehee Nuna sprayed a strong stream of water onto her clitoris.</p>
 
-<p>"Haat! Master-nim~ Master-nim! Please truly take me, haa-eueut!" Sehee Nuna moaned and whispered in a small voice.</p>
+<p>"Haat! Master-nim Master-nim! Please truly take me, haa-eueut!" Sehee Nuna moaned and whispered in a small voice.</p>
 
 <p>Sehee Nuna recalled the stimulating warmth of the thick fluid that had just been sown inside her uterus and vagina, and reached climax once again. After climax, Sehee Nuna slumped onto the shower room floor, trembling. With an ecstatic sense of depravity, as if she had crossed a boundary, Sehee Nuna trembled again and shed tears.</p>
 

@@ -38,7 +38,7 @@ chapter = 522
 
 <p>With amazing tension, Shiwoo's senses were heightened to the fullest.</p>
 
-<p>"Aah~ Mom!"</p>
+<p>"Aah Mom!"</p>
 
 <p>The title 'Mom' popped out of Shiwoo's mouth without him realizing it.</p>
 
@@ -48,7 +48,7 @@ chapter = 522
 
 <p>But soon she started moving her hands, tongue, and lips violently again, as if trying to ignore the emotional agitation she felt inside.</p>
 
-<p>"Huu-uup Master-nim~! Sa-reup sa-rap haa...Master-nim...ha-um sa-ruu-uup haa-aaa-am... Heueueu..."</p>
+<p>"Huu-uup Master-nim! Sa-reup sa-rap haa...Master-nim...ha-um sa-ruu-uup haa-aaa-am... Heueueu..."</p>
 
 <p>Mom sucked Shiwoo's anus again and called Shiwoo by the title 'Master-nim'.</p>
 
@@ -186,7 +186,7 @@ chapter = 522
 
 <p>Mom requested Shiwoo with a voice full of embarrassment.</p>
 
-<p>"What~?"</p>
+<p>"What?"</p>
 
 <p>Shiwoo asked playfully, as if expecting vulgar words and requests to come out of her mouth in a more direct and concrete way.</p>
 

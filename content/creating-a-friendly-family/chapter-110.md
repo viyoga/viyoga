@@ -38,7 +38,7 @@ chapter = 110
 
 <p>Shiwoo puts Sehee Nuna's ripe nipples in his mouth and tastes them through the mesh clothing.</p>
 
-<p>"Haa heut~heu-eut~"</p>
+<p>"Haa heutheu-eut"</p>
 
 <p>A short, exclamatory moan escapes from Sehee Nuna's mouth, her head tilted back.</p>
 
@@ -136,7 +136,7 @@ chapter = 110
 
 <p>The filthy semen mixed with Shiwoo's saliva is being added to Sehee Nuna's mouth.</p>
 
-<p>"Keuep~"</p>
+<p>"Keuep"</p>
 
 <p>Shiwoo empties the fluids in his mouth and gathers the remaining filth.</p>
 
@@ -230,7 +230,7 @@ chapter = 110
 
 <p>Sehee Nuna's intense gaze of longing, directed towards Shiwoo's huge thing...</p>
 
-<p>"Heueueueue~ Heueueeut!! Heueueueuek~!! Huaaaheu-eut!!"</p>
+<p>"Heueueueue Heueueeut!! Heueueueuek!! Huaaaheu-eut!!"</p>
 
 <p>A night when all senses are stained with filthy and humiliating pleasure.</p>
 

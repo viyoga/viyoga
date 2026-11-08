@@ -10,7 +10,7 @@ chapter = 500
 
 <p>The vibrator, pressed against Shiwoo's glans, is vibrating at maximum intensity at the entrance of her womb.</p>
 
-<p>"Haaeeuuuuuuuung~!"</p>
+<p>"Haaeeuuuuuuuung!"</p>
 
 <p>Mom was making a low moaning sound as if 맞춰 (matching) to the vibration of the vibrator.</p>
 
@@ -72,7 +72,7 @@ chapter = 500
 
 <p>Shiwoo, collapsed on top of Mom's body, brought his lips to her ear.</p>
 
-<p>"Seonmi-ya! I'm going to take Seyoung-ie to Sehee Nuna now and will be right back~! Rest like this for a bit!"</p>
+<p>"Seonmi-ya! I'm going to take Seyoung-ie to Sehee Nuna now and will be right back! Rest like this for a bit!"</p>
 
 <p>Shiwoo speaks gently, as if whispering a secret to Mom's ear.</p>
 

@@ -76,7 +76,7 @@ chapter = 185
 
 <p class="scene-break">· · ·</p>
 
-<p>"Oh~ Shiwoo... you're here~?"</p>
+<p>"Oh Shiwoo... you're here?"</p>
 
 <p>As soon as he entered the academy classroom, Cheoljin greeted Shiwoo with a happy face.</p>
 
@@ -84,7 +84,7 @@ chapter = 185
 
 <p>Shiwoo frowned at Cheoljin and asked abruptly.</p>
 
-<p>"What~?"</p>
+<p>"What?"</p>
 
 <p>Cheoljin asked back at Shiwoo, wearing a sly smile.</p>
 
@@ -92,7 +92,7 @@ chapter = 185
 
 <p>Shiwoo said to Cheoljin in an irritated tone.</p>
 
-<p>"Ah~ I was going to surprise you, but it looks like you already know? Did Sehee tell you?"</p>
+<p>"Ah I was going to surprise you, but it looks like you already know? Did Sehee tell you?"</p>
 
 <p>Cheoljin looked at Shiwoo as if he was sorry that he couldn't play any more pranks because he had been caught.</p>
 
@@ -102,7 +102,7 @@ chapter = 185
 
 <p>Shiwoo said to Cheoljin, raising his voice as if he was flustered.</p>
 
-<p>"What~? We're supposed to be talking as first-year students at a high-end academy today, right? Weren't we all supposed to be friends?"</p>
+<p>"What? We're supposed to be talking as first-year students at a high-end academy today, right? Weren't we all supposed to be friends?"</p>
 
 <p>Cheoljin said jokingly, as if he was a little disappointed by Shiwoo's uncooperative reaction.</p>
 
@@ -118,7 +118,7 @@ chapter = 185
 
 <p>In that situation, seeing Cheoljin calling Sehee Nuna's name so carelessly made Shiwoo feel like his anger was boiling over.</p>
 
-<p>"I have to practice in advance! Puhihi~ What if I try to call Sehee or Sinbi's name when I get there, but Nuna awkwardly comes out?"</p>
+<p>"I have to practice in advance! Puhihi What if I try to call Sehee or Sinbi's name when I get there, but Nuna awkwardly comes out?"</p>
 
 <p>Cheoljin was deliberately trying to provoke Shiwoo, calmly laughing and calling Sehee Nuna and Sinbi Nuna's names again.</p>
 
@@ -126,7 +126,7 @@ chapter = 185
 
 <p>Shiwoo said to Cheoljin in a sharp tone.</p>
 
-<p>"I'm okay with it~? Why? If it's more comfortable for you, Shiwoo, you can do that from now on, right?"</p>
+<p>"I'm okay with it? Why? If it's more comfortable for you, Shiwoo, you can do that from now on, right?"</p>
 
 <p>Cheoljin said to Shiwoo, laughing as if he was joking.</p>
 
@@ -152,11 +152,11 @@ chapter = 185
 
 <p>Cheoljin smelled the perfume on Shiwoo's body and asked as if it was unusual.</p>
 
-<p>"Ah~ I just put on whatever was at home~!"</p>
+<p>"Ah I just put on whatever was at home!"</p>
 
 <p>Shiwoo, who was not used to wearing perfume, omitted the part about receiving it as a gift from his younger sisters and answered awkwardly, as if he was embarrassed.</p>
 
-<p>"Really? That's interesting~"</p>
+<p>"Really? That's interesting"</p>
 
 <p>Cheoljin said as if he was interested in the perfume Shiwoo was wearing.</p>
 
@@ -170,7 +170,7 @@ chapter = 185
 
 <p>Cheoljin suddenly changed the subject from perfume and brought up the underground cafe in the magic academy that Seyoung goes to.</p>
 
-<p>"That cafe? I know it~! I think it was called 'The Witch and the Cat' or something like that?"</p>
+<p>"That cafe? I know it! I think it was called 'The Witch and the Cat' or something like that?"</p>
 
 <p>Shiwoo had never been to that cafe in the basement of the academy, but Seyoung had been singing about it every time they met, so he answered with a familiar feeling.</p>
 
@@ -182,7 +182,7 @@ chapter = 185
 
 <p>Shiwoo answered with a slightly uneasy feeling at Cheoljin's excited expression and asked back.</p>
 
-<p>"Ah~ My mom is going to work there now~ Just part-time for one day a week..."</p>
+<p>"Ah My mom is going to work there now Just part-time for one day a week..."</p>
 
 <p>Cheoljin was telling Shiwoo about Gyuri Ajumma's movements.</p>
 
@@ -202,7 +202,7 @@ chapter = 185
 
 <p>Shiwoo was naturally responding to Cheoljin's words as if he was being led by inertia.</p>
 
-<p>"Have you ever heard of a dark room cafe? It seems like they put up blackout curtains and do it every Wednesday... When you enter, you have to put all your belongings, including your smartphone, wireless earphones, and watch, in the storage box~"</p>
+<p>"Have you ever heard of a dark room cafe? It seems like they put up blackout curtains and do it every Wednesday... When you enter, you have to put all your belongings, including your smartphone, wireless earphones, and watch, in the storage box"</p>
 
 <p>Cheoljin was explaining to Shiwoo what he knew, wearing a triumphant expression.</p>
 

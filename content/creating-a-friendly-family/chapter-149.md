@@ -12,7 +12,7 @@ chapter = 149
 
 <p>In that instant, Shiwoo strongly slapped Sehee-nuna's buttocks.</p>
 
-<p>「Haa-eut~!」</p>
+<p>「Haa-eut!」</p>
 
 <p>Sehee-nuna's moaning sound sprang out, her waist and upper body recoiling as if startled.</p>
 
@@ -24,11 +24,11 @@ chapter = 149
 
 <p>Shiwoo began to slowly move his hips back and forth, matching Sehee-nuna's hand movements.</p>
 
-<p>-Jiiiiiing~!</p>
+<p>-Jiiiiiing!</p>
 
 <p>Shiwoo's smartphone vibrated again as Sehee-nuna's hand touched it.</p>
 
-<p>「Haa-aang Haa-eung Haaaa-aah~」</p>
+<p>「Haa-aang Haa-eung Haaaa-aah」</p>
 
 <p>In response, Seonju Imo's almost hysterical cries of pleasure could be heard from the changing room.</p>
 

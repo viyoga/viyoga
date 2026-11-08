@@ -78,7 +78,7 @@ chapter = 790
 
 <p>A mischievous smile spread across Shiwoo's lips as he moved his arm down to Mom's waist, pulling her body even tighter against him.</p>
 
-<p>"So what? It's proof that Mom belongs to me... everyone else will just know that too~!"</p>
+<p>"So what? It's proof that Mom belongs to me... everyone else will just know that too!"</p>
 
 <p>Shiwoo squared his shoulders and spoke in a clear voice, loud enough for those nearby to hear.</p>
 
@@ -94,7 +94,7 @@ chapter = 790
 
 <p>She strangely mixed her usual playful vibe with that of a lewd slave, stimulating Shiwoo's desire for conquest and his protective instinct all at once, sweeping him up in a peculiar mood.</p>
 
-<p>"I said I wouldn't do it, I didn't say I hated the idea~? If Mom had begged me even more miserably than before, I might have actually turned you into a total slut for the rest of the day~"</p>
+<p>"I said I wouldn't do it, I didn't say I hated the idea? If Mom had begged me even more miserably than before, I might have actually turned you into a total slut for the rest of the day"</p>
 
 <p>Shiwoo wore an arrogant smile, finding her trembling reaction to the shame amusing, and spoke while scanning her entire body—already defiled by his traces—with an even more explicit gaze.</p>
 
@@ -106,15 +106,15 @@ chapter = 790
 
 <p>"Are you back in your right mind now? Seeing how you're talking about that so easily, I don't think so? Hehehe..."</p>
 
-<p>"Well~ I only said no for outside, it doesn't matter at all at home, right~? Should I do it for you at home tonight? Turn you into a real slut?"</p>
+<p>"Well I only said no for outside, it doesn't matter at all at home, right? Should I do it for you at home tonight? Turn you into a real slut?"</p>
 
-<p>"We could go for a walk to the park at dawn with you completely naked and only wearing a collar~~ Or if that's too hard at first, you could stand naked on the balcony for an hour with a vibrator inside you~~ like you're being punished~"</p>
+<p>"We could go for a walk to the park at dawn with you completely naked and only wearing a collar Or if that's too hard at first, you could stand naked on the balcony for an hour with a vibrator inside you like you're being punished"</p>
 
 <p>Shiwoo leaned in even closer to Mom, whispering the secret proposal just below her earlobe.</p>
 
 <p>Mom glanced at Shiwoo and hesitated for a long time, her lips fluttering as if she couldn't find the words, before finally dropping her gaze again without an answer.</p>
 
-<p>"I guess you don't hate it, though? Seeing how you're hesitating and thinking about it instead of refusing right away~?"</p>
+<p>"I guess you don't hate it, though? Seeing how you're hesitating and thinking about it instead of refusing right away?"</p>
 
 <p>Shiwoo persistently tormented Mom as if she were a toy, crushing her crumbling pride into tiny pieces and indulging in the sensation of those fragments.</p>
 
@@ -128,6 +128,6 @@ chapter = 790
 
 <p>Then, Shiwoo smiled as if something had suddenly crossed his mind.</p>
 
-<p>"Wait a second~!"</p>
+<p>"Wait a second!"</p>
 
 <p>Shiwoo unzipped the bag he was carrying and began hurriedly rummaging through its contents.</p>

@@ -66,7 +66,7 @@ chapter = 203
 
 <p>Shiwoo commanded Sehee Nuna once again in a tone as if scolding her coercively.</p>
 
-<p>"Yes... sniff ... I... I put my hands above my head~ Master-nim sniff ..."</p>
+<p>"Yes... sniff ... I... I put my hands above my head Master-nim sniff ..."</p>
 
 <p>Sehee Nuna sobbed sadly, as if she had been caught smoking by her Mom and scolded.</p>
 
@@ -114,7 +114,7 @@ chapter = 203
 
 <p>Shiwoo was now preparing for the last spurt towards climax.</p>
 
-<p>-Hnnng~ Hnnng~ Haaah~! Hnnng~~ Haaah~!</p>
+<p>-Hnnng Hnnng Haaah! Hnnng Haaah!</p>
 
 <p>Sehee Nuna gripped the bed sheet tightly with both hands raised above her head and was groaning helplessly, as if entrusting everything to Shiwoo's pounding.</p>
 
@@ -124,15 +124,15 @@ chapter = 203
 
 <p>Sehee Nuna's vagina walls clung to Shiwoo's penis, creating tremendous pressure.</p>
 
-<p>"Ah~ Sehee-ya~!! Hnnng"</p>
+<p>"Ah Sehee-ya!! Hnnng"</p>
 
 <p>Shiwoo called Sehee Nuna's name loudly, as if he had reached climax.</p>
 
-<p>"Master-nim~~ Haaah~!! Haaah~!"</p>
+<p>"Master-nim Haaah!! Haaah!"</p>
 
 <p>Sehee Nuna, lying under Shiwoo's body, made a violent tremor once again, moaning.</p>
 
-<p>-Pshhh~! Pshhh~! Pshhh!</p>
+<p>-Pshhh! Pshhh! Pshhh!</p>
 
 <p>Shiwoo inserted his massive rod deeply and poured out his semen as if injecting it into Sehee Nuna's vagina hole.</p>
 
@@ -164,7 +164,7 @@ chapter = 203
 
 <p>'S... W... Y...'</p>
 
-<p>"Hnnng~... Hnnng~... Haaah~!"</p>
+<p>"Hnnng... Hnnng... Haaah!"</p>
 
 <p>Sehee Nuna's body writhed as if twisting whenever Shiwoo's finger drew a line, and each letter was engraved on Sehee Nuna's sensitive skin.</p>
 
@@ -172,7 +172,7 @@ chapter = 203
 
 <p>Shiwoo engraved his name with his finger initials on the bare inside thigh flesh of Sehee Nuna and then spoke to Sehee Nuna as if threatening her.</p>
 
-<p>"Yes... I... I'll do as Master-nim says. I... I'm going to live as Master-nim's slave from now on~"</p>
+<p>"Yes... I... I'll do as Master-nim says. I... I'm going to live as Master-nim's slave from now on"</p>
 
 <p>Sehee Nuna answered obediently to Shiwoo's words, as if submitting.</p>
 
@@ -218,6 +218,6 @@ chapter = 203
 
 <p>Shiwoo seemed to be contemplating for a moment and then wrote and sent a text message.</p>
 
-<p>'Mom! You told me to think about what to do in the future when you come back, right? So I thought about it... I want to get Sehee pregnant~!"</p>
+<p>'Mom! You told me to think about what to do in the future when you come back, right? So I thought about it... I want to get Sehee pregnant!"</p>
 
 <p>Shiwoo sent the audaciously written text message to Mom.</p>

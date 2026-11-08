@@ -40,7 +40,7 @@ chapter = 59
 
 <p>Sehee Nuna was nowhere to be seen.</p>
 
-<p>「Our Shiwoo~!! Did you have a good time with Sehee at the department store~? Kikik」</p>
+<p>「Our Shiwoo!! Did you have a good time with Sehee at the department store? Kikik」</p>
 
 <p>Seonju Imo's face was slightly flushed.</p>
 
@@ -54,7 +54,7 @@ chapter = 59
 
 <p>Seonju Imo pointed towards Seyoung and spoke cheerfully.</p>
 
-<p>「Oppa, thank you! The pajamas are so pretty~ I'll really wear them well~ Hehe~」</p>
+<p>「Oppa, thank you! The pajamas are so pretty I'll really wear them well Hehe」</p>
 
 <p>Seyoung, hugging the pajamas Shiwoo bought her to her chest, was delighted.</p>
 
@@ -62,7 +62,7 @@ chapter = 59
 
 <p>-Hugging a gift stained with Sehee Nuna's vaginal fluid-</p>
 
-<p>「Oh... really? That's good~」</p>
+<p>「Oh... really? That's good」</p>
 
 <p>Shiwoo couldn't meet Seyoung's eyes and subtly scanned her body.</p>
 
@@ -76,7 +76,7 @@ chapter = 59
 
 <p>Shiwoo hastily looked around, searching for Sehee Nuna to hide his awkwardness.</p>
 
-<p>「Sehee just went upstairs to change~ It'd be great if Sehee could also just take off her clothes and relax at home now, wouldn't it? Kikik~」</p>
+<p>「Sehee just went upstairs to change It'd be great if Sehee could also just take off her clothes and relax at home now, wouldn't it? Kikik」</p>
 
 <p>Seonju Imo answered, almost defenseless, sprawled against the sofa backrest, exposing her breasts.</p>
 
@@ -92,15 +92,15 @@ chapter = 59
 
 <p>「Uh... Mom gave me permission, so it's fine.」</p>
 
-<p>「Aren't you overdoing it with expensive stuff? You said Seyoung's pajamas were from a luxury brand store too? Where do you even get that kind of money~」</p>
+<p>「Aren't you overdoing it with expensive stuff? You said Seyoung's pajamas were from a luxury brand store too? Where do you even get that kind of money」</p>
 
-<p>「I got an advance on my allowance from Mom, so you don't have to worry~! I'm going to pay it back slowly~」</p>
+<p>「I got an advance on my allowance from Mom, so you don't have to worry! I'm going to pay it back slowly」</p>
 
-<p>「Hmm~ Is that so~?!」</p>
+<p>「Hmm Is that so?!」</p>
 
 <p>Seonju Imo seemed to pause, as if about to continue speaking.</p>
 
-<p>「Ah~ anyway, I'm kind of jealous~ I wonder if anyone will give me clothes as a gift~?!」</p>
+<p>「Ah anyway, I'm kind of jealous I wonder if anyone will give me clothes as a gift?!」</p>
 
 <p>Seonju Imo said that as if pouting, then gulped down her beer.</p>
 
@@ -124,7 +124,7 @@ chapter = 59
 
 <p>Shiwoo feigned ignorance at Seonju Imo's words and lied in response.</p>
 
-<p>「She brought Seyoung over without a word in the middle of the night, I was really startled, thinking something had happened at home~」</p>
+<p>「She brought Seyoung over without a word in the middle of the night, I was really startled, thinking something had happened at home」</p>
 
 <p>Seonju Imo was talking to Shiwoo with a slightly exaggerated tone and expression.</p>
 
@@ -132,7 +132,7 @@ chapter = 59
 
 <p>Shiwoo subtly inquired about Mom's well-being.</p>
 
-<p>「How is she~!!! She won't answer no matter what I ask~!! She's just sighing deeply all day long~!! And you know what? She's just staring blankly at her smartphone the whole time~?!」</p>
+<p>「How is she!!! She won't answer no matter what I ask!! She's just sighing deeply all day long!! And you know what? She's just staring blankly at her smartphone the whole time?!」</p>
 
 <p>Seonju Imo spoke to Shiwoo, playfully laughing, in a tone that made it impossible to tell if she was worried about Mom or simply enjoying the situation.</p>
 
@@ -156,7 +156,7 @@ chapter = 59
 
 <p>Shiwoo was greatly startled by Seonju Imo's words.</p>
 
-<p>「Why are you so surprised again? At your Mom's age, it'd be stranger if she didn't have one~!! Shiwoo, have you noticed anything recently?」</p>
+<p>「Why are you so surprised again? At your Mom's age, it'd be stranger if she didn't have one!! Shiwoo, have you noticed anything recently?」</p>
 
 <p>Seonju Imo questioned Shiwoo, seemingly amused.</p>
 
@@ -164,7 +164,7 @@ chapter = 59
 
 <p>Shiwoo stammered, making an awkward excuse.</p>
 
-<p>「Normally, my sister and I don't keep secrets about things like this, so it's strange~ You really don't know?」</p>
+<p>「Normally, my sister and I don't keep secrets about things like this, so it's strange You really don't know?」</p>
 
 <p>Seonju Imo continued to press Shiwoo with a playful voice, as if interrogating him.</p>
 
@@ -174,7 +174,7 @@ chapter = 59
 
 <p>Seonju Imo gave Shiwoo a playful glare.</p>
 
-<p>「Well, then there's nothing I can do~ I wonder if Gyuri Unnie knows~~?...」</p>
+<p>「Well, then there's nothing I can do I wonder if Gyuri Unnie knows?...」</p>
 
 <p>Seonju Imo spoke as if to herself, drawing out the end of her sentence.</p>
 
@@ -190,11 +190,11 @@ chapter = 59
 
 <p>Below, she wore the black silk pleated skirt Shiwoo had bought with her today.</p>
 
-<p>「Wow~~ you're wearing it? As expected, Sehee takes after me, her style is great~~ Shiwoo, what do you think?」</p>
+<p>「Wow you're wearing it? As expected, Sehee takes after me, her style is great Shiwoo, what do you think?」</p>
 
 <p>Seonju Imo turned to Shiwoo and asked.</p>
 
-<p>「Uh... Sehee Nuna is always pretty, you know~」</p>
+<p>「Uh... Sehee Nuna is always pretty, you know」</p>
 
 <p>Shiwoo answered inadvertently.</p>
 
@@ -208,7 +208,7 @@ chapter = 59
 
 <p>Shiwoo glanced at Seonju Imo's breasts as he answered.</p>
 
-<p>「Right~? Kikik~!!!」</p>
+<p>「Right? Kikik!!!」</p>
 
 <p>Seonju Imo looked at Shiwoo, smiling contentedly.</p>
 
@@ -220,17 +220,17 @@ chapter = 59
 
 <p>「No... not yet.」</p>
 
-<p>「I put the side dishes in the fridge, just wait a bit~」</p>
+<p>「I put the side dishes in the fridge, just wait a bit」</p>
 
 <p>Seonju Imo rose from the sofa and headed to the kitchen.</p>
 
 <p>Seonju Imo's beautifully sculpted back and her luscious, ample buttocks were revealed before Shiwoo's eyes.</p>
 
-<p>「Ah, I... I'll do it~ Seonju Imo~!!」</p>
+<p>「Ah, I... I'll do it Seonju Imo!!」</p>
 
 <p>Shiwoo followed Seonju Imo into the kitchen, watching her ample buttocks.</p>
 
-<p>「No, I'm here for a change, so I'll just set this out and go~ You told Mom you wanted fried rice, didn't you?」</p>
+<p>「No, I'm here for a change, so I'll just set this out and go You told Mom you wanted fried rice, didn't you?」</p>
 
 <p>Seonju Imo bent slightly, taking out several sealed containers from the refrigerator.</p>
 
@@ -238,13 +238,13 @@ chapter = 59
 
 <p>「Yeah... b-but you're not going to eat with us?」</p>
 
-<p>「I have to go eat there, Unnie is waiting~ Shiwoo, if you had come a little earlier, I would have gotten a massage before leaving~」</p>
+<p>「I have to go eat there, Unnie is waiting Shiwoo, if you had come a little earlier, I would have gotten a massage before leaving」</p>
 
 <p>「M-massage?」</p>
 
-<p>「Yeah~ I was going to give you some allowance if you made me feel good like yesterday, but it's a shame~」</p>
+<p>「Yeah I was going to give you some allowance if you made me feel good like yesterday, but it's a shame」</p>
 
-<p>「Ah~ that's a pity~!!」</p>
+<p>「Ah that's a pity!!」</p>
 
 <p>Shiwoo, now accustomed to looking at Seonju Imo's body while exchanging conversation with her.</p>
 
@@ -252,7 +252,7 @@ chapter = 59
 
 <p>Seonju Imo said, turning to Shiwoo.</p>
 
-<p>「Yeah, I'll do it~ Just like yesterday, right?」</p>
+<p>「Yeah, I'll do it Just like yesterday, right?」</p>
 
 <p>Shiwoo looked directly into Seonju Imo's eyes as she turned to him and answered.</p>
 
@@ -264,7 +264,7 @@ chapter = 59
 
 <p class="scene-break">· · ·</p>
 
-<p>「Oppa, me too~!!」</p>
+<p>「Oppa, me too!!」</p>
 
 <p>Seyoung, who had followed him into the kitchen at some point, suddenly startled Shiwoo and spoke.</p>
 
@@ -274,11 +274,11 @@ chapter = 59
 
 <p>Shiwoo reacted, seemingly flustered by the sight of Seyoung.</p>
 
-<p>「Kkareureu~~!!! Shiwoo, why are you so startled? You're really funny~~」</p>
+<p>「Kkareureu!!! Shiwoo, why are you so startled? You're really funny」</p>
 
 <p>Seonju Imo said, teasing Shiwoo.</p>
 
-<p>「Hehehe~」</p>
+<p>「Hehehe」</p>
 
 <p>Seyoung was playfully laughing.</p>
 

@@ -40,7 +40,7 @@ chapter = 219
 
 <p>Shiwoo's 'thing', as it flexed, widened Mom's vagina hole.</p>
 
-<p>"Heeu-eut~"</p>
+<p>"Heeu-eut"</p>
 
 <p>Mom moaned, struggling with Shiwoo's penis filling her body.</p>
 
@@ -94,11 +94,11 @@ chapter = 219
 
 <p>Inside the oversized T-shirt, Mom's large, elastic breasts swayed downwards, affected by gravity.</p>
 
-<p>-Jjil-geok~ Jjil-geok~ Jjil-geok~!</p>
+<p>-Jjil-geok Jjil-geok Jjil-geok!</p>
 
 <p>Shiwoo slowly began to move his hips again.</p>
 
-<p>"Haaa-aa~ Haeu~ Haaa-aa~"</p>
+<p>"Haaa-aa Haeu Haaa-aa"</p>
 
 <p>Mom's rough gasps were audible.</p>
 
@@ -108,7 +108,7 @@ chapter = 219
 
 <p>Shiwoo, as if milking Mom, repeatedly pulled her nipples downwards with his thumb and forefinger.</p>
 
-<p>"Haeu-eut~! Haeut~! Haeu-eut!"</p>
+<p>"Haeu-eut! Haeut! Haeu-eut!"</p>
 
 <p>Mom's gasps became much rougher than before.</p>
 
@@ -178,7 +178,7 @@ chapter = 219
 
 <p>Shiwoo's palm again landed on Mom's firm, voluminous buttocks.</p>
 
-<p>"Haat! Heu-eueu~~"</p>
+<p>"Haat! Heu-eueu"</p>
 
 <p>Mom let out a small, single gasp and a sorrowful sob, then relaxed her arms.</p>
 
@@ -236,7 +236,7 @@ chapter = 219
 
 <p>And then she boldly pushed her lips forward, covering Mom's lips.</p>
 
-<p>"Uu-eup! Eup~!"</p>
+<p>"Uu-eup! Eup!"</p>
 
 <p>Mom, impaled by Shiwoo's penis in doggy style and held by her arms, was in no position to avoid Seonju's kiss.</p>
 

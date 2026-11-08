@@ -104,7 +104,7 @@ chapter = 198
 
 <p>And then, a moment later, Gyuri Ajumma entered.</p>
 
-<p>"Oh~ Mom's here?"</p>
+<p>"Oh Mom's here?"</p>
 
 <p>Cheoljin raised his hand, happily greeting his Mom.</p>
 
@@ -164,7 +164,7 @@ chapter = 198
 
 <p>Yu Yena Teacher opened the police station's glass door and walked in towards Shiwoo.</p>
 
-<p>"Shiwoo~ Sehee~ You've waited a long time, haven't you? I got the call and came to pick you up~ Fufut!"</p>
+<p>"Shiwoo Sehee You've waited a long time, haven't you? I got the call and came to pick you up Fufut!"</p>
 
 <p>Shiwoo felt his head go blank for a moment.</p>
 
@@ -186,7 +186,7 @@ chapter = 198
 
 <p class="scene-break">· · ·</p>
 
-<p>"It seems Sinbi arrived home safely~"</p>
+<p>"It seems Sinbi arrived home safely"</p>
 
 <p>Yu Yena Teacher, who had been walking for a while after leaving the police station, turned back to Shiwoo and Sehee Nuna, who were following her, and said.</p>
 

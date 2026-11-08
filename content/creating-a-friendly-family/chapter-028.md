@@ -18,11 +18,11 @@ chapter = 28
 
 <p>Mom saw Shiwoo coming out of the dressing room, approached him, and, with a fed-up expression, made a fist and tapped him on the Head as if playfully hitting him. It was a playful gesture that didn't feel painful at all.</p>
 
-<p>"Aish~! You should have been gentle~! You almost killed Gyuri for real~!"</p>
+<p>"Aish! You should have been gentle! You almost killed Gyuri for real!"</p>
 
 <p>Mom had condoned the sexual Massage and Erection that her son had given to her aunt and her Friend. Moreover, she had even taken off her Panties after hearing Shiwoo's words of molestation and teasing, so perhaps she wanted to assert her superficial authority as a Mother, scolding Shiwoo only after everything was over.</p>
 
-<p>"Okay~ okay~ I'll be gentle when I do it with Mom~" Shiwoo replied with a smile, relaxed.</p>
+<p>"Okay okay I'll be gentle when I do it with Mom" Shiwoo replied with a smile, relaxed.</p>
 
 <p>Shiwoo felt that Mom's attitude and actions towards him were like role-playing in a children's game. Right now, Mom wanted the roles of a Mother scolding her son for his misdeeds and a son playfully deflecting the situation, and Shiwoo was faithfully acting according to Mom's demands. In fact, Mom's heart was a bit complicated and confused. Through a chance opportunity, Mom had realized her nightly Seduction of her son, something a Mother should never do. A son full of sexual Desire for his Mother.</p>
 
@@ -32,13 +32,13 @@ chapter = 28
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo, go to the convenience store and buy some hangover cures~! The kids won't be able to go home like this~ You know, the ones that come in powder form, right?"</p>
+<p>"Shiwoo, go to the convenience store and buy some hangover cures! The kids won't be able to go home like this You know, the ones that come in powder form, right?"</p>
 
 <p>Mom gave Shiwoo her Card, seemingly speaking with a more deliberately flustered tone. Shiwoo took the Card from Mom and headed to the convenience store. After coming out in front of the house, Shiwoo sent a text message to Mom. 'Mom' 'Why?' Mom replied immediately. 'Are you angry?' Shiwoo knew that Mom wasn't angry, but he asked to check Mom's mood. 'I'm not angry, why would Mom be angry?' 'Because I had an affair with Gyuri Ajumma?' Shiwoo asked, probing.</p>
 
-<p>'Oh, please~! Anyone would think you and I are Lovers~!?' 'Weren't we Lovers? Then I think we could be now?' Shiwoo joked to Mom playfully. 'Hello, I'm still your Mother, okay?' Mom accepted the Joke in a playful tone, but clearly drew a line. 'Haha, so we're still Mother and son for now?' Shiwoo asked, as if confirming his current Relationship with Mom. 'Why are you saying the obvious?' Mom seemed to have sorted things out to some extent. 'Is it okay that I took off Mom's Panties?' Shiwoo said, teasing Mom for no reason.</p>
+<p>'Oh, please! Anyone would think you and I are Lovers!?' 'Weren't we Lovers? Then I think we could be now?' Shiwoo joked to Mom playfully. 'Hello, I'm still your Mother, okay?' Mom accepted the Joke in a playful tone, but clearly drew a line. 'Haha, so we're still Mother and son for now?' Shiwoo asked, as if confirming his current Relationship with Mom. 'Why are you saying the obvious?' Mom seemed to have sorted things out to some extent. 'Is it okay that I took off Mom's Panties?' Shiwoo said, teasing Mom for no reason.</p>
 
-<p>'Aish~! You really only make Mom do weird things~! You make me do things like that and now you're asking if it's okay?' As expected, Mom seemed embarrassed. 'Mom, when we go out for dinner tonight, wear the skirt I pick out, okay?' Shiwoo recalled a short skirt that Mom had worn a long time ago and tried to give Mom instructions. 'I don't know~! I'm embarrassed now~!' Mom expressed her emotions, acting coy as if refusing. Shiwoo found such a Mom very cute.</p>
+<p>'Aish! You really only make Mom do weird things! You make me do things like that and now you're asking if it's okay?' As expected, Mom seemed embarrassed. 'Mom, when we go out for dinner tonight, wear the skirt I pick out, okay?' Shiwoo recalled a short skirt that Mom had worn a long time ago and tried to give Mom instructions. 'I don't know! I'm embarrassed now!' Mom expressed her emotions, acting coy as if refusing. Shiwoo found such a Mom very cute.</p>
 
 <p>Shiwoo was very happy that he was able to have this kind of conversation with Mom via text message. Thinking about the special night he would spend with Mom again, his steps felt lighter with anticipation.</p>
 
@@ -50,7 +50,7 @@ chapter = 28
 
 <p>Shiwoo went to the dining table, handed Mom the plastic bag containing the hangover cures, and spoke to Gyuri Ajumma.</p>
 
-<p>"Yes, I feel refreshed thanks to Shiwoo~ Can I ask Shiwoo for a Massage again next time?"</p>
+<p>"Yes, I feel refreshed thanks to Shiwoo Can I ask Shiwoo for a Massage again next time?"</p>
 
 <p>Gyuri Ajumma smiled casually in front of Mom and talked about the Massage. Shiwoo glanced at Mom's expression. Mom was pretending not to know, looking elsewhere as if hiding her expression. She picked up the cup filled with water and drank it.</p>
 

@@ -12,7 +12,7 @@ chapter = 11
 
 <p>「Yeah, got it. Just pick up the blindfold, right? I'll be back.」</p>
 
-<p>「Alright, be careful on your way~」</p>
+<p>「Alright, be careful on your way」</p>
 
 <p>With her son's farewell as the last, Seonmi had sent all the children to their academies.</p>
 
@@ -146,7 +146,7 @@ chapter = 11
 
 <p>Her aunt began to speak, taking Sehee's side.</p>
 
-<p>「Good at it, my ass! That sly fox is just teasing Shiwoo~」</p>
+<p>「Good at it, my ass! That sly fox is just teasing Shiwoo」</p>
 
 <p>Seonmi, who had seen Shiwoo being teased that morning, reacted with even more excitement to Seonju's words, feeling sorry for him.</p>
 
@@ -194,7 +194,7 @@ chapter = 11
 
 <p>For Seonmi, whose maternal self was strong, that was too cruel a thing.</p>
 
-<p>「Alright, Unnie, let's all see Gyuri Unnie on the weekend~ I'm leaving!」</p>
+<p>「Alright, Unnie, let's all see Gyuri Unnie on the weekend I'm leaving!」</p>
 
 <p>After chatting for about 30 more minutes, Seonju said her goodbyes, promising to meet again, and left.</p>
 

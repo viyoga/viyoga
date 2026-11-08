@@ -8,7 +8,7 @@ chapter = 635
 
 <p>It was a corner seat next to an area decorated like a central stage, a spot that seemed to slightly veer away from the buzzing noise and the passing gazes of people. Bookshelves of a moderate height were erected like partitions or walls, dividing the space and naturally allowing him to keep his distance from the surroundings. At the same time, by turning his head just a little or looking through the gaps between the bookshelves, the overall scenery of the cafe could be read clearly from that seat.</p>
 
-<p>"Enjoy your time~"</p>
+<p>"Enjoy your time"</p>
 
 <p>The young waitress-noona who had guided him gave a bright smile and a greeting before heading back toward the entrance they had come through. Her voluptuous backside swayed provocatively and smoothly, catching Shiwoo's gaze.</p>
 
@@ -38,7 +38,7 @@ chapter = 635
 
 <p class="scene-break">· · ·</p>
 
-<p>"May I help you with your order~?"</p>
+<p>"May I help you with your order?"</p>
 
 <p>Just as he was swept up in that heat while scanning his surroundings, a kind yet clear voice pierced Shiwoo's ear.</p>
 
@@ -48,7 +48,7 @@ chapter = 635
 
 <p>She was a different employee from the noona who had guided him inside. Wearing a pale cream shirt and a dark brown apron that suited the comfortable cafe atmosphere, she held the menu as if cradling it with both hands. This waitress, who gave off the vibe of a high-end academy student or a college student, possessed a strangely alluring charm. Her impression was similar to the noona from before, but the atmosphere she radiated felt slightly different.</p>
 
-<p>"If you order the event beverage now, we'll include a tarot card reading~"</p>
+<p>"If you order the event beverage now, we'll include a tarot card reading"</p>
 
 <p>The waitress slightly lifted the menu and smiled softly.</p>
 
@@ -56,17 +56,17 @@ chapter = 635
 
 <p>Shiwoo looked at the waitress with an interested expression at the mention of tarot cards.</p>
 
-<p>"Yes, it's a special event only for today~! Since trainees are conducting it, the price is really cheap! We'll even give you a coupon you can use the next time you visit."</p>
+<p>"Yes, it's a special event only for today! Since trainees are conducting it, the price is really cheap! We'll even give you a coupon you can use the next time you visit."</p>
 
 <p>The waitress leaned toward Shiwoo with a playful smile.</p>
 
-<p>"You don't know when we'll do this again if you miss it today~? You might really regret it if you just leave~"</p>
+<p>"You don't know when we'll do this again if you miss it today? You might really regret it if you just leave"</p>
 
 <p>She brought her lips close to Shiwoo's ear and spoke as if sharing a secret. It was a playful, aegyo -filled tone, but within it, he felt a brazenness that shamelessly pushed him.</p>
 
-<p>"I recommend this drink! Roseberry Cream Soda! It's my personal favorite~"</p>
+<p>"I recommend this drink! Roseberry Cream Soda! It's my personal favorite"</p>
 
-<p>"I think it would suit you well, too~ What do you think?"</p>
+<p>"I think it would suit you well, too What do you think?"</p>
 
 <p>The waitress straightened her leaning body and tapped a bright photo on the menu, wearing a triumphant smile.</p>
 
@@ -74,7 +74,7 @@ chapter = 635
 
 <p>As she winked while leading the conversation playfully, Shiwoo stared at her with a dazed face for a moment before nodding awkwardly.</p>
 
-<p>"I'll have the drink ready for you right away~ I think you'll need a blanket too, so I'll bring one over.. egugung ~"</p>
+<p>"I'll have the drink ready for you right away I think you'll need a blanket too, so I'll bring one over.. egugung "</p>
 
 <p>She glanced at the bag covering Shiwoo's front and spoke in an exaggerated, embarrassed tone.</p>
 
@@ -112,6 +112,6 @@ chapter = 635
 
 <p class="scene-break">· · ·</p>
 
-<p>"Roseberry Cream Soda is here~!"</p>
+<p>"Roseberry Cream Soda is here!"</p>
 
 <p>Just then, the waitress's voice reached Shiwoo. With a playful smile, the waitress approached Shiwoo's table and set down the drink.</p>

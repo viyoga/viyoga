@@ -112,11 +112,11 @@ chapter = 96
 
 <p>-She said it was okay to take them off in exchange for sending the photo of her breastfeeding Seyoung-</p>
 
-<p>"I was wearing my panties again, still covered in semen, as a sign of truly regretting being rude to you~ Heeing~"</p>
+<p>"I was wearing my panties again, still covered in semen, as a sign of truly regretting being rude to you Heeing"</p>
 
 <p>Seonju Imo in the video is looking at the camera as if conveying it to Shiwoo.</p>
 
-<p>"I kept my panties constantly soaked with your semen so it wouldn't dry out~ You'll forgive me, right?"</p>
+<p>"I kept my panties constantly soaked with your semen so it wouldn't dry out You'll forgive me, right?"</p>
 
 <p>Seonju Imo brings the orange panties she just took off to the camera that Sua is holding.</p>
 
@@ -124,7 +124,7 @@ chapter = 96
 
 <p>The panties caught close to the camera were wet and sticky, mixed with semen and slippery vaginal fluid.</p>
 
-<p>"Look at this~ Your thing kept flowing out from the inside~~"</p>
+<p>"Look at this Your thing kept flowing out from the inside"</p>
 
 <p>Seonju Imo was showing off her wet panties as if she was proud of something.</p>
 
@@ -132,7 +132,7 @@ chapter = 96
 
 <p>Seonju Imo briefly makes a playful expression and glances at the camera.</p>
 
-<p>"Wait, I'll show you something fun, honey~"</p>
+<p>"Wait, I'll show you something fun, honey"</p>
 
 <p>After saying that, Seonju Imo suddenly brings the front of her panties to her mouth.</p>
 
@@ -140,7 +140,7 @@ chapter = 96
 
 <p>And for a moment, she rolls the secretions on her tongue in her mouth as if savoring the taste.</p>
 
-<p>'It's strong~?! Would this be a little stimulating? Kikik"</p>
+<p>'It's strong?! Would this be a little stimulating? Kikik"</p>
 
 <p>After saying that, Seonju Imo brings the panties to her nipple that Seyoung had just been sucking on and rubs it against it.</p>
 
@@ -218,7 +218,7 @@ chapter = 96
 
 <p>Shiwoo takes a deep breath.</p>
 
-<p>"Sehee Nuna! I'm coming in~!!!"</p>
+<p>"Sehee Nuna! I'm coming in!!!"</p>
 
 <p>Shiwoo shouts as if without any explanation and suddenly opens the shower room door and enters.</p>
 

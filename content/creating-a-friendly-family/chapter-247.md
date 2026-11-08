@@ -20,25 +20,25 @@ chapter = 247
 
 <p>Mom replied, sounding a bit dissatisfied.</p>
 
-<p>'But why aren't you replying right away?! Mom always gets quiet when she's sulking, doesn't she~? Or not?'</p>
+<p>'But why aren't you replying right away?! Mom always gets quiet when she's sulking, doesn't she? Or not?'</p>
 
 <p>Shiwoo rebukes Mom, speaking as if nagging.</p>
 
-<p>'Aish~ It's not that! It's just that I'm speechless thinking about you staying at home like this until you get married, Shiwoo~!'</p>
+<p>'Aish It's not that! It's just that I'm speechless thinking about you staying at home like this until you get married, Shiwoo!'</p>
 
 <p>It seemed Mom felt very frustrated and overwhelmed by the slave play with Shiwoo that had become a reality.</p>
 
 <p>Mom complains to Shiwoo as if worried about the future.</p>
 
-<p>'What's wrong with it~? It's much better than being like that all day long~! Isn't it? I'm taking care of Mom in my own way~! And Mom seems to think it'll end when I marry another woman? I'm planning to live in this house with Mom even after I get married? Hehehe.'</p>
+<p>'What's wrong with it? It's much better than being like that all day long! Isn't it? I'm taking care of Mom in my own way! And Mom seems to think it'll end when I marry another woman? I'm planning to live in this house with Mom even after I get married? Hehehe.'</p>
 
 <p>Shiwoo sends a text to Mom, who is worried about the future, making a mischievous joke as if teasing her.</p>
 
-<p>'Seriously~! Is that something you should be saying~?!'</p>
+<p>'Seriously! Is that something you should be saying?!'</p>
 
 <p>Mom reacted to Shiwoo's playful joke as if getting angry.</p>
 
-<p>'What~? When you think about it, it's not impossible~! Why would I marry someone else when I have such a pretty Mom? Anyway, in the current situation, if I coax and persuade Seyoung well, isn't it possible enough?'</p>
+<p>'What? When you think about it, it's not impossible! Why would I marry someone else when I have such a pretty Mom? Anyway, in the current situation, if I coax and persuade Seyoung well, isn't it possible enough?'</p>
 
 <p>Shiwoo continued to make jokes as if provoking Mom.</p>
 
@@ -46,21 +46,21 @@ chapter = 247
 
 <p>Mom received Shiwoo's joke in a quarrelsome tone, countering as if tackling him.</p>
 
-<p>'Then tonight, how about trying out being my wife instead of a slave? Mom is pretty close to my ideal type anyway~ Plus, Mom is already saved as my main wife on my smartphone~ Hehehe. I'm confident I'll treat Mom really well if I marry her? Kkk.'</p>
+<p>'Then tonight, how about trying out being my wife instead of a slave? Mom is pretty close to my ideal type anyway Plus, Mom is already saved as my main wife on my smartphone Hehehe. I'm confident I'll treat Mom really well if I marry her? Kkk.'</p>
 
 <p>Shiwoo continues to joke around, teasing and making fun of Mom with playful jokes.</p>
 
-<p>'Haaigu~! Is that what someone who touches his Nuna, Imo, and even Mom's friends while Mom is away from home says?!'</p>
+<p>'Haaigu! Is that what someone who touches his Nuna, Imo, and even Mom's friends while Mom is away from home says?!'</p>
 
 <p>Mom, who had already returned to her usual attitude towards her son, says, as if trying to embarrass him by twisting his words and actions.</p>
 
-<p>'Hehehehe~'</p>
+<p>'Hehehehe'</p>
 
 <p>Shiwoo sends a text, expressing an inwardly pleasant awkwardness at Mom's jealousy-mixed remark.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>'But Mom~! Do you know what time it is now? Whatever the case, it seems like it's time for you to use formal speech to me now?'</p>
+<p>'But Mom! Do you know what time it is now? Whatever the case, it seems like it's time for you to use formal speech to me now?'</p>
 
 <p>Shiwoo was making Mom aware of the newly created rule, speaking as if giving her a warning.</p>
 
@@ -68,7 +68,7 @@ chapter = 247
 
 <p>A reply consisting of ellipses comes from Mom.</p>
 
-<p>'Is Seonmi angry~?'</p>
+<p>'Is Seonmi angry?'</p>
 
 <p>Shiwoo was speaking as if trying to heighten her shame as a mother, even though he clearly knew Mom wasn't angry.</p>
 
@@ -80,7 +80,7 @@ chapter = 247
 
 <p>Shiwoo continued to bother her, asking questions as if trying to gauge Mom's intentions.</p>
 
-<p>'I'm thinking~'</p>
+<p>'I'm thinking'</p>
 
 <p>Mom replies to Shiwoo's question as if detached.</p>
 
@@ -92,13 +92,13 @@ chapter = 247
 
 <p>Mom now answers Shiwoo's persistent questions without wavering or avoiding them.</p>
 
-<p>'What is there to think about~?'</p>
+<p>'What is there to think about?'</p>
 
-<p>'Now that it's come to this, you can just follow everything I tell you like Seonju or Sehee~ Hehehe.'</p>
+<p>'Now that it's come to this, you can just follow everything I tell you like Seonju or Sehee Hehehe.'</p>
 
 <p>Shiwoo was subtly forcing a submissive attitude, speaking to Mom as if cornering her.</p>
 
-<p>'Aiyu~ Seriously~! Shiwoo, do you really want to do that kind of thing with Mom?'</p>
+<p>'Aiyu Seriously! Shiwoo, do you really want to do that kind of thing with Mom?'</p>
 
 <p>Mom was confirming Shiwoo's position, as if trying to find some justification or excuse, just like when they had established a master-slave relationship via text before.</p>
 
@@ -136,7 +136,7 @@ chapter = 247
 
 <p>Mom's answer comes back without any unnecessary words, as if her thoughts are all organized.</p>
 
-<p>'It's not difficult to do that~ Hehe. But why?'</p>
+<p>'It's not difficult to do that Hehe. But why?'</p>
 
 <p>A condition for accepting the game of filial impiety.</p>
 
@@ -144,7 +144,7 @@ chapter = 247
 
 <p>Mom was taking her time again.</p>
 
-<p>'If I don't do that, I really won't be able to come back this time~'</p>
+<p>'If I don't do that, I really won't be able to come back this time'</p>
 
 <p>Mom probably wrote and sent her honest feelings and mood.</p>
 
@@ -158,7 +158,7 @@ chapter = 247
 
 <p>Shiwoo now felt like he could understand the meaning of Mom's words, even if only vaguely.</p>
 
-<p>'Okay~ I'll treat you as Mom, my son, when we're talking here in text'</p>
+<p>'Okay I'll treat you as Mom, my son, when we're talking here in text'</p>
 
 <p>Shiwoo accepted the condition Mom presented.</p>
 
@@ -174,7 +174,7 @@ chapter = 247
 
 <p>Mom's worries may have grown even bigger after Shiwoo's declaration.</p>
 
-<p>'That's good too~ I'll definitely use contraception when I'm with Mom and Sehee~'</p>
+<p>'That's good too I'll definitely use contraception when I'm with Mom and Sehee'</p>
 
 <p>Shiwoo promises, as if obediently responding to Mom's request.</p>
 
@@ -184,7 +184,7 @@ chapter = 247
 
 <p>At the same time, a strange, immoral excitement was rising up Shiwoo's spine and the back of his neck.</p>
 
-<p>'But it doesn't matter in other chat rooms besides the 1:1 conversation, right? I'll do whatever I want there 24 hours a day~!'</p>
+<p>'But it doesn't matter in other chat rooms besides the 1:1 conversation, right? I'll do whatever I want there 24 hours a day!'</p>
 
 <p>Shiwoo quickly changes the subject away from contraception.</p>
 
@@ -194,7 +194,7 @@ chapter = 247
 
 <p>Mom replied to Shiwoo with a short text, whether she knew Shiwoo's inner thoughts or not.</p>
 
-<p>'You have to answer faithfully as a slave even in front of Sehee or Seonju~! Got it?'</p>
+<p>'You have to answer faithfully as a slave even in front of Sehee or Seonju! Got it?'</p>
 
 <p>Shiwoo was speaking as if making Mom pledge.</p>
 

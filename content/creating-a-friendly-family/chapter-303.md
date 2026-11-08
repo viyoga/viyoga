@@ -42,7 +42,7 @@ chapter = 303
 
 <p>Shiwoo was about to ask Sua something, but he thought that carrying a mini fan might be a popular fashion trend among junior academy students these days, so he tried to brush it off as if it were nothing.</p>
 
-<p>,I brought it because I thought I might need it when I go outside today~!,</p>
+<p>,I brought it because I thought I might need it when I go outside today!,</p>
 
 <p>Seonju-imo says to Shiwoo, who was looking at the fan around Sua's neck with a doubtful expression, as if explaining the situation on Sua's behalf.</p>
 
@@ -50,7 +50,7 @@ chapter = 303
 
 <p>Shiwoo reacts with a slightly awkward sense of incongruity to Seonju-imo's words.</p>
 
-<p>,She said that she might need it in crowded and quiet places~ Kikik!,</p>
+<p>,She said that she might need it in crowded and quiet places Kikik!,</p>
 
 <p>Seonju-imo says, laughing as if joking, repeating the same incomprehensible explanation as before.</p>
 
@@ -96,7 +96,7 @@ chapter = 303
 
 <p>Shiwoo says to Seyoung and Sua in a restless and awkward mood.</p>
 
-<p>,Already~? Are you leaving like that~?,</p>
+<p>,Already? Are you leaving like that?,</p>
 
 <p>Seonju-imo said, as if mischievously pointing out Shiwoo's erection in front of his younger sisters.</p>
 
@@ -104,7 +104,7 @@ chapter = 303
 
 <p>Shiwoo reacted as if he was newly startled by Seonju-imo's words, which seemed to directly point out his erection.</p>
 
-<p>,Well~ I guess there's no other way~? If you're going to be walking around with your younger sisters all day, you'll have to save some energy for yourself~! Right~ Seyoung-ah? Kikik~!,</p>
+<p>,Well I guess there's no other way? If you're going to be walking around with your younger sisters all day, you'll have to save some energy for yourself! Right Seyoung-ah? Kikik!,</p>
 
 <p>Seonju-imo adds unnecessary words, playfully teasing him, subtly inserting the title 자기/jagi (honey/darling) in the middle.</p>
 
@@ -112,15 +112,15 @@ chapter = 303
 
 <p>Contrary to Shiwoo's passive action of covering his penis with his bag, Shiwoo's penis rises even more firmly and powerfully.</p>
 
-<p>,Yes~! We have to go around the amusement park and aquarium today~! There's no time~ Hehe~,</p>
+<p>,Yes! We have to go around the amusement park and aquarium today! There's no time Hehe,</p>
 
 <p>Seyoung, knowing or not knowing Shiwoo's mood, answers Seonju-imo's words with a bright smile.</p>
 
-<p>,Okay~ Seyoung and Sua~ You have to listen to Oppa well while walking around the department store today~!? Stick close to Oppa so you don't get separated!,</p>
+<p>,Okay Seyoung and Sua You have to listen to Oppa well while walking around the department store today!? Stick close to Oppa so you don't get separated!,</p>
 
 <p>Seonju-imo says as if giving a warning to Seyoung and Sua.</p>
 
-<p>,Don't worry, Seonju-imo~! I'll listen well and stick right next to him~!,</p>
+<p>,Don't worry, Seonju-imo! I'll listen well and stick right next to him!,</p>
 
 <p>Seyoung answers Seonju-imo's words cheerfully.</p>
 
@@ -166,7 +166,7 @@ chapter = 303
 
 <p>Seonju-imo is about to hug and greet her lovely daughter and nieces before sending them off.</p>
 
-<p>,Have a good time~ Seyoung-ah~!,</p>
+<p>,Have a good time Seyoung-ah!,</p>
 
 <p>Seonju-imo bends down slightly and hugs Seyoung's small body.</p>
 
@@ -178,11 +178,11 @@ chapter = 303
 
 <p>A blatant hand movement as if to show Shiwoo.</p>
 
-<p>,Yes! I'll have a good time, don't worry~!,</p>
+<p>,Yes! I'll have a good time, don't worry!,</p>
 
 <p>Seyoung, as if Seonju-imo's touch was nothing, hugged Seonju-imo's body back and greeted her in response.</p>
 
-<p>,Sua, have a safe trip too~!</p>
+<p>,Sua, have a safe trip too!</p>
 
 <p>Seonju-imo, following Seyoung, also hugs Sua into her arms and greets her.</p>
 
@@ -230,7 +230,7 @@ chapter = 303
 
 <p>Seonju-imo is about to hug and greet her lovely daughter and nieces before sending them off.</p>
 
-<p>,Have a good time~ Seyoung-ah~!,</p>
+<p>,Have a good time Seyoung-ah!,</p>
 
 <p>Seonju-imo bends down slightly and hugs Seyoung's small body.</p>
 
@@ -242,11 +242,11 @@ chapter = 303
 
 <p>A blatant hand movement as if to show Shiwoo.</p>
 
-<p>,Yes! I'll have a good time, don't worry~!,</p>
+<p>,Yes! I'll have a good time, don't worry!,</p>
 
 <p>Seyoung, as if Seonju-imo's touch was nothing, hugged Seonju-imo's body back and greeted her in response.</p>
 
-<p>,Sua, have a safe trip too~!</p>
+<p>,Sua, have a safe trip too!</p>
 
 <p>Seonju-imo, following Seyoung, also hugs Sua into her arms and greets her.</p>
 

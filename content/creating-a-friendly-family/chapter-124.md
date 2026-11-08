@@ -20,7 +20,7 @@ chapter = 124
 
 <p>When Shiwoo took his lips away, a clear hickey was left on Sehee Nuna's cleavage.</p>
 
-<p>"Haa... what are you doing on the way to hagwon~?"</p>
+<p>"Haa... what are you doing on the way to hagwon?"</p>
 
 <p>Sehee Nuna said to Shiwoo, as if whining.</p>
 
@@ -32,7 +32,7 @@ chapter = 124
 
 <p>Sehee Nuna said, avoiding Shiwoo's gaze and looking at the floor beyond Shiwoo's shoulder.</p>
 
-<p>"What is it~? You were calling me Master-nim just fine yesterday."</p>
+<p>"What is it? You were calling me Master-nim just fine yesterday."</p>
 
 <p>Shiwoo said to Sehee Nuna, playfully pressing her.</p>
 
@@ -44,7 +44,7 @@ chapter = 124
 
 <p>Shiwoo said teasingly, rubbing his erect member against Sehee Nuna's crotch again.</p>
 
-<p>"Aish~! How long are you going to keep playing these pranks! I have to go to hagwon now~!"</p>
+<p>"Aish! How long are you going to keep playing these pranks! I have to go to hagwon now!"</p>
 
 <p>Sehee Nuna was saying to Shiwoo, expressing her annoyance.</p>
 
@@ -100,7 +100,7 @@ chapter = 124
 
 <p>Shiwoo asked Sehee Nuna, as if confirming again what would happen in the evening with a tone that seemed somehow displeased.</p>
 
-<p>"Haaa... Yeah. I will, so go quickly~"</p>
+<p>"Haaa... Yeah. I will, so go quickly"</p>
 
 <p>Sehee Nuna said, letting out a long sigh with a complicated expression as if she had many worries.</p>
 
@@ -184,7 +184,7 @@ chapter = 124
 
 <p>Shiwoo deliberately answered indifferently.</p>
 
-<p>"I'm only showing this to you specially, so take a good look~"</p>
+<p>"I'm only showing this to you specially, so take a good look"</p>
 
 <p>Cheoljin said, showing Shiwoo the screen of his smartphone, which he had been holding in his hand since he entered the classroom.</p>
 
@@ -218,7 +218,7 @@ chapter = 124
 
 <p>Shiwoo was slowly starting to worry that Cheoljin had finally gone crazy.</p>
 
-<p>"Okay~ Do this once like this! If you touch the button and then press the hold button, it'll be fixed."</p>
+<p>"Okay Do this once like this! If you touch the button and then press the hold button, it'll be fixed."</p>
 
 <p>Cheoljin was explaining how to operate the app to Shiwoo as if he was excited.</p>
 
@@ -230,7 +230,7 @@ chapter = 124
 
 <p>Shiwoo was waiting for Cheoljin's instructions for the next operation.</p>
 
-<p>"Ah~ It's all done now!"</p>
+<p>"Ah It's all done now!"</p>
 
 <p>"What?"</p>
 

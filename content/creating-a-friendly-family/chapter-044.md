@@ -50,7 +50,7 @@ chapter = 44
 
 <p>Shiwoo asked, feeling embarrassed and awkward, but also worried about Sehee Nuna's body, which was exposed to the still-chilly air.</p>
 
-<p>,The weather's gotten a lot warmer anyway~ And is me being cold the problem right now in this situation?"</p>
+<p>,The weather's gotten a lot warmer anyway And is me being cold the problem right now in this situation?"</p>
 
 <p>Sehee Nuna glanced briefly at Shiwoo's crotch area, then made a scornful and sarcastic expression as she laughed.</p>
 
@@ -64,7 +64,7 @@ chapter = 44
 
 <p>Seeing Shiwoo's seemingly displeased expression, Sehee Nuna said that and then grabbed Shiwoo's other arm, the one not holding the cardigan, and placed it around her shoulder.</p>
 
-<p>,This feels a bit warmer~ I guess I can just keep doing this, right?"</p>
+<p>,This feels a bit warmer I guess I can just keep doing this, right?"</p>
 
 <p>Sehee Nuna, with no trace of the scornful or sarcastic expression she had been wearing just moments before, smiled brightly and nestled into Shiwoo's arm.</p>
 
@@ -84,7 +84,7 @@ chapter = 44
 
 <p>Sehee Nuna, accurately knowing the number of times Shiwoo had masturbated today, was walking in the same position as if she was being hugged by Shiwoo, asking him with an amazed tone.</p>
 
-<p>,It's no use no matter how many times I do it if Sehee Nuna is like this~"</p>
+<p>,It's no use no matter how many times I do it if Sehee Nuna is like this"</p>
 
 <p>Shiwoo said, as if complaining, tightly gripping the soft flesh of Sehee Nuna's shoulder area with his palm.</p>
 
@@ -96,7 +96,7 @@ chapter = 44
 
 <p>Shiwoo answered, feeling embarrassed.</p>
 
-<p>,Hmm~"</p>
+<p>,Hmm"</p>
 
 <p>Sehee Nuna made a slightly haughty and condescending sound, closely examining Shiwoo's expression.</p>
 

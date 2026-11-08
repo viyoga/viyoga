@@ -26,7 +26,7 @@ chapter = 188
 
 <p>Shiwoo instinctively turned his head and asked again in respectful speech.</p>
 
-<p>"Oh~ I come here often, so it's fine to pay that way. I'll take care of it, so don't worry~"</p>
+<p>"Oh I come here often, so it's fine to pay that way. I'll take care of it, so don't worry"</p>
 
 <p>A man with a voluminous perm hairstyle and a sharp jawline explained to Shiwoo in informal speech.</p>
 
@@ -34,7 +34,7 @@ chapter = 188
 
 <p>When Shiwoo didn't return to his seat, Sora Nuna quickly approached Shiwoo's side.</p>
 
-<p>"That guy is Sehee's partner today~ He's paying, so you can order anything else~" Sora Nuna spoke quietly, as if whispering into Shiwoo's ear.</p>
+<p>"That guy is Sehee's partner today He's paying, so you can order anything else" Sora Nuna spoke quietly, as if whispering into Shiwoo's ear.</p>
 
 <p>Through Sora Nuna's white blouse, with three buttons undone, Sora Nuna's cleavage, encased in a purple bra, was starkly visible to Shiwoo's eyes as he looked down.</p>
 
@@ -42,7 +42,7 @@ chapter = 188
 
 <p>Shiwoo's eyes widened in reaction to Sora Nuna's words that he was Sehee Nuna's partner.</p>
 
-<p>"He's Kim Jun. He's a second-year at the advanced academy and a track and field athlete~ His dad runs a business~"</p>
+<p>"He's Kim Jun. He's a second-year at the advanced academy and a track and field athlete His dad runs a business"</p>
 
 <p>Sora Nuna was giving Shiwoo information about Sehee Nuna's partner.</p>
 
@@ -82,7 +82,7 @@ chapter = 188
 
 <p>The three seemed to have known each other from before and were exchanging words comfortably.</p>
 
-<p>"Sinbi and Semi contacted to say they'd be a bit late. They'll be here soon~"</p>
+<p>"Sinbi and Semi contacted to say they'd be a bit late. They'll be here soon"</p>
 
 <p>Sora Nuna even explained the situation of Sinbi Nuna and Semi Nuna, who hadn't arrived yet, to Shiwoo.</p>
 
@@ -92,13 +92,13 @@ chapter = 188
 
 <p class="scene-break">· · ·</p>
 
-<p>"Here, drink this~"</p>
+<p>"Here, drink this"</p>
 
 <p>Kim Jun quickly picked up Sehee Nuna's chocolate latte from the tray Shiwoo was carrying, and naturally handed it to her, saying.</p>
 
 <p>At Kim Jun's action of taking the drink he had brought as if snatching it, Shiwoo felt uncomfortable.</p>
 
-<p>"Oh. Thank you~ I'll enjoy it~"</p>
+<p>"Oh. Thank you I'll enjoy it"</p>
 
 <p>Sehee Nuna answered, receiving the drink Kim Jun handed her, with a gentle voice and expression she didn't usually show.</p>
 
@@ -110,7 +110,7 @@ chapter = 188
 
 <p>Shiwoo instinctively answered Kim Jun's question and looked at Sora Nuna.</p>
 
-<p>"That's right. We're really close~ We went out to play a lot together~ Right~ Shiwoo-ya?"</p>
+<p>"That's right. We're really close We went out to play a lot together Right Shiwoo-ya?"</p>
 
 <p>Sora Nuna smiled with her eyes at Shiwoo and smoothly spun a fabricated story as if it were nothing.</p>
 
@@ -132,7 +132,7 @@ chapter = 188
 
 <p>Sora Nuna was speaking in a regretful tone, as if she didn't care whether Seongguk Hyeong, her current partner, or the other Hyeong-s heard her or not.</p>
 
-<p>"Sinbi must have really caught your eye, huh?! Someone like Sora really doesn't fall short anywhere~ Is it that girl you showed me in the picture before? The one who did track and field with Sehee in middle school?"</p>
+<p>"Sinbi must have really caught your eye, huh?! Someone like Sora really doesn't fall short anywhere Is it that girl you showed me in the picture before? The one who did track and field with Sehee in middle school?"</p>
 
 <p>The person named Kim Jun spoke, looking at Shiwoo, taking Sora Nuna's words as if intrigued.</p>
 
@@ -146,7 +146,7 @@ chapter = 188
 
 <p>Shiwoo said, looking at the three men sitting side by side, as if changing the subject.</p>
 
-<p>"Oh~ Us? Hyeokjin here is, well~ a junior from the same academy's track and field club, and Seongguk is a younger brother I've been close with since childhood. And I've known Sora, Saerom, and Semi for quite a while too, right~!?"</p>
+<p>"Oh Us? Hyeokjin here is, well a junior from the same academy's track and field club, and Seongguk is a younger brother I've been close with since childhood. And I've known Sora, Saerom, and Semi for quite a while too, right!?"</p>
 
 <p>The person named Kim Jun answered Shiwoo's question with a relaxed smile, then looked around at the Nuna-s sitting opposite him as if seeking agreement.</p>
 
@@ -162,9 +162,9 @@ chapter = 188
 
 <p>Sehee Nuna asked, looking towards Sora Nuna with the straw from her chocolate latte held between her teeth.</p>
 
-<p>"They met up just outside and are coming together~ We also arrived a bit early~ So they'll probably arrive on time a little later, I think?~" Sora Nuna answered, quickly scrolling through her smartphone screen.</p>
+<p>"They met up just outside and are coming together We also arrived a bit early So they'll probably arrive on time a little later, I think?" Sora Nuna answered, quickly scrolling through her smartphone screen.</p>
 
-<p>"Then I'll go to the restroom for a bit~"</p>
+<p>"Then I'll go to the restroom for a bit"</p>
 
 <p>Sehee Nuna took a long sip of her iced chocolate latte through the straw and then stood up from her seat.</p>
 
@@ -196,13 +196,13 @@ chapter = 188
 
 <p>Pretending to be annoyed, Shiwoo wrote and sent a text to Cheoljin.</p>
 
-<p>"'I'll arrive soon~ Sehee, Sora, and Saerom are doing well there, right?'"</p>
+<p>"'I'll arrive soon Sehee, Sora, and Saerom are doing well there, right?'"</p>
 
 <p>Cheoljin, as if provoking Shiwoo, was replying by casually calling the Nuna-s' names.</p>
 
 <p>"'You fucking bastard! Just get here quickly!! All these Hyeong-s next to me are strangers, so it's awkwardly killing me!'"</p>
 
-<p>"'Alright! Alright~ This Hyeong will be there soon~ So stop whining and wait! lololol'"</p>
+<p>"'Alright! Alright This Hyeong will be there soon So stop whining and wait! lololol'"</p>
 
 <p>Cheoljin's cheeky text, as if treating Shiwoo like a younger brother and comforting him.</p>
 
@@ -210,7 +210,7 @@ chapter = 188
 
 <p class="scene-break">· · ·</p>
 
-<p>"I'll also go to the restroom for a bit~"</p>
+<p>"I'll also go to the restroom for a bit"</p>
 
 <p>Shiwoo stood up from his seat and headed towards the restroom.</p>
 

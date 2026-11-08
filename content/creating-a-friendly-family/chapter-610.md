@@ -210,7 +210,7 @@ chapter = 610
 
 <p>0...</p>
 
-<p>Chu-ru-u-uk~!</p>
+<p>Chu-ru-u-uk!</p>
 
 <p>After counting the number zero in his mind, Shiwoo pulled out his penis.</p>
 

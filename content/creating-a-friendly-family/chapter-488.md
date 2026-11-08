@@ -34,7 +34,7 @@ chapter = 488
 
 <p>Shiwoo tilted his head slightly to the side and said, looking down at Seyoung sucking on Mom's breast.</p>
 
-<p>"Yeah! I like it~ Sehee Unni's breasts are as soft and big as Mom's~ Hehe~"</p>
+<p>"Yeah! I like it Sehee Unni's breasts are as soft and big as Mom's Hehe"</p>
 
 <p>Seyoung took her lips off Mom's breast for a moment and said, comparing Mom's breast to Sehee Nuna's as if she was kneading them.</p>
 
@@ -158,7 +158,7 @@ chapter = 488
 
 <p>Then, with Mom's nipple in her mouth, Seyoung quietly spoke to herself as if muttering.</p>
 
-<p>"That must hurt~ Hehe~"</p>
+<p>"That must hurt Hehe"</p>
 
 <p>Seyoung's voice, barely audible, permeated Mom and Shiwoo's ears.</p>
 

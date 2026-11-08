@@ -8,11 +8,11 @@ chapter = 670
 
 <p>The subtle sexiness and deep sensuality radiating from her were as natural and intense as if they had always been meant to be that way.</p>
 
-<p>"Oh~ Imo is here~ Seyoung, were you in your room? What were you doing?"</p>
+<p>"Oh Imo is here Seyoung, were you in your room? What were you doing?"</p>
 
 <p>Seonju Imo waves and greets Seyoung warmly, seeing her undressing. Seyoung walks quickly across the living room toward the entrance where Shiwoo and Seonju Imo are standing. Then, without hesitation, she lunges at Seonju Imo , spreading her arms wide and throwing herself into her embrace.</p>
 
-<p>"Yeah! Welcome, Seonju Imo ! I was getting ready for dinner while waiting for you! I missed you~ Hehe~"</p>
+<p>"Yeah! Welcome, Seonju Imo ! I was getting ready for dinner while waiting for you! I missed you Hehe"</p>
 
 <p>Seyoung buried her face deep into Seonju Imo 's breasts and hugged her tight, wrapping her arms around her hips . A sense of yearning, like reuniting with a dear family member not seen in a long time, radiated from her. Seonju Imo naturally pulled Seyoung's body close, quietly embracing her. At that moment, Seyoung's hand, which had been holding her hips , stroked Seonju Imo 's large buttocks . Seonju Imo flinched slightly as if surprised, but soon accepted the touch, hugging Seyoung back as if nothing were wrong.</p>
 
@@ -24,7 +24,7 @@ chapter = 670
 
 <p>Suddenly calling Seonju Imo by her name without any honorifics, Seyoung flashed a mischievous smile.</p>
 
-<p>"Yeah~ I did... I don't think I can do it right away, but I had to be prepared~"</p>
+<p>"Yeah I did... I don't think I can do it right away, but I had to be prepared"</p>
 
 <p>Seonju Imo replied with a tender smile of her own to match Seyoung's.</p>
 
@@ -38,7 +38,7 @@ chapter = 670
 
 <p>She laughed embarrassedly as if to appease Seyoung, cautiously fiddling with the strap of her bag.</p>
 
-<p>"So you're saying you won't do it~?"</p>
+<p>"So you're saying you won't do it?"</p>
 
 <p>Seyoung said to Seonju Imo , her smile fading into a slightly disappointed tone.</p>
 
@@ -76,7 +76,7 @@ chapter = 670
 
 <p>Shiwoo said, looking at Seonju Imo with mischievous eyes, as if backing up what Seyoung said.</p>
 
-<p>"Heeing~ Shiwoo, are you going to be like that too? You told me to come as an Imo today~!"</p>
+<p>"Heeing Shiwoo, are you going to be like that too? You told me to come as an Imo today!"</p>
 
 <p>Seonju Imo said, acting with coquetry as if her feelings were hurt.</p>
 
@@ -84,7 +84,7 @@ chapter = 670
 
 <p>Shiwoo said to Seonju Imo playfully, with a slightly sarcastic expression and tone.</p>
 
-<p>"That's right~ No one said that~ Seonju Imo is the only one thinking that, right? ~ Today you can be an Imo and Shiwoo Oppa 's pet too~ Hehe~"</p>
+<p>"That's right No one said that Seonju Imo is the only one thinking that, right? Today you can be an Imo and Shiwoo Oppa 's pet too Hehe"</p>
 
 <p>Seyoung said, agreeing with Shiwoo with a mischievous smile. Shiwoo carefully placed the sake box he received from Seonju Imo on the floor and approached Seonju Imo and Seyoung, who were hugging each other tightly. The sight of Seyoung, completely naked except for her cat ears and dog collar, hugging Seonju Imo , who was fully dressed... Shiwoo felt an indescribable sense of dissonance and a strange arousal .</p>
 

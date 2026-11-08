@@ -20,7 +20,7 @@ chapter = 9
 
 <p>Just then, the sound of the front door opening was heard, and Mom and Seyoung returned.</p>
 
-<p>"Oppa, we're here~"</p>
+<p>"Oppa, we're here"</p>
 
 <p>Seyoung announced their arrival upon seeing Shiwoo.</p>
 
@@ -30,7 +30,7 @@ chapter = 9
 
 <p>Looking at the clock, it was well past 8 o'clock.</p>
 
-<p>"No, nothing unusual happened~ Mom, you and Seyoung are a bit late today, aren't you?"</p>
+<p>"No, nothing unusual happened Mom, you and Seyoung are a bit late today, aren't you?"</p>
 
 <p>Shiwoo answered that way and then thought about things that could be called</p>
 
@@ -48,7 +48,7 @@ chapter = 9
 
 <p>As soon as she entered, Mom's continuous questions followed.</p>
 
-<p>"Yes~"</p>
+<p>"Yes"</p>
 
 <p>And Shiwoo faithfully answering Mom's questions.</p>
 
@@ -56,13 +56,13 @@ chapter = 9
 
 <p>"I ate ramen with Nuna."</p>
 
-<p>"Sehee, I told her to make sure her dongsaeng ate, but she's just boiling ramen~ No, there's rice in the rice cooker and side dishes in the fridge that just need to be heated, what's so hard about that that she has to boil ramen... Really, I'll have a word with your Nuna when she comes out."</p>
+<p>"Sehee, I told her to make sure her dongsaeng ate, but she's just boiling ramen No, there's rice in the rice cooker and side dishes in the fridge that just need to be heated, what's so hard about that that she has to boil ramen... Really, I'll have a word with your Nuna when she comes out."</p>
 
 <p>Even without the person in question present, Mom's nagging was always endless.</p>
 
-<p>"No~ I enjoyed the ramen, it's been a while... Sometimes you just crave it, you know?"</p>
+<p>"No I enjoyed the ramen, it's been a while... Sometimes you just crave it, you know?"</p>
 
-<p>"Even so, you should eat proper meals when you can~"</p>
+<p>"Even so, you should eat proper meals when you can"</p>
 
 <p>Mom was always strict about making sure her children ate their meals.</p>
 
@@ -72,19 +72,19 @@ chapter = 9
 
 <p>It was rare for Mom to take one of the family members out separately and stay out so late.</p>
 
-<p>"Today, Seyoung and I set aside a day and went on a date~"</p>
+<p>"Today, Seyoung and I set aside a day and went on a date"</p>
 
 <p>Mom looked at Seyoung's face and spoke with a joking laugh.</p>
 
-<p>"A date? What's that~?"</p>
+<p>"A date? What's that?"</p>
 
-<p>"Mom and I are super in love with each other~ hehe."</p>
+<p>"Mom and I are super in love with each other hehe."</p>
 
 <p>Seyoung tightly hugged Mom's waist, continuing Mom's playful words.</p>
 
 <p>Mom looked at Seyoung with a pleased expression.</p>
 
-<p>"Yes, go ahead and get married later, have lots of kids, and live happily~"</p>
+<p>"Yes, go ahead and get married later, have lots of kids, and live happily"</p>
 
 <p>Shiwoo also took Seyoung's words as a joke.</p>
 
@@ -96,7 +96,7 @@ chapter = 9
 
 <p>Exchanging silly jokes with a slightly excited Seyoung.</p>
 
-<p>'Hehehe~"</p>
+<p>'Hehehe"</p>
 
 <p>Seyoung laughed as if she enjoyed this playful conversation with her Oppa.</p>
 
@@ -104,15 +104,15 @@ chapter = 9
 
 <p>Shiwoo asked Mom.</p>
 
-<p>"Yes~ we ate out!"</p>
+<p>"Yes we ate out!"</p>
 
 <p>Mom's concise answer.</p>
 
-<p>"Dinner is a basic part of a date course~ Ahem!!"</p>
+<p>"Dinner is a basic part of a date course Ahem!!"</p>
 
 <p>Seyoung seemed to want to continue the playful conversation with her Oppa.</p>
 
-<p>"Alright~ Did you have a good time at Gyuri's today?"</p>
+<p>"Alright Did you have a good time at Gyuri's today?"</p>
 
 <p>Mom stroked Seyoung's head as if she found her cute, then asked Shiwoo.</p>
 
@@ -136,13 +136,13 @@ chapter = 9
 
 <p>As Shiwoo approached the master bedroom, he heard Seyoung and Mom talking inside.</p>
 
-<p>"I want to do it now, Mom~"</p>
+<p>"I want to do it now, Mom"</p>
 
 <p>It was Seyoung's voice, coaxing Mom for something.</p>
 
-<p>"No~ Oppa will be down soon."</p>
+<p>"No Oppa will be down soon."</p>
 
-<p>"It'll only take a moment, Mom, huh? Mommaaa~"</p>
+<p>"It'll only take a moment, Mom, huh? Mommaaa"</p>
 
 <p>Seyoung whined to Mom.</p>
 
@@ -174,7 +174,7 @@ chapter = 9
 
 <p>"No, I didn't forget. Now Mom, you can sleep comfortably. I'll come down a bit later and take care of everything."</p>
 
-<p>"Alright, thank you, Shiwoo-ya. Thanks to you, Mom can sleep soundly now. Then, Mom has a favor to ask~"</p>
+<p>"Alright, thank you, Shiwoo-ya. Thanks to you, Mom can sleep soundly now. Then, Mom has a favor to ask"</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -202,7 +202,7 @@ chapter = 9
 
 <p>Since Shiwoo hadn't heard the detailed circumstances from Mom, he kept asking, hoping he might hear the situation from Nuna instead.</p>
 
-<p>"Hmm~~ No~ Nothing..."</p>
+<p>"Hmm No Nothing..."</p>
 
 <p>Nuna made a sound as if she understood something and went upstairs to the second floor.</p>
 
@@ -284,7 +284,7 @@ chapter = 9
 
 <p>"If 5 changes to S, then SE10."</p>
 
-<p>"And 10 is X in Roman numerals~"</p>
+<p>"And 10 is X in Roman numerals"</p>
 
 <p>"Now, what do you see when you combine them?"</p>
 

@@ -58,7 +58,7 @@ chapter = 117
 
 <p>Shiwoo told Seonju Imo, as if informing her of the situation in detail.</p>
 
-<p>'Really~? Wow~ I knew it! lol What did Unni say? Isn't she angry?'</p>
+<p>'Really? Wow I knew it! lol What did Unni say? Isn't she angry?'</p>
 
 <p>Seonju Imo, having seen the Sehee Nuna picture he sent and roughly guessing the situation, was asking with a slightly exaggerated exclamation.</p>
 
@@ -74,15 +74,15 @@ chapter = 117
 
 <p>Shiwoo told Seonju Imo in a cautious tone.</p>
 
-<p>'Okay~ Honey~! I'll pretend I don't know~! But isn't the Sehee picture too lewd? Unni must have been surprised lol Will you do something like that for Imo later too?'</p>
+<p>'Okay Honey! I'll pretend I don't know! But isn't the Sehee picture too lewd? Unni must have been surprised lol Will you do something like that for Imo later too?'</p>
 
 <p>Seonju Imo, while answering as if obeying Shiwoo, was playfully continuing the conversation.</p>
 
-<p>'Yeah~ You listened well today, so I'll do it for you next time. In front of Sua! Hehehe'</p>
+<p>'Yeah You listened well today, so I'll do it for you next time. In front of Sua! Hehehe'</p>
 
 <p>Shiwoo, accepting Imo's joke, mentioned Sua's name and spoke slyly.</p>
 
-<p>'Kya~ Really? But thinking about being subjected to that in front of Sua makes me so embarrassed~?'</p>
+<p>'Kya Really? But thinking about being subjected to that in front of Sua makes me so embarrassed?'</p>
 
 <p>Seonju Imo, unlike her usual self, was speaking shyly.</p>
 
@@ -90,15 +90,15 @@ chapter = 117
 
 <p>Shiwoo said, deliberately provoking her.</p>
 
-<p>'No~ Do it~ Please do it~! Sua also needs to know who her new Dad and owner is~! Right?'</p>
+<p>'No Do it Please do it! Sua also needs to know who her new Dad and owner is! Right?'</p>
 
 <p>Seonju Imo immediately responded to Shiwoo as if acting cute.</p>
 
-<p>'Yeah~ I'll cherish Sua and Seonju a lot together later~! But I think I need to sleep now, it seems like I overdid it. I'm a bit tired.'</p>
+<p>'Yeah I'll cherish Sua and Seonju a lot together later! But I think I need to sleep now, it seems like I overdid it. I'm a bit tired.'</p>
 
 <p>Shiwoo found it difficult to keep his eyes open any longer due to the overwhelming fatigue.</p>
 
-<p>'Tired~? Aigoo~ Okay~ You worked hard today~ Honey~! I'll be looking forward to it with Sua next time~!'</p>
+<p>'Tired? Aigoo Okay You worked hard today Honey! I'll be looking forward to it with Sua next time!'</p>
 
 <p>Seonju Imo was texting Shiwoo with a feeling as if she was completely subordinate to him.</p>
 
@@ -150,7 +150,7 @@ chapter = 117
 
 <p>Shiwoo, breaking the silence, called out to Mom first.</p>
 
-<p>"Yeah~ Shiwoo-ya!"</p>
+<p>"Yeah Shiwoo-ya!"</p>
 
 <p>Mom, calling Shiwoo's name, replied.</p>
 
@@ -160,7 +160,7 @@ chapter = 117
 
 <p>Shiwoo, stuttering and asking as if nervous.</p>
 
-<p>"I just wanted to hear our son's voice, so I called~ Why? Can't Mom call her son late at night?!"</p>
+<p>"I just wanted to hear our son's voice, so I called Why? Can't Mom call her son late at night?!"</p>
 
 <p>Mom, as if deliberately emphasizing the relationship between Mom and son, was speaking as if questioning him.</p>
 
@@ -176,11 +176,11 @@ chapter = 117
 
 <p>Shiwoo, too, was speaking as if he was dealing with the old Mom, different from in the chat.</p>
 
-<p>"Mom's the same~ I brought Seyoung with me because of work, but since I came, I'm just going to rest at Seonju's for a few days."</p>
+<p>"Mom's the same I brought Seyoung with me because of work, but since I came, I'm just going to rest at Seonju's for a few days."</p>
 
 <p>Mom was giving an explanation about why she was staying at Seonju Imo's, as if putting on a show.</p>
 
-<p>"Ah...yeah...that's...that's good~ Take a good rest while you're there! Don't worry about me and Sehee Nuna!"</p>
+<p>"Ah...yeah...that's...that's good Take a good rest while you're there! Don't worry about me and Sehee Nuna!"</p>
 
 <p>Shiwoo, speaking as if acting awkwardly.</p>
 
@@ -188,7 +188,7 @@ chapter = 117
 
 <p>In the unbearable awkward silence, Shiwoo's thing, which had been overlapping Sehee Nuna's crotch, was swelling up again as if it would burst.</p>
 
-<p>"Heueum~"</p>
+<p>"Heueum"</p>
 
 <p>At that moment, Sehee Nuna, who had lost consciousness and was lying under Shiwoo's body, made a small moaning sound as if reacting to Shiwoo's thing.</p>
 
@@ -210,7 +210,7 @@ chapter = 117
 
 <p>Shiwoo, answering as if flustered.</p>
 
-<p>"Eigoo~! Sehee must have woken up because of the phone bell~! You should have answered sooner!"</p>
+<p>"Eigoo! Sehee must have woken up because of the phone bell! You should have answered sooner!"</p>
 
 <p>Mom, having heard Sehee Nuna's moaning sound, was speaking to Shiwoo as if scolding him, without acting like anything was wrong.</p>
 
@@ -228,19 +228,19 @@ chapter = 117
 
 <p>Then, Shiwoo rubbed the semen that was smeared all over his hand onto Sehee Nuna's chest as if spreading it.</p>
 
-<p>"Don't stay up late tomorrow, go to bed early today! Don't do anything weird until dawn just because Mom isn't there~"</p>
+<p>"Don't stay up late tomorrow, go to bed early today! Don't do anything weird until dawn just because Mom isn't there"</p>
 
 <p>Mom's nagging, which was stimulating Shiwoo's desire to control, continued as if she was doing it on purpose.</p>
 
 <p>At that moment, Shiwoo strongly twisted and grabbed Sehee Nuna's chest.</p>
 
-<p>"Haaat~!"</p>
+<p>"Haaat!"</p>
 
 <p>A moaning sound full of pain, bursting out from inside Sehee Nuna's mouth.</p>
 
 <p>Shiwoo released the strength in the hand that had been holding Sehee Nuna's chest, then grabbed it strongly again.</p>
 
-<p>"Heut~ Heueut!"</p>
+<p>"Heut Heueut!"</p>
 
 <p>Sehee Nuna's excited moans, constantly bursting out.</p>
 

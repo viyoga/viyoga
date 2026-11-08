@@ -4,7 +4,7 @@ weight = 256
 [extra]
 chapter = 256
 +++
-<p>"Ol-gak~! Ol-gak~! Ol-gak~!"</p>
+<p>"Ol-gak! Ol-gak! Ol-gak!"</p>
 
 <p>Mom was drinking the cum Si-woo had provided, swallowing it in portions.</p>
 
@@ -68,7 +68,7 @@ chapter = 256
 
 <p>Si-woo points the smartphone lens at Mom and starts video recording this time.</p>
 
-<p>With a 'dding~' recording start sound, Mom's face began to be recorded on the screen.</p>
+<p>With a 'dding' recording start sound, Mom's face began to be recorded on the screen.</p>
 
 <p>Upon hearing the smartphone notification sound, Mom seemed to understand what Si-woo wanted.</p>
 
@@ -96,7 +96,7 @@ chapter = 256
 
 <p>Mom moves her tongue toward the sleeping Se-young's lips and chin.</p>
 
-<p>"Chyu-reup~! Ha-eum...chyu-reu-reub~! Heu-u-u..."</p>
+<p>"Chyu-reup! Ha-eum...chyu-reu-reub! Heu-u-u..."</p>
 
 <p>The sounds of Mom licking Se-young's body with her tongue are coming out along with moans.</p>
 
@@ -136,7 +136,7 @@ chapter = 256
 
 <p>Mom, who was flinching, finally relaxes the strength in her ass.</p>
 
-<p>-Chalseak~!!</p>
+<p>-Chalseak!!</p>
 
 <p>Si-woo strikes Mom's ass in a surprise attack.</p>
 
@@ -152,7 +152,7 @@ chapter = 256
 
 <p>And soon, she takes Se-young's nipple into her mouth.</p>
 
-<p>"Chyu-reup~chyu-reup~ chyu-ru-u-u-ub~!"</p>
+<p>"Chyu-reupchyu-reup chyu-ru-u-u-ub!"</p>
 
 <p>Lewd mouth-sounds flow from Mom's mouth.</p>
 
@@ -218,22 +218,22 @@ chapter = 256
 
 <p>Si-woo is moving his thing, which is tightly inside Mom's body, back and forth in a doggystyle position.</p>
 
-<p>-Jjyu-geok~ jjyu-geok~ jjyu-geok~! Chyu-peok!!</p>
+<p>-Jjyu-geok jjyu-geok jjyu-geok! Chyu-peok!!</p>
 
 <p>Si-woo hammers his heavy thing into Mom's chewy pussy hole as if expanding the space inside the vagina.</p>
 
-<p>"Ha-ub~ Huu-uu-uu~ Heu-u-up~ Chyu-ub~!"</p>
+<p>"Ha-ub Huu-uu-uu Heu-u-up Chyu-ub!"</p>
 
 <p>Mom, moaning while sucking Se-young's breast while lying almost prostrate.</p>
 
 <p>Si-woo gradually began to move his waist in larger motions to start the full-scale violation.</p>
 
-<p>"Cheol-beok~! Cheol-beok~! Cheol-peok~! Cheol-beok~!"</p>
+<p>"Cheol-beok! Cheol-beok! Cheol-peok! Cheol-beok!"</p>
 
 <p>Si-woo's giant penis being hammered deep into Mom's tight pussy hole.</p>
 
 <p>Due to Si-woo's violent pounding, Mom ends up losing Se-young's nipple which she had been holding in her mouth.</p>
 
-<p>"Ha-uu-uut...ha-a-ang...ha-aa-a~ Ha-aaaa-at!!"</p>
+<p>"Ha-uu-uut...ha-a-ang...ha-aa-a Ha-aaaa-at!!"</p>
 
 <p>With her face almost buried in Se-young's breasts, Mom was letting out flushed moans.</p>

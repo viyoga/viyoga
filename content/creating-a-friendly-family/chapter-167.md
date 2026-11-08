@@ -36,7 +36,7 @@ chapter = 167
 
 <p>Shiwoo picked up his smartphone and checked the screen.</p>
 
-<p>'Master-nim~ Did you finish your academy well?'</p>
+<p>'Master-nim Did you finish your academy well?'</p>
 
 <p>Aegyo-filled text from Seonju Imo.</p>
 
@@ -62,7 +62,7 @@ chapter = 167
 
 <p>Shiwoo asked Seonju Imo, slightly puzzled.</p>
 
-<p>'Sua and Seyoung said they have something to give to Master-nim, so I'm going with them~'</p>
+<p>'Sua and Seyoung said they have something to give to Master-nim, so I'm going with them'</p>
 
 <p>Seonju Imo replied to Shiwoo's question right away.</p>
 
@@ -84,7 +84,7 @@ chapter = 167
 
 <p>-The order for Seonju Imo to always carry the vibrator inside her vagina-</p>
 
-<p>'I'm charging it right now~'</p>
+<p>'I'm charging it right now'</p>
 
 <p>Seonju Imo was replying that she was faithfully carrying out Shiwoo's orders.</p>
 
@@ -92,7 +92,7 @@ chapter = 167
 
 <p>Shiwoo imagined Seonju Imo forcibly enduring the vibrations in front of Sua and Seyoung and mischievously gave her an order.</p>
 
-<p>'Yes~ I'll do as Master-nim says.'</p>
+<p>'Yes I'll do as Master-nim says.'</p>
 
 <p>Seonju Imo replied obediently without complaining.</p>
 

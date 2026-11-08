@@ -16,7 +16,7 @@ chapter = 671
 
 <p>"Yes... but I just brought the condoms just in case. We can always have Sua take a contraceptive pill later..."</p>
 
-<p>"I didn't intend to force you if you didn't want to use them... so don't misunderstand... okay~?"</p>
+<p>"I didn't intend to force you if you didn't want to use them... so don't misunderstand... okay?"</p>
 
 <p>Seonju-imo spoke apologetically, as if making an excuse while staring at Shiwoo's throbbing penis. It seemed she was worried that, from a slave's perspective, bringing condoms on her own might seem presumptuous to her master, Shiwoo.</p>
 
@@ -28,7 +28,7 @@ chapter = 671
 
 <p>Seonju-imo replied, tilting her head slightly toward Shiwoo. Though her face flushed with embarrassment, she lowered her head as if submitting to his touch. Shiwoo placed the headband onto Seonju-imo's head. Atop her soft, light-brown wavy hair, dainty, pointed orange fox ears cutely revealed themselves.</p>
 
-<p>"You're so pretty, Seonju-imo! You were already as pretty as a fox, but with that on, you really look like one~"</p>
+<p>"You're so pretty, Seonju-imo! You were already as pretty as a fox, but with that on, you really look like one"</p>
 
 <p>Seyoung looked up at Seonju-imo wearing the fox headband and didn't hold back her praise.</p>
 
@@ -44,7 +44,7 @@ chapter = 671
 
 <p>Shiwoo answered Seyoung's question immediately.</p>
 
-<p>"Then I'll just take this out! Since Seonju-imo went through the trouble of buying it~"</p>
+<p>"Then I'll just take this out! Since Seonju-imo went through the trouble of buying it"</p>
 
 <p>Seyoung picked up the long paper box from the floor and spoke with a bright expression, as if seeking Shiwoo's permission.</p>
 
@@ -60,7 +60,7 @@ chapter = 671
 
 <p>Shiwoo nodded and answered shortly but with certainty.</p>
 
-<p>"Got it~"</p>
+<p>"Got it"</p>
 
 <p>Seyoung looked puzzled for a second, but soon nodded with an expectant smile and scurried to the kitchen, clutching the paper box containing the alcohol. Seonju-imo was still standing awkwardly by the entrance, hesitating while watching Shiwoo's reaction. It seemed extremely awkward for her to be the only one clothed while her nephew and daughters were all naked. Furthermore, perhaps because of Shiwoo's command to come with the mindset of an aunt rather than a slave, Seonju-imo couldn't hide her distress, not knowing how to behave.</p>
 
@@ -72,7 +72,7 @@ chapter = 671
 
 <p>Seonju-imo flinched slightly in surprise and looked back at him.</p>
 
-<p>"There's no need to be so awkward! It doesn't matter if you just act like you usually do~!"</p>
+<p>"There's no need to be so awkward! It doesn't matter if you just act like you usually do!"</p>
 
 <p>Shiwoo said with a gentle smile.</p>
 
@@ -84,7 +84,7 @@ chapter = 671
 
 <p>Shiwoo approached Seonju-imo and pressed his condom-clad penis against her hips, whispering mischievously.</p>
 
-<p>"Heeing~ that's the hard part~"</p>
+<p>"Heeing that's the hard part"</p>
 
 <p>Seonju-imo made a whining sound like a child, using polite speech while making a cute face.</p>
 
@@ -92,7 +92,7 @@ chapter = 671
 
 <p>Shiwoo continued, his eyes full of mischief as if enjoying Seonju-imo's reaction.</p>
 
-<p>"I can't do that anymore~! It seems Seonmi-eonni has completely fallen for you too, Shiwoo... sigh ~"</p>
+<p>"I can't do that anymore! It seems Seonmi-eonni has completely fallen for you too, Shiwoo... sigh "</p>
 
 <p>Seonju-imo looked down at Shiwoo's massive penis pressed against her hips and gave a sigh-mixed laugh, speaking as if to hide her complicated feelings.</p>
 
@@ -100,7 +100,7 @@ chapter = 671
 
 <p>Shiwoo leaned in slightly, bringing his face close to Seonju-imo's ear.</p>
 
-<p>"If you keep complaining and acting like a baby, I might just choose Sua... as the 'sacrifice'... so be careful~... how's that?"</p>
+<p>"If you keep complaining and acting like a baby, I might just choose Sua... as the 'sacrifice'... so be careful... how's that?"</p>
 
 <p>Shiwoo whispered into Seonju-imo's ear in a low voice. Instantly, the shy smile vanished from Seonju-imo's face.</p>
 
@@ -120,7 +120,7 @@ chapter = 671
 
 <p>Shiwoo lightly slapped Seonju-imo's bare skin buttocks. Right on the spot where Seyoung had slapped her just moments ago... Seonju-imo seemed tense, suppressing her moans excessively as her body gave a large umjil .</p>
 
-<p>"Seonju-imo! You're really hungry, right? Let's go eat sushi now~ I've already unwrapped everything, so all we have to do is eat!"</p>
+<p>"Seonju-imo! You're really hungry, right? Let's go eat sushi now I've already unwrapped everything, so all we have to do is eat!"</p>
 
 <p>Shiwoo said nonchalantly, pulling Seonju-imo by the hand.</p>
 
@@ -144,6 +144,6 @@ chapter = 671
 
 <p>Seonju-imo looked at Shiwoo with a bewildered expression as he picked up the bottle as if to pour her a drink.</p>
 
-<p>"Ah~ I saw people drinking like this somewhere before~"</p>
+<p>"Ah I saw people drinking like this somewhere before"</p>
 
 <p>Shiwoo stood up with the bottle in hand and placed his hand on Sua's thigh, where the sushi was laid out.</p>

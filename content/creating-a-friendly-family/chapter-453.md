@@ -194,7 +194,7 @@ chapter = 453
 
 <p>Then, he also replied nonchalantly, pretending not to know what had happened, just like Mom and Sehee Nuna.</p>
 
-<p>"Shiwoo, what is this~! Did you really leave this for me to wear? How can you expect Mom to wear something like this?"</p>
+<p>"Shiwoo, what is this! Did you really leave this for me to wear? How can you expect Mom to wear something like this?"</p>
 
 <p>Mom spoke to Shiwoo in a complaining and petulant tone, as if protesting.</p>
 

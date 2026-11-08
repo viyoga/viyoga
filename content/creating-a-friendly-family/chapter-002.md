@@ -74,7 +74,7 @@ chapter = 2
 
 <p>The curves of her body, toned by yoga, looked incredibly sensual and firm.</p>
 
-<p>"Hello~"</p>
+<p>"Hello"</p>
 
 <p>As soon as he entered the house, he greeted Gyuri Ajumma.</p>
 
@@ -88,7 +88,7 @@ chapter = 2
 
 <p>Cheoljin took a deep breath, then called out loudly to Gyuri Ajumma outside.</p>
 
-<p>"Mom~ do we have any juice or cola?"</p>
+<p>"Mom do we have any juice or cola?"</p>
 
 <p>Gyuri Ajumma's reply came from the kitchen.</p>
 
@@ -112,7 +112,7 @@ chapter = 2
 
 <p>Soon, Gyuri Ajumma came into Cheoljin's room, carrying juice and cake on a tray. Gyuri Ajumma looked at Cheoljin's face, seeming a little wary, and placed the tray on the desk.</p>
 
-<p>"Eat well~" Gyuri Ajumma smiled at Shiwoo and said.</p>
+<p>"Eat well" Gyuri Ajumma smiled at Shiwoo and said.</p>
 
 <p>"But Mom, when other friends come over, you don't usually prepare things like this unless they ask, do you?" Cheoljin said to Gyuri Ajumma, as if joking.</p>
 
@@ -132,7 +132,7 @@ chapter = 2
 
 <p>"Yeah, I saw."</p>
 
-<p>"Then why ask if you already know? Honestly~"</p>
+<p>"Then why ask if you already know? Honestly"</p>
 
 <p>As the strange, pointless conversation between mother and son continued, and Gyuri Ajumma turned to leave with an exasperated expression, just then— 'Chalsak' A resounding, crisp slap echoed loudly. Cheoljin had mercilessly slapped his own mother's buttocks with his palm. Shiwoo's eyes widened in shock, and Gyuri Ajumma stood frozen in place as if her body had stiffened.</p>
 
@@ -144,7 +144,7 @@ chapter = 2
 
 <p>Gyuri Ajumma clenched her fist, raised her middle finger, and pressed it firmly into Cheoljin's temple.</p>
 
-<p>"Ah, alright, I surrender, I surrender~ Ah, seriously, your strength is just brutish~ Aah~~ It hurts, it hurts!"</p>
+<p>"Ah, alright, I surrender, I surrender Ah, seriously, your strength is just brutish Aah It hurts, it hurts!"</p>
 
 <p>Cheoljin was screaming as he was punished for the disrespectful act he had just displayed. Shiwoo had almost never seen Gyuri Ajumma raise her voice and get angry in such a flustered manner. Seeing that sight, an inexplicable excitement/arousal surged from deep within Shiwoo's chest.</p>
 
@@ -168,7 +168,7 @@ chapter = 2
 
 <p>"Normally, she just stands there until I hit her three or four times, and if it hurts too much, she'll ask if I've done my homework or put out the laundry, then just walk away. She never tells me to stop hitting her."</p>
 
-<p>"Isn't it kind of cute how she pretends not to notice and changes the subject when I hit her? My mom has a great figure, but her buttocks are so plump, they just beg to be spanked~ When I hit them, it doesn't feel like she hates it; rather, it feels like she's properly offering herself up to it, you know?"</p>
+<p>"Isn't it kind of cute how she pretends not to notice and changes the subject when I hit her? My mom has a great figure, but her buttocks are so plump, they just beg to be spanked When I hit them, it doesn't feel like she hates it; rather, it feels like she's properly offering herself up to it, you know?"</p>
 
 <p>"..."</p>
 

@@ -6,19 +6,19 @@ chapter = 540
 +++
 <p>Although it was merely Shiwoo's imagination, looking at Seyoung's triumphant expression and Sehee -nuna's contrasting awkward face, one could easily assume that similar things had already happened and more.</p>
 
-<p>"Good job~ Thanks for your hard work, Seyoung-ah~!"</p>
+<p>"Good job Thanks for your hard work, Seyoung-ah!"</p>
 
 <p>Shiwoo said, gently stroking Seyoung's head with his palm.</p>
 
 <p>He was stroking Seyoung's head as he would normally treat his younger sister, but her naked, lewd body, amidst the morning scenery of the family gathered in the first-floor living room, was arousing a different kind of stimulation and agitation in Shiwoo.</p>
 
-<p>"I'm going into my room now to get dressed and come out~!"</p>
+<p>"I'm going into my room now to get dressed and come out!"</p>
 
 <p>Seyoung said, as if sharing her trivial next schedule with Shiwoo.</p>
 
 <p>As if it were natural to report her detailed daily routine to Shiwoo and seek his permission for it...</p>
 
-<p>"Okay~ Seyoung, you go to your room and quickly get dressed and come out~"</p>
+<p>"Okay Seyoung, you go to your room and quickly get dressed and come out"</p>
 
 <p>Shiwoo replied as if he were granting permission for Seyoung's action of going into her room to get dressed.</p>
 
@@ -42,7 +42,7 @@ chapter = 540
 
 <p>Seyoung smiled once more, looking at such Sehee -nuna...</p>
 
-<p>"Then I'll be going now~ Shiwoo oppa~! Sehee unni~!"</p>
+<p>"Then I'll be going now Shiwoo oppa! Sehee unni!"</p>
 
 <p>Seyoung left Sehee -nuna in Shiwoo's care and walked slowly into her room, as if vacating her seat.</p>
 
@@ -70,7 +70,7 @@ chapter = 540
 
 <p>Shiwoo's curry dish, with curry sauce sprinkled and rice placed on top, was placed at the table seat opposite Mom.</p>
 
-<p>"Seyoung said she's going to get dressed and come out right away~ She'll be out soon, so I think we can wait a bit and eat together."</p>
+<p>"Seyoung said she's going to get dressed and come out right away She'll be out soon, so I think we can wait a bit and eat together."</p>
 
 <p>Shiwoo was saying to Mom, as if explaining the situation of Seyoung, who had just entered her room.</p>
 
@@ -78,7 +78,7 @@ chapter = 540
 
 <p>Mom said to Shiwoo, pointing to Shiwoo's curry that she had set aside separately.</p>
 
-<p>"Okay~ So this is the one you set aside earlier~?"</p>
+<p>"Okay So this is the one you set aside earlier?"</p>
 
 <p>Shiwoo replied to Mom, as if recognizing his curry that she had prepared in advance, and sat down in that seat.</p>
 
@@ -104,7 +104,7 @@ chapter = 540
 
 <p>After Sehee -nuna and Shiwoo entered the kitchen together, Mom, on the contrary, changed her expression calmly and was organizing the side dishes and tableware spread out on the table.</p>
 
-<p>"It smells good as always~ I should just mix it before Seyoung comes. Did you taste it, Mom?"</p>
+<p>"It smells good as always I should just mix it before Seyoung comes. Did you taste it, Mom?"</p>
 
 <p>Shiwoo asked Mom, taking a spoon and mixing the rice and curry in his bowl.</p>
 
@@ -124,7 +124,7 @@ chapter = 540
 
 <p>Sehee -nuna answered Mom's words with her head lowered.</p>
 
-<p>"Well, should we do it that way then? But if it seems like the curry is getting too salty or strong while doing that, tell me! Because I think I can solve that right away again~"</p>
+<p>"Well, should we do it that way then? But if it seems like the curry is getting too salty or strong while doing that, tell me! Because I think I can solve that right away again"</p>
 
 <p>Shiwoo was continuing to make jokes close to obscene remarks in a nonchalant manner.</p>
 
@@ -132,7 +132,7 @@ chapter = 540
 
 <p>Mom said, flustered by Shiwoo's mischievous jokes, as if glossing over them.</p>
 
-<p>"Is that so~? But then you'll be very full, won't you? Sehee is on a diet, so will it be okay? Still, wouldn't protein be better than carbohydrates...?"</p>
+<p>"Is that so? But then you'll be very full, won't you? Sehee is on a diet, so will it be okay? Still, wouldn't protein be better than carbohydrates...?"</p>
 
 <p>Shiwoo continued to spout high-level mischievous jokes without hesitation in front of Mom and Sehee -nuna.</p>
 

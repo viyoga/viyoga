@@ -24,7 +24,7 @@ chapter = 798
 
 <p>Mom spoke to Shiwoo, her breath hitching in a way that could have been indignation or an outpouring of emotions she couldn't quite explain.</p>
 
-<p>"Is that so~?"</p>
+<p>"Is that so?"</p>
 
 <p>Shiwoo teased her, rubbing her ass as if to soothe her.</p>
 
@@ -34,7 +34,7 @@ chapter = 798
 
 <p>The words burst from Mom like a protest or a pout, but they seemed to carry a complex tangle of emotions she hadn't even sorted out herself.</p>
 
-<p>"Well~ it's true I told you to go back, and it's true I gave Sehee permission, but I just didn't think you'd follow along so easily, Mom... Not that I'm complaining about it, though~"</p>
+<p>"Well it's true I told you to go back, and it's true I gave Sehee permission, but I just didn't think you'd follow along so easily, Mom... Not that I'm complaining about it, though"</p>
 
 <p>Shiwoo calmly admitted to being the one who sent her back there, his hand reaching out to firmly squeeze her breast once more.</p>
 

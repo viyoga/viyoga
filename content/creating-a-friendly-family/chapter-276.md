@@ -36,7 +36,7 @@ chapter = 276
 
 <p>In the kitchen where breakfast was being prepared, the sense of everyday life was gradually fading between Mom and son...</p>
 
-<p>,Th-there...the water in the pot is boiling~!"</p>
+<p>,Th-there...the water in the pot is boiling!"</p>
 
 <p>Mom was suddenly speaking to Shiwoo in a pleading tone.</p>
 
@@ -54,7 +54,7 @@ chapter = 276
 
 <p>Mom's flowing vaginal fluid was being applied to the red letters.</p>
 
-<p>,I can do it here~ My initial tattoo~!"</p>
+<p>,I can do it here My initial tattoo!"</p>
 
 <p>Shiwoo said as if whispering into Mom's ear in a small voice.</p>
 
@@ -76,7 +76,7 @@ chapter = 276
 
 <p>Mom, startled and not knowing what to do, twisted the body that was being held by Shiwoo as if asking to be released.</p>
 
-<p>,Should I show Seyoung? That Mom is mine now! I don't mind~!"</p>
+<p>,Should I show Seyoung? That Mom is mine now! I don't mind!"</p>
 
 <p>Shiwoo said once again in a whispering voice into Mom's ear.</p>
 
@@ -112,7 +112,7 @@ chapter = 276
 
 <p>Shiwoo stammered and mumbled words that didn't even come out, as if trying to gloss over the situation.</p>
 
-<p>,Oppa~~ Stop bothering Mom now~!!"</p>
+<p>,Oppa Stop bothering Mom now!!"</p>
 
 <p>Seyoung, who had returned to Mom and Shiwoo with the vegetables in a plastic bag from the refrigerator, said with a pitiful expression.</p>
 
@@ -128,7 +128,7 @@ chapter = 276
 
 <p>Mom was talking to Shiwoo as if nagging him.</p>
 
-<p>,Ah...okay~!"</p>
+<p>,Ah...okay!"</p>
 
 <p>Shiwoo answered, rubbing the area of his head that had been struck as if feeling awkward.</p>
 

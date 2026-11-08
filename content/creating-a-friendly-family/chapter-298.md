@@ -26,7 +26,7 @@ chapter = 298
 
 <p>Suddenly, a lewd scene comes to Shiwoo's mind.</p>
 
-<p>,Ah~! Wait a minute! I have one more thing to say! When Mom drinks my semen, don't let her rinse her mouth out with water right away!\,</p>
+<p>,Ah! Wait a minute! I have one more thing to say! When Mom drinks my semen, don't let her rinse her mouth out with water right away!\,</p>
 
 <p>Shiwoo conveys a new instruction to Sehee Nuna as if he suddenly thought of it.</p>
 
@@ -42,7 +42,7 @@ chapter = 298
 
 <p>Sehee Nuna pleads pitifully, as if Shiwoo's sadistic act towards Mom seems excessive.</p>
 
-<p>,Then you can rinse Mom's mouth directly~! You can even feed her water directly with your mouth~! Sehee, you can kiss Mom right away today, right?\,</p>
+<p>,Then you can rinse Mom's mouth directly! You can even feed her water directly with your mouth! Sehee, you can kiss Mom right away today, right?\,</p>
 
 <p>Shiwoo continues to speak in a somewhat forced manner to create the scene he wants.</p>
 
@@ -118,7 +118,7 @@ chapter = 298
 
 <p>Shiwoo answers Seyoung's question vaguely.</p>
 
-<p>,Hmm~ Is that so~?\,</p>
+<p>,Hmm Is that so?\,</p>
 
 <p>Seyoung brings her body even closer to Shiwoo, presses it against him, and looks at Shiwoo with a strange smile.</p>
 
@@ -126,7 +126,7 @@ chapter = 298
 
 <p>Shiwoo feels Seyoung's breasts being pressed against his arm and answers awkwardly.</p>
 
-<p>,Then I should send a text to Sua right now, saying that I'm on my way~ And tell Seonju Imo to take good care of the house too~! Hehe~\,</p>
+<p>,Then I should send a text to Sua right now, saying that I'm on my way And tell Seonju Imo to take good care of the house too! Hehe\,</p>
 
 <p>After saying that, Seyoung takes out her smartphone and writes a text to Sua and Seonju Imo.</p>
 
@@ -162,7 +162,7 @@ chapter = 298
 
 <p>That tremor is transmitted to Seyoung through Shiwoo's arm.</p>
 
-<p>,Shiwoo Oppa, are you cold? Why are you shaking so much~?\,</p>
+<p>,Shiwoo Oppa, are you cold? Why are you shaking so much?\,</p>
 
 <p>Seyoung looks at Shiwoo, who is shaking, with a puzzled expression and asks after texting Sua and Seonju Imo.</p>
 
@@ -170,15 +170,15 @@ chapter = 298
 
 <p>Shiwoo was startled and took the strength out of his arm that was pressing on Seyoung's breasts and said vaguely.</p>
 
-<p>,Last night? Is it because you moved me to Sehee Unnie's room? I think my breasts are getting bigger and I've gained some weight these days, so wasn't it hard? Weren't you too reckless yesterday, Oppa? Hehe~\,</p>
+<p>,Last night? Is it because you moved me to Sehee Unnie's room? I think my breasts are getting bigger and I've gained some weight these days, so wasn't it hard? Weren't you too reckless yesterday, Oppa? Hehe\,</p>
 
 <p>Seyoung jokes playfully, laughing as if she is making fun of her own development.</p>
 
-<p>,Uh... Uh? Well... That's because you're still growing~! And you weren't that heavy, Seyoung!\,</p>
+<p>,Uh... Uh? Well... That's because you're still growing! And you weren't that heavy, Seyoung!\,</p>
 
 <p>Shiwoo reacts a little flustered when Seyoung mentions her breasts, which Shiwoo is touching wildly with his arm.</p>
 
-<p>,Is that so? Then that's a relief~ Hehe~\,</p>
+<p>,Is that so? Then that's a relief Hehe\,</p>
 
 <p>Seyoung was talking in a calm tone, as if she hardly cared about Shiwoo's molestation.</p>
 
@@ -194,7 +194,7 @@ chapter = 298
 
 <p>Shiwoo asks as if testing her, preparing to molest Seyoung while feeling excited.</p>
 
-<p>,Well~? The weather has gotten a lot warmer~! I think it's okay to wear this much now?\,</p>
+<p>,Well? The weather has gotten a lot warmer! I think it's okay to wear this much now?\,</p>
 
 <p>Seyoung answers as if there is nothing wrong with the clothes Shiwoo chose for her.</p>
 

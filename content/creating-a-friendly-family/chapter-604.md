@@ -36,9 +36,9 @@ chapter = 604
 
 <p>Visible on the countertop next to the sink, was Sejin Nuna's smartphone. Just moments ago, on her smartphone, Shiwoo's masturbation video must have been playing.</p>
 
-<p>「My apologies~ After enjoying such delicious pasta, I should have done the dishes... I was just busy with something urgent in the bathroom... Shall I help with the rest?」</p>
+<p>「My apologies After enjoying such delicious pasta, I should have done the dishes... I was just busy with something urgent in the bathroom... Shall I help with the rest?」</p>
 
-<p>「No, I'm almost done anyway~... And since you're a guest today... just relax~」</p>
+<p>「No, I'm almost done anyway... And since you're a guest today... just relax」</p>
 
 <p>Sejin Nuna didn't turn around, and spoke while wiping the dish in her hand. Who, looking at her now, would think she was the person who had just reached climax through masturbation in front of her younger brother? Her voice was calm, but a subtle tremor seemed to be mixed within it. And no wonder, Sejin Nuna, after reaching climax through masturbation in front of her younger brother, had been left almost abandoned in that spot. Shiwoo had gone into the bathroom, masturbated perversely with her belongings, even filmed the act, and sent the video to Sejin Nuna.</p>
 
@@ -66,7 +66,7 @@ chapter = 604
 
 <p>She spoke evasively, as if making an excuse, about a reason they both clearly knew.</p>
 
-<p>「Really? Because of a stain? Well, I did notice it seemed quite wet earlier~ What a waste...」</p>
+<p>「Really? Because of a stain? Well, I did notice it seemed quite wet earlier What a waste...」</p>
 
 <p>Shiwoo spoke as if recalling the situation from earlier when he had squeezed her breast.</p>
 
@@ -98,7 +98,7 @@ chapter = 604
 
 <p>Sejin Nuna reacted to Shiwoo's words with a slight startle.</p>
 
-<p>「Why wait until I leave? Since it's been brought up, just do it now~ I've already seen Sejin Nuna walking around with her breasts exposed plenty of times!」</p>
+<p>「Why wait until I leave? Since it's been brought up, just do it now I've already seen Sejin Nuna walking around with her breasts exposed plenty of times!」</p>
 
 <p>Shiwoo was telling Sejin Nuna to disregard him, and to use the breast pump to express her milk right now.</p>
 

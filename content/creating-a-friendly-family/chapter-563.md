@@ -24,13 +24,13 @@ chapter = 563
 
 <p>Could Seyoung's provocative words have touched a taboo-like desire deeply hidden within Mom?</p>
 
-<p>"Haum haaam haaaap heueueeum~!"</p>
+<p>"Haum haaam haaaap heueueeum!"</p>
 
 <p>While Seyoung is holding the smartphone camera and watching quietly, Mom convulses as if she has reached a small climax on her own.</p>
 
 <p>Like secretions that she couldn't hold back, semen that had been held in her mouth leaked around her lips.</p>
 
-<p>"I told you not to spill it! What a waste~!"</p>
+<p>"I told you not to spill it! What a waste!"</p>
 
 <p>Seyoung smiles playfully and reaches out her hand to wipe the semen flowing down around Mom's mouth.</p>
 
@@ -50,7 +50,7 @@ chapter = 563
 
 <p>However, the irresistibly ejected semen flows down Mom's cheeks and chin.</p>
 
-<p>"Kikik~! Funny? It's like Mom is cumming... Can I get pregnant with this?"</p>
+<p>"Kikik! Funny? It's like Mom is cumming... Can I get pregnant with this?"</p>
 
 <p>Seyoung was wiping away the newly leaked semen from Mom's mouth with the back of her hand as if sweeping it away.</p>
 
@@ -62,13 +62,13 @@ chapter = 563
 
 <p>Mom's nasal breathing becomes rougher, as if responding to Seyoung's touch fondling her breasts.</p>
 
-<p>"Seonmi pretends she doesn't, but she really likes having her breasts fondled~hehe~"</p>
+<p>"Seonmi pretends she doesn't, but she really likes having her breasts fondledhehe"</p>
 
 <p>Seyoung treats Mom like a child and speaks as if she is talking to someone beyond the smartphone camera.</p>
 
 <p>Mom trembles as if stunned, with her arms over her eyes.</p>
 
-<p>"Do you want to hold this for a bit? It's hard to stay still like that~Lean back slightly and get up, and film me~!"</p>
+<p>"Do you want to hold this for a bit? It's hard to stay still like thatLean back slightly and get up, and film me!"</p>
 
 <p>Seyoung speaks as if caring for Mom's body, which is stiff with tension.</p>
 

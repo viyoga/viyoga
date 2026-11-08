@@ -24,7 +24,7 @@ chapter = 689
 
 <p>Mom spoke cautiously, her gaze lowered slightly as if she were pleading for Shiwoo's permission.</p>
 
-<p>"Returning to a mother-son relationship in the morning? With the other family members as well? Is that really what you want? It doesn't matter much to me, but will you be okay, Seonmi? Won't it be awkward when it's just the two of us during the day~?"</p>
+<p>"Returning to a mother-son relationship in the morning? With the other family members as well? Is that really what you want? It doesn't matter much to me, but will you be okay, Seonmi? Won't it be awkward when it's just the two of us during the day?"</p>
 
 <p>Shiwoo asked with interest, his penis twitching heavily right where Mom's eyes were fixed.</p>
 
@@ -40,7 +40,7 @@ chapter = 689
 
 <p>Perhaps Mom was already imagining herself in that uncomfortable and awkward situation.</p>
 
-<p>"Is that so~? Well, since you and Sehee have decided on it, I'll go along with it. But if you wake up and live as mother and son during the day, until when do you plan to stay in that relationship?"</p>
+<p>"Is that so? Well, since you and Sehee have decided on it, I'll go along with it. But if you wake up and live as mother and son during the day, until when do you plan to stay in that relationship?"</p>
 
 <p>Shiwoo asked with a gentle and friendly smile, as if confirming the specific time and plan.</p>
 
@@ -48,7 +48,7 @@ chapter = 689
 
 <p>Mom spoke while hesitantly gauging Shiwoo's reaction, perhaps feeling that the time spent as mother and son through the day and evening was quite long.</p>
 
-<p>"Ah~ Until 9 PM?"</p>
+<p>"Ah Until 9 PM?"</p>
 
 <p>Shiwoo asked again, softly confirming the time.</p>
 
@@ -72,7 +72,7 @@ chapter = 689
 
 <p>Mom bowed her head again and answered quietly.</p>
 
-<p>"Alright~ Let's do that then! That was the original plan anyway, wasn't it? Until we could be honest with each other after I had sex with Seyoung..."</p>
+<p>"Alright Let's do that then! That was the original plan anyway, wasn't it? Until we could be honest with each other after I had sex with Seyoung..."</p>
 
 <p>Shiwoo spoke as if reminding her of the shameful acting and the deceptive games they had been playing.</p>
 
@@ -104,7 +104,7 @@ chapter = 689
 
 <p>Sehee, watching Shiwoo from the side, smiled as if she had seen right through his inner thoughts.</p>
 
-<p>"Seonmi~ There are two more things you need to report to Master-nim! You have to finish those too!"</p>
+<p>"Seonmi There are two more things you need to report to Master-nim! You have to finish those too!"</p>
 
 <p>Sehee spoke in a tone that sounded like she was manipulating and disciplining Mom from behind.</p>
 
@@ -118,7 +118,7 @@ chapter = 689
 
 <p>Just then, the sound of Seyoung coming down from the second floor was heard.</p>
 
-<p>"Are Sehee Unni and Seonmi here? Did you two have fun~?"</p>
+<p>"Are Sehee Unni and Seonmi here? Did you two have fun?"</p>
 
 <p>Seyoung greeted them just as she usually did, maintaining her normal attitude toward Mom and Sehee.</p>
 
@@ -146,11 +146,11 @@ chapter = 689
 
 <p>Seyoung approached Shiwoo and handed him the leashes she had just gathered while going around the rooms.</p>
 
-<p>"Oh~ really? You found them quickly. I thought it would take longer. Good job finding the leashes while running around the rooms, Seyoung~!"</p>
+<p>"Oh really? You found them quickly. I thought it would take longer. Good job finding the leashes while running around the rooms, Seyoung!"</p>
 
 <p>Shiwoo took the leashes from Seyoung and praised her.</p>
 
-<p>"He-he~~"</p>
+<p>"He-he"</p>
 
 <p>Seyoung laughed, seemingly pleased by Shiwoo's commendation of her hard work.</p>
 

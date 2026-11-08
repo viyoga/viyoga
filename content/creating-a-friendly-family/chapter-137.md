@@ -48,7 +48,7 @@ chapter = 137
 
 <p>「Haat!」</p>
 
-<p>「You need to relax~! If you keep moving like that because it hurts, I can't give you a proper massage. If anything's uncomfortable, you need to tell me right away, okay?」</p>
+<p>「You need to relax! If you keep moving like that because it hurts, I can't give you a proper massage. If anything's uncomfortable, you need to tell me right away, okay?」</p>
 
 <p>Shiwoo said, spanking Gyuri Ajumma's buttocks with a satisfying smack.</p>
 
@@ -90,7 +90,7 @@ chapter = 137
 
 <p>As the text grew long, Shiwoo slapped Gyuri Ajumma's buttocks with his palm as if urging an answer.</p>
 
-<p>「Heeueu~eut Heeueut」</p>
+<p>「Heeueueut Heeueut」</p>
 
 <p>Gyuri Ajumma was exhaling, as if sighing.</p>
 
@@ -136,7 +136,7 @@ chapter = 137
 
 <p>—and as if expressing his resolve and vowing to maintain a fair attitude and stance as Gyuri Ajumma's master, no matter what had happened—</p>
 
-<p>「Huuu~」</p>
+<p>「Huuu」</p>
 
 <p>In the midst of it all, Gyuri Ajumma took a deep breath, then searched for something on her smartphone.</p>
 

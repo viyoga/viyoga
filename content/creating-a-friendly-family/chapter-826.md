@@ -14,7 +14,7 @@ chapter = 826
 
 <p>Kang Haeun calmly retraced her experiences, as if untangling the threads of her memory one by one.</p>
 
-<p>"You realized right away that the secrets of the gathering hadn't leaked? How on earth~?"</p>
+<p>"You realized right away that the secrets of the gathering hadn't leaked? How on earth?"</p>
 
 <p>Shin Yuna asked in a low, curious tone, showing her interest.</p>
 
@@ -44,7 +44,7 @@ chapter = 826
 
 <p>Kang Haeun answered as if calmly reflecting on the bizarre certainty that bound her, even as she gasped for air.</p>
 
-<p>"If it was another place, where~? Are you saying it wasn't the place where the ritual was held?"</p>
+<p>"If it was another place, where? Are you saying it wasn't the place where the ritual was held?"</p>
 
 <p>Shin Yuna asked, her voice betraying an even stronger curiosity, as if she had uncovered a new point of interest.</p>
 
@@ -82,7 +82,7 @@ chapter = 826
 
 <p>She let out a long, held-in breath, spinning her tale as if barely piecing together the fragments of sensation dredged up from an unseen abyss.</p>
 
-<p>"So you all already knew~? That you were carrying the child of the same man..."</p>
+<p>"So you all already knew? That you were carrying the child of the same man..."</p>
 
 <p>Shin Yuna asked slyly, raising her tone to a lighter pitch as if probing a secret crack.</p>
 
@@ -100,7 +100,7 @@ chapter = 826
 
 <p>Kang Haeun shrank back awkwardly as she answered.</p>
 
-<p>"So you've gone ahead and broken that rule by spilling everything to me~?"</p>
+<p>"So you've gone ahead and broken that rule by spilling everything to me?"</p>
 
 <p>Shin Yuna murmured softly, finding it amusing.</p>
 
@@ -108,9 +108,9 @@ chapter = 826
 
 <p>Kang Haeun apologized, swallowing a heavy breath as if she had just realized the mistake she had made.</p>
 
-<p>"There's no need to apologize now~ After all, isn't that why you came to find me?..."</p>
+<p>"There's no need to apologize now After all, isn't that why you came to find me?..."</p>
 
-<p>"Besides, I'll make sure you pay the price for it later~! Heheh, humph!"</p>
+<p>"Besides, I'll make sure you pay the price for it later! Heheh, humph!"</p>
 
 <p>The low humming coming from off-camera mixed with the faint static of the speaker, distorting strangely.</p>
 

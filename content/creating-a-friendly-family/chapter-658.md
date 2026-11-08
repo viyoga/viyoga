@@ -76,7 +76,7 @@ chapter = 658
 
 <p>Shiwoo lifted his head slightly and then slowly lowered it, bringing his lips to Sua's face. Moving his lips against her skin, he searched for her mouth in a gentle, circling motion. Her plump, moist lips overlapped with Shiwoo's, brushing against each other.</p>
 
-<p>" Chu-up chyu-ap su-up sup su-up~ "</p>
+<p>" Chu-up chyu-ap su-up sup su-up "</p>
 
 <p>Shiwoo sucked on her lips and stuck out his tongue, slowly indulging in her. Soon, Sua's tongue pushed forward in response.</p>
 
@@ -96,7 +96,7 @@ chapter = 658
 
 <p>Shiwoo's violent movements, which seemed to be expanding Sua's vagina, were pushing her breath to its limit. Under Shiwoo's passionate, pounding thrusts, Sua's head suddenly snapped back.</p>
 
-<p>" Ha-eung ha-a-ang ha-a-at ha-ang~ ha-a-a-ang! "</p>
+<p>" Ha-eung ha-a-ang ha-a-at ha-ang ha-a-a-ang! "</p>
 
 <p>Sua's lips, which had been locked with Shiwoo's, tore away, and her pent-up breath spilled out like a scream. Her eyes, burning with heat, wandered through the air in a daze.</p>
 
@@ -136,7 +136,7 @@ chapter = 658
 
 <p>Intense impacts, like being struck by a hammer, were transmitted directly to her uterus.</p>
 
-<p>" Ha-ang ha-at a-u a-ut ha-ut! Ha-ang! Hang~ "</p>
+<p>" Ha-ang ha-at a-u a-ut ha-ut! Ha-ang! Hang "</p>
 
 <p>As if she didn't know what to do, Sua wrapped her arms around Shiwoo's head and shoulders, shaking her head back and forth.</p>
 

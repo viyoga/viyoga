@@ -50,7 +50,7 @@ chapter = 67
 
 <p>Tak! Tak! Tak!! Tak!!!</p>
 
-<p>'Ah...ah~~Se...Sehee Nuna, it's...it's over~~it's over~!!!'</p>
+<p>'Ah...ahSe...Sehee Nuna, it's...it's overit's over!!!'</p>
 
 <p>As the sensation of ejaculation surged, Shiwoo spoke to Sehee Nuna as if pleading.</p>
 
@@ -64,7 +64,7 @@ chapter = 67
 
 <p>Shiwoo tightly embraced Sehee Nuna and curled his body, cowering to suppress the urge to ejaculate as much as possible.</p>
 
-<p>"Haa~ Haa~~"</p>
+<p>"Haa Haa"</p>
 
 <p>Shiwoo finally calmed the urge to ejaculate and caught his breath.</p>
 
@@ -106,7 +106,7 @@ chapter = 67
 
 <p>-Wrapped in Mom's blanket, with only her head peeking out-</p>
 
-<p>"Eum Chu-eup Heum....Haa-am~"</p>
+<p>"Eum Chu-eup Heum....Haa-am"</p>
 
 <p>It was Sehee Nuna, her mouth wrapped around Shiwoo's penis, making lewd sounds as she sucked, as if gauging the size of the enormous lust that was about to enter her.</p>
 

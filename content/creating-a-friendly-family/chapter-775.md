@@ -70,7 +70,7 @@ chapter = 775
 
 <p>Overwhelming Mom's body completely, Shiwoo begins to move his hips even faster.</p>
 
-<p>"Ha-ang! Hng-ut Honey! Ha-at! Ha-aaaaang fuck me~ Ha-at ha-ang! So... ha-aaang... that I can get... ha-aa... pregnant... with my son's cum... deeper... ha-a... harder.... hng-ut... please fuck Mom... ha-aaaaat! Honey~!"</p>
+<p>"Ha-ang! Hng-ut Honey! Ha-at! Ha-aaaaang fuck me Ha-at ha-ang! So... ha-aaang... that I can get... ha-aa... pregnant... with my son's cum... deeper... ha-a... harder.... hng-ut... please fuck Mom... ha-aaaaat! Honey!"</p>
 
 <p>Along with those lewd words, Mom moans roughly with irregular breathing and wraps her son's body with her limbs, which are bound by the dress fabric and panties.</p>
 
@@ -96,11 +96,11 @@ chapter = 775
 
 <p>Mom also seems to know that as long as Shiwoo's thirst is not completely satisfied, this harsh and cruel ordeal will never end.</p>
 
-<p>"Ha-aaaaang.. Master... ha-a... Honey... hng-uk... ha-a... Shiwoo-ya.... Shiwoo-ya... ha-a ha-ang ha-aaaaang! I'll... do... anything... ha-aaat... I'll become whatever you want~ hng-uuuu... ha-aaaaat ha-ang"</p>
+<p>"Ha-aaaaang.. Master... ha-a... Honey... hng-uk... ha-a... Shiwoo-ya.... Shiwoo-ya... ha-a ha-ang ha-aaaaang! I'll... do... anything... ha-aaat... I'll become whatever you want hng-uuuu... ha-aaaaat ha-ang"</p>
 
 <p>Mom pitifully grabs Shiwoo's sturdy neck and shoulders like a beast begging for survival, and shakes and twists her body violently as if she'd rather be completely devoured by him.</p>
 
-<p>"Shiwoo, your cum... shoot all of it inside Mom~ hng-uuuuuuut...! Knock Mom up... so I can't run away anymore... make me... ha-aaaaang... make me your woman... Shiwoo's woman... hng-ut hng-uk ha-aaaaat! Darling... ha-ang.. Honey~!"</p>
+<p>"Shiwoo, your cum... shoot all of it inside Mom hng-uuuuuuut...! Knock Mom up... so I can't run away anymore... make me... ha-aaaaang... make me your woman... Shiwoo's woman... hng-ut hng-uk ha-aaaaat! Darling... ha-ang.. Honey!"</p>
 
 <p>Mom, her eyes covered, looks up at Shiwoo from beneath the bunched-up dress with a gaze that has fallen all the way to the floor.</p>
 
@@ -142,7 +142,7 @@ chapter = 775
 
 <p>Mom's legs, which had been held up in a triangle due to the tight tension of the panties, suddenly lose strength like a sacrifice that has stopped breathing and drop onto the mattress with a thud.</p>
 
-<p>"Hng-uut~!"</p>
+<p>"Hng-uut!"</p>
 
 <p>Mom's vaginal opening tightens as if stimulated by the sudden sensation of the fall.</p>
 
@@ -164,7 +164,7 @@ chapter = 775
 
 <p>Mom's lips, exhaling heavy breaths with her vision covered, were trembling.</p>
 
-<p>"Hm? Why~?"</p>
+<p>"Hm? Why?"</p>
 
 <p>Shiwoo relaxes the strength in his arms that were trying to strip the rest of Mom's clothes and asks Mom.</p>
 

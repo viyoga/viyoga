@@ -8,7 +8,7 @@ chapter = 590
 
 <p>Sehee Nuna then asked Shiwoo, as if worried.</p>
 
-<p>「Don't worry about Cheoljin and that person~」</p>
+<p>「Don't worry about Cheoljin and that person」</p>
 
 <p>Before Shiwoo could answer, Gyuri Ajumma spoke first, as if reassuring the others.</p>
 
@@ -18,7 +18,7 @@ chapter = 590
 
 <p>Shiwoo also added to Gyuri Ajumma's words, explaining Cheoljin's and Ajussi's positions and situations.</p>
 
-<p>「Wow~ Really? That's amazing. There are families like that too~ Not that we should be talking, though.」</p>
+<p>「Wow Really? That's amazing. There are families like that too Not that we should be talking, though.」</p>
 
 <p>Sehee Nuna, hearing Shiwoo's explanation, sent a text message of playful admiration, as if a little surprised.</p>
 
@@ -26,7 +26,7 @@ chapter = 590
 
 <p>Shiwoo quickly spoke to Gyuri Ajumma, as if changing the subject.</p>
 
-<p>「Yes~ It's late, but I also ask for your kind cooperation~~ I hope we can all happily enjoy ourselves with Shiwoo Jueinnim... Is that alright, Seonmi-ya? No, should I call you Eomeonim from now on?」</p>
+<p>「Yes It's late, but I also ask for your kind cooperation I hope we can all happily enjoy ourselves with Shiwoo Jueinnim... Is that alright, Seonmi-ya? No, should I call you Eomeonim from now on?」</p>
 
 <p>Following that, Gyuri Ajumma greeted all the family members, then subtly glanced at Mom and asked her, as if teasing.</p>
 
@@ -34,7 +34,7 @@ chapter = 590
 
 <p>Mom spoke as if flaring up, snapping at Gyuri Ajumma through the chat.</p>
 
-<p>「Oh my~ Unnie! We all clearly know you even signed a marriage contract with Gyuri Unnie before our Jueinnim was even born, and you're still acting like this? You signed it yourself, and now you're being so shameless!」</p>
+<p>「Oh my Unnie! We all clearly know you even signed a marriage contract with Gyuri Unnie before our Jueinnim was even born, and you're still acting like this? You signed it yourself, and now you're being so shameless!」</p>
 
 <p>Seonju Imo was teasing Mom mischievously, criticizing her as if to provoke her.</p>
 
@@ -52,7 +52,7 @@ chapter = 590
 
 <p>Shiwoo spoke, drawing a line with an authoritative attitude, as if settling the situation.</p>
 
-<p>「Yes~ Jueinnim~ Unlike some people, I'll listen well to Jueinnim~」</p>
+<p>「Yes Jueinnim Unlike some people, I'll listen well to Jueinnim」</p>
 
 <p>Seonju Imo replied, playfully needling Mom with an exaggeratedly cute tone.</p>
 
@@ -66,17 +66,17 @@ chapter = 590
 
 <p>Shiwoo asked back, as if puzzled by Seyoung's question.</p>
 
-<p>「The day we came in here, we all took naked pictures and uploaded them, like an initiation ceremony, remember~?」</p>
+<p>「The day we came in here, we all took naked pictures and uploaded them, like an initiation ceremony, remember?」</p>
 
 <p>Seyoung, along with Sua, seemed to be recalling Shiwoo's command from when they first entered the family group chat room.</p>
 
-<p>「Ah~ Right, that's correct. Everyone took a picture and sent it once, didn't they?」</p>
+<p>「Ah Right, that's correct. Everyone took a picture and sent it once, didn't they?」</p>
 
 <p>Shiwoo spoke as if remembering after hearing Seyoung's words.</p>
 
-<p>「Yeah~ We sent pictures taken completely naked, showing everything from our breasts to our crotches. Since Gyuri is here too, she should take one and send it the same way!」</p>
+<p>「Yeah We sent pictures taken completely naked, showing everything from our breasts to our crotches. Since Gyuri is here too, she should take one and send it the same way!」</p>
 
-<p>「I want to see our Gyuri's beautiful naked picture quickly~」</p>
+<p>「I want to see our Gyuri's beautiful naked picture quickly」</p>
 
 <p>Seyoung was speaking as if she were a teacher or a superior enforcing rules.</p>
 
@@ -98,7 +98,7 @@ chapter = 590
 
 <p>Gyuri Ajumma hesitated for a moment, then answered in respectful speech, hiding her awkwardness.</p>
 
-<p>「Wow~ Unnie, are you really taking off your clothes and taking a naked picture right now? You're going to upload it here where Seyoung and Sua can all see? ㅋㅋㅋ」</p>
+<p>「Wow Unnie, are you really taking off your clothes and taking a naked picture right now? You're going to upload it here where Seyoung and Sua can all see? ㅋㅋㅋ」</p>
 
 <p>Seonju Imo was speaking as if teasing Gyuri Ajumma and trying to provoke her sense of shame.</p>
 
@@ -106,13 +106,13 @@ chapter = 590
 
 <p>Gyuri Ajumma flared up at Seonju Imo's provocative words, yet answered as if she couldn't help it.</p>
 
-<p>「Well~ If Jueinnim orders it, he usually makes his daughters eat strange things and all~」</p>
+<p>「Well If Jueinnim orders it, he usually makes his daughters eat strange things and all」</p>
 
 <p>Seonju Imo, somehow knowing, deliberately mentioned what had happened at Shiwoo's house that morning, bringing it up as if to tease Mom.</p>
 
 <p>But Mom, being the person involved, couldn't object or respond in any particular way.</p>
 
-<p>「Right, Seonmi Unnie~?」</p>
+<p>「Right, Seonmi Unnie?」</p>
 
 <p>Seonju Imo called Mom, as if driving in a wedge and demanding a direct response, like a coup de grâce.</p>
 
@@ -122,7 +122,7 @@ chapter = 590
 
 <p>She tried to stop Seonju Imo, reminding her of what Shiwoo had said, borrowing his authority.</p>
 
-<p>「What Jueinnim said was not to pretend to know Gyuri Unnie and talk to her first without permission~ Since we've formally greeted her, it's pretty much the same as having permission now~?」</p>
+<p>「What Jueinnim said was not to pretend to know Gyuri Unnie and talk to her first without permission Since we've formally greeted her, it's pretty much the same as having permission now?」</p>
 
 <p>Seonju Imo didn't back down, refuting Mom's words and clarifying her own position.</p>
 
@@ -156,7 +156,7 @@ chapter = 590
 
 <p>Gyuri Ajumma's naked body, which Shiwoo had seen last time in a state of confusion, felt even more captivating than his memory.</p>
 
-<p>「Wow~ Gyuri's body is so pretty~」</p>
+<p>「Wow Gyuri's body is so pretty」</p>
 
 <p>Seyoung spoke, admiring Gyuri Ajumma's photo.</p>
 
@@ -164,7 +164,7 @@ chapter = 590
 
 <p>Gyuri Ajumma replied shyly to Seyoung's compliment.</p>
 
-<p>「Especially your breasts and nipples are so pretty~ Later, when Gyuri comes to our house, can I sleep while sucking on Gyuri's breast?」</p>
+<p>「Especially your breasts and nipples are so pretty Later, when Gyuri comes to our house, can I sleep while sucking on Gyuri's breast?」</p>
 
 <p>Seyoung was making an innocent yet cunning request to Gyuri Ajumma.</p>
 
@@ -172,7 +172,7 @@ chapter = 590
 
 <p>Gyuri Ajumma reacted as if flustered.</p>
 
-<p>「I want to sleep sucking on Gyuri's breast all night~ Because if I suck on Gyuri's breast, I think I'll sleep well~ hehe~」</p>
+<p>「I want to sleep sucking on Gyuri's breast all night Because if I suck on Gyuri's breast, I think I'll sleep well hehe」</p>
 
 <p>Seyoung spoke to Gyuri Ajumma innocently once again.</p>
 
@@ -180,6 +180,6 @@ chapter = 590
 
 <p>Gyuri Ajumma hesitated for a moment, glancing at Mom, yet answered as if trying to fit in with the chat room's atmosphere.</p>
 
-<p>「Me too~! Me too~! I want to sleep while sucking on Gyuri Unnie's breast~ If Seyoung is sucking on one of Gyuri Unnie's breasts, I'll bite the other nipple while I sleep~」</p>
+<p>「Me too! Me too! I want to sleep while sucking on Gyuri Unnie's breast If Seyoung is sucking on one of Gyuri Unnie's breasts, I'll bite the other nipple while I sleep」</p>
 
 <p>Following that, Seonju Imo also playfully chimed in, saying she wanted to suck on Gyuri Ajumma's breasts along with Seyoung.</p>

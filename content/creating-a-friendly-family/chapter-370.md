@@ -46,7 +46,7 @@ chapter = 370
 
 <p>At some point, Sua's panties, which had been stuffed into Seonju Imo-nim's mouth, came out of her mouth as if she had vomited them up.</p>
 
-<p>"Hua-ap haa-ak huuk! Huuk~ heu-eut! Puhaaaaa!"</p>
+<p>"Hua-ap haa-ak huuk! Huuk heu-eut! Puhaaaaa!"</p>
 
 <p>Seonju Imo-nim spewed out the filth in her mouth along with Sua's wet panties due to Shiwoo's rough thrusting.</p>
 
@@ -56,7 +56,7 @@ chapter = 370
 
 <p>Even in that situation, Shiwoo's rough thrusting did not stop.</p>
 
-<p>"Ha-at a-ak! Haaaa~ Juinin-nim! Juinin-nim! Haeung! Haeu-euung~!! Haaaaaang!!!"</p>
+<p>"Ha-at a-ak! Haaaa Juinin-nim! Juinin-nim! Haeung! Haeu-euung!! Haaaaaang!!!"</p>
 
 <p>Seonju Imo-nim, as if Shiwoo's thrusting was unbearable, urgently called out to Shiwoo and continued to make moaning sounds close to cries of ecstasy.</p>
 
@@ -66,7 +66,7 @@ chapter = 370
 
 <p>Seonju Imo-nim was frantically opening her mouth and twisting her body, trying to stop Shiwoo's thrusting.</p>
 
-<p>"Heueueeung Haeueeung! Juinin-nim I...I, I think I'm going to die~!! Haeueeung Haaaaang Shiwoo-ya! Please..., Juinin-nim~~ Hiiiing"</p>
+<p>"Heueueeung Haeueeung! Juinin-nim I...I, I think I'm going to die!! Haeueeung Haaaaang Shiwoo-ya! Please..., Juinin-nim Hiiiing"</p>
 
 <p>Seonju Imo-nim even confused her honorifics for Shiwoo, whom she had been treating as her master, and begged in a voice as if she had lost her mind.</p>
 
@@ -108,7 +108,7 @@ chapter = 370
 
 <p>Seonju Imo-nim's vaginal muscles tightened as if to squeeze out Shiwoo's penis, which was exploding inside her vagina hole.</p>
 
-<p>"Haeueueeung~ Haeuung! Haeuuuung! Haaaa~ang!"</p>
+<p>"Haeueueeung Haeuung! Haeuuuung! Haaaaang!"</p>
 
 <p>Seonju Imo-nim also let out a moaning sound as if she had finally reached her final climax.</p>
 
@@ -168,7 +168,7 @@ chapter = 370
 
 <p>Shiwoo let go of the leash in his hand and asked Seyoung.</p>
 
-<p>"Okay~ I'll get it for you, Shiwoo Oppa~ hehe"</p>
+<p>"Okay I'll get it for you, Shiwoo Oppa hehe"</p>
 
 <p>Seyoung, as if the situations and actions that had happened so far were nothing, answered in her usual tone and got up from her seat.</p>
 

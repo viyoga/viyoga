@@ -64,7 +64,7 @@ chapter = 743
 
 <p>She likely wanted to mention the precautions for the tattoo she received yesterday, but trailed off, feeling unnecessarily embarrassed.</p>
 
-<p>"Well~ is it a bit much for drinking in the afternoon~?"</p>
+<p>"Well is it a bit much for drinking in the afternoon?"</p>
 
 <p>Shiwoo understood what she was trying to say but feigned ignorance, responding as if agreeing with her.</p>
 
@@ -72,7 +72,7 @@ chapter = 743
 
 <p>Mom answered, tidying her hot, suppressed breath without looking at him, her gaze drifting elsewhere.</p>
 
-<p>"Then come here~ I know a place~ let's go have lunch there!"</p>
+<p>"Then come here I know a place let's go have lunch there!"</p>
 
 <p>This time, Shiwoo spoke while lightly pulling Mom's arm, as if taking the lead.</p>
 
@@ -118,7 +118,7 @@ chapter = 743
 
 <p>"Who's looking? And so what if they do? We're just walking and holding hands."</p>
 
-<p>"At most, they'll probably just think you're a housewife having an affair with a younger man~"</p>
+<p>"At most, they'll probably just think you're a housewife having an affair with a younger man"</p>
 
 <p>Shiwoo said, a playful smirk hanging on one corner of his mouth, his low voice teasing her.</p>
 
@@ -132,13 +132,13 @@ chapter = 743
 
 <p>She continued to speak cautiously, looking around worriedly.</p>
 
-<p>"Ah~ is it because my hand touching your ass or thighs bothers you? Then we can just do this, right?"</p>
+<p>"Ah is it because my hand touching your ass or thighs bothers you? Then we can just do this, right?"</p>
 
 <p>Shiwoo pulled Mom's hand and shoved it into the pocket of the knit cardigan he was wearing.</p>
 
 <p>At Shiwoo's sudden movement, Mom wore a flustered expression, yet she surrendered her arm to him, her strength fading minutely.</p>
 
-<p>"It's midday anyway, everyone's busy at work or academy or doing their own thing~"</p>
+<p>"It's midday anyway, everyone's busy at work or academy or doing their own thing"</p>
 
 <p>"How many people we know would have come out here at this time on purpose like us?"</p>
 

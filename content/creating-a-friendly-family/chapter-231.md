@@ -4,7 +4,7 @@ weight = 231
 [extra]
 chapter = 231
 +++
-<p>"Mom~! How long until dinner? Sehee hasn't come down from her room yet, I see~?"</p>
+<p>"Mom! How long until dinner? Sehee hasn't come down from her room yet, I see?"</p>
 
 <p>As soon as Shiwoo came out of the changing room, he stood facing the kitchen where Mom and Seyoung were and spoke in a loud voice. Shiwoo, who was casually calling Sehee Nuna by her name without the honorific Nuna, even with Seyoung right there.</p>
 
@@ -14,11 +14,11 @@ chapter = 231
 
 <p>Next to Mom, whose face was flushed, Seyoung wore a puzzled expression, looking back and forth between Shiwoo and Mom.</p>
 
-<p>"Yeah~ Then I'll go up and tell Sehee to come down for dinner~"</p>
+<p>"Yeah Then I'll go up and tell Sehee to come down for dinner"</p>
 
 <p>Shiwoo, disregarding Seyoung's puzzled expression, repeated Sehee Nuna's name again. As if there was an unspoken agreement between Mom and Shiwoo regarding the way Sehee Nuna was addressed...</p>
 
-<p>"Oh, right~ I forgot I had something to do with Sehee for a moment~! It might take a little while once I go up. If it takes too long, you and Seyoung should eat first~ Got it~?"</p>
+<p>"Oh, right I forgot I had something to do with Sehee for a moment! It might take a little while once I go up. If it takes too long, you and Seyoung should eat first Got it?"</p>
 
 <p>Shiwoo said, gazing at Mom with a soft, playful tone before going up to the second floor. Mom, surprised for a moment, widened her eyes slightly, then soon lowered her gaze awkwardly and nodded, as if resigned. Mom knew what Shiwoo intended to do with Sehee Nuna on the second floor. Seyoung still looked at her older brother and Mom with a bewildered expression. A strange atmosphere was created, as if Shiwoo was flaunting his intimacy with Mom to Seyoung.</p>
 
@@ -42,11 +42,11 @@ chapter = 231
 
 <p class="scene-break">· · ·</p>
 
-<p>Sehee Nuna's room, with its door closed. 'Sehee~ Dinner's ready now~ Come down~!</p>
+<p>Sehee Nuna's room, with its door closed. 'Sehee Dinner's ready now Come down!</p>
 
-<p>" Shiwoo deliberately shouted in a loud voice from in front of Sehee Nuna's room door, loud enough to be heard downstairs. 'Uh... I'll... I'll come out now~' Sehee Nuna's voice was heard from inside the room. As soon as Shiwoo heard Sehee Nuna's voice, he flung open the door and entered the room. Sehee Nuna, who had been sitting on the bed checking her smartphone, looked up at Shiwoo in surprise. Sehee Nuna's seductive figure, wearing only a black mesh short-sleeved t-shirt over her purple underwear. Sehee Nuna was sitting in her room, dressed exactly in the attire Shiwoo had made her wear. Shiwoo had told Sehee Nuna in his room to come downstairs to the first floor once she was ready. But with only a mesh t-shirt over her underwear, Sehee Nuna's mind couldn't possibly settle down quickly in such a short time. Shiwoo's house, where wearing only underwear had been strictly forbidden for some time. Just Sehee Nuna's mesh t-shirt, through which her underwear was visible, had caused such an uproar that the house was turned upside down... And now, in addition to that, she would stand before Mom and Seyoung in a lewd outfit, with her lower garments omitted. Shiwoo gazed down at Sehee Nuna's alluring figure, a satisfied smile on his face. Shiwoo's penis throbbed with a painful intensity. "</p>
+<p>" Shiwoo deliberately shouted in a loud voice from in front of Sehee Nuna's room door, loud enough to be heard downstairs. 'Uh... I'll... I'll come out now' Sehee Nuna's voice was heard from inside the room. As soon as Shiwoo heard Sehee Nuna's voice, he flung open the door and entered the room. Sehee Nuna, who had been sitting on the bed checking her smartphone, looked up at Shiwoo in surprise. Sehee Nuna's seductive figure, wearing only a black mesh short-sleeved t-shirt over her purple underwear. Sehee Nuna was sitting in her room, dressed exactly in the attire Shiwoo had made her wear. Shiwoo had told Sehee Nuna in his room to come downstairs to the first floor once she was ready. But with only a mesh t-shirt over her underwear, Sehee Nuna's mind couldn't possibly settle down quickly in such a short time. Shiwoo's house, where wearing only underwear had been strictly forbidden for some time. Just Sehee Nuna's mesh t-shirt, through which her underwear was visible, had caused such an uproar that the house was turned upside down... And now, in addition to that, she would stand before Mom and Seyoung in a lewd outfit, with her lower garments omitted. Shiwoo gazed down at Sehee Nuna's alluring figure, a satisfied smile on his face. Shiwoo's penis throbbed with a painful intensity. "</p>
 
-<p>Ah~ Sehee, you're so beautiful~!</p>
+<p>Ah Sehee, you're so beautiful!</p>
 
 <p>" Shiwoo approached Sehee Nuna, uttering words of praise that welled up from his chest. Sehee Nuna was holding the hem of her see-through short-sleeved t-shirt with her hand, shyly pulling it downwards. Her face was flushed crimson. Shiwoo glanced back at the open room door, then lowered his pants and pulled out his thing. Shiwoo's massive thing, its veins taut and bulging as if about to burst, sprang out from his clothes. Shiwoo's pillar throbbed erect before Sehee Nuna's face. "</p>
 
@@ -56,6 +56,6 @@ chapter = 231
 
 <p>Suck it! Just for about 30 seconds!</p>
 
-<p>" Shiwoo glanced at the clock hanging in Sehee Nuna's room as he commanded her. At Shiwoo's sudden command, Sehee Nuna wore a slightly startled expression. Shiwoo thrust his thing forward, right before Sehee Nuna's lips. Soon, Sehee Nuna opened her mouth and took Shiwoo's penis fully into her mouth. Sehee Nuna's tongue and the mucous membranes inside her mouth warmly enveloped Shiwoo's entire glans. Shiwoo felt the sensation of Sehee Nuna's mouth wrapping around his thing and looked at her. Sehee Nuna looked up at Shiwoo silently, then slowly began to move her tongue, scraping at Shiwoo's glans held within her mouth. 'Chyureup~ Churuup~ Huaap!' Sehee Nuna's tongue moved between the tip of the urethra and the groove carved into the shaft, and roughly stimulated the sensitive flesh of the glans surface, scraping it back and forth. Sehee Nuna was sucking Shiwoo's thing with all her might. A sweet and fresh sense of fulfillment clung tightly to Shiwoo's glans and shaft. About 30 seconds passed quickly. Shiwoo immediately pulled his thing out of Sehee Nuna's mouth. "</p>
+<p>" Shiwoo glanced at the clock hanging in Sehee Nuna's room as he commanded her. At Shiwoo's sudden command, Sehee Nuna wore a slightly startled expression. Shiwoo thrust his thing forward, right before Sehee Nuna's lips. Soon, Sehee Nuna opened her mouth and took Shiwoo's penis fully into her mouth. Sehee Nuna's tongue and the mucous membranes inside her mouth warmly enveloped Shiwoo's entire glans. Shiwoo felt the sensation of Sehee Nuna's mouth wrapping around his thing and looked at her. Sehee Nuna looked up at Shiwoo silently, then slowly began to move her tongue, scraping at Shiwoo's glans held within her mouth. 'Chyureup Churuup Huaap!' Sehee Nuna's tongue moved between the tip of the urethra and the groove carved into the shaft, and roughly stimulated the sensitive flesh of the glans surface, scraping it back and forth. Sehee Nuna was sucking Shiwoo's thing with all her might. A sweet and fresh sense of fulfillment clung tightly to Shiwoo's glans and shaft. About 30 seconds passed quickly. Shiwoo immediately pulled his thing out of Sehee Nuna's mouth. "</p>
 
 <p>Shuuup!" Pre-cum and saliva, trailing from Sehee Nuna's mouth, clung to Shiwoo's glans. Her eyes now held a look as if she would take Shiwoo's penis into her mouth and suck it anytime he commanded.</p>

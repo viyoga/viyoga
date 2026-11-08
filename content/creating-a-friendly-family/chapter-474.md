@@ -148,7 +148,7 @@ chapter = 474
 
 <p>Sehee Nuna was splitting the vertical fissure pierced at the end of Shiwoo's glans with her tongue, as if prying it open.</p>
 
-<p>"Ah ah~Sehee-ya! I'm cumming! I'm gonna cum!"</p>
+<p>"Ah ahSehee-ya! I'm cumming! I'm gonna cum!"</p>
 
 <p>Shiwoo tries to urinate as if he were wetting the bed in a dream.</p>
 

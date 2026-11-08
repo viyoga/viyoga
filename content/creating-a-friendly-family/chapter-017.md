@@ -6,7 +6,7 @@ chapter = 17
 +++
 <p>It was dawn the next day.</p>
 
-<p>「Shiwoo-ya, wake up, Shiwoo-ya~~!!!」</p>
+<p>「Shiwoo-ya, wake up, Shiwoo-ya!!!」</p>
 
 <p>Sehee Nuna urgently shook Shiwoo awake.</p>
 
@@ -42,11 +42,11 @@ chapter = 17
 
 <p>At Nuna's attitude, which seemed far from a joke, Shiwoo took a serious stance and began to listen.</p>
 
-<p>「Normally, I'd get photographed a lot by strangers, so I just brushed it off... but yesterday, that person seemed to follow me all the way to my house~!」</p>
+<p>「Normally, I'd get photographed a lot by strangers, so I just brushed it off... but yesterday, that person seemed to follow me all the way to my house!」</p>
 
 <p>「They came all the way to the house?」</p>
 
-<p>「Just now, when I went out for a jog, some suspicious person saw me, immediately flustered, and hid in an alley~!」</p>
+<p>「Just now, when I went out for a jog, some suspicious person saw me, immediately flustered, and hid in an alley!」</p>
 
 <p>At Nuna's words, Shiwoo began to worry.</p>
 
@@ -166,7 +166,7 @@ chapter = 17
 
 <p>Sehee Nuna also answered cautiously, looking at Mom.</p>
 
-<p>「Yes, well done~ How nice to see? Sehee, you should teach Shiwoo some exercises~ Shiwoo, you too, take this chance to exercise with your Nuna!」</p>
+<p>「Yes, well done How nice to see? Sehee, you should teach Shiwoo some exercises Shiwoo, you too, take this chance to exercise with your Nuna!」</p>
 
 <p>Mom seemed more talkative than usual, with a somewhat higher tone, but Shiwoo thought she was probably doing so to break the awkwardness with Nuna.</p>
 
@@ -184,7 +184,7 @@ chapter = 17
 
 <p>Mom's hand was stroking Sehee Nuna's back, just as it had when she soothed Sehee Nuna yesterday.</p>
 
-<p>「No, it's okay. In the end, Mom understood how I felt, so all my upset feelings are gone~」</p>
+<p>「No, it's okay. In the end, Mom understood how I felt, so all my upset feelings are gone」</p>
 
 <p>Sehee Nuna also spoke intimately, feeling Mom's hand stroking her back.</p>
 
@@ -194,7 +194,7 @@ chapter = 17
 
 <p>Then</p>
 
-<p>「!!!~Mom, thank you~~I'll really listen to you now!!」</p>
+<p>「!!!Mom, thank youI'll really listen to you now!!」</p>
 
 <p>Sehee Nuna, surprised and joyful, suddenly hugged Mom.</p>
 
@@ -258,6 +258,6 @@ chapter = 17
 
 <p>Then, she quietly said to Shiwoo.</p>
 
-<p>「I'll wait outside, so hurry up and take care of it and come~!!」</p>
+<p>「I'll wait outside, so hurry up and take care of it and come!!」</p>
 
 <p>Shiwoo, feeling embarrassed, went up to his room.</p>

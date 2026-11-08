@@ -146,7 +146,7 @@ chapter = 397
 
 <p>Before he knew it, Shiwoo had come to the vicinity of the subway station where the mart is visible.</p>
 
-<p>[Mom, I've come to the subway station! I can see the mart now~ Where should I go?]</p>
+<p>[Mom, I've come to the subway station! I can see the mart now Where should I go?]</p>
 
 <p>Shiwoo sends a text to Mom after arriving near the subway station.</p>
 
@@ -154,7 +154,7 @@ chapter = 397
 
 <p>Mom answers Shiwoo with a text that seems to be annoyed for no reason, without mentioning the slave contract at all.</p>
 
-<p>[No, I was just asking because we might miss each other if you're still inside the mart~ Is something wrong, Mom? Why are you so annoyed? Hehe]</p>
+<p>[No, I was just asking because we might miss each other if you're still inside the mart Is something wrong, Mom? Why are you so annoyed? Hehe]</p>
 
 <p>Shiwoo sends a text as if joking, reacting to Mom's reaction of getting angry while pretending to ignore the slave contract he sent.</p>
 
@@ -166,7 +166,7 @@ chapter = 397
 
 <p>Mom was talking to Shiwoo as if she was annoyed, even using an angry emoticon.</p>
 
-<p>[Okay, okay~ I won't ask twice or three times~ I'm going now, so wait for me! Hehehe]</p>
+<p>[Okay, okay I won't ask twice or three times I'm going now, so wait for me! Hehehe]</p>
 
 <p>It was a text from Mom that seemed to be venting her anger, but Shiwoo was talking to her as if he found her reaction cute, trying to soothe her.</p>
 

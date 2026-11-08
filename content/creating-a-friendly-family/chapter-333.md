@@ -20,7 +20,7 @@ chapter = 333
 
 <p>The wrinkles of her vagina wall were stretched to their limit, and the flesh inside her vagina had become as sensitive as it could be.</p>
 
-<p>"Haeueung~! Haeueuk! Haa-aang~! Haeuheuk!"</p>
+<p>"Haeueung! Haeueuk! Haa-aang! Haeuheuk!"</p>
 
 <p>Sua grabbed Shiwoo's arms that were wrapped around her torso and continued to twist her entire body as if convulsing.</p>
 
@@ -40,7 +40,7 @@ chapter = 333
 
 <p>Her vagina hole contracted and spasmed even more intensely than before.</p>
 
-<p>"Haeueueung~! Hieeeueung~! Hieeee-ing~!"</p>
+<p>"Haeueueung! Hieeeueung! Hieeee-ing!"</p>
 
 <p>Sua eventually burst into tears, as if wailing sorrowfully, from Shiwoo's violent piston movements.</p>
 
@@ -68,7 +68,7 @@ chapter = 333
 
 <p>In that instant, the pleasure that had been surging from the back of Shiwoo's head spread like a flash of light to the tip of his penis.</p>
 
-<p>"Ah ah~ Sua-ya!"</p>
+<p>"Ah ah Sua-ya!"</p>
 
 <p>-Pusyuk! Pusyuk! Pusyuuk!!</p>
 
@@ -152,7 +152,7 @@ chapter = 333
 
 <p>Sua also adjusted the position of her vagina hole so that it would not be uncomfortable in accordance with Shiwoo's movements.</p>
 
-<p>-Jji-geok kkeok~ Jjuueok!</p>
+<p>-Jji-geok kkeok Jjuueok!</p>
 
 <p>The secretions inside the vagina hole leaked out due to the friction and pressure of the interlocked genitals.</p>
 

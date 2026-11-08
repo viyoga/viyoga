@@ -34,7 +34,7 @@ chapter = 407
 
 <p>Perhaps realizing that her attitude towards Shiwoo was awkward, Mom suddenly flared up and spoke again as if questioning him.</p>
 
-<p>「Doing what~?」</p>
+<p>「Doing what?」</p>
 
 <p>Shiwoo, once again pretending not to know, asks Mom back.</p>
 
@@ -64,7 +64,7 @@ chapter = 407
 
 <p>Mom seemed to be emotionally agitated enough to mention the fact that she had eaten Shiwoo's semen.</p>
 
-<p>「Really? Every time I gave it to Mom to eat, you always ate it so well, so I thought you liked that kind of thing~」</p>
+<p>「Really? Every time I gave it to Mom to eat, you always ate it so well, so I thought you liked that kind of thing」</p>
 
 <p>Shiwoo continues the conversation, which is close to lewd talk, in a nonchalant way as if teasing Mom.</p>
 
@@ -112,7 +112,7 @@ chapter = 407
 
 <p>Mom seemed to be dissatisfied with the order to receive and drink Shiwoo's semen from Sehee Nuna after that.</p>
 
-<p>「But Mom, you did get a little closer to Sehee, right? Thanks to that, you had a good time too~ hehe」</p>
+<p>「But Mom, you did get a little closer to Sehee, right? Thanks to that, you had a good time too hehe」</p>
 
 <p>Shiwoo says, interrupting Mom's words, in a tone as if he is joking.</p>
 
@@ -178,7 +178,7 @@ chapter = 407
 
 <p>Mom doesn't answer as if she is sulking.</p>
 
-<p>「But if we were going to talk about this in texts, it would have been okay to do it at home~ right?」</p>
+<p>「But if we were going to talk about this in texts, it would have been okay to do it at home right?」</p>
 
 <p>Shiwoo continues to talk to Mom in a coaxing tone.</p>
 
@@ -192,6 +192,6 @@ chapter = 407
 
 <p>Fortunately, Mom was not thinking of ending the master-slave relationship with Shiwoo, as Shiwoo had been worried about.</p>
 
-<p>「Okay~! Okay~! I know what you're talking about, so come here for now! Come and talk to me face to face!」</p>
+<p>「Okay! Okay! I know what you're talking about, so come here for now! Come and talk to me face to face!」</p>
 
 <p>Shiwoo says, calling Mom as if he has figured out what Mom wants to talk about.</p>

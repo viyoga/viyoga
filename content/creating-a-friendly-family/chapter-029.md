@@ -22,7 +22,7 @@ chapter = 29
 
 <p>Mom, who was sitting across from Gyuri Ajumma, explained to Sehee Nuna as if making excuses, as if feeling guilty about something.</p>
 
-<p>"Hmm~~"</p>
+<p>"Hmm"</p>
 
 <p>The explanation seemed logical, but Sehee Nuna felt a bit awkward because Mom was explaining so urgently without being asked.</p>
 
@@ -34,9 +34,9 @@ chapter = 29
 
 <p>Sehee Nuna said, looking at her aunt as if disappointed.</p>
 
-<p>"Yeah~ We have to go now! You guys are going to the department store tonight, right?"</p>
+<p>"Yeah We have to go now! You guys are going to the department store tonight, right?"</p>
 
-<p>"Yeah~!"</p>
+<p>"Yeah!"</p>
 
 <p>"Your Unnie said she's buying Sehee new clothes today, right? Sehee must be happy?</p>
 
@@ -60,17 +60,17 @@ chapter = 29
 
 <p>Shiwoo said, mumbling as if trying to gloss over it.</p>
 
-<p>"If you're going to do that for Gyuri Unnie, you have to come to my house and do it too~"</p>
+<p>"If you're going to do that for Gyuri Unnie, you have to come to my house and do it too"</p>
 
 <p>Imo made a playful expression at Shiwoo, acting cute.</p>
 
-<p>"Okay! I got it, Imo~ I'll go to Imo's house for a massage later too~"</p>
+<p>"Okay! I got it, Imo I'll go to Imo's house for a massage later too"</p>
 
 <p>Shiwoo felt relieved after seeing Imo's expression.</p>
 
 <p>Even if Imo had seen the scene of him stroking Mom's hair, someone with Imo's personality would probably dismiss Shiwoo's actions as a joke.</p>
 
-<p>"Shiwoo is really good at massage~ If you don't have anything to do later, go that way and Imo will hire you as a personal masseuse,"</p>
+<p>"Shiwoo is really good at massage If you don't have anything to do later, go that way and Imo will hire you as a personal masseuse,"</p>
 
 <p>Seonju Imo seemed to be joking with Shiwoo again.</p>
 
@@ -82,7 +82,7 @@ chapter = 29
 
 <p>Shiwoo, feeling much better, responded to Imo's words with a joke.</p>
 
-<p>"By the way, our Shiwoo seems to have grown up a lot for real? If Shiwoo pounces on me, I don't think Imo can handle it anymore~ kik-kik"</p>
+<p>"By the way, our Shiwoo seems to have grown up a lot for real? If Shiwoo pounces on me, I don't think Imo can handle it anymore kik-kik"</p>
 
 <p>Imo made another joke that was too explicit in front of Mom.</p>
 
@@ -104,7 +104,7 @@ chapter = 29
 
 <p>Mom spoke, pushing Imo towards the front door as if she was at a loss for words at Imo's continued jokes.</p>
 
-<p>"Okay, okay, Unnie is really too strict about this kind of thing in front of the kids~ Anyway, thanks to Unnie and Shiwoo, I ate well and had a good time today~!!"</p>
+<p>"Okay, okay, Unnie is really too strict about this kind of thing in front of the kids Anyway, thanks to Unnie and Shiwoo, I ate well and had a good time today!!"</p>
 
 <p>After Imo's long, drawn-out greeting like a monologue ended, Gyuri Ajumma and Sua also greeted them in turn.</p>
 
@@ -202,7 +202,7 @@ chapter = 29
 
 <p>When she saw Sehee Nuna, Mom got up from the sofa and spoke as if she was about to leave right away.</p>
 
-<p>"Mom, I'm just going to the bathroom for a second~"</p>
+<p>"Mom, I'm just going to the bathroom for a second"</p>
 
 <p>Sehee Nuna said that to Mom who was getting up, and then headed to the bathroom.</p>
 

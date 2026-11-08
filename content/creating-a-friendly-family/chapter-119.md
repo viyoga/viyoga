@@ -98,7 +98,7 @@ chapter = 119
 
 <p>She was clearly letting Shiwoo and Sehee Nuna hear her shameful moans, which were filled with embarrassment and humiliation.</p>
 
-<p>,Shi...Shiwoo-ya... I'm go...going now~ Haaang~ Heueuht'</p>
+<p>,Shi...Shiwoo-ya... I'm go...going now Haaang Heueuht'</p>
 
 <p>Mom's voice, reaching its climax.</p>
 
@@ -106,7 +106,7 @@ chapter = 119
 
 <p>Shiwoo had pressed the call recording button on his smartphone from the middle of Mom's masturbation and recorded Mom's voice.</p>
 
-<p>,Seonmi, you fucking bitch~'</p>
+<p>,Seonmi, you fucking bitch'</p>
 
 <p>As soon as he heard Mom's respectful speech, Shiwoo immediately cursed and came.</p>
 
@@ -124,13 +124,13 @@ chapter = 119
 
 <p>Orders and requests falling from Shiwoo.</p>
 
-<p>,Yes~ I'll do everything Master-nim tells me to do.'</p>
+<p>,Yes I'll do everything Master-nim tells me to do.'</p>
 
 <p>The answer of submission returned from Mom.</p>
 
-<p>"Good night~ Mom."</p>
+<p>"Good night Mom."</p>
 
-<p>"Th...Thank you~ Good night too~ Shiwoo."</p>
+<p>"Th...Thank you Good night too Shiwoo."</p>
 
 <p>The last part ended with a normal greeting between mother and son that was recorded.</p>
 
@@ -220,13 +220,13 @@ chapter = 119
 
 <p>Shiwoo's huge, swollen thing dug into Sehee Nuna's pussy.</p>
 
-<p>"Huaeuht~!!"</p>
+<p>"Huaeuht!!"</p>
 
 <p>Sehee Nuna's sleeping body curled inward and hugged Shiwoo's body.</p>
 
 <p>Sehee Nuna's body trembled as if stiffened.</p>
 
-<p>"Shi...Shiwoo-ya~? Heueung~"</p>
+<p>"Shi...Shiwoo-ya? Heueung"</p>
 
 <p>Sehee Nuna, surprised, called out to Shiwoo and moaned.</p>
 
@@ -238,11 +238,11 @@ chapter = 119
 
 <p>Shiwoo buried his face in Sehee Nuna's neck and shouted as if yelling.</p>
 
-<p>"Wh...What is? Ah Heueuht Haaang Huaeuht~"</p>
+<p>"Wh...What is? Ah Heueuht Haaang Huaeuht"</p>
 
 <p>Sehee Nuna, startled by Shiwoo's thing suddenly filling and moving inside her body, answered with a trembling voice.</p>
 
-<p>"I said I'd do everything for you~! Why are you doing that with another guy, you fucking bitch!"</p>
+<p>"I said I'd do everything for you! Why are you doing that with another guy, you fucking bitch!"</p>
 
 <p>Tears flowed down with an unbearable sense of defeat.</p>
 
@@ -260,11 +260,11 @@ chapter = 119
 
 <p>Next to the sanitary pads, an unopened condom was lying around.</p>
 
-<p>"Huaeuheuheu~ How...How can you just put it in like that~ Heueueue~"</p>
+<p>"Huaeuheuheu How...How can you just put it in like that Heueueue"</p>
 
 <p>A sigh and grumble of disbelief mixed with a moan and leaked out from Sehee Nuna's mouth.</p>
 
-<p>"Yo...You idiot! It's not like that~ Heueueuht"</p>
+<p>"Yo...You idiot! It's not like that Heueueuht"</p>
 
 <p>Sehee Nuna was moving her mouth as if trying to explain something.</p>
 
@@ -274,7 +274,7 @@ chapter = 119
 
 <p>Shiwoo's waist shook even more violently.</p>
 
-<p>"Huaeuk! Huaeuht Ju...Just come and then Heueuht talk~! Heueuht! I can't...explain it now! Haa~ But...Ah...Inside...Huaeuheu Ah...No way~!"</p>
+<p>"Huaeuk! Huaeuht Ju...Just come and then Heueuht talk! Heueuht! I can't...explain it now! Haa But...Ah...Inside...Huaeuheu Ah...No way!"</p>
 
 <p>Sehee Nuna wrapped her legs around Shiwoo's waist.</p>
 

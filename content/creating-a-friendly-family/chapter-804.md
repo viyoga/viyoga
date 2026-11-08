@@ -26,7 +26,7 @@ chapter = 804
 
 <p>Every time that precarious sense of balance and trembling sensation seeped into his mind through his palm, Siu's eyes sank deeper and darker. Mother's short, thin breaths, mixing into the peaceful noise of the cafe, sounded to Siu like a victory song sweeter than anything else.</p>
 
-<p>「But you seem quite confident~?」</p>
+<p>「But you seem quite confident?」</p>
 
 <p>Siu spoke to Mother with a smile mixed with mockery.</p>
 
@@ -76,7 +76,7 @@ chapter = 804
 
 <p>He felt Mother's pelvis and thigh muscles instantly tighten and um-jjil twitch as if snapping back. Siu released the strength in the hand he was pulling down and gently stroked up Mother's thighs and buttocks. Then, he firmly fixed his hand's position on her pelvis again, gathering the heavy flesh of her body into his hand through the thin fabric.</p>
 
-<p>「Haah~ If you think about it, we were raised from a young age to serve masters, so Seon-ju and I have never not been slaves since our days as trainee slaves...」</p>
+<p>「Haah If you think about it, we were raised from a young age to serve masters, so Seon-ju and I have never not been slaves since our days as trainee slaves...」</p>
 
 <p>Mother let out a long sigh and spoke as if confessing, emphasizing that their lives were by no means ordinary. Siu was listening intently to Mother's story while stroking the hand he had placed on her pelvis.</p>
 

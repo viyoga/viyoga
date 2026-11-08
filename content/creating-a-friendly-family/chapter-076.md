@@ -90,7 +90,7 @@ chapter = 76
 
 <p>Shiwoo asked Cheoljin, as if confirming one last time as they headed to Sua's house.</p>
 
-<p>,Yeah~ I was going to drop by sometime anyway! It's best if I can visit as naturally as possible! I don't want to miss this kind of opportunity!",</p>
+<p>,Yeah I was going to drop by sometime anyway! It's best if I can visit as naturally as possible! I don't want to miss this kind of opportunity!",</p>
 
 <p>Cheoljin replied to Shiwoo in a determined tone.</p>
 
@@ -148,11 +148,11 @@ chapter = 76
 
 <p>,Shiwoo oppa is here? Oh? Cheoljin oppa is here too?",</p>
 
-<p>,Wow~ Shiwoo oppa! Cheoljin oppa! Hello~"</p>
+<p>,Wow Shiwoo oppa! Cheoljin oppa! Hello"</p>
 
 <p>Seyoung and Sua greeted Shiwoo and Cheoljin happily.</p>
 
-<p>,Hello~~ Seyoung-a~ Sua-ya~",</p>
+<p>,Hello Seyoung-a Sua-ya",</p>
 
 <p>Shiwoo greeted them, reaching out both hands at the same time and stroking Seyoung and Sua's hair with a more friendly feeling than usual.</p>
 
@@ -190,31 +190,31 @@ chapter = 76
 
 <p class="scene-break">· · ·</p>
 
-<p>,Hello, girls~ Long time no see, how have you been?",</p>
+<p>,Hello, girls Long time no see, how have you been?",</p>
 
 <p>Cheoljin also greeted the younger sisters and came forward.</p>
 
-<p>,Yeah~ Is oppa's molar okay?",</p>
+<p>,Yeah Is oppa's molar okay?",</p>
 
 <p>Seyoung was asking, worried about Cheoljin's molar.</p>
 
-<p>,Ah... well~ It's nothing~ This kind of thing is common among us martial artists~?!",</p>
+<p>,Ah... well It's nothing This kind of thing is common among us martial artists?!",</p>
 
 <p>Cheoljin, who had never done martial arts, was talking to Seyoung, pretending to be strong and joking around.</p>
 
-<p>,Really?~ The opponent must have been bad~ Next time, don't hide it and just give it all away first~ Okay? Hehe~"</p>
+<p>,Really? The opponent must have been bad Next time, don't hide it and just give it all away first Okay? Hehe"</p>
 
 <p>Seyoung was starting a strange role-playing game, accepting Cheoljin's joke and teasing him with an innocent expression.</p>
 
-<p>,No, no... this was a fair fight between martial artists~ There's no need to worry about that!",</p>
+<p>,No, no... this was a fair fight between martial artists There's no need to worry about that!",</p>
 
 <p>Cheoljin was flustered by Seyoung's provocative role-playing and was revising his martial artist concept again.</p>
 
-<p>,Even if you lose the fight and get robbed, you have to make sure you calculate properly~! Always carry change, Cheoljin oppa!~ Kukuk"</p>
+<p>,Even if you lose the fight and get robbed, you have to make sure you calculate properly! Always carry change, Cheoljin oppa! Kukuk"</p>
 
 <p>Sua, who was watching from the side, was adding to the role-playing game that Seyoung was pushing, adding jokes as if she was enjoying it.</p>
 
-<p>,No... that's not it~! Hey Shiwoo, say something!",</p>
+<p>,No... that's not it! Hey Shiwoo, say something!",</p>
 
 <p>Cheoljin was looking at Shiwoo, asking for help, as if he couldn't handle their attacks.</p>
 
@@ -224,29 +224,29 @@ chapter = 76
 
 <p>Seyoung left Cheoljin, who seemed to be cornered in a groggy state, and looked at Shiwoo, asking.</p>
 
-<p>,Ah~ Cheoljin said he's interested in magic~ I was going to go and get some consultation while I was there~ Is that okay?",</p>
+<p>,Ah Cheoljin said he's interested in magic I was going to go and get some consultation while I was there Is that okay?",</p>
 
 <p>Shiwoo asked, answering and asking for understanding at the same time.</p>
 
 <p>Seyoung and Sua, who had been appropriately accepting Cheoljin's jokes and teasing him, seemed to look at each other for a moment, then smiled and answered.</p>
 
-<p>,Yeah, that seems okay~"</p>
+<p>,Yeah, that seems okay"</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>,If you guys ever do a magic show, I'll definitely come and take pictures for you~!",</p>
+<p>,If you guys ever do a magic show, I'll definitely come and take pictures for you!",</p>
 
 <p>Cheoljin, with his good-naturedness, said to Seyoung and Sua as if applying for reconciliation.</p>
 
 <p>-As if trying to subtly get permission for photography on this occasion-</p>
 
-<p>,Hehe~ I don't need it because Shiwoo oppa will take pictures for me~ Cheoljin oppa!",</p>
+<p>,Hehe I don't need it because Shiwoo oppa will take pictures for me Cheoljin oppa!",</p>
 
 <p>Seyoung said something admirable and firmly rejected Cheoljin's favor, which was filled with ulterior motives.</p>
 
 <p>While saying that, she put her arm around Shiwoo's arm and clung to him.</p>
 
-<p>,I'll ask Shiwoo oppa to do it then too, so it's okay, Cheoljin oppa~"</p>
+<p>,I'll ask Shiwoo oppa to do it then too, so it's okay, Cheoljin oppa"</p>
 
 <p>Sua also said to Cheoljin in a clear tone and clung to Shiwoo's remaining arm as if hugging him.</p>
 

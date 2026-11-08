@@ -88,11 +88,11 @@ chapter = 642
 
 <p>And then, a new voice overlapped with Mom's moans...</p>
 
-<p>"I heard you're Sehee and Sunmi's Master-nim~?"</p>
+<p>"I heard you're Sehee and Sunmi's Master-nim?"</p>
 
 <p>A clear voice, unbelievably innocent, pierced into Shiwoo's ears from beyond the earphones.</p>
 
-<p>"I'll borrow them for just a few hours~ I'll play with them carefully and send them back before it's too late, so don't worry..."</p>
+<p>"I'll borrow them for just a few hours I'll play with them carefully and send them back before it's too late, so don't worry..."</p>
 
 <p>She spoke to Shiwoo in a low, sweet voice mixed with laughter, using extremely polite honorifics. A sense of expectation being realized and a reality beyond imagination were slowly writhing inside Shiwoo. Her vivid voice lingered in his ears like an echo.</p>
 
@@ -114,7 +114,7 @@ chapter = 642
 
 <p>As he imagined exposing his erect penis before her for the first time, Shiwoo's penis throbbed as if it were about to burst. The moment he imagined what kind of price and retribution would follow for the bitch who touched his slaves, a twisted dominance desire and a deep sadistic instinct quietly bloomed.</p>
 
-<p>「Okay, have fun and be careful~!」</p>
+<p>「Okay, have fun and be careful!」</p>
 
 <p>Shiwoo sent the text as if granting permission for Mom and Sehee-nuna's deviant behavior. The number next to the sent text disappeared immediately, but there was no reply. Shiwoo could no longer tell if the one who checked the text was Sehee-nuna or the tattoo shop owner-nim.</p>
 
@@ -122,11 +122,11 @@ chapter = 642
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo-oppa, we're here~"</p>
+<p>"Shiwoo-oppa, we're here"</p>
 
 <p>Before he knew it, Seyoung and Sua had come down to the cafe and approached the seat where Shiwoo was.</p>
 
-<p>"Oh~ Sua, Seyoung~ you're here? Did you finish your classes well?"</p>
+<p>"Oh Sua, Seyoung you're here? Did you finish your classes well?"</p>
 
 <p>Shiwoo greeted the two girls while still unable to escape the tingling sensations he felt. His penis was still standing tall...</p>
 
@@ -142,6 +142,6 @@ chapter = 642
 
 <p>Shiwoo suppressed a mixture of uncomfortable guilt and a strange thrill, deliberately omitting the honorific and answering by calling his sister only by her name.</p>
 
-<p>"You had a good talk~? Hehe~"</p>
+<p>"You had a good talk? Hehe"</p>
 
 <p>Seyoung said with a mischievous smile, as if repeating Shiwoo's words back to him.</p>

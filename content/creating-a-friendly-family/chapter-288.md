@@ -36,7 +36,7 @@ chapter = 288
 
 <p>The outline of her nipples was faintly visible on the chest area of the hoodie Sehee Nuna was wearing.</p>
 
-<p>,Oh? You haven't gone downstairs yet? I told you to go down first~?"</p>
+<p>,Oh? You haven't gone downstairs yet? I told you to go down first?"</p>
 
 <p>Shiwoo asked, looking at Sehee Nuna, who was hesitating in front of his room, as if he was puzzled.</p>
 
@@ -46,7 +46,7 @@ chapter = 288
 
 <p>Within the master-slave relationship that had been newly formed because of Shiwoo, it seemed that Sehee Nuna found it quite difficult to face the other family members.</p>
 
-<p>,Don't worry so much~ What if I text Mom right now? Tell her to use respectful speech and treat you with utmost courtesy from now on~!"</p>
+<p>,Don't worry so much What if I text Mom right now? Tell her to use respectful speech and treat you with utmost courtesy from now on!"</p>
 
 <p>Shiwoo says to Sehee Nuna, as if making a suggestion while nonchalantly acting relaxed.</p>
 
@@ -64,7 +64,7 @@ chapter = 288
 
 <p>As Sehee Nuna's pelvis is revealed, the bare-skinned triangular area that is not covered by anything is shown before Shiwoo's eyes.</p>
 
-<p>,It's beautiful no matter how many times I see it~ Hehe...Alright~! Then let's go down together~! You can act as usual while Seyoung is here~ There's no need to be so nervous~!"</p>
+<p>,It's beautiful no matter how many times I see it Hehe...Alright! Then let's go down together! You can act as usual while Seyoung is here There's no need to be so nervous!"</p>
 
 <p>Shiwoo says to Sehee Nuna in a confident tone, putting the bottom of the white hoodie he had lifted back in place.</p>
 
@@ -88,7 +88,7 @@ chapter = 288
 
 <p>Seyoung turns around when she hears Shiwoo and Seyoung's presence from the stairs.</p>
 
-<p>,Sehee Unnie~ Hello~ Did you sleep well~?"</p>
+<p>,Sehee Unnie Hello Did you sleep well?"</p>
 
 <p>Seyoung greets Sehee Nuna, who is coming down from the second floor, with a welcoming greeting.</p>
 
@@ -96,7 +96,7 @@ chapter = 288
 
 <p>Sehee Nuna was grabbing the bottom of her hoodie and pulling it down, answering Seyoung's greeting awkwardly.</p>
 
-<p>,Shiwoo Oppa takes so long to wake Sehee Unnie~! The soup I put aside earlier has already cooled down~!"</p>
+<p>,Shiwoo Oppa takes so long to wake Sehee Unnie! The soup I put aside earlier has already cooled down!"</p>
 
 <p>Seyoung says to Shiwoo, looking at him after greeting Sehee Nuna, as if she was dissatisfied.</p>
 
@@ -104,11 +104,11 @@ chapter = 288
 
 <p>Seyoung, not caring at all about her exposed adorable breasts and the light pink nipples that were precariously peeking out, moves her body busily as usual, carrying food.</p>
 
-<p>,Sehee couldn't sleep until late because she was taking care of you last night~ I was a little late because I woke her up slowly since she was tired~!"</p>
+<p>,Sehee couldn't sleep until late because she was taking care of you last night I was a little late because I woke her up slowly since she was tired!"</p>
 
 <p>Shiwoo says, making it seem like it was Seyoung's fault that he came down late.</p>
 
-<p>,But it was Shiwoo Oppa who put me in Sehee Unnie's room~! Hehe~"</p>
+<p>,But it was Shiwoo Oppa who put me in Sehee Unnie's room! Hehe"</p>
 
 <p>Seyoung says, as if Shiwoo's words blaming her were unfair.</p>
 
@@ -116,7 +116,7 @@ chapter = 288
 
 <p>Shiwoo asks Seyoung, as if testing her, recalling what Seyoung had done in his room early yesterday morning.</p>
 
-<p>,I don't know since I was sleeping~ When I woke up, I was holding Sehee Unnie's breast~~"</p>
+<p>,I don't know since I was sleeping When I woke up, I was holding Sehee Unnie's breast"</p>
 
 <p>Seyoung was answering Shiwoo's words with an innocent tone.</p>
 
@@ -126,37 +126,37 @@ chapter = 288
 
 <p>Shiwoo is saying things as if it was nothing, mentioning that Seyoung sleeps while holding breasts or mentioning a specific person's breasts in front of his family.</p>
 
-<p>,I just like them both because they're big and fluffy~ I like Mom and Sehee Unnie both~ Hehe~"</p>
+<p>,I just like them both because they're big and fluffy I like Mom and Sehee Unnie both Hehe"</p>
 
 <p>Seyoung answers Shiwoo's words with a bright smile.</p>
 
-<p>,Then is this the third person? It seems like Seyoung is okay with anyone as long as they have big breasts~!"</p>
+<p>,Then is this the third person? It seems like Seyoung is okay with anyone as long as they have big breasts!"</p>
 
 <p>Shiwoo says as if he had realized something.</p>
 
-<p>,What is~?"</p>
+<p>,What is?"</p>
 
 <p>Seyoung asks, puzzled by Shiwoo's words.</p>
 
-<p>,I'm talking about the women Seyoung slept while holding their breasts~ They're all women with big breasts~! Mom too... Seonju Imo too... Sehee too...!"</p>
+<p>,I'm talking about the women Seyoung slept while holding their breasts They're all women with big breasts! Mom too... Seonju Imo too... Sehee too...!"</p>
 
 <p>Shiwoo folds his fingers, counting the number of women who had let Seyoung hold their breasts.</p>
 
 <p>Coincidentally, they were all people who had slept with Shiwoo.</p>
 
-<p>,I don't know~ Hehe~"</p>
+<p>,I don't know Hehe"</p>
 
 <p>Seyoung says again, smiling innocently.</p>
 
-<p>,Should I ask Gyuri Ajumma later? No~ Should I look for a woman with small breasts to compare? How about sucking Sua's breast to sleep?"</p>
+<p>,Should I ask Gyuri Ajumma later? No Should I look for a woman with small breasts to compare? How about sucking Sua's breast to sleep?"</p>
 
 <p>Shiwoo continues to tease Seyoung as if he was teasing her with a mischievous tone.</p>
 
-<p>,What~ is that~! Why would I suck Sua's breast to sleep~?"</p>
+<p>,What is that! Why would I suck Sua's breast to sleep?"</p>
 
 <p>Seyoung reacted to her brother's joke as if she was dumbfounded.</p>
 
-<p>,You never know~ Since it will get bigger, so we can take turns sucking, we can check when it's good enough to suck and sleep~"</p>
+<p>,You never know Since it will get bigger, so we can take turns sucking, we can check when it's good enough to suck and sleep"</p>
 
 <p>Shiwoo's high-level vulgar sexual jokes that no longer sound like jokes.</p>
 
@@ -168,7 +168,7 @@ chapter = 288
 
 <p class="scene-break">· · ·</p>
 
-<p>,Oh right, Mom~ Didn't you say you found Seyoung's smartphone earlier?"</p>
+<p>,Oh right, Mom Didn't you say you found Seyoung's smartphone earlier?"</p>
 
 <p>Shiwoo says, calling out to Mom, who is standing turned away, as if he had just remembered.</p>
 
@@ -176,25 +176,25 @@ chapter = 288
 
 <p>Mom reacts to Shiwoo's words, turning around as if she was startled.</p>
 
-<p>,Yeah~ You told me earlier in the dressing room that you found Seyoung's smartphone and put it in the master bedroom, right?"</p>
+<p>,Yeah You told me earlier in the dressing room that you found Seyoung's smartphone and put it in the master bedroom, right?"</p>
 
 <p>Shiwoo was acting as if Mom had really said that, pretending to be acting.</p>
 
-<p>,Is it true, Mom~? Why didn't you tell me right away~? I was so worried, thinking I had lost my smartphone~!"</p>
+<p>,Is it true, Mom? Why didn't you tell me right away? I was so worried, thinking I had lost my smartphone!"</p>
 
 <p>Seyoung said to Mom in a complaining tone.</p>
 
-<p>,Mom was going to tell you, but I think I forgot because I was doing this and that in the dressing room~ Right, Mom~?"</p>
+<p>,Mom was going to tell you, but I think I forgot because I was doing this and that in the dressing room Right, Mom?"</p>
 
 <p>Shiwoo explains to Seyoung as if representing Mom's position, and then asks Mom as if confirming.</p>
 
 <p>-At the same time, reminding her of what had happened in the dressing room-</p>
 
-<p>,Oh?...Oh...That's right...Mom forgot~ I'm sorry, Seyoung..."</p>
+<p>,Oh?...Oh...That's right...Mom forgot I'm sorry, Seyoung..."</p>
 
 <p>Mom answers Seyoung as Shiwoo intended, blushing and looking flustered, but still.</p>
 
-<p>,Didn't you leave Seyoung's smartphone in Mom's room? I think it would be good to bring it now~? I'll scoop the rice with Seyoung~"</p>
+<p>,Didn't you leave Seyoung's smartphone in Mom's room? I think it would be good to bring it now? I'll scoop the rice with Seyoung"</p>
 
 <p>Shiwoo says to Mom, who is hesitating, as if giving her an order.</p>
 

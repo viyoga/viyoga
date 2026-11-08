@@ -6,7 +6,7 @@ chapter = 776
 +++
 <p>Shiwoo watched Mom for a moment before letting out a relaxed, knowing snort.</p>
 
-<p>"Fine... but in exchange~! Keep your arms out!"</p>
+<p>"Fine... but in exchange! Keep your arms out!"</p>
 
 <p>Shiwoo spoke to Mom as he pulled her arms, which were tucked inside her clothes, out into the open.</p>
 
@@ -22,7 +22,7 @@ chapter = 776
 
 <p>Shiwoo brought his lips to the exposed lower half of her face.</p>
 
-<p>"Chuu-up chap chup chup chwa-ap~"</p>
+<p>"Chuu-up chap chup chup chwa-ap"</p>
 
 <p>Shiwoo stuck out his tongue and licked up the moisture around Mom's jaw and lips...</p>
 
@@ -86,7 +86,7 @@ chapter = 776
 
 <p>Perhaps the rustling sound Shiwoo made reached Sejin Nuna, because the wet friction and the pained, groaning sounds from the receiver stopped at the same time.</p>
 
-<p>"Hmm... is it over~?"</p>
+<p>"Hmm... is it over?"</p>
 
 <p>Sejin Nuna asked in a voice that was listless yet filled with a strange sense of anticipation.</p>
 
@@ -98,7 +98,7 @@ chapter = 776
 
 <p>Her face, more than half of which was still covered by the hem of her upturned dress, including her eyes.</p>
 
-<p>"Mom~ how do you feel right now?"</p>
+<p>"Mom how do you feel right now?"</p>
 
 <p>Sejin Nuna asked as if checking Mom's reaction.</p>
 
@@ -150,7 +150,7 @@ chapter = 776
 
 <p>Shiwoo released the flick and pressed down on Mom's nipple with his thumb, rubbing it softly.</p>
 
-<p>"Really~? That's a relief~ Is Shiwoo... still inside Mom?"</p>
+<p>"Really? That's a relief Is Shiwoo... still inside Mom?"</p>
 
 <p>Sejin Nuna was now asking blatant questions about Mom and Shiwoo's situation, as if she no longer felt the need to hide her curiosity.</p>
 
@@ -174,7 +174,7 @@ chapter = 776
 
 <p>Mom answered while tightening her pussy as hard as she could, with one arm wrapped around Shiwoo's neck.</p>
 
-<p>"Heh~ you can talk about things like that now, can't you~?"</p>
+<p>"Heh you can talk about things like that now, can't you?"</p>
 
 <p>Sejin Nuna spoke as if teasing Mom, her tone suggesting a mischievous smile on her lips.</p>
 
@@ -186,7 +186,7 @@ chapter = 776
 
 <p>"You said you do it at least four or five times every morning and evening, right? Dad did it a lot, but it wasn't quite to that extent, was it?"</p>
 
-<p>"I think Shiwoo was really born with that size and virility~ I wonder if he takes after Mom?"</p>
+<p>"I think Shiwoo was really born with that size and virility I wonder if he takes after Mom?"</p>
 
 <p>Sejin Nuna didn't stop talking, digging deeper as if enjoying Mom's reaction.</p>
 
@@ -194,7 +194,7 @@ chapter = 776
 
 <p>Mom answered evasively, burying her burning face in Shiwoo's shoulder.</p>
 
-<p>"Even if it wasn't for something like a slave contract, we probably would have been impregnated by Shiwoo eventually, right~? He-he-he!"</p>
+<p>"Even if it wasn't for something like a slave contract, we probably would have been impregnated by Shiwoo eventually, right? He-he-he!"</p>
 
 <p>Sejin Nuna said, laughing mischievously as if Mom's awkward answer and reaction were funny.</p>
 
@@ -206,7 +206,7 @@ chapter = 776
 
 <p>She herself couldn't distinguish whether the reaction of her burning inner flesh was a rational judgment or a physical craving, but it was certainly a clear sign of irreversible submission.</p>
 
-<p>"So... you're not taking birth control pills lately, right~? Do you think you'll get pregnant easily? Have you calculated your ovulation day recently?"</p>
+<p>"So... you're not taking birth control pills lately, right? Do you think you'll get pregnant easily? Have you calculated your ovulation day recently?"</p>
 
 <p>Sejin Nuna continued to pour out blatant and persistent questions to Mom.</p>
 
