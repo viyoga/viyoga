@@ -4,30 +4,54 @@ weight = 430
 [extra]
 chapter = 430
 +++
-
 <p>"Here! Mom! Wipe with this! We need to get ready to go home now!"</p>
+
 <p>Shiwoo spoke as he tossed a thick pack of wet wipes he'd grabbed from a vending machine onto Mom's lap. Perhaps it was because of the conversation they just had as mother and son in their 1:1 chat, or maybe it was Shiwoo's indifferent attitude as he pointed out the hair peeking out... Mom kept her flushed face lowered as she used the wet wipes Shiwoo threw to clean her defiled body. First was her face and around her mouth, then the inside of her groin covered by the swimsuit bottom, and finally the rest of her flesh where Shiwoo's piss had touched.</p>
+
 <p>Shiwoo used the mop he brought to wipe up the moisture that had splashed onto the floor while he was pouring his piss into Mom's mouth and over her face earlier. "I shouldn't do this indoors anymore. The cleanup is such a hassle! Right?" "If we're going to do it, we should do it completely outdoors, or otherwise only in the shower or the restroom at home." As he mopped the floor, Shiwoo spoke to Mom as if analyzing the problems and points for improvement regarding the watersports play they just finished.</p>
+
 <p>"Uh?... Yeah... I... I think so too..." Mom replied as if echoing his words while wiping the moisture from around her breasts covered in red fabric. After roughly wiping the floor, Shiwoo leaned the mop against the wall and approached Mom, who was still wiping the skin around her breasts. As Shiwoo drew near, Mom's hands, which had been busy wiping her body, gave a sudden jjirit and stopped moving.</p>
+
 <p>Shiwoo reached out and pulled several wet wipes from the pack resting on her lap. He placed the wipes on the skin of her breasts peeking out from the swimsuit and rubbed them gently, as if tickling her, cleaning the filth off her flesh. It seemed Mom had completely lost any will or intent to resist Shiwoo's touch now that he had come to dominate her. She simply seemed focused on making sure her breasts were positioned well for Shiwoo's hand.</p>
+
 <p>Shiwoo's hand, which had been stroking her breasts, slid down toward the boundary between Mom's white flesh and the swimsuit covering it. His hand instantly ducked into the gap between the skin of her breasts and the fabric. As the cold wet wipe touched the tip of her sensitively peaked nipple, Mom instinctively hunched her shoulders and curled her body in surprise. Shiwoo began to stroke the bare skin of her breasts beneath the swimsuit fabric, centering his movements around her nipples.</p>
+
 <p>"Ha-aaaa..." Mom let out a long moaning sound at Shiwoo's caress using the wet wipe. "As soon as we get home, you need to shower before we eat, Mom." Shiwoo spoke while flicking and scratching at Mom's nipple inside the fabric of the swimsuit.</p>
+
 <p>"Ugh... Yes... As soon as... we get home... I'll... I'll shower first..." Mom stammered her reply to Shiwoo, appearing flustered by the peculiar sensation on her nipples. She was practically just repeating the instructions Shiwoo gave her...</p>
+
 <p>"I'd love to shower with you as soon as we get home, but Sehee and Seyoung are there right now, so that'll be a bit difficult, right?" Shiwoo spoke while rolling Mom's nipple between his fingers. "Mmm... Yeah... Since Seyoung is there too... Ha-eum..." Mom replied, letting out a delicate moaning sound in time with Shiwoo's fingers rolling her nipple.</p>
+
 <p>"Did we say we'd live exactly like we used to at home when Seyoung is awake during the day?" Shiwoo asked her again, framing it as a question to confirm one of the conditions Mom had originally set for approving this play. Because of the dominant tone in their chat and the creampie he'd already delivered inside Mom, the other two conditions had essentially fallen apart. In that situation, Shiwoo was asking her a question to confirm the one remaining condition.</p>
+
 <p>"Yes... Th-that's right... Because... we promised that...!" Mom spoke to Shiwoo with a firm expression and tone, showing her determination to somehow protect the maintenance of their everyday family relationship, which was one of the conditions she had set.</p>
+
 <p>"Then I'll just head up to the second-floor bathroom and wash up quickly as soon as I get home! That works, right?" Surprisingly, Shiwoo didn't try to force the issue and spoke as if expressing his intent to uphold the first condition Mom had set. "Y-you will?" At Shiwoo's words, Mom's firmly set expression softened awkwardly.</p>
+
 <p>"Rules are rules~ Ah! And... you're still making Sehee and Seyoung take their birth control pills, right? Did you say there were four weeks left?" Shiwoo followed up by asking about the second condition, the family's contraception. "Huh?... Uh... Yes... Since... it hasn't been long since they started taking them..." Mom had already declared her status as a slave in the group chat and had been creampied by Shiwoo. She trailed off and answered shyly, as if she felt she had no right to speak on the matter herself.</p>
+
 <p>"I should stop by a pharmacy on the way home and buy a lot of condoms. Considering I'll be using them on two people for four weeks, what we have at home won't be nearly enough." Shiwoo spoke as if the second condition Mom had set was still entirely valid for everyone except her, who had just made her slave declaration and received a creampie today. "Yes..." Mom answered shortly in a fading voice, her head bowed as if she had committed a sin.</p>
+
 <p>"What about you, Mom? Should you go to a clinic?" Shiwoo asked, sounding concerned about Mom's pregnancy and contraception status. "F-for now, I think I'll have to wait and see... It's not like it happens right away just because we did it..." Mom replied to Shiwoo, clearly conscious of the possibility of pregnancy. Even though she had accepted her son's creampie, she still seemed to harbor anxiety and discomfort regarding getting pregnant.</p>
+
 <p>After meticulously wiping one of Mom's breasts and nipples beneath the fabric of her one-piece top, Shiwoo pulled his hand out. He pulled a fresh wet wipe from the pack on Mom's lap. "Right... Let's do that for now. You'd know more about that than I would, Mom~" Shiwoo said as he slid his hand under the swimsuit on the other breast. "...And what else was there? The things I promised you, Mom?" Shiwoo asked Mom, who couldn't recall for a moment. It seemed Shiwoo intended to go through the conditions Mom had set for participating in the master-servant play one by one and adjust them to fit the changed situation.</p>
+
 <p>"The... messages..." Mom replied in a tense voice, her body flinching in response to the cold sensation of the wet wipe on her other breast. "Ah~! Right, the 1:1 messages! We were supposed to keep talking as mother and son in the chat room... right?" Shiwoo said as if it were a shame, while pinching Mom's firmly protruding nipple between his fingers. He even called her by her name, as if speaking down to her...</p>
+
 <p>"......" This time, Mom couldn't answer, merely watching Shiwoo's reaction. "I'll have to be careful not to get aroused while talking to you via text from now on, Mom~" Shiwoo spoke to Mom as if casually brushing off his recent mistake. "Mmm... From now on... Ha-aa..." Mom replied, straightening her back and catching her breath.</p>
+
 <p>"I'll make sure to put things back the way they were, so don't worry...!" Shiwoo spoke as if making a vow, firmly grasping Mom's breast as she pushed it forward while straightening her back. "Mmm... Ha-eu... Hng..." Instead of an answer, a nasal moaning sound escaped from Mom at Shiwoo's words.</p>
+
 <p class="scene-break">· · ·</p>
+
 <p>The vibrator had eventually run out of battery and stopped. In the room where the vibrator's buzzing had vanished, the sound of Mom's heavy breathing and the muffled accompaniment of the karaoke music leaking through the half-open door filled the space.</p>
+
 <p>"Is that enough? It looks like it's almost dinner time... Sehee and Seyoung will be waiting. If there's nothing else to talk about, shall we head home now?" Shiwoo pulled his hand out from inside the swimsuit where he had been fondling Mom's breast and spoke as he helped her stand up. "Uh... B-but Shiwoo... Is Mom really going home like this?" Mom asked Shiwoo as if she were in a bind, belatedly covering her swimsuit-clad breasts and groin with her arms. She had worn the bikini Shiwoo bought like a bitter pill because it seemed better than being naked, but now that it was time to actually step outside, she couldn't bring herself to do it.</p>
+
 <p>"Why? Earlier you were walking around just fine with only a T-shirt on and no underwear." Shiwoo spoke in a mocking tone to Mom, who was troubled by the swimsuit even though she had gone out wearing only a T-shirt without underwear or bottoms earlier. "The T-shirt at least... covers my whole body, so as long as I'm careful, people won't look at me strangely... But... this is..." Mom trailed off as she countered Shiwoo's words.</p>
+
 <p>Chalsak!</p>
+
 <p>Perhaps Shiwoo found her attitude offensive, as he suddenly slapped Mom's buttocks from below. "Ha-eut!" As Shiwoo's hand struck her ass hard again, Mom hunched her body in surprise from her awkward standing position and let out a moan. Shiwoo reached out and grabbed Mom's swimsuit top as if he were going to strip it off.</p>
+
 <p>"You fucking bitch! Just because I'm being nice, you're acting like a piece of shit again?! You want me to just strip this swimsuit off right now?! You want to go all the way home butt-naked?!" Shiwoo raised his voice and cursed, shouting at Mom to intimidate her.</p>
