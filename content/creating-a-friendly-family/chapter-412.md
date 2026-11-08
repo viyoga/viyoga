@@ -172,7 +172,7 @@ chapter = 412
 
 <p>Shiwoo put his hand under Mom's armpits and tried to quickly pull down the t-shirt that was draped over Mom's upper body.</p>
 
-<p>"Shi...Shiwoo-ya...this is a karaoke...sa...people..."</p>
+<p>"Shi...Shiwoo...this is a karaoke...sa...people..."</p>
 
 <p>Mom calls out to Shiwoo in a flustered voice, tightening her arms that had been holding onto her t-shirt even more to her torso.</p>
 

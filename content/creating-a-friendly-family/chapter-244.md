@@ -18,7 +18,7 @@ chapter = 244
 
 <p>Shiwoo pinched and rubbed Mom's nipples as he instructed her. If Seyoung slept with Mom like this, she would taste the semen that Shiwoo and Sehee Nuna had spilled with her tongue.</p>
 
-<p>「Sh-Shiwoo-ya...」</p>
+<p>「Sh-Shiwoo...」</p>
 
 <p>Mom called Shiwoo's name pitifully, her expression flustered.</p>
 

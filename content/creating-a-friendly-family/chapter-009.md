@@ -24,7 +24,7 @@ chapter = 9
 
 <p>Seyoung announced their arrival upon seeing Shiwoo.</p>
 
-<p>"Shiwoo-ya, nothing unusual happened today, right?"</p>
+<p>"Shiwoo, nothing unusual happened today, right?"</p>
 
 <p>Mom also spoke to Shiwoo with a question that served as a greeting.</p>
 
@@ -166,7 +166,7 @@ chapter = 9
 
 <p>"Mom, Gyuri Ajumma said to tell you to use this well."</p>
 
-<p>"Alright, thank you, Shiwoo-ya, you did well. Ah.. and you didn't forget what I asked yesterday, did you?"</p>
+<p>"Alright, thank you, Shiwoo, you did well. Ah.. and you didn't forget what I asked yesterday, did you?"</p>
 
 <p>Last night, Mom had asked Shiwoo, who was only in his panties, to take charge of moving Seyoung from the master bedroom to Seyoung's room whenever she fell asleep there.</p>
 
@@ -174,7 +174,7 @@ chapter = 9
 
 <p>"No, I didn't forget. Now Mom, you can sleep comfortably. I'll come down a bit later and take care of everything."</p>
 
-<p>"Alright, thank you, Shiwoo-ya. Thanks to you, Mom can sleep soundly now. Then, Mom has a favor to ask"</p>
+<p>"Alright, thank you, Shiwoo. Thanks to you, Mom can sleep soundly now. Then, Mom has a favor to ask"</p>
 
 <p class="scene-break">· · ·</p>
 

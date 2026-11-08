@@ -126,7 +126,7 @@ chapter = 457
 
 <p>Shiwoo answered lightly to Mom, who was asking for his understanding, as if granting a trivial request.</p>
 
-<p>"Okay...Th-thank you...Shiwoo-ya..."</p>
+<p>"Okay...Th-thank you...Shiwoo..."</p>
 
 <p>Mom was expressing her gratitude to Shiwoo for accepting her request.</p>
 
@@ -210,7 +210,7 @@ chapter = 457
 
 <p>"Haa-eut! Sehee-ya! Sehee Nuna!"</p>
 
-<p>"Shi...Shiwoo-ya...haa-eung Master!"</p>
+<p>"Shi...Shiwoo...haa-eung Master!"</p>
 
 <p>The two were about to reach their climax, calling each other by different titles.</p>
 

@@ -18,7 +18,7 @@ chapter = 389
 
 <p>However, regardless of Sora Nuna's climax or convulsions, Shiwoo violently rammed his hugely swollen penis, as if trying to pour all the accumulated sorrow and resentment into her vagina hole.</p>
 
-<p>"...Haa-euk...haa-aang...haa-eu-eung! Heu-heu-heuk ha-heu-heuk! Shi...Shiwoo-ya heu-eu-heung...!"</p>
+<p>"...Haa-euk...haa-aang...haa-eu-eung! Heu-heu-heuk ha-heu-heuk! Shi...Shiwoo heu-eu-heung...!"</p>
 
 <p>Sora Nuna made a sound that was almost a sob, as if wailing.</p>
 

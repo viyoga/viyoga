@@ -188,7 +188,7 @@ chapter = 190
 
 <p>In the silence, the sound of wet kisses was heard as if echoing.</p>
 
-<p>"I'm going to the restroom for a bit Shiwoo-ya"</p>
+<p>"I'm going to the restroom for a bit Shiwoo"</p>
 
 <p>As the karaoke accompaniment that had been playing stopped, Sinbi Nuna, perhaps feeling a little shy, sat up straight and said to Shiwoo.</p>
 

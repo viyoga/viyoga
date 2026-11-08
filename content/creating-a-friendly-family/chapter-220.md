@@ -144,7 +144,7 @@ chapter = 220
 
 <p>Seyoung was asking Mom with a seemingly innocent expression as if she was excited about something.</p>
 
-<p>"Yeah Unnie said it's okay We're family, so what We can show each other our naked bodies and embarrassing appearances Isn't that right, Shiwoo-ya? Kikik!"</p>
+<p>"Yeah Unnie said it's okay We're family, so what We can show each other our naked bodies and embarrassing appearances Isn't that right, Shiwoo? Kikik!"</p>
 
 <p>Seonju Imo-nim was asking Shiwoo, who was turned around to hide his erection, for his agreement with a playful expression.</p>
 

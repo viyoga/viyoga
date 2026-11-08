@@ -28,7 +28,7 @@ chapter = 254
 
 <p>Mom was startled and pulled the blanket she was holding close to her body, pulling it up to around her waist.</p>
 
-<p>,J-Just... just a moment... Heut... Shi... Shiwoo-ya... Heueueu.... P-Please...,</p>
+<p>,J-Just... just a moment... Heut... Shi... Shiwoo... Heueueu.... P-Please...,</p>
 
 <p>Mom pleaded to Shiwoo, making a small sobbing sound as if she had now completely given up on maintaining any pretense as a mother.</p>
 

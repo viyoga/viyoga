@@ -34,7 +34,7 @@ chapter = 249
 
 <p>Even though it wasn't unfamiliar to me, it was the first time I had directly seen Seyoung sucking on Mom's breasts while awake.</p>
 
-<p>,Uh...!? Shi... Shiwoo-ya...? ,</p>
+<p>,Uh...!? Shi... Shiwoo...? ,</p>
 
 <p>A little earlier than the time I was originally supposed to come down.</p>
 

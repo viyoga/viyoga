@@ -8,7 +8,7 @@ chapter = 228
 
 <p>With his exposed, erect penis thrust forward, Shiwoo waited for Sehee Nuna.</p>
 
-<p>"Shi... Shiwoo-ya... I... I'm coming in"</p>
+<p>"Shi... Shiwoo... I... I'm coming in"</p>
 
 <p>Sehee Nuna's voice was soon heard from in front of Shiwoo's door.</p>
 

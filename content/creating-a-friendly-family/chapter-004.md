@@ -8,7 +8,7 @@ chapter = 4
 
 <p>Shiwoo, who had been avoiding eye contact and eating with his head down since his eyes met Sehee's, heard his Mom speak.</p>
 
-<p>"Mom will shower first, so Shiwoo-ya, do the dishes and finish cleaning up, okay?"</p>
+<p>"Mom will shower first, so Shiwoo, do the dishes and finish cleaning up, okay?"</p>
 
 <p>Shiwoo, embarrassed and ashamed at being caught by his older sister, pretended to shove rice and side dishes into his mouth while answering, his head still lowered.</p>
 

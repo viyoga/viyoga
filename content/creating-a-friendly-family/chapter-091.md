@@ -42,7 +42,7 @@ chapter = 91
 
 <p>'Just go into your room quickly so you don't get caught!!!" Shiwoo's attitude was as if he was roughly pushing her.</p>
 
-<p>'Can't you just let me off this once? Shiwoo-ya Imo is really reflecting Please Hiiing' Seonju Imo was acting cute and pleading desperately.</p>
+<p>'Can't you just let me off this once? Shiwoo Imo is really reflecting Please Hiiing' Seonju Imo was acting cute and pleading desperately.</p>
 
 <p>Shiwoo's sadistic instincts were stimulated, and he felt a strong urge to call Seonju Imo back to his house immediately and humiliate her all night. If it hadn't been for the Sehee Nuna incident, Shiwoo might have certainly done so.</p>
 
@@ -100,7 +100,7 @@ chapter = 91
 
 <p>'Yeah Go in safely now And make sure to send the photo!!" In response, Shiwoo also maintained an overbearing attitude towards Seonju Imo until the very end, matching her. Shiwoo and Seonju Imo's role-play continued smoothly until the very end.</p>
 
-<p>** 'But Shiwoo-ya, can I ask you something?' Seonju Imo spoke to him again just as they were about to end their conversation.</p>
+<p>** 'But Shiwoo, can I ask you something?' Seonju Imo spoke to him again just as they were about to end their conversation.</p>
 
 <p>'What?'</p>
 

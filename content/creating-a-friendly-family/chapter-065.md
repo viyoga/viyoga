@@ -188,7 +188,7 @@ chapter = 65
 
 <p>Shivering and trembling, as if she had braced herself for something...</p>
 
-<p>「Sh-Shiwoo-ya... Hmph... Mmm!! Just a moment!!」</p>
+<p>「Sh-Shiwoo... Hmph... Mmm!! Just a moment!!」</p>
 
 <p>She cleared her throat and called Shiwoo.</p>
 

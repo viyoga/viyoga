@@ -86,7 +86,7 @@ chapter = 200
 
 <p>Sitting on the bed, holding Sehee Nuna's panties in his hand, Shiwoo admired the sensual silhouette of Sehee Nuna's body reflected in the glass door of the shower room.</p>
 
-<p>"Shiwoo-ya! I forgot to bring a towel..."</p>
+<p>"Shiwoo! I forgot to bring a towel..."</p>
 
 <p>At that moment, Sehee Nuna's voice was heard as the shower room door opened.</p>
 
@@ -120,7 +120,7 @@ chapter = 200
 
 <p>A moment of quiet silence filled the motel room where Shiwoo and Sehee Nuna were.</p>
 
-<p>"Shiwoo-ya, give me your arm"</p>
+<p>"Shiwoo, give me your arm"</p>
 
 <p>Breaking the silence, Sehee Nuna said to Shiwoo in the dark.</p>
 
@@ -172,7 +172,7 @@ chapter = 200
 
 <p>Shiwoo turned his body to face Sehee Nuna, making his penis touch Sehee Nuna's body.</p>
 
-<p>"I was wrong, Shiwoo-ya. I usually treat Shiwoo badly on my own..."</p>
+<p>"I was wrong, Shiwoo. I usually treat Shiwoo badly on my own..."</p>
 
 <p>For some reason, Sehee Nuna was also apologizing to Shiwoo for her usual behavior.</p>
 

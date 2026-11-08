@@ -174,7 +174,7 @@ chapter = 142
 
 <p>Shiwoo waits for a moment without answering.</p>
 
-<p>,...Shiwoo-ya?,</p>
+<p>,...Shiwoo?,</p>
 
 <p>Mom calls Shiwoo's name again, sounding anxious, as Shiwoo is silent without answering.</p>
 

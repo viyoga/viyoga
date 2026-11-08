@@ -32,7 +32,7 @@ chapter = 418
 
 <p>Mom shrank her body even more and answered as if intimidated.</p>
 
-<p>"Shiwoo-ya! But where did you put my clothes? Did you put them inside the bag?"</p>
+<p>"Shiwoo! But where did you put my clothes? Did you put them inside the bag?"</p>
 
 <p>Mom, worried that an order to not wear clothes might come from Shiwoo, looked at the bag Shiwoo was carrying and spoke with a desperate and earnest expression and tone.</p>
 

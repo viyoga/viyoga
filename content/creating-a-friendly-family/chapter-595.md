@@ -10,7 +10,7 @@ chapter = 595
 
 <p>Cheolkeok! Dalkang!</p>
 
-<p>"Shiwoo-ya, I'm here!"</p>
+<p>"Shiwoo, I'm here!"</p>
 
 <p>Following the sound of the door opening and closing, Sejin Nuna's voice is heard.</p>
 
@@ -64,7 +64,7 @@ chapter = 595
 
 <p>Shiwoo says happily to Sejin Nuna, who is organizing things in front of the sink, as he comes out of the bathroom.</p>
 
-<p>"Yeah, Shiwoo-ya It's been a really long time since I've seen your face Right?"</p>
+<p>"Yeah, Shiwoo It's been a really long time since I've seen your face Right?"</p>
 
 <p>When Shiwoo speaks to her as he comes out of the bathroom, Sejin Nuna stops organizing the items and turns around to greet Shiwoo.</p>
 

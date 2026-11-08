@@ -32,7 +32,7 @@ chapter = 18
 
 <p>"I'm off, Mom"</p>
 
-<p>"Go carefully, Shiwoo-ya" She looked like Mom, as usual.</p>
+<p>"Go carefully, Shiwoo" She looked like Mom, as usual.</p>
 
 <p>At Mom's natural acting, as if the recent messages had never happened, Shiwoo's 'thing' seemed to stiffen once more. Shiwoo felt as if there were different Moms, each treating him distinctly. Mom during the day and Mom at night. And then, the newly discovered shy and lewd Mom from their chat, who treated Shiwoo normally yet could discuss the events of the night.</p>
 
@@ -86,7 +86,7 @@ chapter = 18
 
 <p>On the way to Sehee Nuna's academy. Through their many conversations, Shiwoo felt he had learned aspects of Nuna he hadn't known before. -Though many mysterious points still remained- As they were almost at the academy, a familiar face appeared ahead. The familiar face, with a decent height and an easygoing look, was none other than Cheoljin.</p>
 
-<p>"Yo, Shiwoo-ya Sehee Nuna What brings you two to school together?"</p>
+<p>"Yo, Shiwoo Sehee Nuna What brings you two to school together?"</p>
 
 <p>Cheoljin approached, speaking with feigned innocence.</p>
 
@@ -106,7 +106,7 @@ chapter = 18
 
 <p>Cheoljin looked suspicious no matter how you looked at him.</p>
 
-<p>"Alright, I'm going in. Thanks, Shiwoo-ya. Goodbye, Cheoljin-a!!"</p>
+<p>"Alright, I'm going in. Thanks, Shiwoo. Goodbye, Cheoljin-a!!"</p>
 
 <p>Arriving at the academy gate, the two watched Nuna go inside. After seeing Nuna off, Cheoljin and Shiwoo headed together to the intermediate academy they attended.</p>
 

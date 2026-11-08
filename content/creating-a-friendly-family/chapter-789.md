@@ -72,7 +72,7 @@ chapter = 789
 
 <p>Mom trembled all over, answering in a voice messily distorted by a mixture of suppressed shame and forbidden bliss. Her abnormal sobbing had soon turned into a desperate wail, as if her reason had snapped.</p>
 
-<p>"Shiwoo-ya...! Heu-euk.... Spank Mom's ass more! I must really be... a crazy perverted bitch.. Heu-heuk.. Mom needs to be punished more by you kids... Heu-eu-eu-euk... "</p>
+<p>"Shiwoo...! Heu-euk.... Spank Mom's ass more! I must really be... a crazy perverted bitch.. Heu-heuk.. Mom needs to be punished more by you kids... Heu-eu-eu-euk... "</p>
 
 <p>"Just, rather, like this... Heu-eu-eu-eu... Please turn Mom into a total slut...! Heu-eung... Eu-heuk heu-heuk-heuk heu-eu-eu-eu-heuk! "</p>
 

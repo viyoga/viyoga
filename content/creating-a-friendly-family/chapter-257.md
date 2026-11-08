@@ -110,7 +110,7 @@ chapter = 257
 
 <p>Shiwoo's brutal fucking continued for a long time.</p>
 
-<p>「Haa-ak! Haa-eut! Huu-eueung! Sh-Shiwoo-ya... Mom... now Haa-euueuk! Shiwoo-yaang!」</p>
+<p>「Haa-ak! Haa-eut! Huu-eueung! Sh-Shiwoo... Mom... now Haa-euueuk! Shiwooang!」</p>
 
 <p>Mom, who had already climaxed several times from Shiwoo's piston strokes, desperately calls Shiwoo's name, eventually pulling her knees back and giving up.</p>
 

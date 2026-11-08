@@ -14,7 +14,7 @@ chapter = 182
 
 <p>He feels a tingling shiver running from the soles of his feet up to his knees and pelvic bones.</p>
 
-<p>"We should buy it after trying it on But kids grow quickly, so a medium-sized one should be fine. Right?! Shiwoo-ya?"</p>
+<p>"We should buy it after trying it on But kids grow quickly, so a medium-sized one should be fine. Right?! Shiwoo?"</p>
 
 <p>Seonju Imo suddenly looks at Shiwoo and asks, catching him off guard with a sly tone.</p>
 

@@ -224,6 +224,6 @@ chapter = 413
 
 <p>Shiwoo said that and was about to upload the picture he had just taken and the video he had taken right before to the chat room.</p>
 
-<p>"W-wait a minute... Shiwoo-ya!..."</p>
+<p>"W-wait a minute... Shiwoo!..."</p>
 
 <p>Mom urgently calls Shiwoo's name without releasing her posture.</p>

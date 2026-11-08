@@ -16,7 +16,7 @@ chapter = 97
 
 <p>The moment her body hit the wall, a dull thud accompanied Sehee Nuna's moaning sound, which burst forth. Shiwoo's body faced the wall, pressing down on Sehee Nuna's body. With his legs spread, Shiwoo pressed his cock against Sehee Nuna's buttocks, coercing her so she couldn't escape. Shiwoo's penis was pressed and rubbed all over Sehee Nuna's soapy, slippery back and buttocks.</p>
 
-<p>「Sh-Shiwoo-ya, if you suddenly...」</p>
+<p>「Sh-Shiwoo, if you suddenly...」</p>
 
 <p>Sehee Nuna's voice was flustered as she spoke to Shiwoo, who was pushing her against the wall and pressing down on her.</p>
 

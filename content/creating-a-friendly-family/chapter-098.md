@@ -166,7 +166,7 @@ chapter = 98
 
 <p>Sehee Nuna's surprised gasp.</p>
 
-<p>"J-just a moment, Shiwoo-ya!! C-condom...."</p>
+<p>"J-just a moment, Shiwoo!! C-condom...."</p>
 
 <p>Sehee Nuna turned to look at Shiwoo urgently, as Shiwoo's penis was stimulating her genitals raw.</p>
 
@@ -214,7 +214,7 @@ chapter = 98
 
 <p>The sensation of climax that she had been holding back several times.</p>
 
-<p>"Shi... Shiwoo-ya... if we do it raw... we... heueuk... heu-eut..."</p>
+<p>"Shi... Shiwoo... if we do it raw... we... heueuk... heu-eut..."</p>
 
 <p>Sehee Nuna seemed to be aware of Shiwoo's climax and spoke as if worried.</p>
 
@@ -222,7 +222,7 @@ chapter = 98
 
 <p>Shiwoo answered simply to Sehee Nuna's words and continued to move his waist.</p>
 
-<p>"O-outside... ha-eut... please... Shiwoo-ya ha-at!!"</p>
+<p>"O-outside... ha-eut... please... Shiwoo ha-at!!"</p>
 
 <p>Sehee Nuna said pleadingly.</p>
 
@@ -242,7 +242,7 @@ chapter = 98
 
 <p>-Jji-geo-k! Jji-geo-k! Jji-geo-k!</p>
 
-<p>"Heueueung... heuk... heuk... a... it hurts, Shiwoo-ya"</p>
+<p>"Heueueung... heuk... heuk... a... it hurts, Shiwoo"</p>
 
 <p>Sehee Nuna said sadly, as if sobbing.</p>
 

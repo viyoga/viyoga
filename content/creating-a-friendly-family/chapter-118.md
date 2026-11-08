@@ -270,7 +270,7 @@ chapter = 118
 
 <p>Shiwoo's hand, stopped again.</p>
 
-<p>"Sh...Shiwoo-ya!"</p>
+<p>"Sh...Shiwoo!"</p>
 
 <p>Mom's urgent voice, heard through the speakerphone.</p>
 

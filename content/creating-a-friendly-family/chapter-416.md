@@ -94,7 +94,7 @@ chapter = 416
 
 <p>Shiwoo said to Mom as if delivering a final notice.</p>
 
-<p>"Sh, Shiwoo-ya! I understand, I'll do it! I'll do it, so... please...! I just have to upload this to the group chat, right?"</p>
+<p>"Sh, Shiwoo! I understand, I'll do it! I'll do it, so... please...! I just have to upload this to the group chat, right?"</p>
 
 <p>Mom called out to Shiwoo urgently, speaking as if reluctantly agreeing to upload the pictures, video, and the declaration Shiwoo had sent to the group chat.</p>
 

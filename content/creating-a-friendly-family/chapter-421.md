@@ -90,7 +90,7 @@ chapter = 421
 
 <p>Shiwoo threatens Mom as if scolding her, mentioning Sehee Nuna's name and the rank he had just set.</p>
 
-<p>"I... I really... don't think I can endure it... Like this... Haeueuk... Too... too strong... Haueut! Shiwoo-ya! Shiwoo-yat! Heueueung heugeueuk!"</p>
+<p>"I... I really... don't think I can endure it... Like this... Haeueuk... Too... too strong... Haueut! Shiwoo! Shiwoot! Heueueung heugeueuk!"</p>
 
 <p>-Tak tak tak!</p>
 

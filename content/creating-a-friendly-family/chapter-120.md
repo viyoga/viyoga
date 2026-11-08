@@ -12,7 +12,7 @@ chapter = 120
 
 <p>Sehee Nuna's cries of pleasure burst out, loud enough to echo throughout the entire house.</p>
 
-<p>"Too... big! Hat! Haaaat! Shi... Shiwoo-ya, it's hot... it feels like it's burning, haa-eueuk!"</p>
+<p>"Too... big! Hat! Haaaat! Shi... Shiwoo, it's hot... it feels like it's burning, haa-eueuk!"</p>
 
 <p>Sehee Nuna's sensitive inner flesh, thoroughly pounded and worked. Shiwoo's raw cock thrust in and out, mercilessly scraping Sehee Nuna's vaginal walls. Sehee Nuna was on the verge of losing her mind from the heat that felt like melting and the pleasure that felt like bursting. Sehee Nuna, trembling incessantly from the countless waves of climax that had swept over her, desperately clung to Shiwoo, holding on. Shiwoo unwrapped Sehee Nuna's legs from his waist and spread them to either side.</p>
 
@@ -26,7 +26,7 @@ chapter = 120
 
 <p>Shiwoo's pounding sounds, full of passion, burst out irregularly like the noise of a worn-out, misaligned machine.</p>
 
-<p>"Haa-eueuk! Haat! Ha-eung! Shiwoo-ya, Shiwoo-ya, heu-eung!"</p>
+<p>"Haa-eueuk! Haat! Ha-eung! Shiwoo, Shiwoo, heu-eung!"</p>
 
 <p>Sehee Nuna, now seemingly having lost her reason, was calling Shiwoo's name, letting out uncontrollable moaning sounds.</p>
 

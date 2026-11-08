@@ -110,7 +110,7 @@ chapter = 614
 
 <p>Shiwoo, as if making a final sprint, plunged his penis all the way to its root into her vagina hole.</p>
 
-<p>"Ha-ang Juin-nim! I, I'm coming! Haaht... Shiwoo-ya! Ha-woo-wooht!! Juin-nim! Haaang"</p>
+<p>"Ha-ang Juin-nim! I, I'm coming! Haaht... Shiwoo! Ha-woo-wooht!! Juin-nim! Haaang"</p>
 
 <p>Sejin Nuna, calling Shiwoo both 'Juin-nim' and by his name simultaneously, declared as if confessing that she had reached climax.</p>
 
@@ -160,7 +160,7 @@ chapter = 614
 
 <p>Shiwoo called Sejin Nuna in a low voice.</p>
 
-<p>"Eung? Why? Shiwoo-ya?"</p>
+<p>"Eung? Why? Shiwoo?"</p>
 
 <p>Sejin Nuna, who had been lying languidly stretched out at Shiwoo's voice calling her, answered, tightening her vagina hole as if tensing up.</p>
 

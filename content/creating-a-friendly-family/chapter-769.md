@@ -46,7 +46,7 @@ chapter = 769
 
 <p>As the burning sensation enveloped her entire body, she trembled again, instinctively checking Shiwoo's reaction.</p>
 
-<p>"I-I like it... Shiwoo-ya..."</p>
+<p>"I-I like it... Shiwoo..."</p>
 
 <p>Mom instantly corrected herself, answering Shiwoo in informal speech.</p>
 

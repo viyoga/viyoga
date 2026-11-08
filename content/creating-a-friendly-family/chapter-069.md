@@ -40,7 +40,7 @@ chapter = 69
 
 <p>Peok! Peobeobeok! Peok! Peok! Peok!!!</p>
 
-<p>"Haa-at, ha-eum, Shiwoo-ya I feel like I'm going crazy right nowHaa-euthaa-at heueueung"</p>
+<p>"Haa-at, ha-eum, Shiwoo I feel like I'm going crazy right nowHaa-euthaa-at heueueung"</p>
 
 <p>Sehee's arms, which had been tightly gripping Shiwoo's neck, had also begun to repeatedly pull or release in rhythm with Shiwoo's piston movements at some point.</p>
 

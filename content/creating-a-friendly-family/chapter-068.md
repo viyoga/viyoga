@@ -246,7 +246,7 @@ chapter = 68
 
 <p>But it was far from enough to affect Shiwoo's violent thrusting.</p>
 
-<p>"Haeueu Haaak Sh-Shiwoo-ya... what do I do now!!!"</p>
+<p>"Haeueu Haaak Sh-Shiwoo... what do I do now!!!"</p>
 
 <p>Sehee cried out pleadingly, calling Shiwoo's name.</p>
 

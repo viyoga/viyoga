@@ -76,7 +76,7 @@ chapter = 194
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo-ya, you're here? I heard you just talked to Jun-i in the restroom, and said you'd stay a little longer?"</p>
+<p>"Shiwoo, you're here? I heard you just talked to Jun-i in the restroom, and said you'd stay a little longer?"</p>
 
 <p>Sora Nuna said, looking at Shiwoo entering the room with a pleased expression.</p>
 
@@ -154,7 +154,7 @@ chapter = 194
 
 <p>Sinbi Nuna, who had been running while held by the wrist by Shiwoo, pulled her arm and stopped.</p>
 
-<p>"Huk huk Shiwoo-ya, wait, why... why are you doing this?" Sinbi Nuna asked Shiwoo, gasping for breath.</p>
+<p>"Huk huk Shiwoo, wait, why... why are you doing this?" Sinbi Nuna asked Shiwoo, gasping for breath.</p>
 
 <p>"Sinbi Nuna! Huk! Huk! Those Hyeong-s seem to be dangerous! They put strange drugs in the liquor!"</p>
 
@@ -168,7 +168,7 @@ chapter = 194
 
 <p>Shiwoo said to Sinbi Nuna as if desperate, and scanned the vehicles on the road.</p>
 
-<p>"Shiwoo-ya, look..."</p>
+<p>"Shiwoo, look..."</p>
 
 <p>Sinbi Nuna was about to say something to Shiwoo.</p>
 

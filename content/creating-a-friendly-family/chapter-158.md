@@ -174,7 +174,7 @@ chapter = 158
 
 <p>Shiwoo, seeing Seonju Imo's collapsed posture, cursed as if enraged.</p>
 
-<p>「Sh-Shiwoo-ya... Heueueueu」</p>
+<p>「Sh-Shiwoo... Heueueueu」</p>
 
 <p>Seonju Imo, having dropped the vibrator and smartphone, called Shiwoo's name, moaning regretfully.</p>
 

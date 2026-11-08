@@ -256,7 +256,7 @@ chapter = 15
 
 <p>Did Mom flare up because she knew Shiwoo was a real pervert?</p>
 
-<p>「I'm sorry, Shiwoo-ya. What I said earlier wasn't my true intention, it just slipped out. I was wrong.」</p>
+<p>「I'm sorry, Shiwoo. What I said earlier wasn't my true intention, it just slipped out. I was wrong.」</p>
 
 <p>An awkward apology, like reading from a textbook.</p>
 
@@ -316,4 +316,4 @@ chapter = 15
 
 <p>And then she spoke to Shiwoo.</p>
 
-<p>「Shiwoo-ya, shall Mom and I talk a bit?」</p>
+<p>「Shiwoo, shall Mom and I talk a bit?」</p>

@@ -58,7 +58,7 @@ chapter = 276
 
 <p>Shiwoo said as if whispering into Mom's ear in a small voice.</p>
 
-<p>,...D-dangerous...Shiwoo-ya..."</p>
+<p>,...D-dangerous...Shiwoo..."</p>
 
 <p>Mom said, pushing Shiwoo away as if flustered.</p>
 

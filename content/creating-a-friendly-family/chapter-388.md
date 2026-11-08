@@ -62,7 +62,7 @@ chapter = 388
 
 <p>Shiwoo completely lifts Sora Nuna's skirt and wraps his arms around her thighs, then buries his face on top of her panties.</p>
 
-<p>,Shi...Shiwoo-ya...Haaht!",</p>
+<p>,Shi...Shiwoo...Haaht!",</p>
 
 <p>Sora Nuna grabs Shiwoo's head, calling his name as if flustered.</p>
 

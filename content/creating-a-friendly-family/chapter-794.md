@@ -8,7 +8,7 @@ chapter = 794
 
 <p>Shiwoo was cornered Mom, as if he wouldn't allow her even a single opening to escape.</p>
 
-<p>"Please... Shiwoo-ya...!"</p>
+<p>"Please... Shiwoo...!"</p>
 
 <p>Mom turned pale as a ghost, hurriedly waving her hands in the air as she tried to stop him.</p>
 
@@ -16,7 +16,7 @@ chapter = 794
 
 <p>At the end, he added a threatening tone as if he were truly going to expose everything to her daughters, shouting it out as if he didn't care whether the people at the next table heard him or not.</p>
 
-<p>"Shiwoo-ya... people... everyone is listening... please save Mom... please..."</p>
+<p>"Shiwoo... people... everyone is listening... please save Mom... please..."</p>
 
 <p>Mom finally ended up sobbing, blurting out the safe word she shared with Shiwoo.</p>
 

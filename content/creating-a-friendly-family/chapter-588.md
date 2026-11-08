@@ -120,7 +120,7 @@ chapter = 588
 
 <p>Shiwoo stopped again, took the smartphone from his pocket again, and immediately checked the screen.</p>
 
-<p>「Shiwoo-ya」</p>
+<p>「Shiwoo」</p>
 
 <p>Mom's text calling Shiwoo was printed at the bottom of the conversation window.</p>
 

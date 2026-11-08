@@ -184,7 +184,7 @@ chapter = 793
 
 <p>Shiwoo's voice grew louder as he spoke to Mom-nim, mixing in explicit words as if he were trying to announce his grievances to the whole world.</p>
 
-<p>「Shi... Shiwoo-ya...」</p>
+<p>「Shi... Shiwoo...」</p>
 
 <p>Mom-nim squeezed out his name in a thin, trembling voice, terrified that this secret and dangerous conversation might reach the ears of the other people in the cafe.</p>
 

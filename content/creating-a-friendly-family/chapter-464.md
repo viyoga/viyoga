@@ -168,7 +168,7 @@ chapter = 464
 
 <p>Shiwoo turns to Mom and says as if seriously accepting Seyoung's answer.</p>
 
-<p>"Shi...Shiwoo-ya! Mom... if I go with Sehee to do that tomorrow, it might be a little late... so Seyoung and I can buy dinner outside and come in... or... or order something..."</p>
+<p>"Shi...Shiwoo! Mom... if I go with Sehee to do that tomorrow, it might be a little late... so Seyoung and I can buy dinner outside and come in... or... or order something..."</p>
 
 <p>Mom lifts her head that had been bowed and says, as if trying to urgently change the subject to Shiwoo's words that seemed to have made up her mind to get a tattoo.</p>
 

@@ -92,7 +92,7 @@ chapter = 712
 
 <p>At Shiwoo's question, which brought back the shameful memories of yesterday, Mom answered in a flustered, rambling voice. Seonju-imo and Seyoung watched the scene from the side with satisfied smiles...</p>
 
-<p>"Shiwoo-ya probably asked on her behalf in case Seyoung was looking for it"</p>
+<p>"Shiwoo probably asked on her behalf in case Seyoung was looking for it"</p>
 
 <p>Seonju-imo added words that put Mom in a difficult spot, as if siding with Shiwoo.</p>
 

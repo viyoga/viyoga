@@ -186,7 +186,7 @@ chapter = 100
 
 <p>As soon as he stepped into the classroom, a lively girl's voice, as if she had been waiting, reached him.</p>
 
-<p>"Shiwoo-ya You're a bit late today? What were you doing, coming now?"</p>
+<p>"Shiwoo You're a bit late today? What were you doing, coming now?"</p>
 
 <p>The owner of the voice was Seulgi.</p>
 
@@ -254,7 +254,7 @@ chapter = 100
 
 <p>Just then, the class bell rang.</p>
 
-<p>"That was fun Shiwoo-ya! See you later"</p>
+<p>"That was fun Shiwoo! See you later"</p>
 
 <p>Seulgi said goodbye cheerfully and returned to her own classroom.</p>
 

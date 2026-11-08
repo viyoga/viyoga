@@ -112,7 +112,7 @@ chapter = 111
 
 <p>Shiwoo, roughly rubbing his penis against her as he spoke in a gentle, coaxing voice.</p>
 
-<p>"Haa Shi... Shiwoo-ya, please"</p>
+<p>"Haa Shi... Shiwoo, please"</p>
 
 <p>Sehee Nuna said, tightly closing her eyes.</p>
 

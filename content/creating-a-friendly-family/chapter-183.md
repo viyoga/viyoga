@@ -132,7 +132,7 @@ chapter = 183
 
 <p>""</p>
 
-<p>Then I'll be back, Shiwoo-ya Just talk with Seyoung for a bit</p>
+<p>Then I'll be back, Shiwoo Just talk with Seyoung for a bit</p>
 
 <p>""</p>
 

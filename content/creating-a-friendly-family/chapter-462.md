@@ -28,7 +28,7 @@ chapter = 462
 
 <p>This time, Shiwoo asks, sweeping the end of his toes across Mom's wet petals, as if spreading them apart from side to side.</p>
 
-<p>,Eueum...eung...I'll...I'll go...Shiwoo-ya...I understand, so..."</p>
+<p>,Eueum...eung...I'll...I'll go...Shiwoo...I understand, so..."</p>
 
 <p>Mom, squeezing her thighs that are holding Shiwoo's leg even tighter inward, answers as if troubled.</p>
 

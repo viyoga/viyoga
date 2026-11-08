@@ -200,7 +200,7 @@ chapter = 242
 
 <p>Shiwoo was asking as if cornering Mom to the point of almost threatening her.</p>
 
-<p>"Shi...Shiwoo-ya...Su...Liquor is what Mom will drink...!"</p>
+<p>"Shi...Shiwoo...Su...Liquor is what Mom will drink...!"</p>
 
 <p>Mom was answering Shiwoo with a troubled expression.</p>
 

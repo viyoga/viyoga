@@ -108,7 +108,7 @@ chapter = 145
 
 <p>At that moment, along with the sound of the front door opening, a familiar voice reaches Shiwoo.</p>
 
-<p>"Shiwoo-ya, we're here! Hehe"</p>
+<p>"Shiwoo, we're here! Hehe"</p>
 
 <p>Seonju Imo, announcing her return home with Sehee Nuna in a slightly drunk tone.</p>
 

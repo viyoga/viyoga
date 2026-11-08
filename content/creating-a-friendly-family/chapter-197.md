@@ -62,7 +62,7 @@ chapter = 197
 
 <p>Shiwoo was speaking, naturally thinking that Seonju Imo would grant his request.</p>
 
-<p>"I'm sorry, Shiwoo-ya Imo doesn't think I can go now. It's a bit difficult to leave my spot"</p>
+<p>"I'm sorry, Shiwoo Imo doesn't think I can go now. It's a bit difficult to leave my spot"</p>
 
 <p>Seonju Imo was answering Shiwoo, expressing her difficulty in coming to the police station with the words that it was difficult to leave her spot.</p>
 
@@ -70,7 +70,7 @@ chapter = 197
 
 <p>"Oh... really? Then there's nothing we can do... Okay..." Shiwoo said to Seonju Imo as if disappointed.</p>
 
-<p>"It's really because it's hard to leave my spot. Don't be too disappointed Shiwoo-ya Instead, Imo thinks I know someone who can pick you and Sehee up from there I'll try asking them"</p>
+<p>"It's really because it's hard to leave my spot. Don't be too disappointed Shiwoo Instead, Imo thinks I know someone who can pick you and Sehee up from there I'll try asking them"</p>
 
 <p>Seonju Imo, perhaps feeling sorry for having refused Shiwoo's request outright, brought up the idea of asking someone else instead of herself.</p>
 

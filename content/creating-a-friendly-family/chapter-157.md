@@ -154,7 +154,7 @@ chapter = 157
 
 <p>Shiwoo wrapped his arms tightly around Sehee-nuna's pelvis and breasts, thrusting his hips violently as if storming her.</p>
 
-<p>「Haa-eut! Haa-eut! Haa-aak! Haa-aat! Shi...Shiwoo-ya!」</p>
+<p>「Haa-eut! Haa-eut! Haa-aak! Haa-aat! Shi...Shiwoo!」</p>
 
 <p>Sehee-nuna moaned as if reaching climax after Shiwoo's prolonged thrusting, calling out Shiwoo's name.</p>
 

@@ -76,7 +76,7 @@ chapter = 423
 
 <p>Shiwoo violently thrust his waist, which even he could no longer control, into Mom's body.</p>
 
-<p>"...Haaat...Shi...Shiwoo-ya! Mom now! Haeut! Really! Haeueuk! Haaaang! Shiwoo-ya! Haeueuk haak! Shiwoo-ya...I...I feel like I'm going to die! Haaaang!"</p>
+<p>"...Haaat...Shi...Shiwoo! Mom now! Haeut! Really! Haeueuk! Haaaang! Shiwoo! Haeueuk haak! Shiwoo...I...I feel like I'm going to die! Haaaang!"</p>
 
 <p>Mom turned her head away from the microphone placed in front of her Face and said to Shiwoo as if begging, sobbing and whimpering.</p>
 

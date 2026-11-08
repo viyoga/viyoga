@@ -42,7 +42,7 @@ chapter = 668
 
 <p>For a while, Shiwoo sat there facing the complex truth, fitting his own puzzle together in his head. Tti-ring! At that moment, along with a text notification, Shiwoo's smartphone vibrated briefly. Shiwoo flinched as if startled and checked the smartphone in his hand. On Shiwoo's smartphone screen, a new message notification from 'Seonju Imo' was displayed.</p>
 
-<p>[Shiwoo-ya, I'm in front of the house!]</p>
+<p>[Shiwoo, I'm in front of the house!]</p>
 
 <p>Seonju Imo was informing Shiwoo of the fact that she had arrived at Shiwoo's house. Usually, pressing the bell would be faster...</p>
 

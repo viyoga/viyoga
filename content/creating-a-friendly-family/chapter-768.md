@@ -22,7 +22,7 @@ chapter = 768
 
 <p>As if she couldn't endure even a single millimeter of distance, she erased the void and clung to Shiwoo.</p>
 
-<p>"Haeuu... heueueueu... Shi... Shiwoo-ya..."</p>
+<p>"Haeuu... heueueueu... Shi... Shiwoo..."</p>
 
 <p>Mom called Shiwoo's name in a piteous tone.</p>
 
@@ -134,7 +134,7 @@ chapter = 768
 
 <p>Shiwoo spoke in an admonishing tone while mischievously kneading Mom's reddened buttocks.</p>
 
-<p>"Heueueueu... hauuuuung... Shi... Shiwoo-ya...."</p>
+<p>"Heueueueu... hauuuuung... Shi... Shiwoo...."</p>
 
 <p>Mom closed her eyes and trembled badeul-badeul , calling Shiwoo's name sorrowfully once more.</p>
 
@@ -184,7 +184,7 @@ chapter = 768
 
 <p>Mom pulled Shiwoo's body with her arms and brought her head, which had been tilted back, toward Shiwoo's chest.</p>
 
-<p>"Heueuk... f-fuck... Mom... Shiwoo-ya... heueut!"</p>
+<p>"Heueuk... f-fuck... Mom... Shiwoo... heueut!"</p>
 
 <p>She poured out a humiliating plea, as if throwing away the mask of pretense that had remained until the end.</p>
 

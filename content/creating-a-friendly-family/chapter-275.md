@@ -210,7 +210,7 @@ chapter = 275
 
 <p>Mom kept looking towards the refrigerator door, worried that Seyoung might catch her.</p>
 
-<p>"S...Shiwoo-ya...I...I'll call you when the food's ready"</p>
+<p>"S...Shiwoo...I...I'll call you when the food's ready"</p>
 
 <p>Mom was speaking in a flustered voice.</p>
 

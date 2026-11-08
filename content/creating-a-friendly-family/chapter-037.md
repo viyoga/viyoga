@@ -192,7 +192,7 @@ chapter = 37
 
 <p>A few more times...</p>
 
-<p>"HeuaaaShi...ShiwooShiwoo-yaAh"</p>
+<p>"HeuaaaShi...ShiwooShiwooAh"</p>
 
 <p>Mom's name finally burst out from Mom's mouth.</p>
 
@@ -212,7 +212,7 @@ chapter = 37
 
 <p>Shiwoo's merciless pounding, which thrust his thing all the way to the root, continued relentlessly even after a long time had passed, and Shiwoo and Mom's excitement was now racing towards its peak.</p>
 
-<p>"Ah-hang...Shi...Shiwoo-ya...Eo..eo...Mom...I..hiiek...At this rate...really....Heueueuk Re...really.....Haa-at eueueuk Heueueue"</p>
+<p>"Ah-hang...Shi...Shiwoo...Eo..eo...Mom...I..hiiek...At this rate...really....Heueueuk Re...really.....Haa-at eueueuk Heueueue"</p>
 
 <p>Mom's last cry of pleasure just before fainting.</p>
 

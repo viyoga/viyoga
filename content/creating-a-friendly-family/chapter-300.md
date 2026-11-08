@@ -32,7 +32,7 @@ chapter = 300
 
 <p>Hearing the sound of the puppies' busy movements and Shiwoo's voice coming from the living room, Seonju Imo-nim walks out from the direction of Sua's room.</p>
 
-<p>,Welcome! Shiwoo-ya Seyoung-ah! ,</p>
+<p>,Welcome! Shiwoo Seyoung-ah! ,</p>
 
 <p>Seonju Imo-nim greets Shiwoo and Seyoung with a languid expression and voice, as if she hasn't been awake for long.</p>
 
@@ -80,7 +80,7 @@ chapter = 300
 
 <p>Shiwoo says to Seonju Imo-nim in an irritated tone, as if trying to change the subject urgently.</p>
 
-<p>,She's getting ready now She'll be out soon While Sua is coming out, would you like to have a drink, Shiwoo-ya?,</p>
+<p>,She's getting ready now She'll be out soon While Sua is coming out, would you like to have a drink, Shiwoo?,</p>
 
 <p>Seonju Imo-nim loosens her arms that were embracing Seyoung, and offers Shiwoo a drink as if trying to soothe his irritation.</p>
 

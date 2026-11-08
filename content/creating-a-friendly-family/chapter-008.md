@@ -214,7 +214,7 @@ chapter = 8
 
 <p>As expected, Sinbi Nuna spoke, glancing at Sehee Nuna.</p>
 
-<p>"I'm sorry, Shiwoo-ya I don't mind telling you, but then Sehee will really get angry."</p>
+<p>"I'm sorry, Shiwoo I don't mind telling you, but then Sehee will really get angry."</p>
 
 <p>"Ah, seriously, what is it, why are you like this"</p>
 

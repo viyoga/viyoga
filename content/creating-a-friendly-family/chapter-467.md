@@ -90,7 +90,7 @@ chapter = 467
 
 <p>When having sex with Mom, Shiwoo no longer even thought about needing a condom.</p>
 
-<p>"Haa-euut...Shi...Shiwoo-ya...not now...haa-eu..."</p>
+<p>"Haa-euut...Shi...Shiwoo...not now...haa-eu..."</p>
 
 <p>Mom, leaning over with her arms crossed on the sink, spoke to Shiwoo as if in distress.</p>
 
@@ -196,7 +196,7 @@ chapter = 467
 
 <p>The floor beneath the area where Mom and Shiwoo were joined was already soaked and pooled with her fluids.</p>
 
-<p>"Shiwoo-ya...Sehee-ya...P-please...haa-eung haa-aang haa-aang!"</p>
+<p>"Shiwoo...Sehee-ya...P-please...haa-eung haa-aang haa-aang!"</p>
 
 <p>Mom's moaning sound, pleadingly calling out her son's and daughter's names in succession, then letting out a seductive shriek.</p>
 

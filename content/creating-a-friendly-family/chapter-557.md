@@ -88,7 +88,7 @@ chapter = 557
 
 <p>Shiwoo instructed her as if solving Sehee Nuna's worries.</p>
 
-<p>「Okay... I'll go upstairs and get ready to go to the academy... And Shiwoo-ya... What should I do with this necklace? Should I wear it when I go to the academy too?」</p>
+<p>「Okay... I'll go upstairs and get ready to go to the academy... And Shiwoo... What should I do with this necklace? Should I wear it when I go to the academy too?」</p>
 
 <p>After answering Shiwoo's instructions, Sehee Nuna was carefully asking about whether or not to wear the dog collar.</p>
 

@@ -174,7 +174,7 @@ chapter = 597
 
 <p>Her cleavage, amply filled between the scooped neckline of her clothes, was visible directly in front of Shiwoo, along with her swollen belly.</p>
 
-<p>"Here eat, Shiwoo-ya! Ask for more if it's not enough I made plenty."</p>
+<p>"Here eat, Shiwoo! Ask for more if it's not enough I made plenty."</p>
 
 <p>Sejin Nuna served the carefully prepared food to Shiwoo, smiling brightly.</p>
 

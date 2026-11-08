@@ -124,7 +124,7 @@ chapter = 425
 
 <p>Shiwoo puts on his bag and gets up from his seat right after speaking.</p>
 
-<p>"Shi...Shiwoo-ya...if there's any tissue or wet wipes...can you..."</p>
+<p>"Shi...Shiwoo...if there's any tissue or wet wipes...can you..."</p>
 
 <p>Mom calls out to Shiwoo, who is hurrying towards the door of the room.</p>
 

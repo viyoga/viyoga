@@ -28,7 +28,7 @@ chapter = 767
 
 <p>As if possessed, Shiwoo slowly brought his hand toward the front of her panties. The outline of the thick pad revealed its presence over Mom's groin. The feeling of the pad transmitted through his palm was quite heavy, more than expected. The alien texture unique to the panty liner filled his hand. Shiwoo pressed down firmly on Mom's groin as if squeezing out the damp fluid soaked into the pad. As Shiwoo applied pressure through the cloth, the subtle heat held by the pad was stickily transmitted to his palm through the weave of the panties.</p>
 
-<p>"Shi... Shiwoo-ya... Haut..."</p>
+<p>"Shi... Shiwoo... Haut..."</p>
 
 <p>Mom reacted to Shiwoo's explicit stimulation, her waist trembling slightly as she tightened the space between her legs.</p>
 

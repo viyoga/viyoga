@@ -186,7 +186,7 @@ chapter = 195
 
 <p>Even though she was like that because of the drug's effects, why wasn't Sehee Nuna crying out for help, even with Shiwoo right in front of her?</p>
 
-<p>「D... don't look! Shiwoo-ya Hngh!」</p>
+<p>「D... don't look! Shiwoo Hngh!」</p>
 
 <p>Words that came from Sehee Nuna's mouth as she was being violated by the Hyeong-s.</p>
 
@@ -206,7 +206,7 @@ chapter = 195
 
 <p>Shiwoo would forever lose the Sehee Nuna he had known until now.</p>
 
-<p>「Sh... Shiwoo-ya... don't look... hngh...」</p>
+<p>「Sh... Shiwoo... don't look... hngh...」</p>
 
 <p>Words that came from Sehee Nuna's mouth once again.</p>
 

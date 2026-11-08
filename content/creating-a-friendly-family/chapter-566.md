@@ -24,7 +24,7 @@ chapter = 566
 
 <p>Shiwoo starts thrusting his penis, which had been moving back and forth inside Sehee Nuna's vagina hole, even deeper.</p>
 
-<p>,Haeut...Bu, but Shiwoo-ya...Haeuh...I, if we keep this up...Haa...aren't we going to be late for the academy? Heueung...,</p>
+<p>,Haeut...Bu, but Shiwoo...Haeuh...I, if we keep this up...Haa...aren't we going to be late for the academy? Heueung...,</p>
 
 <p>Sehee Nuna reacts to Shiwoo's slightly quickened thrusting, saying as if worried about being late for the academy.</p>
 

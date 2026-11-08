@@ -150,7 +150,7 @@ chapter = 117
 
 <p>Shiwoo, breaking the silence, called out to Mom first.</p>
 
-<p>"Yeah Shiwoo-ya!"</p>
+<p>"Yeah Shiwoo!"</p>
 
 <p>Mom, calling Shiwoo's name, replied.</p>
 

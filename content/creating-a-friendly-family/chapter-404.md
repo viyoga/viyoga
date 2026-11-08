@@ -88,7 +88,7 @@ chapter = 404
 
 <p>Shiwoo gets up from his seat and thrusts his condom-covered penis behind Mom.</p>
 
-<p>,Sh...Shiwoo-ya...?"</p>
+<p>,Sh...Shiwoo...?"</p>
 
 <p>Mom turns around and shrinks back, as if she's flustered by Shiwoo's actions.</p>
 

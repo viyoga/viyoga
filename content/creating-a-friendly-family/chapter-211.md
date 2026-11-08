@@ -88,7 +88,7 @@ chapter = 211
 
 <p>Shiwoo covered Mom's buttocks with his palm and rubbed them, trying to bring up the things that had happened when he went to the motel with Sehee yesterday.</p>
 
-<p>,Shi...Shiwoo-ya?!"</p>
+<p>,Shi...Shiwoo?!"</p>
 
 <p>Mom suddenly cut off Shiwoo's words with an urgent voice.</p>
 

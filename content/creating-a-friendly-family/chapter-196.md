@@ -184,7 +184,7 @@ chapter = 196
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo-ya Shiwoo-ya Wake up Hmm? Shiwoo-ya Shiwoo-ya"</p>
+<p>"Shiwoo Shiwoo Wake up Hmm? Shiwoo Shiwoo"</p>
 
 <p>Sehee Nuna's voice, calling out desperately to the unconscious Shiwoo, echoed in his ears.</p>
 
@@ -196,7 +196,7 @@ chapter = 196
 
 <p>Sehee Nuna's voice, choked with tears as if in distress, was heard again.</p>
 
-<p>"Look at all this blood here! Your face is all swollen, your lips are all torn Hiiing You're really upsetting me... Heuheuheuk... Heuk... Please, try to wake up! Shiwoo-ya Please!!"</p>
+<p>"Look at all this blood here! Your face is all swollen, your lips are all torn Hiiing You're really upsetting me... Heuheuheuk... Heuk... Please, try to wake up! Shiwoo Please!!"</p>
 
 <p>Shiwoo felt Sehee Nuna's warm tears, forming into drops, fall and land on his swollen cheek.</p>
 

@@ -218,11 +218,11 @@ chapter = 187
 
 <p>And on her feet, she wore luxurious high heels with two thin silver straps.</p>
 
-<p>"Welcome, Shiwoo-ya!"</p>
+<p>"Welcome, Shiwoo!"</p>
 
 <p>Saerom Nuna greeted Shiwoo.</p>
 
-<p>"Hello, Shiwoo-ya"</p>
+<p>"Hello, Shiwoo"</p>
 
 <p>And next to her, Sehee Nuna, in her familiar attire, greeted Shiwoo as if he were a long-lost friend.</p>
 

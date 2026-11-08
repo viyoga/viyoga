@@ -208,6 +208,6 @@ chapter = 525
 
 <p>The sound of wet friction began to be heard again from Mom's pussy.</p>
 
-<p>"Hua-aaa... haa-aaa... Shiwoo-ya... haa-aaa"</p>
+<p>"Hua-aaa... haa-aaa... Shiwoo... haa-aaa"</p>
 
 <p>Mom's softly continuing moans were mixed with the sound of wet flesh rubbing, filling the afterglow of the remaining night.</p>

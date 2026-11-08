@@ -164,7 +164,7 @@ chapter = 24
 
 <p>It was Gyuri Ajumma.</p>
 
-<p>"Shiwoo-ya, can you open the door?"</p>
+<p>"Shiwoo, can you open the door?"</p>
 
 <p>Mom spoke to Shiwoo for the first time since she came out of her room to prepare lunch.</p>
 

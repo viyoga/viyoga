@@ -138,7 +138,7 @@ chapter = 88
 
 <p>「Something nice?」</p>
 
-<p>「Yeah... a massage...!! Shiwoo Oppa, heu... had promised to give me one before... I told him I was tired from standing all day today... so he said he'd do it... So, haaht But... Shiwoo's massage technique is so good... too strong... heoeo... if you do that... eun... Shi... Shiwoo-ya!!」</p>
+<p>「Yeah... a massage...!! Shiwoo Oppa, heu... had promised to give me one before... I told him I was tired from standing all day today... so he said he'd do it... So, haaht But... Shiwoo's massage technique is so good... too strong... heoeo... if you do that... eun... Shi... Shiwoo!!」</p>
 
 <p>Seonju Imo's body trembled convulsively, reaching climax.</p>
 
@@ -218,7 +218,7 @@ chapter = 88
 
 <p>「......!!!」</p>
 
-<p>「Sh-Shiwoo-ya, move!!」</p>
+<p>「Sh-Shiwoo, move!!」</p>
 
 <p>Breaking the silence, Seonju Imo's urgent voice burst out, sounding flustered.</p>
 
@@ -250,7 +250,7 @@ chapter = 88
 
 <p>Just as he was wondering how to clean up the stains on the floor, the front door opened.</p>
 
-<p>「Shiwoo-ya, I'm home」</p>
+<p>「Shiwoo, I'm home」</p>
 
 <p>Sehee Nuna entered the entryway, her hands full of white plastic bags.</p>
 

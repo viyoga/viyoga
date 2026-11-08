@@ -38,7 +38,7 @@ chapter = 201
 
 <p>-Jjigeok! Jjigeok! Jjigeok! Jjigeok! Shiwoo's cock pillar, deeply embedded in her vagina hole, twisted and tore at Sehee Nuna's vaginal flesh.</p>
 
-<p>"Haeueuk Hageueueuk Haaaeut! Shiwoo-ya Haeung Shiwoo-ya!"</p>
+<p>"Haeueuk Hageueueuk Haaaeut! Shiwoo Haeung Shiwoo!"</p>
 
 <p>Sehee Nuna, who had only recently reached climax. Sehee Nuna was groaning with difficulty, calling Shiwoo's name. While wrapping her arms around Shiwoo's head, who was gathering her large breasts and licking her nipples. The special space of a motel, which she was visiting for the first time with Shiwoo. Sehee Nuna seemed to be trying to unleash her deepest, fundamental desires and urges, which she hadn't even known herself.</p>
 
@@ -82,7 +82,7 @@ chapter = 201
 
 <p>Shiwoo was speaking to Sehee Nuna using informal speech. Meanwhile, Shiwoo slowly moves his penis, deeply embedded in Sehee Nuna's body, as if teasing her back and forth.</p>
 
-<p>"Heueueu... I... I did wrong Shiwoo-ya..."</p>
+<p>"Heueueu... I... I did wrong Shiwoo..."</p>
 
 <p>Sehee Nuna was trembling, trying to maintain the position Shiwoo had put her in, and apologizing to Shiwoo.</p>
 

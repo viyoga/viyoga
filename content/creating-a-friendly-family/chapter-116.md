@@ -210,7 +210,7 @@ chapter = 116
 
 <p>Shiwoo was now imagining Sehee Nuna as Mom without hiding anything and doing piston movements.</p>
 
-<p>"Hot! Haaht! Shiwoo-ya Haa aht! Hot! M...Master! Master!"</p>
+<p>"Hot! Haaht! Shiwoo Haa aht! Hot! M...Master! Master!"</p>
 
 <p>Sehee Nuna's humiliating moaning sound, as if she had succumbed to pleasure.</p>
 

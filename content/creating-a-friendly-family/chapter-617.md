@@ -4,7 +4,7 @@ weight = 617
 [extra]
 chapter = 617
 +++
-<p>"J-just... wait a moment! Hheut... Shiwoo-ya... I don't think my body can take this anymore... Hheueut...!"</p>
+<p>"J-just... wait a moment! Hheut... Shiwoo... I don't think my body can take this anymore... Hheueut...!"</p>
 
 <p>Sejin Nuna, with her hand inserted between Shiwoo's pelvis and her own buttocks, pushed Shiwoo's pelvis back.</p>
 
@@ -148,7 +148,7 @@ chapter = 617
 
 <p>Shiwoo, every time she flicked her fingers, flinched his body greatly.</p>
 
-<p>"You need to move your hand, Shiwoo-ya! We can't play like this, can we?"</p>
+<p>"You need to move your hand, Shiwoo! We can't play like this, can we?"</p>
 
 <p>Sejin Nuna, in a soft yet firm tone, spoke to Shiwoo.</p>
 

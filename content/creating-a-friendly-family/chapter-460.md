@@ -44,7 +44,7 @@ chapter = 460
 
 <p>Shiwoo answers as if being led by Sejin Nuna's pace.</p>
 
-<p>「Okay. Shiwoo-ya, then I'll see you tomorrow! Come carefully!」</p>
+<p>「Okay. Shiwoo, then I'll see you tomorrow! Come carefully!」</p>
 
 <p>In the meantime, Sejin Nuna is saying goodbye to Shiwoo as if she's about to end the conversation.</p>
 

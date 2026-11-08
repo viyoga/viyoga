@@ -54,7 +54,7 @@ chapter = 141
 
 <p>-Cheolpeok! Cheolpeok! Su-peok! Su-peok! Su-peok!-</p>
 
-<p>"Haa-euk! Haa-at! Haat! Th-that's... not it... heu-eut... Shi... Shiwoo-ya... please... haa-eut!"</p>
+<p>"Haa-euk! Haa-at! Haat! Th-that's... not it... heu-eut... Shi... Shiwoo... please... haa-eut!"</p>
 
 <p>Gyuri said, tightening her arms and legs around Shiwoo's body, pleadingly.</p>
 

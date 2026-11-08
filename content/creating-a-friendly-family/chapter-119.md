@@ -98,7 +98,7 @@ chapter = 119
 
 <p>She was clearly letting Shiwoo and Sehee Nuna hear her shameful moans, which were filled with embarrassment and humiliation.</p>
 
-<p>,Shi...Shiwoo-ya... I'm go...going now Haaang Heueuht'</p>
+<p>,Shi...Shiwoo... I'm go...going now Haaang Heueuht'</p>
 
 <p>Mom's voice, reaching its climax.</p>
 
@@ -226,7 +226,7 @@ chapter = 119
 
 <p>Sehee Nuna's body trembled as if stiffened.</p>
 
-<p>"Shi...Shiwoo-ya? Heueung"</p>
+<p>"Shi...Shiwoo? Heueung"</p>
 
 <p>Sehee Nuna, surprised, called out to Shiwoo and moaned.</p>
 
@@ -248,7 +248,7 @@ chapter = 119
 
 <p>Shiwoo's salty liquid was wetting Sehee Nuna's neck.</p>
 
-<p>"Shi...Shiwoo-ya Heueung Are you crying right now?"</p>
+<p>"Shi...Shiwoo Heueung Are you crying right now?"</p>
 
 <p>Sehee Nuna, while her body was trembling from the tremendous pressure felt inside her pussy, was asking Shiwoo with a worried tone.</p>
 

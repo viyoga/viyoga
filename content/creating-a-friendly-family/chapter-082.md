@@ -10,7 +10,7 @@ chapter = 82
 
 <p>Seonju Imo, who seemed to have received the house key from Mom, opened the door and entered on her own.</p>
 
-<p>,Shiwoo-ya Sehee-ya Imo's here,</p>
+<p>,Shiwoo Sehee-ya Imo's here,</p>
 
 <p>Imo stepped into the entryway, greeting them loudly enough to make the whole house echo.</p>
 
@@ -124,7 +124,7 @@ chapter = 82
 
 <p>Shiwoo placed the plastic bag containing the chicken porridge, which he had been holding, onto the dining table.</p>
 
-<p>,Shiwoo-ya, since you're in the kitchen, could you grab me a can of beer from the fridge?,</p>
+<p>,Shiwoo, since you're in the kitchen, could you grab me a can of beer from the fridge?,</p>
 
 <p>Seonju Imo was asking Shiwoo with an aegyo-filled voice.</p>
 
@@ -146,7 +146,7 @@ chapter = 82
 
 <p>Returning to the living room, Shiwoo handed the beer to Seonju Imo.</p>
 
-<p>,Thanks Shiwoo-yang,</p>
+<p>,Thanks Shiwoong,</p>
 
 <p>Seonju Imo sat up, making an almost coquettish sound, and received the canned beer from Shiwoo with both hands.</p>
 
@@ -186,7 +186,7 @@ chapter = 82
 
 <p>The apricot linen skirt on her thigh slowly rode up towards Seonju Imo's pelvis, blurring its boundaries.</p>
 
-<p>,Shiwoo-ya, look\!\! Don't my legs look a little swollen?,</p>
+<p>,Shiwoo, look\!\! Don't my legs look a little swollen?,</p>
 
 <p>Seonju Imo's smooth and shapely legs.</p>
 

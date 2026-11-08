@@ -6,7 +6,7 @@ chapter = 94
 +++
 <p>The next morning, at dawn</p>
 
-<p>「Shiwoo-ya, wake up!!」 Sehee Nuna's voice, shaking Shiwoo awake. 「Mmm... huh? Se... Sehee?」 Shiwoo called Sehee Nuna's name in a daze.</p>
+<p>「Shiwoo, wake up!!」 Sehee Nuna's voice, shaking Shiwoo awake. 「Mmm... huh? Se... Sehee?」 Shiwoo called Sehee Nuna's name in a daze.</p>
 
 <p>「Do you want to die?! Get up quickly! We have to get ready to go out!」 Sehee Nuna was shaking Shiwoo's chest, waking him until he came to his senses.</p>
 

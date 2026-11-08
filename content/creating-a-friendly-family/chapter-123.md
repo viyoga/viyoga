@@ -76,7 +76,7 @@ chapter = 123
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo-ya, wake up We need to get up now if we're going to wash."</p>
+<p>"Shiwoo, wake up We need to get up now if we're going to wash."</p>
 
 <p>Sehee Nuna was lying beneath Shiwoo's body, with his genitals still inside her. Shiwoo's eyes opened with a refreshed feeling at Sehee Nuna's slightly tired, languid voice. Sehee Nuna's soft and warm skin sensation clung to Shiwoo's entire body anew. Looking at the wall clock, it was a tight schedule for them to wash separately and leave. -Ssug-geok Ssug-geok Peok! As soon as he woke up, Shiwoo thrust his hips strongly two or three times, as if confirming the sensation and presence of his thing inside Sehee Nuna's body, piston-like.</p>
 

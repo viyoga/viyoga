@@ -48,7 +48,7 @@ chapter = 26
 
 <p>Mom looked at Shiwoo, troubled.</p>
 
-<p>"Shiwoo-ya, what do you think?"</p>
+<p>"Shiwoo, what do you think?"</p>
 
 <p>Seonju Imo turned to look at Shiwoo, who was sitting on the sofa listening to the conversation, and asked playfully.</p>
 

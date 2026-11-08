@@ -146,7 +146,7 @@ chapter = 71
 
 <p>Sehee Nuna, pretending not to notice, looked at Shiwoo with a pitiful gaze.</p>
 
-<p>"Ehyu Shiwoo-ya, wait a moment!!!"</p>
+<p>"Ehyu Shiwoo, wait a moment!!!"</p>
 
 <p>Sehee Nuna called out to Shiwoo as if she couldn't help herself. Sehee Nuna placed the soft-boiled fried eggs onto a plate, moved them to the dining table, and then approached Shiwoo.</p>
 

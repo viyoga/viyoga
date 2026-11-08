@@ -74,7 +74,7 @@ chapter = 391
 
 <p>His middle finger buries into Sinbi Nuna's crevices along with the wet front part of her panties.</p>
 
-<p>"Haeu-eut... Shi...Shiwoo-ya... j-just a moment..."</p>
+<p>"Haeu-eut... Shi...Shiwoo... j-just a moment..."</p>
 
 <p>Sinbi Nuna flinches and twists her body as if trying to stop Shiwoo's aggressive actions.</p>
 
@@ -92,7 +92,7 @@ chapter = 391
 
 <p>Shiwoo lowers his voice and commands Sinbi Nuna in an overbearing manner.</p>
 
-<p>"Shi...Shiwoo-ya... I... this is... my f-first time..."</p>
+<p>"Shi...Shiwoo... I... this is... my f-first time..."</p>
 
 <p>Sinbi Nuna speaks to Shiwoo in a pitiful voice, as if asking him to be gentle.</p>
 

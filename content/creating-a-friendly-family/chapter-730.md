@@ -102,7 +102,7 @@ chapter = 730
 
 <p>Shiwoo leaned toward Seulgi, pouring out his resentment and twisted emotions, speaking with ragged breath.</p>
 
-<p>"Heu-eu... heu-eu-eung heu-eu-eu-eut... Shi... Shiwoo-ya..."</p>
+<p>"Heu-eu... heu-eu-eung heu-eu-eu-eut... Shi... Shiwoo..."</p>
 
 <p>Seulgi moaned, breathing heavily at the heavy stimulation and pulsation rising from below.</p>
 

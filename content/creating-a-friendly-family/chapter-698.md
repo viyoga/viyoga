@@ -74,7 +74,7 @@ chapter = 698
 
 <p>Shiwoo whispered close to Mom's ear, letting the words flow out softly. However, within that whisper, harsh profanity and the trembling of calling her name affectionately were mixed together.</p>
 
-<p>"Ha-aaa.... ha-eu-eu... ha-uu-uuu.... Shiwoo-ya... ha-euk.... ha-eu-eung... ha-aang... Master! Master!... ha-eung... what do I do! Ha-aaa Darling! ...Heu-eu-eu-eung!"</p>
+<p>"Ha-aaa.... ha-eu-eu... ha-uu-uuu.... Shiwoo... ha-euk.... ha-eu-eung... ha-aang... Master! Master!... ha-eung... what do I do! Ha-aaa Darling! ...Heu-eu-eu-eung!"</p>
 
 <p>Mom embraced Shiwoo tightly within her tightening vagina hole and surrounding limbs, vomiting out pleasure with unrestrained moans. The pride she had been trying to hold onto had long since collapsed, and in its place, complex emotions were entangled, seemingly creating confusion and conflict deep in her heart. The rough breath and moans erupting from her body, which was vibrating like an earthquake, mixed together, making pleasure and tension echo throughout the living room.</p>
 

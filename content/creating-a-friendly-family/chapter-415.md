@@ -86,7 +86,7 @@ chapter = 415
 
 <p>Shiwoo was provoking Mom with a sarcastic attitude, testing her.</p>
 
-<p>"Shi... Shiwoo-ya... I... I was wrong... Heueueue... I... I thought Shiwoo was going to c... consult with Mom... haaht... I won't say anything anymore... P, please!"</p>
+<p>"Shi... Shiwoo... I... I was wrong... Heueueue... I... I thought Shiwoo was going to c... consult with Mom... haaht... I won't say anything anymore... P, please!"</p>
 
 <p>Mom seemed to have realized that her humiliating appearance would inevitably be shown to her two daughters, regardless of whether Shiwoo uploaded the videos and photos he had taken of her to the group chat.</p>
 

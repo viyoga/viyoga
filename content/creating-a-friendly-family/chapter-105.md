@@ -42,7 +42,7 @@ chapter = 105
 
 <p>Sehee Nuna, who had been walking silently.</p>
 
-<p>「Shiwoo-ya...」</p>
+<p>「Shiwoo...」</p>
 
 <p>Sehee Nuna called Shiwoo's name as she continued to walk.</p>
 

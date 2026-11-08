@@ -6,7 +6,7 @@ chapter = 207
 +++
 <p>The next morning,</p>
 
-<p>"Shiwoo-ya! Big trouble! Wake up Shiwoo-ya!"</p>
+<p>"Shiwoo! Big trouble! Wake up Shiwoo!"</p>
 
 <p>It was Sehee Nuna's urgent voice waking Shiwoo.</p>
 
@@ -28,7 +28,7 @@ chapter = 207
 
 <p>Before his eyes was Sehee Nuna, wearing the pink dress.</p>
 
-<p>"Shiwoo-ya What are we going to do now?"</p>
+<p>"Shiwoo What are we going to do now?"</p>
 
 <p>Sehee Nuna, kneeling in a seductive pose, was speaking to Shiwoo with a worried expression.</p>
 

@@ -24,7 +24,7 @@ chapter = 782
 
 <p>Because the massive hunk of flesh shoved down her throat was pressing hard against her airway from behind, not even a scream, let alone oxygen, could find a way out, boiling inside her neck instead. Physiological tears spread ceaselessly from her bloodshot eyes that looked ready to burst, and her skin, with prominent capillaries, took on a shade close to purple. Yet, despite that, Mom did not struggle to push Shiwoo away or reject him. She simply trembled violently, keeping her hazy, unfocused eyes fixed on Shiwoo.</p>
 
-<p>"Shi, Shiwoo-ya?"</p>
+<p>"Shi, Shiwoo?"</p>
 
 <p>Sejin Nuna's worried voice came through the smartphone. But Shiwoo did not ease the heavy pressure, digging even deeper into Mom's throat. At some point, the heat burning Mom's face receded like the tide. At the edge of consciousness where oxygen was cut off, the bursting pain soon turned into a distant daze. The blood drained from Mom's dark red cheeks in an instant, and her complexion, pale as a sheet of paper, was instead bizarrely desirable, pitiful, and alluring.</p>
 

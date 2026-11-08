@@ -28,7 +28,7 @@ chapter = 213
 
 <p>Then, for a moment, Mom seemed to glance at Shiwoo, who was sitting directly in front of her, before her face flushed and she turned her gaze away. Was it because she was conscious of the scene in the video Shiwoo had sent yesterday, and the messages that followed? Mom seemed to be agitated, understanding the meaning of Seonju Imo's sexual joke.</p>
 
-<p>"Even if you have four, the more the better, right Isn't that right, Shiwoo-ya?"</p>
+<p>"Even if you have four, the more the better, right Isn't that right, Shiwoo?"</p>
 
 <p>This time, Seonju Imo spoke as if asking for Shiwoo's opinion after Mom's.</p>
 

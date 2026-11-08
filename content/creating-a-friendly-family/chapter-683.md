@@ -102,7 +102,7 @@ chapter = 683
 
 <p>Shiwoo, having calmed his breathing, asked Seonju-imo again in a cautious voice as if testing her true intentions. At that moment, tension returned to Seonju-imo's body, and the muscles inside her vagina tightly gripped Shiwoo.</p>
 
-<p>「Shi-Shiwoo-ya... if you're even thinking of such a thing, just choose me instead... I'm really... okay with it...」</p>
+<p>「Shi-Shiwoo... if you're even thinking of such a thing, just choose me instead... I'm really... okay with it...」</p>
 
 <p>Seonju-imo hugged Shiwoo, suppressing her surging breath, as if clinging to a hope that might break at any moment.</p>
 

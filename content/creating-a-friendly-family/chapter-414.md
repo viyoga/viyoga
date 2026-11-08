@@ -16,7 +16,7 @@ chapter = 414
 
 <p>Shiwoo replied to Mom's words as if indifferent, and tried to upload the photos and videos to the chat room.</p>
 
-<p>"Shiwoo-ya... Plea... Please..."</p>
+<p>"Shiwoo... Plea... Please..."</p>
 
 <p>Mom looked at Shiwoo pitifully and spoke as if begging.</p>
 

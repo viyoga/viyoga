@@ -72,7 +72,7 @@ chapter = 268
 
 <p>Mom's body trembled as she hugged Shiwoo with both her arms and legs.</p>
 
-<p>"Shi... Shiwoo-ya... that's...!"</p>
+<p>"Shi... Shiwoo... that's...!"</p>
 
 <p>As the trembling subsided, Mom was speaking to Shiwoo in an pleading voice. It wasn't the respectful speech a slave would use to their master. Breaking the rules of the game, Mom was speaking informally to Shiwoo, her son.</p>
 
@@ -120,7 +120,7 @@ chapter = 268
 
 <p>Shiwoo cursed at Mom as if losing his temper.</p>
 
-<p>"B-but... Shiwoo-ya... that... that really has to be done, doesn't it... Ha-eut... Heu-eu..."</p>
+<p>"B-but... Shiwoo... that... that really has to be done, doesn't it... Ha-eut... Heu-eu..."</p>
 
 <p>Mom was speaking, flinching as if in agony, pinned beneath Shiwoo, her son. As she spoke, her vagina hole tightened even more, as if compressing her son's penis shaft.</p>
 

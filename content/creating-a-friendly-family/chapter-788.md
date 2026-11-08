@@ -174,7 +174,7 @@ chapter = 788
 
 <p>「Uh, ng!... Th-that day, when you messed with Se... Seyoung... heu-eu... not getting pr-properly angry and letting it slide...」</p>
 
-<p>「A... and running away with Seyoung.... heu-eung... I-I was wrong... Shiwoo-ya... huu-ung.. I'm sorry... h-euk...」</p>
+<p>「A... and running away with Seyoung.... heu-eung... I-I was wrong... Shiwoo... huu-ung.. I'm sorry... h-euk...」</p>
 
 <p>Mom hugged Shiwoo's neck even tighter, spitting out a desperate apology while admitting all her wrongs along with a flood of tears. Mixed with the vague thrill that Shiwoo's palm might fall upon her red-hot butt-flesh again and a secret longing, her thighs were tensed and convulsing finely.</p>
 

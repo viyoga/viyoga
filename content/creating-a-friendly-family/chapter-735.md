@@ -28,7 +28,7 @@ chapter = 735
 
 <p>As if she had no choice, Seulgi peeled her palms away from the iron gate and moved them to cover her breasts and her groin.</p>
 
-<p>"Are... are you serious? Class will be over soon. Can't I just stay hidden on the rooftop while you go find me a gym uniform or some other clothes, Shiwoo-ya?"</p>
+<p>"Are... are you serious? Class will be over soon. Can't I just stay hidden on the rooftop while you go find me a gym uniform or some other clothes, Shiwoo?"</p>
 
 <p>Seulgi spoke to Shiwoo with a troubled expression.</p>
 
@@ -98,7 +98,7 @@ chapter = 735
 
 <p>Shiwoo was hounding her, pushing her as if he wanted to confirm something.</p>
 
-<p>"I... I get it... I'll go down... just like you said, Shiwoo-ya..."</p>
+<p>"I... I get it... I'll go down... just like you said, Shiwoo..."</p>
 
 <p>Seulgi checked for any signs of people in the hallway below and cautiously stepped down the stairs. The smartphone camera in Shiwoo's hand captured Seulgi's lewd backside as she descended. Her curved waistline and the smooth flow of her ass were exposed provocatively, creating a tension that made it impossible to look away.</p>
 

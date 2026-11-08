@@ -28,7 +28,7 @@ chapter = 269
 
 <p>Shiwoo whispers words that severely denigrate Mom.</p>
 
-<p>"Plea...Please...Shi...Shiwoo-ya...Haeuk."</p>
+<p>"Plea...Please...Shi...Shiwoo...Haeuk."</p>
 
 <p>Mom was pitifully uttering words as if begging Shiwoo.</p>
 
@@ -154,7 +154,7 @@ chapter = 269
 
 <p>Mom is now screaming as if she is out of her mind.</p>
 
-<p>"Shi...Shiwoo-ya! Haeut! Mo...Mom...really...I...now...what do I do! Haeuk Yeobo! Yeobo!"</p>
+<p>"Shi...Shiwoo! Haeut! Mo...Mom...really...I...now...what do I do! Haeuk Yeobo! Yeobo!"</p>
 
 <p>Mom is calling Shiwoo, mixing Shiwoo's name and the title Yeobo.</p>
 

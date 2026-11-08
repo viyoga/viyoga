@@ -4,7 +4,7 @@ weight = 102
 [extra]
 chapter = 102
 +++
-<p>「Thanks Shiwoo-ya, I'll eat well!!」</p>
+<p>「Thanks Shiwoo, I'll eat well!!」</p>
 
 <p>Sinbi Nuna and Sora Nuna offered their thanks as if in unison to Shiwoo, who was sitting next to Sehee Nuna.</p>
 
@@ -26,7 +26,7 @@ chapter = 102
 
 <p>Shiwoo's eyes briefly flickered to Sora Nuna's cleavage, then he quickly shifted his gaze elsewhere as he replied.</p>
 
-<p>「It's good for siblings to be close, you know! Shiwoo-ya, you eat too Should we order more tteokbokki or sundae? If you're hungry, do you want some ramen?」</p>
+<p>「It's good for siblings to be close, you know! Shiwoo, you eat too Should we order more tteokbokki or sundae? If you're hungry, do you want some ramen?」</p>
 
 <p>Sinbi Nuna spoke kindly, with a gentle voice and expression, as if taking care of the troubled Shiwoo.</p>
 
@@ -148,7 +148,7 @@ chapter = 102
 
 <p>After calling Sora Nuna by her name informally, Shiwoo's penis felt stiff, as if blood had rushed to it to the point of aching.</p>
 
-<p>「Kkareureu Calling me by my name makes it feel like we're closer than before Call me by my name too, Shiwoo-ya」</p>
+<p>「Kkareureu Calling me by my name makes it feel like we're closer than before Call me by my name too, Shiwoo」</p>
 
 <p>Sinbi Nuna said to Shiwoo, laughing as if amused.</p>
 

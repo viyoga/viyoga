@@ -188,7 +188,7 @@ chapter = 136
 
 <p>Shiwoo asked Gyuri Ajumma, his tone different from the text message, as if the insertion and thrusting of his penis were part of a massage course.</p>
 
-<p>「Ah... un It... it feels good... Shiwoo-ya, c-can you... do it a little harder... there?」</p>
+<p>「Ah... un It... it feels good... Shiwoo, c-can you... do it a little harder... there?」</p>
 
 <p>Gyuri Ajumma, her body aroused, closed her eyes tightly and spoke to Shiwoo as if urging him on.</p>
 

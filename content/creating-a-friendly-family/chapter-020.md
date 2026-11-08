@@ -32,7 +32,7 @@ chapter = 20
 
 <p>Sehee Nuna and Sinbi Nuna, along with the three Nunas he had seen in the park the day before, were sitting around a table in a circle.</p>
 
-<p>「Shiwoo-ya, come here and sit」</p>
+<p>「Shiwoo, come here and sit」</p>
 
 <p>Sinbi Nuna, who was sitting next to Sehee Nuna, moved to create space between herself and Sehee Nuna, leaving an empty chair, and called Shiwoo.</p>
 

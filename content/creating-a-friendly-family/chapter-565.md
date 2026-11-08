@@ -98,7 +98,7 @@ chapter = 565
 
 <p>The space left behind after Seyoung left along the fork in the park was filled with an indescribable strangeness and a strange tension.</p>
 
-<p>"Um... Shiwoo-ya... When we were eating earlier, what we did to Mom..."</p>
+<p>"Um... Shiwoo... When we were eating earlier, what we did to Mom..."</p>
 
 <p>Sehee Nuna recalls the events of pressuring Mom with Seyoung during mealtime, and cautiously starts to speak, with a hesitant look, as if trying to explain something.</p>
 

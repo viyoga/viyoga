@@ -20,7 +20,7 @@ chapter = 732
 
 <p>Amidst the waves of desire and heat, Shiwoo was ultimately maintaining the rhythm he commanded. And at the edge of that upheaval, an overwhelming sense of climax and liberation was finally rushing in. The sounds and vibrations of their bodies colliding grew more frantic, and their breaths became increasingly ragged. Seulgi's arms, which had been wrapped around Shiwoo's body, stiffened with strength, and her thighs, which had been halfway suspended in the air, tensed up and trembled violently.</p>
 
-<p>"Ha-eut...! Shiwoo-ya! Ha-eee-eung! Juin-nim!"</p>
+<p>"Ha-eut...! Shiwoo! Ha-eee-eung! Juin-nim!"</p>
 
 <p>Seulgi's thick, wet moans seemed to burst from deep within her throat. Had she consciously used the title Juin-nim to induce Shiwoo's climax? Or was she truly accepting Shiwoo as her Master from the depths of her heart? Her body repeatedly tensed like a bowstring and then relaxed as flexibly as a strand of kelp melting in water. The line of her spine, extending above her slender yet strong waist, trembled in a beautiful arch even while pressed against the wall.</p>
 

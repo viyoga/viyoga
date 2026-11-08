@@ -8,7 +8,7 @@ chapter = 22
 
 <p>Sehee Nuna and Mom were sitting at the dining table, eating strawberries from a plate.</p>
 
-<p>"Welcome, Shiwoo-ya, eat some strawberries. They're so sweet, you don't even need sugar"</p>
+<p>"Welcome, Shiwoo, eat some strawberries. They're so sweet, you don't even need sugar"</p>
 
 <p>Mom said, smiling as she saw Shiwoo coming down the stairs.</p>
 

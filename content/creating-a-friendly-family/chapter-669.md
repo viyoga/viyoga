@@ -92,7 +92,7 @@ chapter = 669
 
 <p>As if noticing the operation light on the gate camera, Seonju Imo waved at the screen.</p>
 
-<p>"Shiwoo-ya, open the door Imo is here!"</p>
+<p>"Shiwoo, open the door Imo is here!"</p>
 
 <p>Seonju Imo spoke with her face close to the intercom camera.</p>
 
@@ -118,7 +118,7 @@ chapter = 669
 
 <p>The front door opened, and Seonju Imo entered Shiwoo's household with a bright smile.</p>
 
-<p>"Hi, Shiwoo-ya! Imo is here"</p>
+<p>"Hi, Shiwoo! Imo is here"</p>
 
 <p>Seonju Imo waved happily as she stepped inside.</p>
 

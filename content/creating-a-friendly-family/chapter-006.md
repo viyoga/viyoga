@@ -312,7 +312,7 @@ chapter = 6
 
 <p>And then, this time, he moved closer to her buttocks and began overtly snapping photos.</p>
 
-<p>"Um... Shiwoo-ya."</p>
+<p>"Um... Shiwoo."</p>
 
 <p>Ajumma called out to Shiwoo, who was overtly continuing to take only buttocks photos.</p>
 

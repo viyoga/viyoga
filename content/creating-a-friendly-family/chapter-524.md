@@ -40,7 +40,7 @@ chapter = 524
 
 <p>Shiwoo playfully said, pointing out Mom's inconsistent speech style, which seemed to be an attempt to escape the immediate situation.</p>
 
-<p>"...R-ram it in, Shiwoo-ya...into Mom's pussy! Sh-Shiwoo, your cock! Haa-eu..."</p>
+<p>"...R-ram it in, Shiwoo...into Mom's pussy! Sh-Shiwoo, your cock! Haa-eu..."</p>
 
 <p>Mom pushed her pelvis forward, desperately begging Shiwoo again in informal speech.</p>
 
@@ -60,7 +60,7 @@ chapter = 524
 
 <p>Mom pulled and tightened the arms and legs wrapped around Shiwoo's body, trembling violently all over.</p>
 
-<p>"I-it doesn't matter... Shiwoo-ya... Heueu...into Mom's slutty pussy...Sh-Shiwoo's cock...Heueuk... U-until I faint... P-please ram it in..."</p>
+<p>"I-it doesn't matter... Shiwoo... Heueu...into Mom's slutty pussy...Sh-Shiwoo's cock...Heueuk... U-until I faint... P-please ram it in..."</p>
 
 <p>Mom uttered a desperate plea, mixed with informal and polite speech, in tangled pronunciation and a choked voice, as if appealing to him.</p>
 
@@ -94,7 +94,7 @@ chapter = 524
 
 <p>Shiwoo spoke to Mom as if warning her about the violent and intense strokes that were about to come.</p>
 
-<p>"Ung... I-I know!... Haa... I know... I know everything, so haa-eung... haa-eu... Shiwoo-ya! Haa-eueu-eut!"</p>
+<p>"Ung... I-I know!... Haa... I know... I know everything, so haa-eung... haa-eu... Shiwoo! Haa-eueu-eut!"</p>
 
 <p>Mom wrapped her arms, which were around Shiwoo's neck, even tighter, expressing that she was mentally prepared to accept all of Shiwoo's lust.</p>
 
@@ -112,7 +112,7 @@ chapter = 524
 
 <p>Shiwoo spoke as if whispering into Mom's ear.</p>
 
-<p>"Ung... Sh-Shiwoo-ya... come... into Mom...!"</p>
+<p>"Ung... Sh-Shiwoo... come... into Mom...!"</p>
 
 <p>Mom was answering Shiwoo in a trembling voice.</p>
 
@@ -128,7 +128,7 @@ chapter = 524
 
 <p>Shiwoo's intense and merciless fucking began, ramming in all the way to the very root.</p>
 
-<p>"Haa-aang.. Haa-eung haa-aang Shiwoo-ya! Haa-aang haa-at haa-eung!"</p>
+<p>"Haa-aang.. Haa-eung haa-aang Shiwoo! Haa-aang haa-at haa-eung!"</p>
 
 <p>Under Shiwoo's cruel strokes, which seemed to reshape her vagina hole, Mom trembled helplessly, spewing out uncontrollable moans.</p>
 
@@ -164,7 +164,7 @@ chapter = 524
 
 <p>Even while shouting like that, Shiwoo's fucking continued relentlessly.</p>
 
-<p>Haa-eung... Haa-woo! Shiwoo-ya! Haa-eu! Haa-woo! Haa-aang!</p>
+<p>Haa-eung... Haa-woo! Shiwoo! Haa-eu! Haa-woo! Haa-aang!</p>
 
 <p>Mom, captured by Shiwoo, spewing out defenseless moans.</p>
 
@@ -186,7 +186,7 @@ chapter = 524
 
 <p>An intense bursting sound filled Sehee Nuna's room.</p>
 
-<p>"Haa-eung haa-aang Shiwoo-ya! Haa-eut... Yeobo! Haa-aang Master-nim!"</p>
+<p>"Haa-eung haa-aang Shiwoo! Haa-eut... Yeobo! Haa-aang Master-nim!"</p>
 
 <p>Mom's moans also echoed in the room like a harmony, matching Shiwoo's fucking.</p>
 

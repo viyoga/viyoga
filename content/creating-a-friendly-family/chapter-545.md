@@ -118,7 +118,7 @@ chapter = 545
 
 <p>Shiwoo was ordering Sehee Nuna to upload the photo of Mom's buttocks that she had taken earlier to the group chat room.</p>
 
-<p>,Shi, Shiwoo-ya...,</p>
+<p>,Shi, Shiwoo...,</p>
 
 <p>Mom called Shiwoo's name with a bewildered expression.</p>
 

@@ -202,7 +202,7 @@ chapter = 140
 
 <p>A seductive smile forms in her slightly lowered eyes.</p>
 
-<p>"Haa... Shiwoo-ya...... Haa...like that... Haeut!"</p>
+<p>"Haa... Shiwoo...... Haa...like that... Haeut!"</p>
 
 <p>Gyuri Ajumma answers with difficulty, breathing roughly.</p>
 
@@ -236,7 +236,7 @@ chapter = 140
 
 <p>Shiwoo's penis, with the horizontal lines of his glans being pulled out and then instantly thrust all the way to the root without giving any gap.</p>
 
-<p>"Haat! Shiwoo-ya! Haeueut! Yeobo! Haaaaang!"</p>
+<p>"Haat! Shiwoo! Haeueut! Yeobo! Haaaaang!"</p>
 
 <p>Merciless youth and uncontrolled vigor.</p>
 

@@ -64,7 +64,7 @@ chapter = 218
 
 <p>Beneath the flare skirt, Mom's secret cave entrance, gaping with his glans already poised... Shiwoo now only needed to mercilessly thrust his massive club into Mom's vagina.</p>
 
-<p>Just as he was about to forcefully violate Mom, 「Sh-Shiwoo-ya!」</p>
+<p>Just as he was about to forcefully violate Mom, 「Sh-Shiwoo!」</p>
 
 <p>Mom, trembling and preparing to be impaled by Shiwoo, urgently called out to him in a quivering voice. 「Why?!」</p>
 

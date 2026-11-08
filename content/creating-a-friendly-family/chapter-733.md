@@ -154,7 +154,7 @@ chapter = 733
 
 <p>Shiwoo says, returning to Seulgi.</p>
 
-<p>"Haaah... Shi-Shiwoo-ya... if you do this... what am I supposed to do...?"</p>
+<p>"Haaah... Shi-Shiwoo... if you do this... what am I supposed to do...?"</p>
 
 <p>Seulgi was calling Shiwoo's name and speaking with a troubled expression, almost on the verge of tears.</p>
 

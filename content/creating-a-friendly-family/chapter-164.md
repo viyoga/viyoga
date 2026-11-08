@@ -18,7 +18,7 @@ chapter = 164
 
 <p>Mom's text message returned after a brief pause, as if her deliberation had deepened.</p>
 
-<p>'Shiwoo-ya...'</p>
+<p>'Shiwoo...'</p>
 
 <p>Mom changed her demeanor, calling Shiwoo's name as if serious.</p>
 

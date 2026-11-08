@@ -40,7 +40,7 @@ chapter = 150
 
 <p>Shiwoo's thrusting continued relentlessly, heedless of Seonju Imo's seemingly pain-filled moaning sounds.</p>
 
-<p>「Ha-eut! Ha-aang! Shi...Shiwoo-ya...just a little...g...gentler! Haa-eung!!」</p>
+<p>「Ha-eut! Ha-aang! Shi...Shiwoo...just a little...g...gentler! Haa-eung!!」</p>
 
 <p>Seonju Imo, bewildered by Shiwoo's ungentle thrusting, which was different from before, desperately called out Shiwoo's name, pleading for him to be gentler. Perhaps her mind was reeling from the pain-laced pleasure that surged like a broken dam, as Seonju Imo seemed to have no time to use respectful speech or act composed with Shiwoo.</p>
 

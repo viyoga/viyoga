@@ -66,7 +66,7 @@ chapter = 424
 
 <p>Shiwoo asked Mom for her opinion as if expressing his immediate desire, while forcefully pushing the limp penis into Mom's body.</p>
 
-<p>"...Shi...Shiwoo-ya...th...that...ah...th...there's...th...the floor inside..."</p>
+<p>"...Shi...Shiwoo...th...that...ah...th...there's...th...the floor inside..."</p>
 
 <p>Mom hurriedly twisted her waist as if troubled, awkwardly turning her head back and opening her mouth.</p>
 
@@ -92,7 +92,7 @@ chapter = 424
 
 <p>The sensation of his penis, which felt like it was tingling and ringing.</p>
 
-<p>"Shi...Shiwoo-ya this is...!! No...Haaa...! Really..."</p>
+<p>"Shi...Shiwoo this is...!! No...Haaa...! Really..."</p>
 
 <p>Mom was saying as if greatly flustered, twisting her body busily, as she felt a hot liquid other than semen entering her vagina hole.</p>
 

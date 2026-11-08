@@ -174,7 +174,7 @@ chapter = 225
 
 <p>Shiwoo said to Mom in a loud voice that could be heard in the living room, and posed as if he was grabbing the bottom of Mom's purple baggy T-shirt from behind with both hands and lifting it up.</p>
 
-<p>"N...no...there...! Sh...Shiwoo-ya! M...Mom will take care of it... her...herself!"</p>
+<p>"N...no...there...! Sh...Shiwoo! M...Mom will take care of it... her...herself!"</p>
 
 <p>Mom said to Shiwoo as if flustered.</p>
 

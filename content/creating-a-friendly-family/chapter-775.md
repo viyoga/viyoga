@@ -96,7 +96,7 @@ chapter = 775
 
 <p>Mom also seems to know that as long as Shiwoo's thirst is not completely satisfied, this harsh and cruel ordeal will never end.</p>
 
-<p>"Ha-aaaaang.. Master... ha-a... Honey... hng-uk... ha-a... Shiwoo-ya.... Shiwoo-ya... ha-a ha-ang ha-aaaaang! I'll... do... anything... ha-aaat... I'll become whatever you want hng-uuuu... ha-aaaaat ha-ang"</p>
+<p>"Ha-aaaaang.. Master... ha-a... Honey... hng-uk... ha-a... Shiwoo.... Shiwoo... ha-a ha-ang ha-aaaaang! I'll... do... anything... ha-aaat... I'll become whatever you want hng-uuuu... ha-aaaaat ha-ang"</p>
 
 <p>Mom pitifully grabs Shiwoo's sturdy neck and shoulders like a beast begging for survival, and shakes and twists her body violently as if she'd rather be completely devoured by him.</p>
 
@@ -116,7 +116,7 @@ chapter = 775
 
 <p>Shiwoo finally falls deep into the abyss that is her, as if to burst all the patience that has suppressed him.</p>
 
-<p>Hng-ung! Ah.. Shiwoo-ya.. hng-uk. This... hng-ung.. too much... ha-ak ha-ang! Hat hak ak huk hng-uk!</p>
+<p>Hng-ung! Ah.. Shiwoo.. hng-uk. This... hng-ung.. too much... ha-ak ha-ang! Hat hak ak huk hng-uk!</p>
 
 <p>Mom's moans were scattering into pieces in sync with Shiwoo's rough movements, like the hot forbidden sap pouring out as the tree rooted in the center of the garden breaks.</p>
 
@@ -158,7 +158,7 @@ chapter = 775
 
 <p>Shiwoo grabs the dress fabric caught on Mom's elbows and tries to strip off Mom's last remaining shell.</p>
 
-<p>"Shi, Shiwoo-ya wait, just wait... ha-a..."</p>
+<p>"Shi, Shiwoo wait, just wait... ha-a..."</p>
 
 <p>In that moment, Mom tries to stop Shiwoo's actions urgently, narrowing her arms inward.</p>
 
@@ -176,6 +176,6 @@ chapter = 775
 
 <p>Shiwoo whispered in Mom's ear, mixing in a low and sticky laughter.</p>
 
-<p>"Please... Shiwoo-ya... hng-uu... please.... hng-uuuuuuuu..."</p>
+<p>"Please... Shiwoo... hng-uu... please.... hng-uuuuuuuu..."</p>
 
 <p>Whether it was because Mom found it hard to face Shiwoo with her bare face, she was sobbing as if begging from inside the upturned dress, where only her nose and mouth barely poked out.</p>

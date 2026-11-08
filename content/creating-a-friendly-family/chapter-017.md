@@ -6,7 +6,7 @@ chapter = 17
 +++
 <p>It was dawn the next day.</p>
 
-<p>「Shiwoo-ya, wake up, Shiwoo-ya!!!」</p>
+<p>「Shiwoo, wake up, Shiwoo!!!」</p>
 
 <p>Sehee Nuna urgently shook Shiwoo awake.</p>
 

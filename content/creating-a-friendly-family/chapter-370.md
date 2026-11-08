@@ -66,7 +66,7 @@ chapter = 370
 
 <p>Seonju Imo-nim was frantically opening her mouth and twisting her body, trying to stop Shiwoo's thrusting.</p>
 
-<p>"Heueueeung Haeueeung! Juinin-nim I...I, I think I'm going to die!! Haeueeung Haaaaang Shiwoo-ya! Please..., Juinin-nim Hiiiing"</p>
+<p>"Heueueeung Haeueeung! Juinin-nim I...I, I think I'm going to die!! Haeueeung Haaaaang Shiwoo! Please..., Juinin-nim Hiiiing"</p>
 
 <p>Seonju Imo-nim even confused her honorifics for Shiwoo, whom she had been treating as her master, and begged in a voice as if she had lost her mind.</p>
 

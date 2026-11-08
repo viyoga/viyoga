@@ -168,7 +168,7 @@ chapter = 405
 
 <p>Mom, having checked Shiwoo's message, flinched her shoulders, startled by what he had written.</p>
 
-<p>"Sh-Shiwoo-ya!"</p>
+<p>"Sh-Shiwoo!"</p>
 
 <p>Mom urgently called Shiwoo's name.</p>
 

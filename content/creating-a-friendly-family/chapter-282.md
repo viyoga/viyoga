@@ -4,7 +4,7 @@ weight = 282
 [extra]
 chapter = 282
 +++
-<p>,Um... Shiwoo-ya... about the pi-picture from just now...,'</p>
+<p>,Um... Shiwoo... about the pi-picture from just now...,'</p>
 
 <p>Mom spoke, seemingly worried about the picture of her perverted figure that Shiwoo had just sent to Seyoung and showed her to confirm.</p>
 

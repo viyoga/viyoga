@@ -110,7 +110,7 @@ chapter = 188
 
 <p>Shiwoo instinctively answered Kim Jun's question and looked at Sora Nuna.</p>
 
-<p>"That's right. We're really close We went out to play a lot together Right Shiwoo-ya?"</p>
+<p>"That's right. We're really close We went out to play a lot together Right Shiwoo?"</p>
 
 <p>Sora Nuna smiled with her eyes at Shiwoo and smoothly spun a fabricated story as if it were nothing.</p>
 

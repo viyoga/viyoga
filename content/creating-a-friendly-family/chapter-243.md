@@ -74,7 +74,7 @@ chapter = 243
 
 <p>Shiwoo continued to call Mom's name in texts, urging her.</p>
 
-<p>'Shiwoo-ya... can't I drink it a little later...? Do I really have to drink that now?'</p>
+<p>'Shiwoo... can't I drink it a little later...? Do I really have to drink that now?'</p>
 
 <p>Mom was writing and asking, looking embarrassed after checking Shiwoo's text.</p>
 

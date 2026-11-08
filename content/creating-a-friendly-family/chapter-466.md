@@ -72,7 +72,7 @@ chapter = 466
 
 <p>Shiwoo commanded her in a low, deep voice, caressing Mom's buttocks. Shiwoo felt Mom's trembling body slowly relax in his palm. Mom soon followed Shiwoo's command, completely relaxing her tense buttock muscles and spreading her tightly squeezed legs to the side. Shiwoo slipped his hand beneath Mom's crotch. Shiwoo's hand, tracing the alluring valley of Mom's buttocks, instantly slid and penetrated into her crotch.</p>
 
-<p>"Sh-Shiwoo-ya..."</p>
+<p>"Sh-Shiwoo..."</p>
 
 <p>Mom instantly squeezed her legs together again, calling Shiwoo's name as if startled. Shiwoo's wrist was wedged as if caught between Mom's legs. Suddenly, Shiwoo raised his other arm and forcefully slapped Mom's wet buttock flesh. Jjal-ssak! A loud slapping sound echoed through the kitchen and living room.</p>
 

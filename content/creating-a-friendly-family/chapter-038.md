@@ -6,7 +6,7 @@ chapter = 38
 +++
 <p>The next morning</p>
 
-<p>,Shiwoo-ya, wake up Hey, Yoo Shiwoo!"</p>
+<p>,Shiwoo, wake up Hey, Yoo Shiwoo!"</p>
 
 <p>Sehee Nuna was shaking Shiwoo awake.</p>
 

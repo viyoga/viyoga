@@ -32,7 +32,7 @@ chapter = 486
 
 <p>Shiwoo was moving his hips as if playing a prank, rubbing his penis inside Mom's crotch back and forth.</p>
 
-<p>"Haa... haa... Shi... Shiwoo-ya! Please...!"</p>
+<p>"Haa... haa... Shi... Shiwoo! Please...!"</p>
 
 <p>Mom shouted Shiwoo's name urgently, as if agitated, with a voice filled with emotion.</p>
 

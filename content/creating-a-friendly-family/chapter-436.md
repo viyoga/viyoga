@@ -198,6 +198,6 @@ chapter = 436
 
 <p>Mom's crotch crack and the hard protrusion aligned with the tip of his tongue were about to veer away from Shiwoo's face.</p>
 
-<p>"Hae-eung hae-euk kkeu...it's over, Shiwoo-ya...! Haaaaaak! It's over...Master-nim! Please...Heueueung...Haaht!"</p>
+<p>"Hae-eung hae-euk kkeu...it's over, Shiwoo...! Haaaaaak! It's over...Master-nim! Please...Heueueung...Haaht!"</p>
 
 <p>Mom urgently informs Shiwoo that she has reached orgasm and tries to pull her pelvis back.</p>
