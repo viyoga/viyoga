@@ -121,7 +121,21 @@
   </div>
 </div>
 
+{% set chapter_name = "" %}
+{% set colon_parts = page.title | split(pat=":") %}
+{% if colon_parts | length > 1 %}
+  {% set colon_prefix = colon_parts | first %}
+  {% set chapter_name = page.title | replace(from=colon_prefix ~ ":", to="") | trim %}
+{% else %}
+  {% set dot_parts = page.title | split(pat=". ") %}
+  {% if dot_parts | length > 1 %}
+    {% set dot_prefix = dot_parts | first %}
+    {% set chapter_name = page.title | replace(from=dot_prefix ~ ". ", to="") | trim %}
+  {% endif %}
+{% endif %}
+
 <div class="chapter-body entry-content" itemprop="articleBody">
+  {% if chapter_name %}<h2 class="chapter-name">{{ chapter_name }}</h2>{% endif %}
   {{ page.content | safe }}
 </div>
 

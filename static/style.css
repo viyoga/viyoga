@@ -143,22 +143,27 @@ html.lenis, html.lenis body { height: auto; }
    the animated grid with authentic optical glass refraction, rim bevels,
    and Hugging Face-style caustic edge flares. ── */
 :root {
-  /* Craft-derived glass: 12px blur over a ~60% panel fill. The fill is a
-     background-color layer under the sheen gradient, so every surface that
-     uses --glass-bg picks it up. */
-  --glass-bg: linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 36%, transparent) 100%), color-mix(in srgb, var(--bg-panel) 54%, transparent);
+  /* Liquid Glass: a low-fill tint under a bright specular wash. Keep the tint
+     separable from the sheen so --glass-bg can stay a valid shorthand layer
+     stack while --glass-bg-subtle remains a plain color. */
+  --liquid-glass-tint: color-mix(in srgb, var(--bg-panel) 38%, transparent);
+  --liquid-glass-sheen:
+    radial-gradient(140% 120% at 12% 0%, rgba(255, 255, 255, 0.16) 0%, rgba(255, 255, 255, 0.04) 30%, transparent 58%),
+    linear-gradient(135deg, rgba(255, 255, 255, 0.10) 0%, rgba(255, 255, 255, 0.02) 40%, transparent 72%);
+  --glass-bg: var(--liquid-glass-sheen), var(--liquid-glass-tint);
   --glass-bg-subtle: color-mix(in srgb, var(--bg-panel) 24%, transparent);
-  --glass-bg-elev: linear-gradient(135deg, rgba(255, 255, 255, 0.08) 0%, rgba(255, 255, 255, 0.02) 40%, color-mix(in srgb, var(--bg-panel) 48%, transparent) 100%);
-  --glass-bg-strong: color-mix(in srgb, var(--bg-panel) 82%, transparent);
-  --glass-blur: 12px;
-  --liquid-glass-blur: 16px;
+  --glass-bg-elev: var(--liquid-glass-sheen), color-mix(in srgb, var(--bg-panel) 46%, transparent);
+  --glass-bg-strong: color-mix(in srgb, var(--bg-panel) 70%, transparent);
+  --glass-blur: 22px;
+  --liquid-glass-blur: 22px;
   --liquid-glass-saturate: 180%;
+  --liquid-glass-brightness: 1.08;
   --glass-hi: color-mix(in srgb, var(--fg) 28%, transparent);
   --glass-bevel-top: inset 0 1px 0 0 var(--glass-hi);
   --glass-bevel-ring: inset 0 0 0 1px color-mix(in srgb, var(--fg) 9%, transparent);
   --glass-bevel-bottom: inset 0 -1px 0 0 rgba(0, 0, 0, 0.45);
-  --glass-shadow: 0 1px 2px rgba(0, 0, 0, 0.4), 0 12px 32px rgba(0, 0, 0, 0.42);
-  --glass-shadow-hover: 0 2px 4px rgba(0, 0, 0, 0.45), 0 20px 48px rgba(0, 0, 0, 0.52);
+  --glass-shadow: 0 0 0 1px rgba(255, 255, 255, 0.06), 0 1px 2px rgba(0, 0, 0, 0.4), 0 18px 48px rgba(0, 0, 0, 0.46);
+  --glass-shadow-hover: 0 0 0 1px rgba(255, 255, 255, 0.10), 0 2px 4px rgba(0, 0, 0, 0.45), 0 24px 60px rgba(0, 0, 0, 0.54);
 
   /* Hugging Face Flare Tokens. Every theme derives its caustic light from
      --flare-tint: the accent by default, or the theme's own secondary when a
@@ -172,7 +177,7 @@ html.lenis, html.lenis body { height: auto; }
      collides with ::before (spotlight) or ::after (sweep bars). */
   --glass-edge-line: color-mix(in srgb, color-mix(in srgb, var(--flare-tint) 42%, #ffffff) 55%, transparent);
   --glass-edge-width: 36%;
-  --glass-specular: radial-gradient(140% 120% at 0% 0%, color-mix(in srgb, var(--fg) 7%, transparent) 0%, transparent 55%);
+  --glass-specular: radial-gradient(140% 120% at 12% 0%, rgba(255, 255, 255, 0.18) 0%, rgba(255, 255, 255, 0.04) 32%, transparent 60%);
 
   /* Hover sweep: a white-hot core with long dying tails, symmetric in hue
      and luminance so the center-out reveal never looks lopsided. */
@@ -473,6 +478,16 @@ html[data-theme="nyctophobia"] {
   --cat-mid: #B01630;
   --cat-base: #EA5562;
   --cat-light: #FB8076;
+}
+
+/* Liquid Glass rim, shared by every theme. The old per-theme --glass-hi values
+   were dark fills; a real glass edge catches light, so derive it from the
+   theme's own foreground instead. */
+html[data-theme] {
+  --glass-hi: color-mix(in srgb, var(--fg) 48%, transparent);
+  --glass-bevel-top: inset 0 1px 0 0 var(--glass-hi);
+  --glass-bevel-ring: inset 0 0 0 1px color-mix(in srgb, var(--fg) 12%, transparent);
+  --glass-bevel-bottom: inset 0 -1px 0 0 rgba(0, 0, 0, 0.52);
 }
 
 
@@ -847,9 +862,9 @@ html.flue-live #flue-canvas { opacity: 0.82; }
 /* The smoke is a full-bleed field, so the reading surfaces get a little more
    fill than usual — the panels stay glassy, but body copy keeps its contrast. */
 html.flue-live {
-  --glass-bg:
-    linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 35%, color-mix(in srgb, var(--bg-panel) 46%, transparent) 100%),
-    color-mix(in srgb, var(--bg-panel) 74%, transparent);
+  /* The smoke is bright, so lift the tint a little — still far below the old
+     74% slab, because the blur now carries the contrast. */
+  --liquid-glass-tint: color-mix(in srgb, var(--bg-panel) 46%, transparent);
 }
 @media (prefers-reduced-motion: reduce) {
   #flue-canvas { transition: none; }
@@ -1450,6 +1465,23 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
    therefore the line breaks stay exactly as they are. */
 body.reading .chapter-body {
   -webkit-text-stroke: 0.35px currentColor;
+}
+.chapter-name {
+  margin: 0 0 1.5em;
+  padding: 0 0 0.85em;
+  border-bottom: 1px solid color-mix(in srgb, var(--fg) 16%, transparent);
+  color: var(--fg);
+  font-family: var(--font-mono);
+  font-size: clamp(1.25rem, 3.4vw, 1.75rem);
+  font-weight: 800;
+  line-height: 1.25;
+  letter-spacing: -0.015em;
+  text-wrap: balance;
+}
+.chapter-name::before {
+  content: "// ";
+  color: var(--accent);
+  font-weight: 800;
 }
 .chapter-body p { margin-bottom: 1.4em; }
 /* Scene breaks in the scraped novels arrive as runs of dashes or asterisks.
@@ -2320,7 +2352,7 @@ body.reading .chapter-body {
       radial-gradient(70% 45% at 50% 108%, color-mix(in srgb, var(--flare-bloom) 38%, transparent), transparent 72%),
       var(--glass-specular),
       linear-gradient(90deg, transparent 0%, var(--glass-edge-line) 50%, transparent 100%),
-      linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 30%, color-mix(in srgb, var(--bg-panel) 50%, transparent) 100%);
+      linear-gradient(135deg, rgba(255, 255, 255, 0.10) 0%, rgba(255, 255, 255, 0.02) 34%, transparent 72%);
     background-size: 100% 100%, 100% 100%, 56% 1px, 100% 100%;
     background-position: 0 0, 0 0, center bottom, 0 0;
     background-repeat: no-repeat, no-repeat, no-repeat, no-repeat;
@@ -4119,11 +4151,10 @@ nav.top .logo:active, .nav-links a:active, .type-action-btn:active,
 .chapter-grid .grid-item, .chapter-body, .dict-result, .playlist, .code-block,
 .section-heading, .section-badge, .ft-surface-inner {
   background-image:
-    var(--glass-specular),
     linear-gradient(90deg, transparent 0%, var(--glass-edge-line) 50%, transparent 100%),
-    var(--glass-bg);
-  background-size: 100% 100%, var(--glass-edge-width) 1px, 100% 100%;
-  background-position: 0 0, center bottom, 0 0;
+    var(--liquid-glass-sheen);
+  background-size: var(--glass-edge-width) 1px, 100% 100%, 100% 100%;
+  background-position: center bottom, 0 0, 0 0;
   background-repeat: no-repeat, no-repeat, no-repeat;
 }
 
@@ -4271,7 +4302,7 @@ nav.top .logo:focus-visible,
       linear-gradient(105deg, transparent 18%, rgba(255, 255, 255, 0.08) 46%, transparent 64%),
       var(--glass-specular),
       linear-gradient(90deg, transparent 0%, var(--glass-edge-line) 50%, transparent 100%),
-      linear-gradient(135deg, rgba(255, 255, 255, 0.05) 0%, rgba(255, 255, 255, 0.015) 30%, color-mix(in srgb, var(--bg-panel) 50%, transparent) 100%);
+      linear-gradient(135deg, rgba(255, 255, 255, 0.10) 0%, rgba(255, 255, 255, 0.02) 30%, transparent 72%);
     background-size: 100% 100%, 100% 100%, 100% 100%, 80% 1px, 100% 100%;
     background-position: 0 0, 0 0, 0 0, center bottom, 0 0;
     background-repeat: no-repeat;
@@ -4349,13 +4380,13 @@ body.chapter-page .chapter-bar,
 .ft-surface-inner,
 .ft-masthead,
 .conn-notice {
-  -webkit-backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate));
-  backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate));
+  -webkit-backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate)) brightness(var(--liquid-glass-brightness));
+  backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate)) brightness(var(--liquid-glass-brightness));
 }
 
 @media (min-width: 769px) {
   .chapter-body {
-    -webkit-backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate));
-    backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate));
+    -webkit-backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate)) brightness(var(--liquid-glass-brightness));
+    backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate)) brightness(var(--liquid-glass-brightness));
   }
 }
