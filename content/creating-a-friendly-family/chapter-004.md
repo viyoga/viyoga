@@ -22,13 +22,13 @@ chapter = 4
 
 <p>The two answered.</p>
 
-<p>"Seyoung-ie, are you sleeping in Mom's room again tonight?"</p>
+<p>"Seyoung, are you sleeping in Mom's room again tonight?"</p>
 
-<p>Getting up from her seat, Mom asked Seyoung-ie in a routine tone, as if checking attendance on a group trip.</p>
+<p>Getting up from her seat, Mom asked Seyoung in a routine tone, as if checking attendance on a group trip.</p>
 
 <p>"Yes, with Mom..."</p>
 
-<p>Seyoung-ie trailed off, seemingly shy about answering in front of her older sister and brother.</p>
+<p>Seyoung trailed off, seemingly shy about answering in front of her older sister and brother.</p>
 
 <p>"Okay."</p>
 
@@ -36,11 +36,11 @@ chapter = 4
 
 <p>"Oppa, should I help you with the dishes?"</p>
 
-<p>Seyoung-ie, who was diligently moving dishes from her seat, spoke endearingly.</p>
+<p>Seyoung, who was diligently moving dishes from her seat, spoke endearingly.</p>
 
 <p>"No, it'll be done soon, so it's okay if I do it alone."</p>
 
-<p>Shiwoo was still hard and throbbing, so he had no choice but to refuse Seyoung-ie's sweet offer.</p>
+<p>Shiwoo was still hard and throbbing, so he had no choice but to refuse Seyoung's sweet offer.</p>
 
 <p>Sehee and Seyoung moved the dishes from the table to the sink and then returned to their respective rooms.</p>
 
@@ -184,7 +184,7 @@ chapter = 4
 
 <p>He thought everyone in his family would be asleep, so he came out of the dressing room wearing only panties.</p>
 
-<p>At that moment, he saw Mom coming out of the master bedroom with Seyoung-ie in her arms.</p>
+<p>At that moment, he saw Mom coming out of the master bedroom with Seyoung in her arms.</p>
 
 <p>"Shiwoo, are you just coming out of the shower? It's late, do it earlier."</p>
 
@@ -200,7 +200,7 @@ chapter = 4
 
 <p>"Ah, I thought everyone was asleep, sorry."</p>
 
-<p>"Seyoung-ie and Sehee are here too, so you have to be careful. Shiwoo, you're a 2nd year middle school student now, so you're not a child anymore."</p>
+<p>"Seyoung and Sehee are here too, so you have to be careful. Shiwoo, you're a 2nd year middle school student now, so you're not a child anymore."</p>
 
 <p>"Okay, I understand. I'll be careful, Mom."</p>
 
@@ -218,23 +218,23 @@ chapter = 4
 
 <p>As Shiwoo grew up, he didn't question much about the ban on underwear in the house, thinking that the relationship between mothers and daughters was different from that between siblings.</p>
 
-<p>"But are you trying to move Seyoung-ie to her room?"</p>
+<p>"But are you trying to move Seyoung to her room?"</p>
 
-<p>Shiwoo asked, looking at Mom holding Seyoung-ie.</p>
+<p>Shiwoo asked, looking at Mom holding Seyoung.</p>
 
-<p>"Yes, can you open the door to Seyoung-ie's room?"</p>
+<p>"Yes, can you open the door to Seyoung's room?"</p>
 
 <p>Mom asked Shiwoo.</p>
 
-<p>Shiwoo quickly went and opened the door to Seyoung-ie's room and turned on the light.</p>
+<p>Shiwoo quickly went and opened the door to Seyoung's room and turned on the light.</p>
 
-<p>Shiwoo watched Mom put Seyoung-ie on the bed and cover her with a blanket, then asked.</p>
+<p>Shiwoo watched Mom put Seyoung on the bed and cover her with a blanket, then asked.</p>
 
 <p>"Aren't you going to sleep together today?"</p>
 
 <p>Then, Mom said as if complaining softly.</p>
 
-<p>"Sleeping together is only occasionally Mom can't sleep comfortably if someone is next to her. And Seyoung-ie turns on the light in the master bedroom because she's scared. Then Mom can't sleep deeply and is tired all day Seyoung-ie has to get used to sleeping alone now! Oh right! You went to Gyuri's house today, right?"</p>
+<p>"Sleeping together is only occasionally Mom can't sleep comfortably if someone is next to her. And Seyoung turns on the light in the master bedroom because she's scared. Then Mom can't sleep deeply and is tired all day Seyoung has to get used to sleeping alone now! Oh right! You went to Gyuri's house today, right?"</p>
 
 <p>After complaining like that, Mom suddenly asked Shiwoo as if she had just remembered.</p>
 
@@ -246,7 +246,7 @@ chapter = 4
 
 <p>"Sleeping eye mask?"</p>
 
-<p>"Yeah, Seyoung-ie sleeps with the light on, so I think I'll need it for a while. Gyuri has a lot of those."</p>
+<p>"Yeah, Seyoung sleeps with the light on, so I think I'll need it for a while. Gyuri has a lot of those."</p>
 
 <p>Shiwoo's heart raced at Mom's words that Gyuri Ajumma had a lot of those, thinking of the SM tools that Cheoljin had found.</p>
 
@@ -256,41 +256,41 @@ chapter = 4
 
 <p>Shiwoo felt good about the unknown anticipation related to Gyuri Ajumma and answered immediately.</p>
 
-<p>"Oh my, Seyoung-ie is all grown up now and it's hard to hold her."</p>
+<p>"Oh my, Seyoung is all grown up now and it's hard to hold her."</p>
 
-<p>Mom said, making Seyoung-ie's sleeping arrangements comfortable.</p>
+<p>Mom said, making Seyoung's sleeping arrangements comfortable.</p>
 
 <p>"Yeah Kids really grow up fast."</p>
 
 <p>Shiwoo answered as if formally responding to Mom's words.</p>
 
-<p>"Haha Anyone would think you're Seyoung-ie's dad. There's only a 30-year difference between you-nim and Seyoung-ie, you know?"</p>
+<p>"Haha Anyone would think you're Seyoung's dad. There's only a 30-year difference between you-nim and Seyoung, you know?"</p>
 
 <p>Mom teased him, using respectful speech because Shiwoo's tone didn't match his age.</p>
 
 <p>Shiwoo felt strange when he suddenly heard respectful speech from Mom, even though it was teasing.</p>
 
-<p>Besides, Seyoung-ie's dad, doesn't that mean Mom's husband?</p>
+<p>Besides, Seyoung's dad, doesn't that mean Mom's husband?</p>
 
 <p>Suddenly, a strange excitement surged, as if his chest was tingling.</p>
 
 <p>It felt very different from the excitement he felt when he masturbated earlier.</p>
 
-<p>"But anyway, you're Seyoung-ie's older brother, so please take care of Seyoung-ie a lot in the future, okay?"</p>
+<p>"But anyway, you're Seyoung's older brother, so please take care of Seyoung a lot in the future, okay?"</p>
 
-<p>Mom said to Shiwoo, stroking Seyoung-ie's head as she slept.</p>
+<p>Mom said to Shiwoo, stroking Seyoung's head as she slept.</p>
 
-<p>She seemed very worried about Seyoung-ie, who had been showing excessive attachment to Mom lately.</p>
+<p>She seemed very worried about Seyoung, who had been showing excessive attachment to Mom lately.</p>
 
-<p>"Okay, don't worry, Mom! I'll take good care of Seyoung-ie."</p>
+<p>"Okay, don't worry, Mom! I'll take good care of Seyoung."</p>
 
 <p>Shiwoo answered, wanting to ease Mom's worries.</p>
 
-<p>"Then, in that sense, from now on, Shiwoo, you move Seyoung-ie to her room at night."</p>
+<p>"Then, in that sense, from now on, Shiwoo, you move Seyoung to her room at night."</p>
 
 <p>"Huh?"</p>
 
-<p>"You stay up late anyway!? Seyoung-ie is asleep around this time, right? You come and turn off the light in the master bedroom too! Yeah... let's do that. It's not difficult, so can Mom ask you for a favor?"</p>
+<p>"You stay up late anyway!? Seyoung is asleep around this time, right? You come and turn off the light in the master bedroom too! Yeah... let's do that. It's not difficult, so can Mom ask you for a favor?"</p>
 
 <p>It was a sudden request from Mom in a playful flow.</p>
 
@@ -302,4 +302,4 @@ chapter = 4
 
 <p>Shiwoo answered immediately with a happy heart without hesitation.</p>
 
-<p>That's how Shiwoo came to visit the master bedroom every night to move Seyoung-ie.</p>
+<p>That's how Shiwoo came to visit the master bedroom every night to move Seyoung.</p>

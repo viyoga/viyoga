@@ -53,7 +53,7 @@
     },
     {
       "n": "Seyoung",
-      "aka": "Se-young; Seyoung-i; Seyoung-ie; Seyoung-ah",
+      "aka": "Se-young; Seyoung-i; Seyoung-ah",
       "g": "family",
       "role": "Youngest sister; elementary-academy student",
       "rel": "The cheerful, clingy youngest sibling. After Father died she began sleeping beside Mom, and she remains the family's most protected member.",

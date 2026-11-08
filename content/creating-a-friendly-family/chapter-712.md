@@ -6,7 +6,7 @@ chapter = 712
 +++
 <p>"Yeah! Mom, you saw the photo I sent to your smartphone earlier, so you must know, right?"</p>
 
-<p>"Seyoung-ie woke me up like that this morning, so I was finally able to get up without dragging it out any longer!"</p>
+<p>"Seyoung woke me up like that this morning, so I was finally able to get up without dragging it out any longer!"</p>
 
 <p>Shiwoo nodded as if taking Seyoung's side, subtly bringing up the story of the photo he had sent before coming down from the second floor.</p>
 
@@ -22,11 +22,11 @@ chapter = 712
 
 <p>Mom raised her voice, her face flushing red. By emphasizing the fact that it was morning, she tried to maintain her authority and face, but there was a clear sense of urgency in her attempt to cut off the conversation.</p>
 
-<p>"Sure, well since it's morning now...! When night comes... Seyoung-ie will take care of it, right?"</p>
+<p>"Sure, well since it's morning now...! When night comes... Seyoung will take care of it, right?"</p>
 
 <p>Shiwoo muttered as if to himself, yet loud enough for Mom to clearly understand. The sneer hanging on the corner of Shiwoo's lips was delivered like a sharp mockery, shaking the very foundation of Mom's authority.</p>
 
-<p>Mom glared at Shiwoo for a moment, but after seeing his sly expression, she quickly averted her gaze and let out a long, thin sigh. Shiwoo sat down in an empty seat at the table and began to nonchalantly eat the rice and side dishes that Mom and Seyoung-ie had prepared.</p>
+<p>Mom glared at Shiwoo for a moment, but after seeing his sly expression, she quickly averted her gaze and let out a long, thin sigh. Shiwoo sat down in an empty seat at the table and began to nonchalantly eat the rice and side dishes that Mom and Seyoung had prepared.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -46,11 +46,11 @@ chapter = 712
 
 <p>Mom answered, trying her best to act composed while avoiding Shiwoo's eyes. Seeing Mom's reaction, Shiwoo felt a sensation as if a corner of his heart was swelling up.</p>
 
-<p>"Really? Well, that's a relief By the way, the eggs and sausages are really delicious Did you make them with Seyoung-ie?"</p>
+<p>"Really? Well, that's a relief By the way, the eggs and sausages are really delicious Did you make them with Seyoung?"</p>
 
 <p>Shiwoo continued to talk to Mom, blurring the lines between the ordinary and the extraordinary.</p>
 
-<p>"Ye... yes... Seyoung-ie fried the sausages... eat a lot..."</p>
+<p>"Ye... yes... Seyoung fried the sausages... eat a lot..."</p>
 
 <p>Mom answered Shiwoo's questions as if struggling to hide her awkwardness. She tried to maintain a natural voice, but the ends of her words, which she couldn't ultimately suppress, trembled slightly. That small tremor lingered in Shiwoo's ears, seeming to carve itself even more vividly into his brain.</p>
 
@@ -76,7 +76,7 @@ chapter = 712
 
 <p>Yet, watching Mom desperately trying to maintain her dignity and their relationship all by herself, a grin spread across Shiwoo's face, and a sadistic impulse seemed to tickle his heart. Shiwoo felt like provoking Mom by teasing her further.</p>
 
-<p>"Ah, come to think of it... where did you put the item you got from Seyoung-ie yesterday?"</p>
+<p>"Ah, come to think of it... where did you put the item you got from Seyoung yesterday?"</p>
 
 <p>Shiwoo asked, looking at Mom as if he had suddenly remembered, inquiring about the whereabouts of a certain item he had seen yesterday.</p>
 
@@ -86,17 +86,17 @@ chapter = 712
 
 <p>"You know, that thing? What was it called? It looked like an animal tail?"</p>
 
-<p>What Shiwoo was talking about was none other than Seyoung-ie's cat-tail-shaped anal plug. Shiwoo continued speaking as if testing Mom's reaction, intentionally feigning ignorance. His tone sounded like a harmless joke, yet it felt laden with subtle harassment and provocation.</p>
+<p>What Shiwoo was talking about was none other than Seyoung's cat-tail-shaped anal plug. Shiwoo continued speaking as if testing Mom's reaction, intentionally feigning ignorance. His tone sounded like a harmless joke, yet it felt laden with subtle harassment and provocation.</p>
 
-<p>"I, I washed it and put it in the drawer... to give back to Seyoung-ie later.... Why are you suddenly talking about that while eating..."</p>
+<p>"I, I washed it and put it in the drawer... to give back to Seyoung later.... Why are you suddenly talking about that while eating..."</p>
 
-<p>At Shiwoo's question, which brought back the shameful memories of yesterday, Mom answered in a flustered, rambling voice. Seonju-imo and Seyoung-ie watched the scene from the side with satisfied smiles...</p>
+<p>At Shiwoo's question, which brought back the shameful memories of yesterday, Mom answered in a flustered, rambling voice. Seonju-imo and Seyoung watched the scene from the side with satisfied smiles...</p>
 
-<p>"Shiwoo-ya probably asked on her behalf in case Seyoung-ie was looking for it"</p>
+<p>"Shiwoo-ya probably asked on her behalf in case Seyoung was looking for it"</p>
 
 <p>Seonju-imo added words that put Mom in a difficult spot, as if siding with Shiwoo.</p>
 
-<p>"I'll take care of returning it to Seyoung-ie myself, so you guys just hurry up and get ready to go out..."</p>
+<p>"I'll take care of returning it to Seyoung myself, so you guys just hurry up and get ready to go out..."</p>
 
 <p>"It's late! How long are you going to keep talking about such trivial things!"</p>
 
@@ -106,13 +106,13 @@ chapter = 712
 
 <p>Shiwoo spoke while pretending to shovel rice into his mouth, as if trying not to upset Mom further. At Shiwoo's exaggerated words and humorous actions, Mom stopped nagging and began to eat her rice. For a moment, only the sounds of chewing and spoons clinking echoed quietly in the living room.</p>
 
-<p>"But thinking about it, if Seyoung-ie is okay with it, I think it would be good if Mom kept wearing it from now on?"</p>
+<p>"But thinking about it, if Seyoung is okay with it, I think it would be good if Mom kept wearing it from now on?"</p>
 
 <p>Shiwoo, who had been eating quietly, opened his mouth again, murmuring as if the thought had just occurred to him.</p>
 
 <p>"I don't mind If Mom wants to use it, use it"</p>
 
-<p>Seyoung-ie picked up on Shiwoo's murmur and spoke as if she willingly consented to Mom using her item. Shiwoo cast a glance at Mom, feigning indifference while harboring a lewd expectation.</p>
+<p>Seyoung picked up on Shiwoo's murmur and spoke as if she willingly consented to Mom using her item. Shiwoo cast a glance at Mom, feigning indifference while harboring a lewd expectation.</p>
 
 <p>"Ask... later... things like that... Mom feels like she's going to die of embarrassment right now... so please spare me..."</p>
 

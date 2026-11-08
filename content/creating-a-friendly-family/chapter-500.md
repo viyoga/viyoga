@@ -72,7 +72,7 @@ chapter = 500
 
 <p>Shiwoo, collapsed on top of Mom's body, brought his lips to her ear.</p>
 
-<p>"Seonmi-ya! I'm going to take Seyoung-ie to Sehee Nuna now and will be right back! Rest like this for a bit!"</p>
+<p>"Seonmi-ya! I'm going to take Seyoung to Sehee Nuna now and will be right back! Rest like this for a bit!"</p>
 
 <p>Shiwoo speaks gently, as if whispering a secret to Mom's ear.</p>
 
@@ -98,134 +98,134 @@ chapter = 500
 
 <p>Looking down at such Mom, Shiwoo strokes his penis with his hand, heightening his excitement.</p>
 
-<p>Shiwoo now directed his stiff penis towards Seyoung-ie.</p>
+<p>Shiwoo now directed his stiff penis towards Seyoung.</p>
 
-<p>Shiwoo pulls Seyoung-ie's body, which has Mom's leg on it, downwards.</p>
+<p>Shiwoo pulls Seyoung's body, which has Mom's leg on it, downwards.</p>
 
-<p>Seyoung-ie's body, which had been lying sideways looking at Mom, also collapses as if gently unraveling backwards.</p>
+<p>Seyoung's body, which had been lying sideways looking at Mom, also collapses as if gently unraveling backwards.</p>
 
-<p>Seyoung-ie doesn't show much reaction to Shiwoo's touch now.</p>
+<p>Seyoung doesn't show much reaction to Shiwoo's touch now.</p>
 
-<p>Seyoung-ie is breathing leisurely, as if she has been freed from tension.</p>
+<p>Seyoung is breathing leisurely, as if she has been freed from tension.</p>
 
-<p>That appearance of Seyoung-ie's seems as if she has actually fallen into a deep sleep.</p>
+<p>That appearance of Seyoung's seems as if she has actually fallen into a deep sleep.</p>
 
-<p>But Shiwoo knows that Seyoung-ie isn't asleep.</p>
+<p>But Shiwoo knows that Seyoung isn't asleep.</p>
 
-<p>Because just before Shiwoo pulled his penis out of Mom, he had clearly felt Seyoung-ie gripping and kneading Mom's breast.</p>
+<p>Because just before Shiwoo pulled his penis out of Mom, he had clearly felt Seyoung gripping and kneading Mom's breast.</p>
 
-<p>Shiwoo spreads Seyoung-ie's legs apart.</p>
+<p>Shiwoo spreads Seyoung's legs apart.</p>
 
-<p>Seyoung-ie's clean crotch crack is revealed before Shiwoo's eyes.</p>
+<p>Seyoung's clean crotch crack is revealed before Shiwoo's eyes.</p>
 
 <p>The water that flowed down from the crack is pooled on the bed sheet, soaking the cloth around her pelvis.</p>
 
-<p>As expected, Seyoung-ie inherited Mom's genes as is, so the amount of water is abundant...</p>
+<p>As expected, Seyoung inherited Mom's genes as is, so the amount of water is abundant...</p>
 
-<p>Mom's leg was placed across Seyoung-ie's pelvis and thighs as if crossing them.</p>
+<p>Mom's leg was placed across Seyoung's pelvis and thighs as if crossing them.</p>
 
-<p>Shiwoo kneels between Seyoung-ie's legs and brings his face to her crotch.</p>
+<p>Shiwoo kneels between Seyoung's legs and brings his face to her crotch.</p>
 
-<p>Seyoung-ie's wet crotch is clearly visible before Shiwoo's eyes.</p>
+<p>Seyoung's wet crotch is clearly visible before Shiwoo's eyes.</p>
 
 <p>Shiwoo takes a deep breath as if smelling it.</p>
 
 <p>The faintly mixed sour smell of sweat and the lewd smell of a woman were swirling around, tempting Shiwoo.</p>
 
-<p>Mom's leg, which is placed on Seyoung-ie's body, is touching Shiwoo's head.</p>
+<p>Mom's leg, which is placed on Seyoung's body, is touching Shiwoo's head.</p>
 
-<p>After gently pushing Mom's leg up with his forehead, Shiwoo brings his face to Seyoung-ie's important area.</p>
+<p>After gently pushing Mom's leg up with his forehead, Shiwoo brings his face to Seyoung's important area.</p>
 
-<p>Seyoung-ie's pussy juice wets Shiwoo's face.</p>
+<p>Seyoung's pussy juice wets Shiwoo's face.</p>
 
 <p>"Syureuk! Syureueup! Sueup!"</p>
 
-<p>Shiwoo then stuck out his lips and licked up Seyoung-ie's flower petal flesh as if parting it.</p>
+<p>Shiwoo then stuck out his lips and licked up Seyoung's flower petal flesh as if parting it.</p>
 
-<p>The sound of Shiwoo's mouth licking Seyoung-ie's petals spreads out as if echoing in the master bedroom.</p>
+<p>The sound of Shiwoo's mouth licking Seyoung's petals spreads out as if echoing in the master bedroom.</p>
 
 <p>"Haaa...."</p>
 
-<p>Seyoung-ie's breath, exhaled violently.</p>
+<p>Seyoung's breath, exhaled violently.</p>
 
-<p>Seyoung-ie is acting as if she is unconscious, gently reacting as if complying with Shiwoo's tongue.</p>
+<p>Seyoung is acting as if she is unconscious, gently reacting as if complying with Shiwoo's tongue.</p>
 
-<p>Shiwoo pushes his face up a little more and searches for Seyoung-ie's clitoris.</p>
+<p>Shiwoo pushes his face up a little more and searches for Seyoung's clitoris.</p>
 
-<p>Soon, Seyoung-ie's protrusion was felt on the tip of Shiwoo's tongue.</p>
+<p>Soon, Seyoung's protrusion was felt on the tip of Shiwoo's tongue.</p>
 
-<p>Seyoung-ie reacts by slightly twitching her body.</p>
+<p>Seyoung reacts by slightly twitching her body.</p>
 
-<p>Shiwoo stimulates Seyoung-ie's protrusion as if gently caressing it with the tip of his tongue.</p>
+<p>Shiwoo stimulates Seyoung's protrusion as if gently caressing it with the tip of his tongue.</p>
 
-<p>Seyoung-ie endures the stimulation by gradually giving strength to her pelvis and waist.</p>
+<p>Seyoung endures the stimulation by gradually giving strength to her pelvis and waist.</p>
 
 <p>"Chyu-reup Chyu-eup Chyu-ap Hwu-eup!"</p>
 
-<p>Irregular breaths flowed out like moans from Seyoung-ie's mouth.</p>
+<p>Irregular breaths flowed out like moans from Seyoung's mouth.</p>
 
-<p>At the same time, Seyoung-ie reacts by subtly twisting her pelvis and waist.</p>
+<p>At the same time, Seyoung reacts by subtly twisting her pelvis and waist.</p>
 
 <p>Mom's leg, pushed up onto her pelvis by Shiwoo's forehead, was trembling anxiously.</p>
 
-<p>Shiwoo licks Seyoung-ie's clitoris as if crushing it, then sweeps his tongue up to Mom's calf.</p>
+<p>Shiwoo licks Seyoung's clitoris as if crushing it, then sweeps his tongue up to Mom's calf.</p>
 
-<p>Mom's leg bounces as if jumping on top of Seyoung-ie's body.</p>
+<p>Mom's leg bounces as if jumping on top of Seyoung's body.</p>
 
-<p>Shiwoo pushed Mom's leg aside and was now about to lick Seyoung-ie's clitoris in earnest.</p>
+<p>Shiwoo pushed Mom's leg aside and was now about to lick Seyoung's clitoris in earnest.</p>
 
-<p>Shiwoo completely covers Seyoung-ie's pelvis with his face.</p>
+<p>Shiwoo completely covers Seyoung's pelvis with his face.</p>
 
-<p>After spreading Seyoung-ie's flower petal flesh with his hands, Shiwoo bit down on Seyoung-ie's protruding clitoris with his front teeth.</p>
+<p>After spreading Seyoung's flower petal flesh with his hands, Shiwoo bit down on Seyoung's protruding clitoris with his front teeth.</p>
 
-<p>Shiwoo stimulates Seyoung-ie's clitoris, scraping it as if grinding it, sweeping his jaw from side to side.</p>
+<p>Shiwoo stimulates Seyoung's clitoris, scraping it as if grinding it, sweeping his jaw from side to side.</p>
 
-<p>Seyoung-ie's clitoris was being stimulated as if being bitten, caught between the sharp upper and lower teeth.</p>
+<p>Seyoung's clitoris was being stimulated as if being bitten, caught between the sharp upper and lower teeth.</p>
 
 <p>"Haaht...Haaaht! Heut! Heueue...Heut...!"</p>
 
-<p>Sounds that could finally be called moans burst out from Seyoung-ie's mouth.</p>
+<p>Sounds that could finally be called moans burst out from Seyoung's mouth.</p>
 
 <p>While maintaining the stimulation of the teeth sweeping from side to side, Shiwoo delicately rubs the upper part of Seyoung's clitoris with the tip of his tongue as if to burn it away.</p>
 
-<p>Instantly, Seyoung-ie's waist jumped up, and both legs were trembling as if not knowing what to do.</p>
+<p>Instantly, Seyoung's waist jumped up, and both legs were trembling as if not knowing what to do.</p>
 
-<p>Shiwoo intently stimulates Seyoung-ie's clitoris like that for a long time, carefully admiring her breathing.</p>
+<p>Shiwoo intently stimulates Seyoung's clitoris like that for a long time, carefully admiring her breathing.</p>
 
-<p>Seyoung-ie's body seemed to be completely relaxed enough to accept Shiwoo's thing now.</p>
+<p>Seyoung's body seemed to be completely relaxed enough to accept Shiwoo's thing now.</p>
 
-<p>Shiwoo takes his mouth off her clitoris and prepares to insert into Seyoung-ie.</p>
+<p>Shiwoo takes his mouth off her clitoris and prepares to insert into Seyoung.</p>
 
 <p>Shiwoo gets off the bed and stands with his feet on the floor, positioning himself on the side of the bed.</p>
 
-<p>Then, he puts his arms under Seyoung-ie's body and lifts her up like a princess.</p>
+<p>Then, he puts his arms under Seyoung's body and lifts her up like a princess.</p>
 
-<p>Seyoung-ie releases the strength in her body and hangs her arms down, gently complying with whatever Shiwoo does and hugging into Shiwoo's arms.</p>
+<p>Seyoung releases the strength in her body and hangs her arms down, gently complying with whatever Shiwoo does and hugging into Shiwoo's arms.</p>
 
-<p>Shiwoo then supports Seyoung-ie's buttocks and hugs Seyoung-ie as if embracing her.</p>
+<p>Shiwoo then supports Seyoung's buttocks and hugs Seyoung as if embracing her.</p>
 
-<p>Shiwoo made Seyoung-ie wrap her arms around his neck.</p>
+<p>Shiwoo made Seyoung wrap her arms around his neck.</p>
 
-<p>Then, he wraps his arms around Seyoung-ie's thighs and under her knees as if supporting them.</p>
+<p>Then, he wraps his arms around Seyoung's thighs and under her knees as if supporting them.</p>
 
-<p>Shiwoo places the tip of his huge penis across the split crack between Seyoung-ie's spread legs.</p>
+<p>Shiwoo places the tip of his huge penis across the split crack between Seyoung's spread legs.</p>
 
-<p>Perhaps anticipating what will happen from now on, Seyoung-ie's body was trembling finely.</p>
+<p>Perhaps anticipating what will happen from now on, Seyoung's body was trembling finely.</p>
 
 <p>A lot of strength goes into her arms, which are wrapped around Shiwoo's neck.</p>
 
-<p>Shiwoo releases the strength in his arms that were supporting Seyoung-ie as is and drops Seyoung-ie's body downwards, and at the same time, he stabs the penis, whose tip was fitted in, into her body.</p>
+<p>Shiwoo releases the strength in his arms that were supporting Seyoung as is and drops Seyoung's body downwards, and at the same time, he stabs the penis, whose tip was fitted in, into her body.</p>
 
 <p>Ssupeok!!</p>
 
-<p>Shiwoo's penis penetrates deeply into Seyoung-ie's body.</p>
+<p>Shiwoo's penis penetrates deeply into Seyoung's body.</p>
 
 <p>"Haeueueueeut!"</p>
 
-<p>Seyoung-ie's moan burst out like an exclamation.</p>
+<p>Seyoung's moan burst out like an exclamation.</p>
 
-<p>Seyoung-ie's soft inner flesh, as if surprised, squeezes and wraps around Shiwoo's penis.</p>
+<p>Seyoung's soft inner flesh, as if surprised, squeezes and wraps around Shiwoo's penis.</p>
 
 <p>A spine-chillingly intense thrill of pleasure was rippling through Shiwoo's body.</p>
 
-<p>Shiwoo is putting his huge penis inside Seyoung-ie's hole.</p>
+<p>Shiwoo is putting his huge penis inside Seyoung's hole.</p>
