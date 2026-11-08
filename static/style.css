@@ -151,6 +151,8 @@ html.lenis, html.lenis body { height: auto; }
   --glass-bg-elev: linear-gradient(135deg, rgba(255, 255, 255, 0.08) 0%, rgba(255, 255, 255, 0.02) 40%, color-mix(in srgb, var(--bg-panel) 48%, transparent) 100%);
   --glass-bg-strong: color-mix(in srgb, var(--bg-panel) 82%, transparent);
   --glass-blur: 12px;
+  --liquid-glass-blur: 16px;
+  --liquid-glass-saturate: 180%;
   --glass-hi: color-mix(in srgb, var(--fg) 28%, transparent);
   --glass-bevel-top: inset 0 1px 0 0 var(--glass-hi);
   --glass-bevel-ring: inset 0 0 0 1px color-mix(in srgb, var(--fg) 9%, transparent);
@@ -4301,5 +4303,59 @@ nav.top .logo:focus-visible,
   .terminal, .playlist, .code-block {
     box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom),
                 0 16px 44px -34px color-mix(in srgb, var(--flare-bloom) 45%, transparent);
+  }
+}
+
+nav.top,
+.terminal,
+.section-heading,
+.section-badge,
+.novel-card,
+.playlist,
+.stack-card,
+.code-block,
+.stat-card,
+.page-header h2,
+body.chapter-page .chapter-bar,
+.chapter-bar-index,
+.chapter-bar-arrow,
+.chapter-bar-tools,
+.chapter-settings,
+.chapter-card,
+.chapter-grid .grid-item,
+.page-nav a,
+.dict-result,
+.dict-skeleton-result,
+.dict-meaning-item,
+.dict-audio,
+.dict-pos,
+.dict-phonetic,
+.novel-tag,
+.stack-card .kicker,
+.type-toolbar,
+.type-stat,
+.type-hero-stat,
+.sub-stat,
+.type-graph-container,
+.type-error-review,
+.compress-drop,
+.compress-result-block,
+.studio-panel,
+.studio-drop,
+.studio-result,
+.studio-warn,
+.walldiff-drop,
+.novel-hero-quote,
+.ft-surface-inner,
+.ft-masthead,
+.conn-notice {
+  -webkit-backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate));
+  backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate));
+}
+
+@media (min-width: 769px) {
+  .chapter-body {
+    -webkit-backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate));
+    backdrop-filter: blur(var(--liquid-glass-blur)) saturate(var(--liquid-glass-saturate));
   }
 }

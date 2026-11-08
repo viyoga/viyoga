@@ -23,8 +23,8 @@ body.ft-page .back-link {
   padding: 22px 26px 26px;
   background: var(--glass-bg);
   background-image: none;
-  backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-  -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
+  backdrop-filter: blur(var(--liquid-glass-blur, 16px)) saturate(var(--liquid-glass-saturate, 180%));
+  -webkit-backdrop-filter: blur(var(--liquid-glass-blur, 16px)) saturate(var(--liquid-glass-saturate, 180%));
   border: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
   box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
 }
@@ -35,8 +35,8 @@ body.ft-page .back-link {
   padding: 22px 26px 24px;
   background: var(--glass-bg);
   background-image: none;
-  backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-  -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
+  backdrop-filter: blur(var(--liquid-glass-blur, 16px)) saturate(var(--liquid-glass-saturate, 180%));
+  -webkit-backdrop-filter: blur(var(--liquid-glass-blur, 16px)) saturate(var(--liquid-glass-saturate, 180%));
   border: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
   box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
 }
@@ -456,8 +456,8 @@ body.ft-page .back-link {
     padding: 13px 15px 15px;
     background: var(--glass-bg);
     background-image: none;
-    backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
-    -webkit-backdrop-filter: blur(var(--glass-blur)) saturate(var(--sat, 155%));
+    backdrop-filter: blur(var(--liquid-glass-blur, 16px)) saturate(var(--liquid-glass-saturate, 180%));
+    -webkit-backdrop-filter: blur(var(--liquid-glass-blur, 16px)) saturate(var(--liquid-glass-saturate, 180%));
     border: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
     box-shadow: var(--glass-shadow), var(--glass-bevel-top), var(--glass-bevel-bottom);
   }
@@ -499,8 +499,8 @@ body.ft-page .back-link {
     gap: 8px;
     padding: 10px 0;
     background: color-mix(in srgb, var(--bg) 96%, transparent);
-    backdrop-filter: blur(18px) saturate(var(--sat, 155%));
-    -webkit-backdrop-filter: blur(18px) saturate(var(--sat, 155%));
+    backdrop-filter: blur(var(--liquid-glass-blur, 16px)) saturate(var(--liquid-glass-saturate, 180%));
+    -webkit-backdrop-filter: blur(var(--liquid-glass-blur, 16px)) saturate(var(--liquid-glass-saturate, 180%));
     border-bottom: 1px solid color-mix(in srgb, var(--fg) 14%, transparent);
     box-shadow: 0 10px 24px rgba(0, 0, 0, 0.28);
   }
