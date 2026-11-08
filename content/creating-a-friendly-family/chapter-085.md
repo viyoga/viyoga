@@ -246,7 +246,15 @@ chapter = 85
 
 <p>"Then I'm going to put it in now, Seonju..."</p>
 
-<p>Shiwoo now called Seonju Imo simply "Seonju," dropping the honorific "Imo" as if addressing someone beneath him.</p>
+<p>Shiwoo now called Seonju Imo simply</p>
+
+<p>"Seonju,"</p>
+
+<p>dropping the honorific</p>
+
+<p>"Imo"</p>
+
+<p>as if addressing someone beneath him.</p>
 
 <p>Shiwoo slightly lifted Seonju Imo's pelvis to create a position that made insertion easier.</p>
 

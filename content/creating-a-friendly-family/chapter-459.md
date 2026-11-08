@@ -136,7 +136,11 @@ chapter = 459
 
 <p>Shiwoo takes a deep breath and takes out a Monami ballpoint pen from the pencil holder on the desk.</p>
 
-<p>Shiwoo pulls the contract with "Groom's Side" written in parentheses next to the title from among the two copies of the contract on the desk towards himself.</p>
+<p>Shiwoo pulls the contract with</p>
+
+<p>"Groom's Side"</p>
+
+<p>written in parentheses next to the title from among the two copies of the contract on the desk towards himself.</p>
 
 <p>Shiwoo fills in his name in the empty space on the groom's side marriage contract.</p>
 

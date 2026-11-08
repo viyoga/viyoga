@@ -38,7 +38,11 @@ chapter = 666
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo continued to examine the documents. What came next was a paper with the title "Will" printed at the top. The name of the testator was 'Yu Jin-seong'... It was none other than Dad's will.</p>
+<p>Shiwoo continued to examine the documents. What came next was a paper with the title</p>
+
+<p>"Will"</p>
+
+<p>printed at the top. The name of the testator was 'Yu Jin-seong'... It was none other than Dad's will.</p>
 
 <p>At the top of the document, his father's name 'Yu Jin-seong' was written along with his date of birth and address. Looking at the date of preparation, it seemed to have been written long before his father passed away. Below that, details regarding the inherited property were written in dense detail.</p>
 

@@ -22,17 +22,27 @@ chapter = 598
 
 <p>"What?" Sejin Nuna asked Shiwoo back, looking puzzled.</p>
 
-<p>"That..." Shiwoo pointed at her swollen belly with his finger.</p>
+<p>"That..."</p>
 
-<p>"Ah~ The pregnancy? Yeah. He knew... because I told Dad first about being pregnant." Sejin Nuna answered Shiwoo's question naturally, as if stating the obvious.</p>
+<p>Shiwoo pointed at her swollen belly with his finger.</p>
 
-<p>"What did Dad say?" Shiwoo asked, curious about Dad's reaction at the time he learned of Sejin Nuna's pregnancy.</p>
+<p>"Ah~ The pregnancy? Yeah. He knew... because I told Dad first about being pregnant."</p>
 
-<p>"He didn't show much on the outside... but I got the feeling he was secretly happy?" Sejin Nuna spoke slowly, blushing shyly as if recalling a memory.</p>
+<p>Sejin Nuna answered Shiwoo's question naturally, as if stating the obvious.</p>
+
+<p>"What did Dad say?"</p>
+
+<p>Shiwoo asked, curious about Dad's reaction at the time he learned of Sejin Nuna's pregnancy.</p>
+
+<p>"He didn't show much on the outside... but I got the feeling he was secretly happy?"</p>
+
+<p>Sejin Nuna spoke slowly, blushing shyly as if recalling a memory.</p>
 
 <p>The fact that the child Sejin Nuna carried in her womb was Dad's child had now become an obvious truth between the two of them, no longer needing to be avoided.</p>
 
-<p>"I see... Dad too..." Shiwoo answered calmly, trailing off his words, as if slowly replaying the romantic relationship between Sejin Nuna and Dad, and the circumstances surrounding the pregnancy.</p>
+<p>"I see... Dad too..."</p>
+
+<p>Shiwoo answered calmly, trailing off his words, as if slowly replaying the romantic relationship between Sejin Nuna and Dad, and the circumstances surrounding the pregnancy.</p>
 
 <p>No regret or embarrassment could be found in Sejin Nuna's expression.</p>
 
@@ -42,17 +52,25 @@ chapter = 598
 
 <p>Only the faint sound emanating from the TV quietly filled the space.</p>
 
-<p>"Want me to tell you something interesting? This place, actually, Dad was using it before I moved in." At the end of the brief silence, Sejin Nuna suddenly revealed a seemingly out-of-the-blue fact to Shiwoo.</p>
+<p>"Want me to tell you something interesting? This place, actually, Dad was using it before I moved in."</p>
 
-<p>"What?" Shiwoo asked back, a bewildered expression on his face, as if he didn't understand what Sejin Nuna was suddenly talking about.</p>
+<p>At the end of the brief silence, Sejin Nuna suddenly revealed a seemingly out-of-the-blue fact to Shiwoo.</p>
 
-<p>"This place... Dad used it when he met 'those people'..." Sejin Nuna suddenly lowered her voice, brought a hand to her mouth, and spoke in a whisper.</p>
+<p>"What?"</p>
+
+<p>Shiwoo asked back, a bewildered expression on his face, as if he didn't understand what Sejin Nuna was suddenly talking about.</p>
+
+<p>"This place... Dad used it when he met 'those people'..."</p>
+
+<p>Sejin Nuna suddenly lowered her voice, brought a hand to her mouth, and spoke in a whisper.</p>
 
 <p>Even though it was just the two of them alone in the officetel's studio apartment, Sejin Nuna, winking as if being careful not to be overheard by anyone and conveying a secret, felt incredibly cute.</p>
 
 <p>At the words 'those people', Shiwoo seemed to vaguely understand what Sejin Nuna was trying to say.</p>
 
-<p>"H-here?" Shiwoo looked around once more, reacting as if deliberately a little flustered.</p>
+<p>"H-here?"</p>
+
+<p>Shiwoo looked around once more, reacting as if deliberately a little flustered.</p>
 
 <p>According to Sejin Nuna's words, Dad had probably often met with the group members or slaves here, either individually or in groups.</p>
 
@@ -62,39 +80,63 @@ chapter = 598
 
 <p>Shiwoo, looking around anew with slightly bewildered eyes, was surprised.</p>
 
-<p>"Want me to tell you another interesting thing?" As if determined to surprise Shiwoo once more, Sejin Nuna slowly opened her mouth, a smile playing on her lips.</p>
+<p>"Want me to tell you another interesting thing?"</p>
+
+<p>As if determined to surprise Shiwoo once more, Sejin Nuna slowly opened her mouth, a smile playing on her lips.</p>
 
 <p>Her voice was low and soft, echoing through the studio apartment as if ready to share another secret.</p>
 
-<p>"Another interesting thing? What is it?" Shiwoo, swallowing his still-unresolved bewilderment, was questioning Sejin Nuna.</p>
+<p>"Another interesting thing? What is it?"</p>
 
-<p>"Actually... this is my second time..." Sejin Nuna spoke, her voice slightly flushed as if revealing a shy past, while caressing her belly.</p>
+<p>Shiwoo, swallowing his still-unresolved bewilderment, was questioning Sejin Nuna.</p>
 
-<p>"What?!" Shiwoo, as if his mind couldn't keep up with Sejin Nuna's words, looked at her with a bewildered expression again and asked back.</p>
+<p>"Actually... this is my second time..."</p>
 
-<p>"I mean, being pregnant with Dad's baby... this is the second time... I was pregnant once before too..." This time, Sejin Nuna spoke slowly and clearly, organizing her words to make it easier for Shiwoo to understand, as if unraveling a story.</p>
+<p>Sejin Nuna spoke, her voice slightly flushed as if revealing a shy past, while caressing her belly.</p>
+
+<p>"What?!"</p>
+
+<p>Shiwoo, as if his mind couldn't keep up with Sejin Nuna's words, looked at her with a bewildered expression again and asked back.</p>
+
+<p>"I mean, being pregnant with Dad's baby... this is the second time... I was pregnant once before too..."</p>
+
+<p>This time, Sejin Nuna spoke slowly and clearly, organizing her words to make it easier for Shiwoo to understand, as if unraveling a story.</p>
 
 <p>"W-when?" Shiwoo asked, genuinely flustered by Sejin Nuna's confession.</p>
 
-<p>"It was several years ago... when you, Shiwoo, were about 100 years old? Because I was a mid-level academy student then..." Sejin Nuna casually brought up her past, as if opening an old diary.</p>
+<p>"It was several years ago... when you, Shiwoo, were about 100 years old? Because I was a mid-level academy student then..."</p>
+
+<p>Sejin Nuna casually brought up her past, as if opening an old diary.</p>
 
 <p>"...If I was 100, that's 50 years ago, isn't it?" Shiwoo muttered to himself, as if disbelieving.</p>
 
-<p>"Yeah... probably around then..." Sejin Nuna acknowledged Shiwoo's muttering, answering with a slightly wistful smile.</p>
+<p>"Yeah... probably around then..."</p>
 
-<p>"D-did you... give birth?" Shiwoo barely managed to speak, asking again cautiously.</p>
+<p>Sejin Nuna acknowledged Shiwoo's muttering, answering with a slightly wistful smile.</p>
+
+<p>"D-did you... give birth?"</p>
+
+<p>Shiwoo barely managed to speak, asking again cautiously.</p>
 
 <p>Sejin Nuna gently shook her head.</p>
 
 <p>Shiwoo exhaled a sigh of relief, yet at the same time, felt a strong, inexplicable sense of regret.</p>
 
-<p>"I wanted to give birth, but there was strong opposition... especially from Mom..." Sejin Nuna spoke with a faint expression, as if recalling old memories.</p>
+<p>"I wanted to give birth, but there was strong opposition... especially from Mom..."</p>
 
-<p>"Mom? Even when you were pregnant during your mid-level academy days, Mom knew about it?" When Mom was mentioned, Shiwoo raised an eyebrow and asked curiously.</p>
+<p>Sejin Nuna spoke with a faint expression, as if recalling old memories.</p>
 
-<p>"Of course she knew... Mom was the one who made Dad and me like that..." Sejin Nuna casually uttered a shocking piece of information.</p>
+<p>"Mom? Even when you were pregnant during your mid-level academy days, Mom knew about it?"</p>
 
-<p>"Even on the day I got pregnant, Mom was watching right next to us? Although she vehemently opposed me giving birth in the end..." Her voice was calm, but the weight hidden within her words pressed heavily on Shiwoo's chest.</p>
+<p>When Mom was mentioned, Shiwoo raised an eyebrow and asked curiously.</p>
+
+<p>"Of course she knew... Mom was the one who made Dad and me like that..."</p>
+
+<p>Sejin Nuna casually uttered a shocking piece of information.</p>
+
+<p>"Even on the day I got pregnant, Mom was watching right next to us? Although she vehemently opposed me giving birth in the end..."</p>
+
+<p>Her voice was calm, but the weight hidden within her words pressed heavily on Shiwoo's chest.</p>
 
 <p>Shiwoo couldn't properly react to her astonishing story.</p>
 
@@ -104,7 +146,9 @@ chapter = 598
 
 <p>"If Dad had simply ordered Mom to accept it, it might have been resolved easily..."</p>
 
-<p>"Dad also seemed to be worried about me giving birth and raising a baby at such a young age." Sejin Nuna, with a quiet voice, unraveled the complex feelings she had experienced, speaking as if reminiscing about the situation at that time.</p>
+<p>"Dad also seemed to be worried about me giving birth and raising a baby at such a young age."</p>
+
+<p>Sejin Nuna, with a quiet voice, unraveled the complex feelings she had experienced, speaking as if reminiscing about the situation at that time.</p>
 
 <p>"Under Mom's coercive persuasion to abort the baby, I threw a fit for several days, crying and screaming!"</p>
 
@@ -150,10 +194,14 @@ chapter = 598
 
 <p>"Are you okay...?" Shiwoo asked cautiously, as if concerned about Sejin Nuna's state.</p>
 
-<p>"Instead~ from that day on, I could openly seduce Dad at home~!" She smiled lightly, as if recalling her appearance from that time.</p>
+<p>"Instead~ from that day on, I could openly seduce Dad at home~!"</p>
+
+<p>She smiled lightly, as if recalling her appearance from that time.</p>
 
 <p>"I used to walk around in just my underwear even when Mom or you guys were there?..."</p>
 
 <p>"And after showering, of course, I'd walk around completely bare-chested~ Remember?"</p>
 
-<p>"But Mom couldn't say anything to me? She probably still can't? Isn't it funny~?" Instead of answering Shiwoo's question about whether she was okay, Sejin Nuna changed the atmosphere, recounting her adorable revenge against Mom at the time like a heroic tale.</p>
+<p>"But Mom couldn't say anything to me? She probably still can't? Isn't it funny~?"</p>
+
+<p>Instead of answering Shiwoo's question about whether she was okay, Sejin Nuna changed the atmosphere, recounting her adorable revenge against Mom at the time like a heroic tale.</p>

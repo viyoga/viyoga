@@ -36,7 +36,11 @@ chapter = 486
 
 <p>Mom shouted Shiwoo's name urgently, as if agitated, with a voice filled with emotion.</p>
 
-<p>Mom, who had been calling Shiwoo "Yeobo" until now, was calling him by his name as soon as Seyoung arrived.</p>
+<p>Mom, who had been calling Shiwoo</p>
+
+<p>"Yeobo"</p>
+
+<p>until now, was calling him by his name as soon as Seyoung arrived.</p>
 
 <p>Shiwoo understood Mom's situation well enough, but at the same time, he felt a strange sense of resentment.</p>
 

@@ -24,7 +24,11 @@ chapter = 672
 
 <p>Siu spoke while applying pressure with his hands to squeeze Sua's knees inward once more.</p>
 
-<p>It wasn't clear if the "this" he warned her not to let fall referred to the sushi on her thighs or her knees that he had just pushed together.</p>
+<p>It wasn't clear if the</p>
+
+<p>"this"</p>
+
+<p>he warned her not to let fall referred to the sushi on her thighs or her knees that he had just pushed together.</p>
 
 <p>However, Sua tensed her entire body as if she were focusing on both at the same time.</p>
 

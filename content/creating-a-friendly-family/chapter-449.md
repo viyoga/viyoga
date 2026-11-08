@@ -78,7 +78,11 @@ chapter = 449
 
 <p>As expected, Sehee Nuna had already soaked her crotch and thighs completely with her vaginal fluid.</p>
 
-<p>The tattoo "BS" is clearly visible on the skin inside Sehee Nuna's thigh, covered in vaginal fluid.</p>
+<p>The tattoo</p>
+
+<p>"BS"</p>
+
+<p>is clearly visible on the skin inside Sehee Nuna's thigh, covered in vaginal fluid.</p>
 
 <p>The initial tattoo of Sinbi Nuna, who lost her virginity to Shiwoo today.</p>
 

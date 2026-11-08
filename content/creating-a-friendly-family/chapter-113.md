@@ -256,7 +256,9 @@ chapter = 113
 
 <p>Sehee Nuna answers, enduring the humiliation.</p>
 
-<p>As if making her aware of the fact that she could be reduced to a plaything at any time even in everyday life, Shiwoo was continuing the humiliating physical punishment while calling Sehee Nuna "Nuna."</p>
+<p>As if making her aware of the fact that she could be reduced to a plaything at any time even in everyday life, Shiwoo was continuing the humiliating physical punishment while calling Sehee Nuna</p>
+
+<p>"Nuna."</p>
 
 <p>-Chall-ssak!!</p>
 

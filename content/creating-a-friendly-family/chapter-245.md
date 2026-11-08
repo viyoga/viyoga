@@ -184,7 +184,11 @@ chapter = 245
 
 <p>Seonju Imo was asking as if she was wondering at Shiwoo's command.</p>
 
-<p>'Yes, from now on, put the title "-nim" after Sua's name and treat her with the utmost respect, as if you were treating a superior!'</p>
+<p>'Yes, from now on, put the title</p>
+
+<p>"-nim"</p>
+
+<p>after Sua's name and treat her with the utmost respect, as if you were treating a superior!'</p>
 
 <p>Shiwoo was ordering, imagining the image of Seonju Imo being disciplined while holding her daughter's leash.</p>
 

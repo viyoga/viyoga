@@ -16,7 +16,9 @@ chapter = 662
 
 <p>Exposing her body without any hesitation, Seyoung asked as she approached the spot where Shiwoo stood...</p>
 
-<p>The heat from her recent shower and the scent of soap still lingered on Seyoung's skin, and her slightly damp hair trailed down her shoulder line, softly tickling the upper part of her breasts. Although they had already seen each other's naked bodies quite a few times, her seductive curves still came to Shiwoo as a fresh stimulus. Her breasts were swelling quite plumply, finding their place, and her soft skin, holding a bit of moisture, was faintly revealed over the curves of her breasts. The pelvis leading down from her slender waist spread out in a soft curve, and the crevice between her thighs was naturally exposed.</p>
+<p>The heat from her recent shower and the scent of soap still lingered on Seyoung's skin, and her slightly damp hair trailed down her shoulder line, softly tickling the upper part of her breasts. Although they had already seen each other's naked bodies quite a few times, her seductive curves still came to Shiwoo as a fresh stimulus. Her breasts were swelling quite plumply, finding their place, and her soft skin, holding a bit of moisture, was faintly revealed over the curves of her breasts.</p>
+
+<p>The pelvis leading down from her slender waist spread out in a soft curve, and the crevice between her thighs was naturally exposed.</p>
 
 <p>"Uh... I talked with Sua for a bit about this and that... Just a few things that came to mind..."</p>
 

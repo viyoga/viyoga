@@ -40,7 +40,11 @@ chapter = 456
 
 <p>"Lewd ones are okay too, right? Haa-eut... s-something that shows all my b-breasts and buttocks! T-to show our Master-nim... because I'll only wear it at home... Haa-euuuu..."</p>
 
-<p>Conversely, Sehee Nuna was speaking to Shiwoo using the honorific "our Master-nim" and respectful speech, as if completely disregarding and lowering Mom's authority.</p>
+<p>Conversely, Sehee Nuna was speaking to Shiwoo using the honorific</p>
+
+<p>"our Master-nim"</p>
+
+<p>and respectful speech, as if completely disregarding and lowering Mom's authority.</p>
 
 <p>While speaking words close to obscenity to Mom, Sehee Nuna's vaginal muscles were trembling as if in a spasm.</p>
 

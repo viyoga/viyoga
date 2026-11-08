@@ -86,9 +86,15 @@ chapter = 823
 
 <p>"That day... you were with *him*, right? With my husband/master..."</p>
 
-<p>Siu recalled Yuna explaining that "him/husband" referred to her late brother, husband, and master—Siu's father, Yoo Jin-sung.</p>
+<p>Siu recalled Yuna explaining that</p>
 
-<p>"That day" must refer to a time when his father was still alive, months or years ago.</p>
+<p>"him/husband"</p>
+
+<p>referred to her late brother, husband, and master—Siu's father, Yoo Jin-sung.</p>
+
+<p>"That day"</p>
+
+<p>must refer to a time when his father was still alive, months or years ago.</p>
 
 <p>A cold sweat broke over Siu's spine.</p>
 

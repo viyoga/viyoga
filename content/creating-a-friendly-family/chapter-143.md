@@ -122,7 +122,11 @@ chapter = 143
 
 <p>At that moment, an even greater current than before vibrated and echoed down Shiwoo's spine to the tip of his penis.</p>
 
-<p>Was she upset by the words "second wife"?</p>
+<p>Was she upset by the words</p>
+
+<p>"second wife"</p>
+
+<p>?</p>
 
 <p>It seemed that Shiwoo's words had triggered Mom, who was trying to maintain her composure, into a fit of rage and excitement.</p>
 
@@ -134,13 +138,23 @@ chapter = 143
 
 <p>Shiwoo says that to Mom and opens the address book screen on his smartphone.</p>
 
-<p>Shiwoo finds Mom's name, which is saved as "Female Slave [ㅅㅁ]", and touches it.</p>
+<p>Shiwoo finds Mom's name, which is saved as</p>
+
+<p>"Female Slave [ㅅㅁ]"</p>
+
+<p>, and touches it.</p>
 
 <p>Shiwoo presses the edit button and adds a word.</p>
 
 <p>,Main Wife &amp; Female Slave [ㅅㅁ],</p>
 
-<p>The word "Main Wife" had been added in front of "Female Slave", which was Mom's saved name.</p>
+<p>The word</p>
+
+<p>"Main Wife" had been added in front of</p>
+
+<p>"Female Slave"</p>
+
+<p>, which was Mom's saved name.</p>
 
 <p>Shiwoo captures the smartphone screen and sends it to Mom.</p>
 

@@ -44,7 +44,9 @@ chapter = 709
 
 <p>The memories of last night felt as distant as a dream, yet they were engraved upon Shiwoo's flesh and skin with a vividness that felt tangible.</p>
 
-<p>Shiwoo rubbed his eyes open and turned his body, looking toward Seyoung with a sense of "surely not."</p>
+<p>Shiwoo rubbed his eyes open and turned his body, looking toward Seyoung with a sense of</p>
+
+<p>"surely not."</p>
 
 <p>Seyoung was standing next to Shiwoo's bed with her bare skin fully exposed, holding the edge of the blanket he was covered with.</p>
 

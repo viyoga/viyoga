@@ -114,7 +114,9 @@ chapter = 95
 
 <p>Shiwoo, panting as if he were dying, struggling physically even with morning jogging.</p>
 
-<p>In front of him, Sehee Nuna was talking about the guys who would be at the blind date, calling them "athletic Oppa-s."</p>
+<p>In front of him, Sehee Nuna was talking about the guys who would be at the blind date, calling them</p>
+
+<p>"athletic Oppa-s."</p>
 
 <p>Shiwoo felt an unnecessary sense of displeasure.</p>
 

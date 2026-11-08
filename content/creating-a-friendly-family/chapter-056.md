@@ -4,35 +4,57 @@ weight = 56
 [extra]
 chapter = 56
 +++
-<p>"Shiwoo, I have something to tell you." After walking silently for a long time, as they passed the public restroom in the park in front of their house, Sehee Nuna cautiously opened her mouth. -The public restroom in that park where Sehee Nuna had first handed him her wet panties-</p>
+<p>"Shiwoo, I have something to tell you."</p>
 
-<p>"What is it?" Shiwoo, who had been imagining the lewd acts he would commit with Sehee Nuna in the empty house later, was walking, barely calming his pounding, nervous chest, when he answered Sehee Nuna's words as if reacting instinctively.</p>
+<p>After walking silently for a long time, as they passed the public restroom in the park in front of their house, Sehee Nuna cautiously opened her mouth. -The public restroom in that park where Sehee Nuna had first handed him her wet panties-</p>
 
-<p>"When we go home now... Mom and Seyoung won't be back for a while, so it'll just be the two of us, right?!" Sehee Nuna's words, as if she was considering having sex with Shiwoo, were a question to Shiwoo, as if confirming the situations that would unfold.</p>
+<p>"What is it?"</p>
+
+<p>Shiwoo, who had been imagining the lewd acts he would commit with Sehee Nuna in the empty house later, was walking, barely calming his pounding, nervous chest, when he answered Sehee Nuna's words as if reacting instinctively.</p>
+
+<p>"When we go home now... Mom and Seyoung won't be back for a while, so it'll just be the two of us, right?!"</p>
+
+<p>Sehee Nuna's words, as if she was considering having sex with Shiwoo, were a question to Shiwoo, as if confirming the situations that would unfold.</p>
 
 <p>"U-uh... yeah..." Shiwoo answered with a trembling voice.</p>
 
-<p>"What are you going to do when Mom and Seyoung come back later? Aren't you worried?" Sehee Nuna asked, as if concerned about the relationship between the two of them that would soon be overturned.</p>
+<p>"What are you going to do when Mom and Seyoung come back later? Aren't you worried?"</p>
 
-<p>"We can think about that when the time comes, why worry about it now?" Perhaps due to the confidence gained from having sex with Mom, Shiwoo answered Sehee Nuna without a hint of hesitation.</p>
+<p>Sehee Nuna asked, as if concerned about the relationship between the two of them that would soon be overturned.</p>
 
-<p>"Haa~~" Sehee Nuna let out a deep sigh, as if Shiwoo's confident attitude was rather perplexing.</p>
+<p>"We can think about that when the time comes, why worry about it now?"</p>
+
+<p>Perhaps due to the confidence gained from having sex with Mom, Shiwoo answered Sehee Nuna without a hint of hesitation.</p>
+
+<p>"Haa~~"</p>
+
+<p>Sehee Nuna let out a deep sigh, as if Shiwoo's confident attitude was rather perplexing.</p>
 
 <p>"I've been thinking, we shouldn't cheat." Sehee Nuna's words continued with a hint of regret.</p>
 
-<p>"What?" Shiwoo's reaction, as if he didn't understand.</p>
+<p>"What?"</p>
+
+<p>Shiwoo's reaction, as if he didn't understand.</p>
 
 <p>"You said it earlier at the department store, that even if you get a girlfriend later, we could just consider it secretly cheating, right? But I don't think we should do that..."</p>
 
 <p>"Why?" Shiwoo asked with a slightly annoyed tone.</p>
 
-<p>"Isn't that obvious?! Originally, we shouldn't even be doing things like this~" Sehee Nuna was speaking as if admonishing Shiwoo.</p>
+<p>"Isn't that obvious?! Originally, we shouldn't even be doing things like this~"</p>
 
-<p>"I don't care, I told you? Do you dislike it, Nuna?" Shiwoo was speaking as if pressuring and being stubborn.</p>
+<p>Sehee Nuna was speaking as if admonishing Shiwoo.</p>
 
-<p>"Haaah~~" Sehee Nuna let out another long sigh, and continued speaking as if admonishing her younger brother.</p>
+<p>"I don't care, I told you? Do you dislike it, Nuna?"</p>
 
-<p>"I wish you'd get a girlfriend soon, Shiwoo... I don't care if I get scolded, I just want Mom to go back to normal... Right now, you and Mom are too weird! Seyoung is at home too... Sejin Unnie will be back too... How are you going to face the family later? So, before Mom comes home, you need to quickly get a girlfriend and think about ending all this! And stop talking nonsense about secretly cheating!" After speaking, Sehee Nuna's face was flushed red as if embarrassed.</p>
+<p>Shiwoo was speaking as if pressuring and being stubborn.</p>
+
+<p>"Haaah~~"</p>
+
+<p>Sehee Nuna let out another long sigh, and continued speaking as if admonishing her younger brother.</p>
+
+<p>"I wish you'd get a girlfriend soon, Shiwoo... I don't care if I get scolded, I just want Mom to go back to normal... Right now, you and Mom are too weird! Seyoung is at home too... Sejin Unnie will be back too... How are you going to face the family later? So, before Mom comes home, you need to quickly get a girlfriend and think about ending all this! And stop talking nonsense about secretly cheating!"</p>
+
+<p>After speaking, Sehee Nuna's face was flushed red as if embarrassed.</p>
 
 <p>Sehee Nuna was speaking as if the relationship between Shiwoo and Mom, and the sexual encounter between herself and Shiwoo that would happen tonight, were already established facts. At Sehee Nuna's words, which were tantamount to a conditional, temporary acceptance, Shiwoo secretly breathed a sigh of relief. Fortunately, Sehee Nuna's words did not mean that she wouldn't have sex with Shiwoo tonight.</p>
 
@@ -42,7 +64,9 @@ chapter = 56
 
 <p>Shiwoo approached Sehee Nuna, who was blushing. And he gently placed his hand on Sehee Nuna's head, stroking it softly.</p>
 
-<p>"It's okay, I'll never make you regret it, Nuna~!!" Shiwoo said, looking at Sehee Nuna with serious eyes, as if making a promise to himself.</p>
+<p>"It's okay, I'll never make you regret it, Nuna~!!"</p>
+
+<p>Shiwoo said, looking at Sehee Nuna with serious eyes, as if making a promise to himself.</p>
 
 <p>Sehee Nuna felt as if she had received a confession, and after looking into Shiwoo's eyes, she quickly lowered her head shyly.</p>
 
@@ -50,7 +74,9 @@ chapter = 56
 
 <p class="scene-break">· · ·</p>
 
-<p>"Earlier... on the train... that thing... you know...?" Sehee Nuna started speaking again, stammering and pausing intermittently. Sehee Nuna seemed to be trying to explain the secret words Shiwoo had written.</p>
+<p>"Earlier... on the train... that thing... you know...?"</p>
+
+<p>Sehee Nuna started speaking again, stammering and pausing intermittently. Sehee Nuna seemed to be trying to explain the secret words Shiwoo had written.</p>
 
 <p>-As if she thought Shiwoo already knew all the details of her secrets-</p>
 
@@ -72,11 +98,15 @@ chapter = 56
 
 <p>Shiwoo gently stroked Sehee Nuna's head while waiting for Sehee Nuna's words to follow.</p>
 
-<p>"I... with a man... this is... my first time..." Sehee Nuna suddenly confessed something to Shiwoo.</p>
+<p>"I... with a man... this is... my first time..."</p>
+
+<p>Sehee Nuna suddenly confessed something to Shiwoo.</p>
 
 <p>-As if asserting the innocence of her virginity to her own brother, with whom she would soon share a physical relationship-</p>
 
-<p>"With Sinbi, it started out of curiosity, and somehow it just happened that way... But we agreed that our relationships with men would be separate..." At the end of escalating physical arousal and growing internal conflict and anguish, Sehee Nuna seemed to have decided to confess the intimate details of her relationship with Sinbi Nuna to Shiwoo.</p>
+<p>"With Sinbi, it started out of curiosity, and somehow it just happened that way... But we agreed that our relationships with men would be separate..."</p>
+
+<p>At the end of escalating physical arousal and growing internal conflict and anguish, Sehee Nuna seemed to have decided to confess the intimate details of her relationship with Sinbi Nuna to Shiwoo.</p>
 
 <p>Shiwoo, who was listening to Sehee Nuna's story, suddenly felt a surge of sadistic desire for pleasure towards Sehee Nuna.</p>
 
@@ -94,17 +124,23 @@ chapter = 56
 
 <p class="scene-break">· · ·</p>
 
-<p>"W-wait, what are you doing?" "Talk about that later!!!"</p>
+<p>"W-wait, what are you doing?"</p>
+
+<p>"Talk about that later!!!"</p>
 
 <p>Shiwoo violently pushed Sehee Nuna against the restroom wall. Then, pressing his body against hers as if pinning her to the wall, he began to kiss her roughly, sucking at her mouth.</p>
 
-<p>"Ueup, ueup..." Sehee Nuna did not resist her brother's forceful pressure, but instead relaxed her body and surrendered to him.</p>
+<p>"Ueup, ueup..."</p>
+
+<p>Sehee Nuna did not resist her brother's forceful pressure, but instead relaxed her body and surrendered to him.</p>
 
 <p>Shiwoo's penis, stretching from Sehee Nuna's crotch up to her belly and beneath her breasts, was rubbing up and down as if it would pierce her body.</p>
 
 <p>Shiwoo grabbed Sehee Nuna's breasts over her clothes. After repeatedly squeezing and releasing them a few times, he gripped Sehee Nuna's hard, erect, protruding nipple with his thumb and forefinger, twisting it slightly.</p>
 
-<p>"A-aaah~ Ueup" Sehee Nuna's lips, pressed against Shiwoo's, let out her seductive moaning sound.</p>
+<p>"A-aaah~ Ueup"</p>
+
+<p>Sehee Nuna's lips, pressed against Shiwoo's, let out her seductive moaning sound.</p>
 
 <p>Shiwoo pulled his lips away, and stared intently at Sehee Nuna's face. Sehee Nuna wore a slightly unfocused, dazed expression. Her hot, ragged breath brushed against Shiwoo's face.</p>
 
@@ -128,4 +164,6 @@ chapter = 56
 
 <p>Shiwoo, still kneeling on one knee, looked up at Sehee Nuna's face.</p>
 
-<p>"There, satisfied? Because I'm the same now!!!" At Shiwoo's absurdly brazen attitude, Sehee Nuna, looking as if she was about to cry from embarrassment, was panting with ragged breaths.</p>
+<p>"There, satisfied? Because I'm the same now!!!"</p>
+
+<p>At Shiwoo's absurdly brazen attitude, Sehee Nuna, looking as if she was about to cry from embarrassment, was panting with ragged breaths.</p>

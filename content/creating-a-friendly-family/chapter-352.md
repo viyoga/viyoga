@@ -14,33 +14,49 @@ chapter = 352
 
 <p>A slapping sound that echoed loudly within the vehicle's interior. As if trying to attract the driver ajeossi's attention in the front, Shiwoo boldly slapped Sua's buttocks once again.</p>
 
-<p>"Hauuum~" Sua's pained sound, like a groan, escaped with her nasal breath.</p>
+<p>"Hauuum~"</p>
+
+<p>Sua's pained sound, like a groan, escaped with her nasal breath.</p>
 
 <p>It must have been much stronger and more painful than the sudden strike just before... Was it because Shiwoo's preparatory movement allowed her to anticipate the second spanking? Sua merely suppressed a groaning nasal sound, not a startled moan.</p>
 
 <p>Shiwoo raised his other hand as well, spanking Sua's buttocks. -Chalsseok! Chalsseok!</p>
 
-<p>"Hauueum~" Again, the slapping sound of Shiwoo's palm exploding on Sua's buttocks, and Sua's nasal breath.</p>
+<p>"Hauueum~"</p>
 
-<p>"What's going on? What have you two been doing in the back since earlier?!" Only then, perhaps bothered, the driver ajeossi turned around and asked irritably.</p>
+<p>Again, the slapping sound of Shiwoo's palm exploding on Sua's buttocks, and Sua's nasal breath.</p>
+
+<p>"What's going on? What have you two been doing in the back since earlier?!"</p>
+
+<p>Only then, perhaps bothered, the driver ajeossi turned around and asked irritably.</p>
 
 <p>As the ajeossi turned around and spoke, Sua's vagina hole, wrapped around his penis, tightened strongly once again. Seyoung, holding the camera, also seemed tense, huddling further into the corner of the seat.</p>
 
 <p>The interior of the vehicle was sufficiently dark, with all the lights off and curtains drawn. Fortunately, hidden by the backrests of the front seat and the auxiliary seat, Shiwoo and his sisters' figures would not be visible.</p>
 
-<p>"Ah—I'm sorry, ajeossi! My sisters..." Shiwoo, with a perfunctory apology, was about to use the excuse that his sisters were too playful, but then stopped as if something occurred to him, and opened his mouth again.</p>
+<p>"Ah—I'm sorry, ajeossi! My sisters..."</p>
 
-<p>"...Our Seonju is a bit too playful. I'll discipline her properly—!" Shiwoo apologized to the ajeossi, substituting Seonju Imo-nim's name instead of his sisters'.</p>
+<p>Shiwoo, with a perfunctory apology, was about to use the excuse that his sisters were too playful, but then stopped as if something occurred to him, and opened his mouth again.</p>
+
+<p>"...Our Seonju is a bit too playful. I'll discipline her properly—!"</p>
+
+<p>Shiwoo apologized to the ajeossi, substituting Seonju Imo-nim's name instead of his sisters'.</p>
 
 <p>Instead of the commonly used word 'education,' Shiwoo was using the word 'discipline,' as if to make Seonju Imo-nim hear it.</p>
 
-<p>"You shouldn't be playing around in a place like this—!" The ajeossi spoke as if admonishing Shiwoo and his sisters, then turned his head forward again.</p>
+<p>"You shouldn't be playing around in a place like this—!"</p>
 
-<p>"Yes, I'm truly sorry. I'll take this opportunity to completely fix Seonju's bad habits!" Shiwoo, once again feigning an apology to the driver ajeossi, was speaking as if delivering a warning and declaration to Seonju Imo-nim.</p>
+<p>The ajeossi spoke as if admonishing Shiwoo and his sisters, then turned his head forward again.</p>
+
+<p>"Yes, I'm truly sorry. I'll take this opportunity to completely fix Seonju's bad habits!"</p>
+
+<p>Shiwoo, once again feigning an apology to the driver ajeossi, was speaking as if delivering a warning and declaration to Seonju Imo-nim.</p>
 
 <p>Shiwoo's hands, as he spoke, had already moved to Sua's breasts. Shiwoo strongly gripped Sua's soft, fleshy breasts, twisting and squeezing them.</p>
 
-<p>"Huueup" Sua's nasal breath grew ragged, as she suppressed the sounds from her throat as much as possible.</p>
+<p>"Huueup"</p>
+
+<p>Sua's nasal breath grew ragged, as she suppressed the sounds from her throat as much as possible.</p>
 
 <p>Shiwoo, gripping Sua's breasts, moved his waist back and forth in wide motions. Sua's body swayed in rhythm with Shiwoo's movements. Each time Sua's body swayed back and forth on Shiwoo's pelvis, the penis inside her body scraped against her vaginal walls, repeatedly thrusting in and out even deeper.</p>
 
@@ -48,7 +64,9 @@ chapter = 352
 
 <p>Shiwoo moved his waist rapidly, thrusting his penis in and out, as if trying to burn Sua's wet vaginal walls and the area around her vagina entrance with frictional heat.</p>
 
-<p>"Huup huum hum haup~!" Breathing sounds, scraping her vocal cords, seemed to escape with difficulty from Sua's throat through her nasal breath.</p>
+<p>"Huup huum hum haup~!"</p>
+
+<p>Breathing sounds, scraping her vocal cords, seemed to escape with difficulty from Sua's throat through her nasal breath.</p>
 
 <p>After ravaging Sua and the hole inside her body, bringing her close to exhaustion, Shiwoo turned to look at Seyoung, who was holding the camera. Shiwoo, perhaps thinking it was enough, stopped his waist movements and nodded at Seyoung, who was holding the camera.</p>
 

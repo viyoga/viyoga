@@ -130,7 +130,9 @@ chapter = 671
 
 <p class="scene-break">· · ·</p>
 
-<p>Sua was still lying on the table, covering her face and her vital areas with trembling hands. With her eyes covered by a blindfold, her breathing grew increasingly unstable and ragged, thin and faint exhales leaking through her lips. Seyoung, who had run to the kitchen ahead of them, was already unwrapping the bottle of alcohol Seonju-imo had bought and placing it on the table. Not just the alcohol, Seyoung had also prepared chopsticks and appetizer plates, setting them at the places where Seonju-imo and Shiwoo would sit. Then, Seyoung quietly sat in the chair she usually occupied at the table.</p>
+<p>Sua was still lying on the table, covering her face and her vital areas with trembling hands. With her eyes covered by a blindfold, her breathing grew increasingly unstable and ragged, thin and faint exhales leaking through her lips. Seyoung, who had run to the kitchen ahead of them, was already unwrapping the bottle of alcohol Seonju-imo had bought and placing it on the table. Not just the alcohol, Seyoung had also prepared chopsticks and appetizer plates, setting them at the places where Seonju-imo and Shiwoo would sit.</p>
+
+<p>Then, Seyoung quietly sat in the chair she usually occupied at the table.</p>
 
 <p>Shiwoo sat Seonju-imo in the seat opposite Seyoung, just as Seyoung had arranged the plates and chopsticks. Shiwoo smiled warmly at Seyoung's thoughtful seating arrangement and sat down next to her. Even with the sight of her daughter laid out like a dish on the table right in front of her, Seonju-imo didn't add any particular impressions or comments. Seonju-imo simply sat there with a calm expression, as if acting out a sense of detachment. There was no way she wasn't shaken by the sight of her daughter's obscene state...</p>
 

@@ -38,7 +38,11 @@ chapter = 266
 
 <p>Mom reacted as if Shiwoo's joke was uncomfortable and embarrassing.</p>
 
-<p>'Just think of this as a game! What's wrong with that? We've even had sex~ And earlier, when you were with me, even with Seyoung next to you, you called me "yeobo" just fine~ hehehe'</p>
+<p>'Just think of this as a game! What's wrong with that? We've even had sex~ And earlier, when you were with me, even with Seyoung next to you, you called me</p>
+
+<p>"yeobo"</p>
+
+<p>just fine~ hehehe'</p>
 
 <p>Shiwoo said, remembering the honorific 'yeobo' that Mom had let slip during their intense sex, teasing her mischievously.</p>
 

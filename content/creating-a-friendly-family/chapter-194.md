@@ -76,13 +76,17 @@ chapter = 194
 
 <p class="scene-break">· · ·</p>
 
-<p>"Shiwoo-ya, you're here? I heard you just talked to Jun-i in the restroom, and said you'd stay a little longer?" Sora Nuna said, looking at Shiwoo entering the room with a pleased expression.</p>
+<p>"Shiwoo-ya, you're here? I heard you just talked to Jun-i in the restroom, and said you'd stay a little longer?"</p>
+
+<p>Sora Nuna said, looking at Shiwoo entering the room with a pleased expression.</p>
 
 <p>"Uh... yeah..."</p>
 
 <p>Shiwoo answered Sora Nuna's question calmly.</p>
 
-<p>"Yeah~ That's a good idea~ It doesn't matter if we're a little late anyway, right? Let's play a little longer, Sinbi-ya~" Sora Nuna said, turning to Sinbi Nuna, who was waiting for Shiwoo in her seat.</p>
+<p>"Yeah~ That's a good idea~ It doesn't matter if we're a little late anyway, right? Let's play a little longer, Sinbi-ya~"</p>
+
+<p>Sora Nuna said, turning to Sinbi Nuna, who was waiting for Shiwoo in her seat.</p>
 
 <p>Sinbi Nuna, unaware of Juni Hyeong and Shiwoo's conversation, looked alternately at Shiwoo and Sora Nuna with a bewildered expression.</p>
 
@@ -108,7 +112,9 @@ chapter = 194
 
 <p>Shiwoo intended to at least save the clear-headed Sinbi Nuna first.</p>
 
-<p>"Alright, this time it's really expensive liquor. Everyone, be prepared and drink! If you leave any, I'll make you pay for all the drinks, so take care of it yourselves!" Juni Hyeong said, as he went around to the couples, distributing glasses already filled with liquor, speaking in a strong tone.</p>
+<p>"Alright, this time it's really expensive liquor. Everyone, be prepared and drink! If you leave any, I'll make you pay for all the drinks, so take care of it yourselves!"</p>
+
+<p>Juni Hyeong said, as he went around to the couples, distributing glasses already filled with liquor, speaking in a strong tone.</p>
 
 <p>Juni Hyeong seemed to be attempting the very thing he had talked about with Shiwoo in the restroom earlier.</p>
 
@@ -150,7 +156,9 @@ chapter = 194
 
 <p>"Huk~ huk~ Shiwoo-ya, wait, why... why are you doing this?" Sinbi Nuna asked Shiwoo, gasping for breath.</p>
 
-<p>"Sinbi Nuna! Huk! Huk! Those Hyeong-s seem to be dangerous! They put strange drugs in the liquor!" Shiwoo said to Sinbi Nuna, looking back to check if anyone was chasing them.</p>
+<p>"Sinbi Nuna! Huk! Huk! Those Hyeong-s seem to be dangerous! They put strange drugs in the liquor!"</p>
+
+<p>Shiwoo said to Sinbi Nuna, looking back to check if anyone was chasing them.</p>
 
 <p>"What?"</p>
 

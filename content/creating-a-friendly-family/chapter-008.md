@@ -76,13 +76,21 @@ chapter = 8
 
 <p>While eating ramen, Shiwoo thought,</p>
 
-<p>"Men will keep changing, so you Nunas will definitely regret it later," or</p>
+<p>"Men will keep changing, so you Nunas will definitely regret it later,"</p>
 
-<p>"Well, you could just choose to meet men with the same initials," or</p>
+<p>or</p>
 
-<p>"Or maybe changing the name of the man you're dating is a way?" He was trying to recover his lost dignity and standing by making these half-hearted curses, not quite curses, after being teased.</p>
+<p>"Well, you could just choose to meet men with the same initials,"</p>
 
-<p>But each time, thanks to Sinbi Nuna's coaxing and soothing tone like, "Yes, that would work," such attempts didn't have much effect.</p>
+<p>or</p>
+
+<p>"Or maybe changing the name of the man you're dating is a way?"</p>
+
+<p>He was trying to recover his lost dignity and standing by making these half-hearted curses, not quite curses, after being teased.</p>
+
+<p>But each time, thanks to Sinbi Nuna's coaxing and soothing tone like, "Yes, that would work,"</p>
+
+<p>such attempts didn't have much effect.</p>
 
 <p>"But Sehee Nuna, if Mom finds out about that, won't it be a really big problem?"</p>
 

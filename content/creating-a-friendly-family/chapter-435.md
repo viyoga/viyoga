@@ -166,7 +166,15 @@ chapter = 435
 
 <p>Shiwoo explained to Mom about the things that happened at the pharmacy in as much detail as possible.</p>
 
-<p>The words "new boyfriend" and "Mom's errand" seemed to bother her, and she hesitated for a moment.</p>
+<p>The words</p>
+
+<p>"new boyfriend"</p>
+
+<p>and</p>
+
+<p>"Mom's errand"</p>
+
+<p>seemed to bother her, and she hesitated for a moment.</p>
 
 <p>[Why did you buy a mask? There are a lot of them at home]</p>
 

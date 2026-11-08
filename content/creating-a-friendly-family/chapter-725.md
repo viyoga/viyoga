@@ -50,7 +50,11 @@ chapter = 725
 
 <p>'I'm taking tomorrow off from the academy... and there are other kids besides me being marked as present...?'</p>
 
-<p>As he chewed over those words and phrases internally, Shiwoo's eyes gradually widened at the "what if" realization.</p>
+<p>As he chewed over those words and phrases internally, Shiwoo's eyes gradually widened at the</p>
+
+<p>"what if"</p>
+
+<p>realization.</p>
 
 <p>「Well~ it's not like it's rare for people to miss class for menstrual leave or other reasons in every class, but it seems like quite a few of them overlap for tomorrow~?」</p>
 

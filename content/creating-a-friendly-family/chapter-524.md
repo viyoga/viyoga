@@ -176,7 +176,11 @@ chapter = 524
 
 <p>"Mom! Seonmi-ya! Seonmi-ya!!!"</p>
 
-<p>Shiwoo called out, mixing the title "Mom" and Mom's name simultaneously, delivering his final piston thrusts towards ejaculation.</p>
+<p>Shiwoo called out, mixing the title</p>
+
+<p>"Mom"</p>
+
+<p>and Mom's name simultaneously, delivering his final piston thrusts towards ejaculation.</p>
 
 <p>Supeok! Sswoopeok sswoopeok! Peok! Peok!</p>
 

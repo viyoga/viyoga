@@ -80,7 +80,9 @@ chapter = 150
 
 <p>「Ma...Master-nim...! Ha-eung~!」</p>
 
-<p>Seonju Imo, as if completely drained of strength, slowly sank and collapsed forward. Seonju Imo lay sprawled on the bathroom floor as if entrusting her body to it. Seonju Imo lay sprawled on the floor, repeatedly trembling. After finishing his ejaculation, Shiwoo approached the exhausted, sprawled Seonju Imo. Shiwoo placed his hand on Seonju Imo's back, stroking it as if comforting her. Shiwoo helped Seonju Imo, who was lying on the floor, to sit up and lightly embraced her. Kneeling, Shiwoo held Seonju Imo close, their bodies pressed together, sharing warmth. After the violent lovemaking, a brief, tender moment passed between the two of them.</p>
+<p>Seonju Imo, as if completely drained of strength, slowly sank and collapsed forward. Seonju Imo lay sprawled on the bathroom floor as if entrusting her body to it. Seonju Imo lay sprawled on the floor, repeatedly trembling. After finishing his ejaculation, Shiwoo approached the exhausted, sprawled Seonju Imo. Shiwoo placed his hand on Seonju Imo's back, stroking it as if comforting her. Shiwoo helped Seonju Imo, who was lying on the floor, to sit up and lightly embraced her. Kneeling, Shiwoo held Seonju Imo close, their bodies pressed together, sharing warmth.</p>
+
+<p>After the violent lovemaking, a brief, tender moment passed between the two of them.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -104,7 +106,9 @@ chapter = 150
 
 <p>The stimulation of insertion, as Shiwoo's massive cock softly slid in, filling her body completely. Seonju Imo fully felt the stiff yet gentle stimulation of that insertion, letting out a moaning sound like a deep sigh. Shiwoo maintained the insertion and reached out his hand. With his extended hand, Shiwoo applied body wash and cupped Seonju Imo's breasts. Shiwoo rubbed Seonju Imo's breasts as if massaging them. Seonju Imo's vagina hole delicately contracted and relaxed repeatedly in response to Shiwoo's touch and movements.</p>
 
-<p>Shiwoo then generously spread body wash on Seonju Imo's neck, collarbone, and shoulders. And he began to embrace and rub Seonju Imo's body as if wrapping his arms around her. Seonju Imo, with her head bowed and eyes closed, was trembling faintly as if responding to Shiwoo's gentle caresses. Shiwoo soon applied body wash to his own chest and abdomen, then rubbed Seonju Imo's back as if sweeping it from side to side. Each time his body moved from side to side, Shiwoo's penis bent at an angle opposite to his body's movement within Seonju Imo's vagina. Shiwoo's long, hard shaft, bent at an angle, strongly prodded Seonju Imo's vaginal walls, pressing as if to pierce them.</p>
+<p>Shiwoo then generously spread body wash on Seonju Imo's neck, collarbone, and shoulders. And he began to embrace and rub Seonju Imo's body as if wrapping his arms around her. Seonju Imo, with her head bowed and eyes closed, was trembling faintly as if responding to Shiwoo's gentle caresses. Shiwoo soon applied body wash to his own chest and abdomen, then rubbed Seonju Imo's back as if sweeping it from side to side. Each time his body moved from side to side, Shiwoo's penis bent at an angle opposite to his body's movement within Seonju Imo's vagina.</p>
+
+<p>Shiwoo's long, hard shaft, bent at an angle, strongly prodded Seonju Imo's vaginal walls, pressing as if to pierce them.</p>
 
 <p>「Heeu-eut! Heut...! Haa-eut!」</p>
 

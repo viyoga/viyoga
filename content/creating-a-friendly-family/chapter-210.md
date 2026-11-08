@@ -158,7 +158,9 @@ chapter = 210
 
 <p>Shiwoo felt a little embarrassed by the sound he made in front of Mom.</p>
 
-<p>After applying all the disinfectant to the wound, Mom held Shiwoo's chin with both hands, pursed her lips, and blew "Hoo~"</p>
+<p>After applying all the disinfectant to the wound, Mom held Shiwoo's chin with both hands, pursed her lips, and blew</p>
+
+<p>"Hoo~"</p>
 
 <p>As she leaned slightly, the cleavage between her ample breasts was visible inside Mom's loose-fit purple T-shirt.</p>
 

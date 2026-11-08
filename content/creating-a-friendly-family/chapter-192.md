@@ -184,7 +184,11 @@ chapter = 192
 
 <p>Was Sehee Nuna, after all, considering an orgy with the Hyeong-s participating in the meeting?</p>
 
-<p>The moment Shiwoo and Sinbi Nuna leave the room, will the orgy, under the guise of "diet," begin in this room?</p>
+<p>The moment Shiwoo and Sinbi Nuna leave the room, will the orgy, under the guise of</p>
+
+<p>"diet,"</p>
+
+<p>begin in this room?</p>
 
 <p class="scene-break">· · ·</p>
 

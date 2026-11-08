@@ -58,7 +58,9 @@ chapter = 677
 
 <p>It seemed to be about the same amount or even more than the number of sushi pieces he had put into Aunt Seonju.</p>
 
-<p>Shiwoo thrust his middle finger deep into the hole, pushing the sushi in with a firm "kkuk kkuk."</p>
+<p>Shiwoo thrust his middle finger deep into the hole, pushing the sushi in with a firm</p>
+
+<p>"kkuk kkuk."</p>
 
 <p>After doing it several times, it now felt somewhat effortless.</p>
 
@@ -164,9 +166,17 @@ chapter = 677
 
 <p>The white tail fur wedged into her anal hole was already sopping wet with moisture, its shape collapsed to the point of being unrecognizable.</p>
 
-<p>With a sense of "just in case," Shiwoo pulled the anal plug out with his hand.</p>
+<p>With a sense of</p>
 
-<p>With a "ppook!" sound, the metal stud that had been lodged in her anus was pulled out.</p>
+<p>"just in case,"</p>
+
+<p>Shiwoo pulled the anal plug out with his hand.</p>
+
+<p>With a</p>
+
+<p>"ppook!"</p>
+
+<p>sound, the metal stud that had been lodged in her anus was pulled out.</p>
 
 <p>At that sound, Aunt Seonju, who had been absorbed in the kiss with Sua, pulled her lips away and turned her gaze anxiously.</p>
 

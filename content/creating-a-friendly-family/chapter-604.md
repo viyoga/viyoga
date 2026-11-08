@@ -24,7 +24,9 @@ chapter = 604
 
 <p class="scene-break">· · ·</p>
 
-<p>As he opened the bathroom door and stepped out, Sejin Nuna doing the dishes immediately caught Shiwoo's eye. It seemed she had changed clothes while Shiwoo was in the bathroom, as a slightly loose gray knit dress was now draped over Sejin Nuna's body. Like the dress she had been wearing earlier, it was a gray knit dress with a rather deeply scooped neckline... Her long hair, flowing over her shoulders, shone, catching the late afternoon sunlight. The dress fabric clung to the curve of her back, creating an elegant silhouette from behind. The soft knit fabric flowed elegantly along her waistline, naturally embracing the silhouette of her body.</p>
+<p>As he opened the bathroom door and stepped out, Sejin Nuna doing the dishes immediately caught Shiwoo's eye. It seemed she had changed clothes while Shiwoo was in the bathroom, as a slightly loose gray knit dress was now draped over Sejin Nuna's body. Like the dress she had been wearing earlier, it was a gray knit dress with a rather deeply scooped neckline... Her long hair, flowing over her shoulders, shone, catching the late afternoon sunlight. The dress fabric clung to the curve of her back, creating an elegant silhouette from behind.</p>
+
+<p>The soft knit fabric flowed elegantly along her waistline, naturally embracing the silhouette of her body.</p>
 
 <p>Despite being pregnant, Sejin Nuna's figure was still fatally alluring... Even though he had just ejaculated, the moment he saw her, Shiwoo's penis hardened once more. Along with the sound of flowing water, as her hands moved gently, rinsing the dishes, the lines flowing from her waist downwards swayed subtly.</p>
 
@@ -38,7 +40,9 @@ chapter = 604
 
 <p>「No, I'm almost done anyway~... And since you're a guest today... just relax~」</p>
 
-<p>Sejin Nuna didn't turn around, and spoke while wiping the dish in her hand. Who, looking at her now, would think she was the person who had just reached climax through masturbation in front of her younger brother? Her voice was calm, but a subtle tremor seemed to be mixed within it. And no wonder, Sejin Nuna, after reaching climax through masturbation in front of her younger brother, had been left almost abandoned in that spot. Shiwoo had gone into the bathroom, masturbated perversely with her belongings, even filmed the act, and sent the video to Sejin Nuna. Shiwoo had gone into the bathroom, masturbated perversely with her belongings, even filmed the act, and sent the video to Sejin Nuna. After returning from the bathroom, as if nothing had happened, Shiwoo was speaking to her with feigned nonchalance.</p>
+<p>Sejin Nuna didn't turn around, and spoke while wiping the dish in her hand. Who, looking at her now, would think she was the person who had just reached climax through masturbation in front of her younger brother? Her voice was calm, but a subtle tremor seemed to be mixed within it. And no wonder, Sejin Nuna, after reaching climax through masturbation in front of her younger brother, had been left almost abandoned in that spot. Shiwoo had gone into the bathroom, masturbated perversely with her belongings, even filmed the act, and sent the video to Sejin Nuna.</p>
+
+<p>Shiwoo had gone into the bathroom, masturbated perversely with her belongings, even filmed the act, and sent the video to Sejin Nuna. After returning from the bathroom, as if nothing had happened, Shiwoo was speaking to her with feigned nonchalance.</p>
 
 <p>What feelings, indeed, was Sejin Nuna experiencing? Humiliation? Shame? Resentment? Bitterness or a sense of loss? Just imagining the feelings she must be experiencing made a corner of Shiwoo's chest tingle as if numb.</p>
 

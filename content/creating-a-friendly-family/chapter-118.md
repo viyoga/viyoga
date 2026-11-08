@@ -336,6 +336,12 @@ chapter = 118
 
 <p>-Tak! Tak! Tak! Tak! Tak!</p>
 
-<p>"Haeueung!" "Heut!" "Hang!" "Haeueung~!"</p>
+<p>"Haeueung!"</p>
+
+<p>"Heut!"</p>
+
+<p>"Hang!"</p>
+
+<p>"Haeueung~!"</p>
 
 <p>The room was being filled with the unrestrained lewd sounds of flesh and moans of a mother and her siblings.</p>

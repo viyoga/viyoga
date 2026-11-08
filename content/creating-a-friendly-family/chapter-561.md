@@ -4,7 +4,13 @@ weight = 561
 [extra]
 chapter = 561
 +++
-<p>Mom was now calling Sehee Nuna by the title "Juin-nim" (Master), without the modifier "small."</p>
+<p>Mom was now calling Sehee Nuna by the title</p>
+
+<p>"Juin-nim"</p>
+
+<p>(Master), without the modifier</p>
+
+<p>"small."</p>
 
 <p>Sehee Nuna removes the finger she had been inserting into Mom's crack and scratching around.</p>
 

@@ -6,7 +6,9 @@ chapter = 633
 +++
 <p>Shiwoo passed through the wide central lobby and, before reaching the hallway with the elevators, turned his steps toward the stairs.</p>
 
-<p>The standing signboard placed between the stairs and the railing looked like something that might have stood in front of an old medieval inn or a general store. Iron decorations were densely embedded into the blackened wooden board, and the sharply curved metal frame exuded an atmosphere that was both classical and sophisticated. Upon it, the business name 『The Witch and the Cats』 was engraved in Gothic-style gold lettering, with decorations that looked like melted red wax flowing along the edges. Below that, a large, thick board had been attached. Various recommended drinks and desserts were charmingly decorated with chalk on the black-painted board, making it look like an information board for a tea house in a fairy tale.</p>
+<p>The standing signboard placed between the stairs and the railing looked like something that might have stood in front of an old medieval inn or a general store. Iron decorations were densely embedded into the blackened wooden board, and the sharply curved metal frame exuded an atmosphere that was both classical and sophisticated. Upon it, the business name 『The Witch and the Cats』 was engraved in Gothic-style gold lettering, with decorations that looked like melted red wax flowing along the edges.</p>
+
+<p>Below that, a large, thick board had been attached. Various recommended drinks and desserts were charmingly decorated with chalk on the black-painted board, making it look like an information board for a tea house in a fairy tale.</p>
 
 <p>The most eye-catching phrase was written in large letters at the top center of the board.</p>
 
@@ -76,7 +78,11 @@ chapter = 633
 
 <p>"Yes? Ah... yes..."</p>
 
-<p>Shiwoo hesitated for a moment at the unexpected question and then answered sheepishly, looking a bit flustered. What did she mean by "faint"? Did it mean that, like the déjà vu Shiwoo was feeling, she felt like she had seen him somewhere but the memory was blurry? Or was it a cautious customer service line laid out to avoid any possible rudeness to a guest who might have visited several times?</p>
+<p>Shiwoo hesitated for a moment at the unexpected question and then answered sheepishly, looking a bit flustered. What did she mean by</p>
+
+<p>"faint"</p>
+
+<p>? Did it mean that, like the déjà vu Shiwoo was feeling, she felt like she had seen him somewhere but the memory was blurry? Or was it a cautious customer service line laid out to avoid any possible rudeness to a guest who might have visited several times?</p>
 
 <p>"We also operate as a Blackout Event Cafe during the day~ At that time, smartphones and other items are banned from being brought in, so we store them separately for you!"</p>
 

@@ -186,7 +186,11 @@ chapter = 39
 
 <p>'Who would think we're a separated couple?ㅋㅋ'</p>
 
-<p>Mom's text message, sent with a playful feeling as if teasing Shiwoo, with "kikeuk kikeuk" attached.</p>
+<p>Mom's text message, sent with a playful feeling as if teasing Shiwoo, with</p>
+
+<p>"kikeuk kikeuk"</p>
+
+<p>attached.</p>
 
 <p>'Ah, seriously, I thought Mom didn't read my message and blocked my number?'</p>
 

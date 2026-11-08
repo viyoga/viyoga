@@ -162,7 +162,9 @@ chapter = 292
 
 <p>Mom, as if she doesn't believe Shiwoo's words, sends a text message mixing in respectful speech as if she's being sarcastic.</p>
 
-<p>Of course, he knows that it's respectful speech used to be sarcastic, but at the moment, Shiwoo's penis throbs with a strange feeling as he hears Mom's respectful speech and the title "my son."</p>
+<p>Of course, he knows that it's respectful speech used to be sarcastic, but at the moment, Shiwoo's penis throbs with a strange feeling as he hears Mom's respectful speech and the title</p>
+
+<p>"my son."</p>
 
 <p>'I'm talking about when we go back to being Mom and daughters after that's over~ I'll make sure that Seonmi, you, can't treat you carelessly! Would that be enough?'</p>
 

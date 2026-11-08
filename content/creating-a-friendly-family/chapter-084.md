@@ -52,7 +52,9 @@ chapter = 84
 
 <p class="scene-break">· · ·</p>
 
-<p>「I'll~ lie face down on the floor, so could you loosen up my back too?」 Seonju Imo spoke to Shiwoo in a languid voice, as if she might truly fall asleep. And with that, she stood up and let her apricot-colored linen jacket fall to the floor. As she removed her jacket, Seonju Imo's large breasts bounced elastically within her deeply cut black silk camisole. Seonju Imo lay face down on the carpet in front of the sofa, dressed only in her camisole and panties. Seonju Imo buried her face in her arms, which were folded in front of her. The wet, orange panties covering Seonju Imo's buttocks were visible before Shiwoo's eyes. Perhaps the very first position for Shiwoo and Seonju Imo's penetration would be exactly the one Seonju Imo was now taking. Shiwoo's heart pounded rapidly.</p>
+<p>「I'll~ lie face down on the floor, so could you loosen up my back too?」 Seonju Imo spoke to Shiwoo in a languid voice, as if she might truly fall asleep. And with that, she stood up and let her apricot-colored linen jacket fall to the floor. As she removed her jacket, Seonju Imo's large breasts bounced elastically within her deeply cut black silk camisole. Seonju Imo lay face down on the carpet in front of the sofa, dressed only in her camisole and panties.</p>
+
+<p>Seonju Imo buried her face in her arms, which were folded in front of her. The wet, orange panties covering Seonju Imo's buttocks were visible before Shiwoo's eyes. Perhaps the very first position for Shiwoo and Seonju Imo's penetration would be exactly the one Seonju Imo was now taking. Shiwoo's heart pounded rapidly.</p>
 
 <p>On the sofa where Shiwoo had placed his hand to stand up, a large amount of Seonju Imo's vulgar fluid had spilled.</p>
 
@@ -64,7 +66,9 @@ chapter = 84
 
 <p>「Mmm... I'm really, really tired~ I might fall asleep while getting a massage, but all the knots need to be worked out, so even if I fall asleep in the middle, you have to finish it, okay?!~ Got it?!」 It was a permission, as if to say she would pretend to be asleep and unaware of all subsequent actions, so he could do as he pleased. Seonju Imo intended not to wake up until the massage was over, no matter what Shiwoo did.</p>
 
-<p>「Okay...」 Shiwoo answered in a voice that seemed to suppress his excitement/arousal, then placed his hand on Seonju Imo's waist. Shiwoo slipped his hand beneath her camisole, caressing the smooth skin of Seonju Imo's waist. As he pushed his hand further up, Seonju Imo's bra, near her side, caught Shiwoo's hand. Shiwoo paid no mind and slipped his hand beneath the bra, caressing Seonju Imo's side. And then he pushed it all the way up to her armpit. Shiwoo's hand was now inside the bra, as if piercing through it. Seonju Imo's breathing seemed to become slightly ragged for a moment.</p>
+<p>「Okay...」 Shiwoo answered in a voice that seemed to suppress his excitement/arousal, then placed his hand on Seonju Imo's waist. Shiwoo slipped his hand beneath her camisole, caressing the smooth skin of Seonju Imo's waist. As he pushed his hand further up, Seonju Imo's bra, near her side, caught Shiwoo's hand. Shiwoo paid no mind and slipped his hand beneath the bra, caressing Seonju Imo's side. And then he pushed it all the way up to her armpit. Shiwoo's hand was now inside the bra, as if piercing through it.</p>
+
+<p>Seonju Imo's breathing seemed to become slightly ragged for a moment.</p>
 
 <p>Shiwoo moved his other hand, still inside the camisole, to Seonju Imo's back, searching for the bra hook. Seonju Imo's bra unfastened with ease. Shiwoo used the hand that had been inside the bra to lightly brush Seonju Imo's side breast. Seonju Imo showed no reaction.</p>
 

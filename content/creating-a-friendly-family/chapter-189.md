@@ -12,9 +12,13 @@ chapter = 189
 
 <p>Sora Nuna was sitting next to her partner, a Hyeong named Park Seongguk, exchanging words, when Shiwoo returned to his seat, she flashed a bright smile. Shiwoo smiled awkwardly at Sora Nuna and returned to his original seat, drinking his beverage through a straw.</p>
 
-<p>"Is it delicious? Can I have a taste? I'm curious what the caramel macchiato here tastes like." Seeing Shiwoo drinking his beverage through a straw, Sora Nuna spoke to him.</p>
+<p>"Is it delicious? Can I have a taste? I'm curious what the caramel macchiato here tastes like."</p>
 
-<p>"Oh? Uh." Shiwoo offered the drink he was holding to Sora Nuna.</p>
+<p>Seeing Shiwoo drinking his beverage through a straw, Sora Nuna spoke to him.</p>
+
+<p>"Oh? Uh."</p>
+
+<p>Shiwoo offered the drink he was holding to Sora Nuna.</p>
 
 <p>Sora Nuna, as if it were nothing, bit onto the straw Shiwoo had used and began to drink Shiwoo's beverage. No matter how one looked at it, Sora Nuna's actions seemed to be showing interest in Shiwoo and coming on to him.</p>
 
@@ -30,9 +34,13 @@ chapter = 189
 
 <p>It was Sinbi Nuna, Semi Nuna, and Cheoljin-i entering the cafe.</p>
 
-<p>"Sinbi-ya. Semi-ya. You're here?" Sora Nuna raised her hand and greeted Sinbi Nuna and Semi Nuna.</p>
+<p>"Sinbi-ya. Semi-ya. You're here?"</p>
 
-<p>"Yeah. We're here. Shiwoo and Sehee are already here? Have you been waiting long?" After briefly replying to Sora Nuna's greeting, Sinbi Nuna looked at Shiwoo and Sehee Nuna and asked, seemingly pleased.</p>
+<p>Sora Nuna raised her hand and greeted Sinbi Nuna and Semi Nuna.</p>
+
+<p>"Yeah. We're here. Shiwoo and Sehee are already here? Have you been waiting long?"</p>
+
+<p>After briefly replying to Sora Nuna's greeting, Sinbi Nuna looked at Shiwoo and Sehee Nuna and asked, seemingly pleased.</p>
 
 <p>"We haven't been here long either." Sehee Nuna turned towards Sinbi Nuna and replied.</p>
 
@@ -40,15 +48,21 @@ chapter = 189
 
 <p>Semi Nuna, standing next to Sinbi Nuna, was wearing a V-neck apricot-colored oversized T-shirt. Matching it with a plain black mini-skirt and black sneakers, she was revealing her snow-white thighs and calves with a slightly provocative feel.</p>
 
-<p>"Cheoljin-i came too? Did you guys meet up right outside?" Saerom Nuna acknowledged Cheoljin-i, who had followed them in.</p>
+<p>"Cheoljin-i came too? Did you guys meet up right outside?"</p>
 
-<p>"Ah~ I guess that's how it happened... hehe." Cheoljin-i said, raising his hand in a light greeting and smiling.</p>
+<p>Saerom Nuna acknowledged Cheoljin-i, who had followed them in.</p>
+
+<p>"Ah~ I guess that's how it happened... hehe."</p>
+
+<p>Cheoljin-i said, raising his hand in a light greeting and smiling.</p>
 
 <p>Cheoljin-i was wearing a neat black shirt and black slacks, with gray canvas sneakers. His hair was slicked back in a pompadour style, as if he'd applied a lot of product.</p>
 
 <p>The Nunas seemed to already know Cheoljin-i, having made his acquaintance.</p>
 
-<p>"Sinbi and Semi, sit over here. Cheoljin-i, sit next to Shiwoo over there." Saerom Nuna was directing them to their seats, as if controlling traffic, just like when Shiwoo had arrived.</p>
+<p>"Sinbi and Semi, sit over here. Cheoljin-i, sit next to Shiwoo over there."</p>
+
+<p>Saerom Nuna was directing them to their seats, as if controlling traffic, just like when Shiwoo had arrived.</p>
 
 <p>"What drinks do you want to order? Jun-i Oppa said he'd pay for everything later, so you guys just order whatever you want to eat." Sora Nuna spoke, following Saerom Nuna.</p>
 
@@ -56,7 +70,9 @@ chapter = 189
 
 <p>At first glance, it looked like an ordinary meeting or a blind date. But Shiwoo felt a subtly discordant atmosphere.</p>
 
-<p>"It's fine~ I'll pay separately~! How much could it be~!" Cheoljin-i said as he received the ordered drinks for Sinbi Nuna and Semi Nuna and walked towards the counter.</p>
+<p>"It's fine~ I'll pay separately~! How much could it be~!"</p>
+
+<p>Cheoljin-i said as he received the ordered drinks for Sinbi Nuna and Semi Nuna and walked towards the counter.</p>
 
 <p>Jun-i Hyeong, who heard that next to Sehee Nuna, shrugged his shoulders and gave an awkward laugh.</p>
 
@@ -64,17 +80,29 @@ chapter = 189
 
 <p>Cheoljin-i brought the drinks on a tray, placed them in front of Sinbi Nuna and Semi Nuna, and sat down next to Shiwoo.</p>
 
-<p>"Anything happen while I was gone?" Sitting next to Shiwoo, he spoke to Shiwoo playfully, as usual.</p>
+<p>"Anything happen while I was gone?"</p>
 
-<p>"What 'anything happen'?! Nothing happens whether you're here or not, so don't worry!" Shiwoo retorted to Cheoljin-i as if continuing the playful greetings they usually exchanged at the academy.</p>
+<p>Sitting next to Shiwoo, he spoke to Shiwoo playfully, as usual.</p>
 
-<p>"You never know~! Puhaha." Cheoljin-i added a new sentence to the comedic dialogue he usually exchanged with Shiwoo and replied with a laugh.</p>
+<p>"What 'anything happen'?! Nothing happens whether you're here or not, so don't worry!"</p>
 
-<p>"This is Cheoljin-i~ He's in the same grade as Shiwoo." Sora Nuna was introducing Cheoljin-i to the three men who had arrived earlier.</p>
+<p>Shiwoo retorted to Cheoljin-i as if continuing the playful greetings they usually exchanged at the academy.</p>
 
-<p>"So you're Cheoljin-i? I've heard a lot about you from Sora." Kim Jun Hyeong smiled with a strange sense of incongruity, and spoke as if he knew about Cheoljin-i.</p>
+<p>"You never know~! Puhaha."</p>
 
-<p>"This is Kim Jun Oppa, a second-year! And over here are Seongguk and Hyeokjin, first-years." This time, Sora Nuna was introducing the men who had already been at the cafe to Cheoljin-i.</p>
+<p>Cheoljin-i added a new sentence to the comedic dialogue he usually exchanged with Shiwoo and replied with a laugh.</p>
+
+<p>"This is Cheoljin-i~ He's in the same grade as Shiwoo."</p>
+
+<p>Sora Nuna was introducing Cheoljin-i to the three men who had arrived earlier.</p>
+
+<p>"So you're Cheoljin-i? I've heard a lot about you from Sora."</p>
+
+<p>Kim Jun Hyeong smiled with a strange sense of incongruity, and spoke as if he knew about Cheoljin-i.</p>
+
+<p>"This is Kim Jun Oppa, a second-year! And over here are Seongguk and Hyeokjin, first-years."</p>
+
+<p>This time, Sora Nuna was introducing the men who had already been at the cafe to Cheoljin-i.</p>
 
 <p>Cheoljin-i nodded slightly and greeted them.</p>
 
@@ -146,4 +174,6 @@ chapter = 189
 
 <p>Sinbi Nuna picked up a piece of fruit with a toothpick in it and fed it to Shiwoo.</p>
 
-<p>"You look quite handsome today~? Your clothes suit you well, and your perfume smells so good~" Sinbi Nuna sat closer to Shiwoo, who was eating the fruit she had given him, and whispered into his ear.</p>
+<p>"You look quite handsome today~? Your clothes suit you well, and your perfume smells so good~"</p>
+
+<p>Sinbi Nuna sat closer to Shiwoo, who was eating the fruit she had given him, and whispered into his ear.</p>

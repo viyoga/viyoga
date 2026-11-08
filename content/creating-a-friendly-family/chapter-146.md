@@ -274,7 +274,11 @@ chapter = 146
 
 <p>Shiwoo placed the vibrator between Seonju Imo's wet crotch.</p>
 
-<p>Then, he took out several medical tapes from a box labeled "Waterproof Functional Bandage" and tore open their packaging.</p>
+<p>Then, he took out several medical tapes from a box labeled</p>
+
+<p>"Waterproof Functional Bandage"</p>
+
+<p>and tore open their packaging.</p>
 
 <p>Shiwoo placed the vibrator on Seonju Imo's clitoris and was securing it by connecting the opened tapes.</p>
 

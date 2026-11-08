@@ -92,7 +92,9 @@ chapter = 643
 
 <p>The title 'Master' and the polite, formal speech that was full of aegyo as if she were acting spoiled... Whether it was in the group chat, a 1:1 chat, or when they met in person, Aunt Seonju was using a polite attitude and honorifics toward Shiwoo. Even though he had warned her not to use the title 'Master' or formal speech toward him without permission back when the Master-slave relationship was just beginning to form... Did Aunt Seonju have no intention of ever returning to being an 'Aunt' in front of Shiwoo again?</p>
 
-<p>The only time she would return to an aunt-nephew relationship in front of Shiwoo would likely be in front of people who knew their previous relationship but were unrelated to the slave contract. But such meetings would be extremely limited in the future, and even if they did occur, they would treat each other as if they were acting, wearing the masks of 'Aunt' and 'Nephew.' Would he ever be able to think of Aunt Seonju with the sensation of her being an 'Aunt' again? Shiwoo stood lost in thought for a long time while looking at Aunt Seonju's text.</p>
+<p>The only time she would return to an aunt-nephew relationship in front of Shiwoo would likely be in front of people who knew their previous relationship but were unrelated to the slave contract. But such meetings would be extremely limited in the future, and even if they did occur, they would treat each other as if they were acting, wearing the masks of 'Aunt' and 'Nephew.' Would he ever be able to think of Aunt Seonju with the sensation of her being an 'Aunt' again?</p>
+
+<p>Shiwoo stood lost in thought for a long time while looking at Aunt Seonju's text.</p>
 
 <p>[Does Aunt Seonju want to come out too? Won't it be lonely eating dinner by yourself?]</p>
 
@@ -134,7 +136,9 @@ chapter = 643
 
 <p>It was an answer from Aunt Seonju that suggested she had vaguely realized the meaning of the order Shiwoo was giving.</p>
 
-<p>"I've contacted Seonju! She said it's okay for Sua to come home after eating dinner with us!" "And 'Seonju' is coming out too. We're going to eat together. I told her I'd contact her once we decide where to go..."</p>
+<p>"I've contacted Seonju! She said it's okay for Sua to come home after eating dinner with us!"</p>
+
+<p>"And 'Seonju' is coming out too. We're going to eat together. I told her I'd contact her once we decide where to go..."</p>
 
 <p>Shiwoo conveyed the matters decided through the conversation he just had with Aunt Seonju to Seyoung and Sua.</p>
 

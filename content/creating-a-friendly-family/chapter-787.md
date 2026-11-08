@@ -26,7 +26,9 @@ chapter = 787
 
 <p>The bell hanging from her neck tinkled faintly in time with her ragged breathing, scattering the signal of secret depravity in all directions. Now, nothing remained for her but a thirst that burned using shame as its fuel. The words Mom spat out as if pleading were no different from a declaration of surrender, giving up rational judgment and entrusting herself to wherever her son led.</p>
 
-<p>Shiwoo gently lifted the jaw of Mom, who was burying her face in his shoulder, and met her eyes. Then, he pressed his lips to hers again, swallowing her breath. This time, it wasn't a rough invasion forcing its way past her lips, but a slow and soft contact, as if teasing her. As if it were his first kiss, just as Sehee Nuna had taught him, he breathed in and caressed the area around Mom's lower lip, making it tingle. While doing so, he slowly indulged in the depths of her mouth, savoring every part.</p>
+<p>Shiwoo gently lifted the jaw of Mom, who was burying her face in his shoulder, and met her eyes. Then, he pressed his lips to hers again, swallowing her breath. This time, it wasn't a rough invasion forcing its way past her lips, but a slow and soft contact, as if teasing her. As if it were his first kiss, just as Sehee Nuna had taught him, he breathed in and caressed the area around Mom's lower lip, making it tingle.</p>
+
+<p>While doing so, he slowly indulged in the depths of her mouth, savoring every part.</p>
 
 <p>Every time Shiwoo's tongue wetly and obsessively brushed against Mom's lips, her legs lost their strength as if she were melting, and she clung entirely to Shiwoo's embrace. Mom squeezed the leg Shiwoo had wedged under her crotch with her thighs, rubbing her center against his knee as if she were desperate.</p>
 
@@ -38,7 +40,9 @@ chapter = 787
 
 <p>The whispering surged like a wave, stinging the backs of Shiwoo and Mom. The contemptuous curiosity of strangers was piercing more clearly than the sound of the bell ringing in Mom's ears. Mom's shoulders flinched as if she were startled by the fact that someone was watching their abnormal behavior in real-time. However, the swamp of sweet pleasure her son provided was already much deeper and thicker than any rational shame.</p>
 
-<p>Shiwoo lowered the hand that was roughly gripping Mom's ass and pointedly lifted the hem of her thin one-piece dress. As her white thighs were exposed as if being exhibited to the passing people, Mom trembled with the nervous anxiety and shame that someone might discover she wasn't wearing underwear. As the gazes of others fixed blatantly on her defenselessly exposed thighs, she felt her primitive instincts flicker with a sharp thrill on the flip side of that uncontrollable shame. Raising her head high at the dizzying thrill those lewd gazes created, she hugged Shiwoo's neck tightly and once again crashed her lips against his greedily.</p>
+<p>Shiwoo lowered the hand that was roughly gripping Mom's ass and pointedly lifted the hem of her thin one-piece dress. As her white thighs were exposed as if being exhibited to the passing people, Mom trembled with the nervous anxiety and shame that someone might discover she wasn't wearing underwear. As the gazes of others fixed blatantly on her defenselessly exposed thighs, she felt her primitive instincts flicker with a sharp thrill on the flip side of that uncontrollable shame.</p>
+
+<p>Raising her head high at the dizzying thrill those lewd gazes created, she hugged Shiwoo's neck tightly and once again crashed her lips against his greedily.</p>
 
 <p>In a hallucination where all ethical gazes and social taboos seemed to have blurred, she willingly surrendered herself to the pinnacle of corruption.</p>
 

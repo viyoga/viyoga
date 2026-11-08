@@ -130,7 +130,9 @@ chapter = 693
 
 <p>Then, he pulled Sehee Nuna and Seyoung's leashes, forcing their faces to focus on his penis.</p>
 
-<p>"Hut!" "Haat..!"</p>
+<p>"Hut!"</p>
+
+<p>"Haat..!"</p>
 
 <p>Both reacted as if flustered by the suddenly pulled leashes.</p>
 

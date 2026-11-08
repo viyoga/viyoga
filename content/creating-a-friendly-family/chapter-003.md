@@ -168,7 +168,11 @@ chapter = 3
 
 <p>He was naturally chosen for dinner dish duty.</p>
 
-<p>Shiwoo flinched at his sister's words about "weird things," yet felt an inexplicable arousal rising within him at the strange situation where Mom, whom he had just sexually objectified, was now defending him.</p>
+<p>Shiwoo flinched at his sister's words about</p>
+
+<p>"weird things,"</p>
+
+<p>yet felt an inexplicable arousal rising within him at the strange situation where Mom, whom he had just sexually objectified, was now defending him.</p>
 
 <p>His penis was now erect because of that feeling.</p>
 
@@ -200,7 +204,9 @@ chapter = 3
 
 <p>Directly at Mom's buttocks.</p>
 
-<p>Sehee, with a surprised expression as if she had realized something, looked at Shiwoo and let out a short, contemptuous scoff, "Haat."</p>
+<p>Sehee, with a surprised expression as if she had realized something, looked at Shiwoo and let out a short, contemptuous scoff,</p>
+
+<p>"Haat."</p>
 
 <p>"Fuck, fuck, fuck..."</p>
 

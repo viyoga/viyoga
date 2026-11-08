@@ -14,13 +14,19 @@ chapter = 52
 
 <p>"It seems it hasn't dried yet, has it?" Shiwoo asked, glancing at Sehee Nuna's lower body.</p>
 
-<p>"You idiot~!! It's because you keep rubbing like this!" Sehee Nuna said to Shiwoo, her face flushed red, as if snapping at him.</p>
+<p>"You idiot~!! It's because you keep rubbing like this!"</p>
 
-<p>"I can't help it if I want to generate heat~!!" Shiwoo now spoke boldly, as if rubbing Sehee Nuna's arm was a privilege he had earned. -As he spoke, he could feel his penis slightly hardening again-</p>
+<p>Sehee Nuna said to Shiwoo, her face flushed red, as if snapping at him.</p>
+
+<p>"I can't help it if I want to generate heat~!!"</p>
+
+<p>Shiwoo now spoke boldly, as if rubbing Sehee Nuna's arm was a privilege he had earned. -As he spoke, he could feel his penis slightly hardening again-</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>"Let's go to the aquarium another time, and today, how about we do some shopping and then head home?" Shiwoo said to Sehee Nuna after walking for a while, rubbing her arm, once her shivers subsided.</p>
+<p>"Let's go to the aquarium another time, and today, how about we do some shopping and then head home?"</p>
+
+<p>Shiwoo said to Sehee Nuna after walking for a while, rubbing her arm, once her shivers subsided.</p>
 
 <p>"Shopping?"</p>
 
@@ -36,9 +42,13 @@ chapter = 52
 
 <p>"Mom said that's okay?"</p>
 
-<p>"I'll tell you later, let's go buy clothes first." Shiwoo said, pulling Sehee Nuna closer with the arm he had around her.</p>
+<p>"I'll tell you later, let's go buy clothes first."</p>
 
-<p>"But I think I need to stop by a convenience store right now and buy some underwear first... ever since earlier, it's been..." Sehee Nuna trailed off.</p>
+<p>Shiwoo said, pulling Sehee Nuna closer with the arm he had around her.</p>
+
+<p>"But I think I need to stop by a convenience store right now and buy some underwear first... ever since earlier, it's been..."</p>
+
+<p>Sehee Nuna trailed off.</p>
 
 <p>Thanks to her contact with Shiwoo, Sehee Nuna seemed to be inconveniently soaking herself down below.</p>
 
@@ -50,7 +60,9 @@ chapter = 52
 
 <p class="scene-break">· · ·</p>
 
-<p>"Let's buy underwear there too~! I'll buy it for you~!! Come here first~!!" Shiwoo said, leading Sehee Nuna to a secluded blind spot in the emergency stairwell outside the department store, which was visible nearby and rarely frequented by people.</p>
+<p>"Let's buy underwear there too~! I'll buy it for you~!! Come here first~!!"</p>
+
+<p>Shiwoo said, leading Sehee Nuna to a secluded blind spot in the emergency stairwell outside the department store, which was visible nearby and rarely frequented by people.</p>
 
 <p>Shiwoo pushed Sehee Nuna against the corner wall, trying to keep them out of sight as much as possible.</p>
 
@@ -58,17 +70,23 @@ chapter = 52
 
 <p>Shiwoo crouched down and wiped away the vaginal fluid flowing between Sehee Nuna's thighs, as if scooping it up with Seyoung's pajamas.</p>
 
-<p>"Haa~ Wh-what are you doing~?" Sehee Nuna said, seemingly flustered by Shiwoo's actions, yet she didn't seem to think of avoiding him, like a child receiving punishment.</p>
+<p>"Haa~ Wh-what are you doing~?"</p>
+
+<p>Sehee Nuna said, seemingly flustered by Shiwoo's actions, yet she didn't seem to think of avoiding him, like a child receiving punishment.</p>
 
 <p>Slightly hunched, Sehee Nuna stood with her legs spread, facing the wall, remarkably still.</p>
 
-<p>"You have to wipe it~!!" Shiwoo said, addressing Sehee Nuna with a resolute tone, unlike his usual manner.</p>
+<p>"You have to wipe it~!!"</p>
+
+<p>Shiwoo said, addressing Sehee Nuna with a resolute tone, unlike his usual manner.</p>
 
 <p>Shiwoo lightly tapped the inner thigh flesh of Sehee Nuna with his fingertips, checking the moisture on her thigh that he had wiped with the pajamas.</p>
 
 <p>Shiwoo continued to move his hand upward, tracing the flesh of Sehee Nuna's thigh, confirming the wiped areas with his touch.</p>
 
-<p>"Haa~" Sehee Nuna's long breath, as she stood with her legs spread shoulder-width apart, head bowed and turned away, reached Shiwoo's ear.</p>
+<p>"Haa~"</p>
+
+<p>Sehee Nuna's long breath, as she stood with her legs spread shoulder-width apart, head bowed and turned away, reached Shiwoo's ear.</p>
 
 <p>Before he knew it, Shiwoo's hand was positioned as if it would reach deep into Sehee Nuna's inner thigh.</p>
 
@@ -104,7 +122,9 @@ chapter = 52
 
 <p>Shiwoo's confidence grew.</p>
 
-<p>"This way, it'll never end~" Shiwoo said, caressing Sehee Nuna's wet thigh, then pushed Seyoung's pajamas deep into her crotch.</p>
+<p>"This way, it'll never end~"</p>
+
+<p>Shiwoo said, caressing Sehee Nuna's wet thigh, then pushed Seyoung's pajamas deep into her crotch.</p>
 
 <p>And as if to block the source of the spring, he gently pressed down on Sehee Nuna's sensitive intimate area, covering it and pushing it upward.</p>
 
@@ -114,7 +134,9 @@ chapter = 52
 
 <p>Shiwoo lightly tapped Sehee Nuna's crotch with the pajamas, as if wiping away moisture.</p>
 
-<p>"Hooohmm~" Sehee Nuna exhaled deeply through her nose, as if holding something back with her mouth closed.</p>
+<p>"Hooohmm~"</p>
+
+<p>Sehee Nuna exhaled deeply through her nose, as if holding something back with her mouth closed.</p>
 
 <p>Shiwoo pulled Seyoung's pajamas out from under the skirt to check how much moisture was on them.</p>
 
@@ -124,13 +146,17 @@ chapter = 52
 
 <p>Sehee Nuna's pleasant scent wafted faintly from Seyoung's pajamas.</p>
 
-<p>Sehee Nuna smacked Shiwoo on the head. "Why are you smelling it? Do you want to die?"</p>
+<p>Sehee Nuna smacked Shiwoo on the head.</p>
+
+<p>"Why are you smelling it? Do you want to die?"</p>
 
 <p>Sehee Nuna stood, breathing heavily, her entire face flushed crimson, wearing an exhausted expression.</p>
 
 <p>Shiwoo draped Seyoung's drenched pajamas over his arm and stood up, covering his firmly erect penis in front of him. -As if he had realized it was useless to keep doing this-</p>
 
-<p>"Do you want to at least wear this right now?" Shiwoo said, pulling out Sehee Nuna's panties, stained with his semen, from the shopping bag.</p>
+<p>"Do you want to at least wear this right now?"</p>
+
+<p>Shiwoo said, pulling out Sehee Nuna's panties, stained with his semen, from the shopping bag.</p>
 
 <p>Although he had wiped them with wet tissue in the restroom, Sehee Nuna's pink panties still had his semen soaked into them.</p>
 
@@ -148,23 +174,37 @@ chapter = 52
 
 <p>Shiwoo put his arm around Sehee Nuna's shoulder and led her further into the department store.</p>
 
-<p>"But it's a bit of a waste," Shiwoo said, almost casually, as he walked with Sehee Nuna in his embrace.</p>
+<p>"But it's a bit of a waste,"</p>
 
-<p>"What is?" Sehee Nuna reacted more sensitively than usual to Shiwoo's words.</p>
+<p>Shiwoo said, almost casually, as he walked with Sehee Nuna in his embrace.</p>
 
-<p>"It must have been made by deliberately scarring perfectly good skin, right?" Shiwoo said, thinking of the black initial tattoo etched like embroidery on the intimate, delicate skin of Sehee Nuna's inner thigh.</p>
+<p>"What is?"</p>
+
+<p>Sehee Nuna reacted more sensitively than usual to Shiwoo's words.</p>
+
+<p>"It must have been made by deliberately scarring perfectly good skin, right?"</p>
+
+<p>Shiwoo said, thinking of the black initial tattoo etched like embroidery on the intimate, delicate skin of Sehee Nuna's inner thigh.</p>
 
 <p>"Well, that can't be helped..." Sehee Nuna said, trying her best to sound calm.</p>
 
-<p>"But I wonder if it was okay~?" Shiwoo suddenly changed his voice to a sly and playful tone.</p>
+<p>"But I wonder if it was okay~?"</p>
+
+<p>Shiwoo suddenly changed his voice to a sly and playful tone.</p>
 
 <p>"What?"</p>
 
-<p>"I was just wondering how it was when Sehee Nuna got her tattoo, with so much fluid coming out like this... If it's like this all the time, shouldn't Nuna go to the hospital?" Shiwoo teased Sehee Nuna, returning the playful jab he had received earlier in the park near their house.</p>
+<p>"I was just wondering how it was when Sehee Nuna got her tattoo, with so much fluid coming out like this... If it's like this all the time, shouldn't Nuna go to the hospital?"</p>
 
-<p>"Hah, really~ I wouldn't be like this anywhere else if I wasn't stuck to you like this, you know?" Sehee Nuna said, as if wronged, then thought for a moment before smacking Shiwoo on the head. Kong!! -This time, it seemed she hit him quite hard, with genuine intent-</p>
+<p>Shiwoo teased Sehee Nuna, returning the playful jab he had received earlier in the park near their house.</p>
 
-<p>"You get hard just by looking at me~! You're hard right now, too!" Sehee Nuna snapped at Shiwoo.</p>
+<p>"Hah, really~ I wouldn't be like this anywhere else if I wasn't stuck to you like this, you know?"</p>
+
+<p>Sehee Nuna said, as if wronged, then thought for a moment before smacking Shiwoo on the head. Kong!! -This time, it seemed she hit him quite hard, with genuine intent-</p>
+
+<p>"You get hard just by looking at me~! You're hard right now, too!"</p>
+
+<p>Sehee Nuna snapped at Shiwoo.</p>
 
 <p>After saying that, perhaps embarrassed herself, she buried her head deep into Shiwoo's shoulder, hiding her facial expression from him.</p>
 

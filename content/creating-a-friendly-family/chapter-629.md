@@ -72,11 +72,21 @@ chapter = 629
 
 <p>Mom cut to the chase and asked directly.</p>
 
-<p>Mom seemed to be asking as she recalled the names written on Sejin Nuna's back and the phrase "third concubine."</p>
+<p>Mom seemed to be asking as she recalled the names written on Sejin Nuna's back and the phrase</p>
+
+<p>"third concubine."</p>
 
 <p>On Sejin Nuna's back and waist, the names of Mom, Gyuri Ajumma, Sae-a, and Sejin Nuna were written side by side in large letters.</p>
 
-<p>And under Sejin Nuna's name, which was circled, the words "wife" and "third concubine" were drawn with a question mark.</p>
+<p>And under Sejin Nuna's name, which was circled, the words</p>
+
+<p>"wife"</p>
+
+<p>and</p>
+
+<p>"third concubine"</p>
+
+<p>were drawn with a question mark.</p>
 
 <p>Mom was asking Shiwoo as if confirming after seeing those words.</p>
 

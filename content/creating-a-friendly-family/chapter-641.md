@@ -90,7 +90,11 @@ chapter = 641
 
 <p>『What?』</p>
 
-<p>Shiwoo asked, slightly flustered by Sehee-nuna's words. She didn't answer for a long while. While engulfed in anxiety, the words "tied up" regarding Mom caused various expectations and delusions to cross his mind.</p>
+<p>Shiwoo asked, slightly flustered by Sehee-nuna's words. She didn't answer for a long while. While engulfed in anxiety, the words</p>
+
+<p>"tied up"</p>
+
+<p>regarding Mom caused various expectations and delusions to cross his mind.</p>
 
 <p>And after a moment, as if to provide a detailed explanation, several photos were sent from Sehee-nuna... Without hesitation, Shiwoo touched the thumbnail of the photo in the chat window.</p>
 

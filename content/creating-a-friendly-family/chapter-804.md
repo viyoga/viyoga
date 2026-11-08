@@ -22,7 +22,9 @@ chapter = 804
 
 <p>As if it were only natural, Siu wrapped his other arm around Mother's waist and cupped her pelvis with his palm. Against Siu's palm, which covered Mother's pelvis and the upper part of her buttocks, the outline of her panties could not be felt. His fingertips swept broadly over the thin fabric of the one-piece dress, but the resistance of a seam or band that should have been felt was absent. Siu struggled to find the whereabouts of the panties by sweeping his palm downward.</p>
 
-<p>Caught in Siu's hand as it moved down were Mother's panties, stretched taut from side to side. Mother's panties, hanging just slightly above the middle of her thighs... Mother had walked out of the restroom with her panties lowered and hooked around her thighs, just as Siu had ordered. Mother stood there, pretending not to notice, with her legs slightly apart so that the panties would not slide down any further. Siu applied strength to the fingers he had moved down, pressing down on that taut evidence of secret submission to confirm it once more. Every time that precarious sense of balance and trembling sensation seeped into his mind through his palm, Siu's eyes sank deeper and darker. Mother's short, thin breaths, mixing into the peaceful noise of the cafe, sounded to Siu like a victory song sweeter than anything else.</p>
+<p>Caught in Siu's hand as it moved down were Mother's panties, stretched taut from side to side. Mother's panties, hanging just slightly above the middle of her thighs... Mother had walked out of the restroom with her panties lowered and hooked around her thighs, just as Siu had ordered. Mother stood there, pretending not to notice, with her legs slightly apart so that the panties would not slide down any further. Siu applied strength to the fingers he had moved down, pressing down on that taut evidence of secret submission to confirm it once more.</p>
+
+<p>Every time that precarious sense of balance and trembling sensation seeped into his mind through his palm, Siu's eyes sank deeper and darker. Mother's short, thin breaths, mixing into the peaceful noise of the cafe, sounded to Siu like a victory song sweeter than anything else.</p>
 
 <p>「But you seem quite confident~?」</p>
 
@@ -44,7 +46,9 @@ chapter = 804
 
 <p>Siu spoke while pulling her into his embrace, as if ignoring Mother's words. Mother nodded while held in Siu's arms. While leaving the cafe, a few customers and the clerk sent strange looks mixed with suspicion and curiosity, as if they had read the peculiar atmosphere between the two. Siu walked toward the cafe entrance as if he were completely unaware of those people's gazes. Soon, the sound of the tinkling door bell broke the silence, pushing the two out into the late afternoon air.</p>
 
-<p>The world was still spinning busily, but the moment they stepped out of the cafe, the two could only feel each other's breath and heartbeat. Mother's body heat seeped out completely from inside her thin dress where it touched Siu's palm. As if that warmth were a magnet pulling Siu's hand, he applied more strength to his fingertips, digging deep into the curve of her pelvis. Mother seemed to feel people's gazes piercing her back and um-jjil flinched her shoulders minutely, but she did not reject or push away her son's touch. Rather, she struggled to press herself even closer to Siu's body, leaning on him as she moved her feet. It was the appearance of someone who had been robbed of all initiative and was blindly conforming under her son's perfect control...</p>
+<p>The world was still spinning busily, but the moment they stepped out of the cafe, the two could only feel each other's breath and heartbeat. Mother's body heat seeped out completely from inside her thin dress where it touched Siu's palm. As if that warmth were a magnet pulling Siu's hand, he applied more strength to his fingertips, digging deep into the curve of her pelvis. Mother seemed to feel people's gazes piercing her back and um-jjil flinched her shoulders minutely, but she did not reject or push away her son's touch.</p>
+
+<p>Rather, she struggled to press herself even closer to Siu's body, leaning on him as she moved her feet. It was the appearance of someone who had been robbed of all initiative and was blindly conforming under her son's perfect control...</p>
 
 <p class="scene-break">· · ·</p>
 

@@ -116,7 +116,11 @@ chapter = 694
 
 <p>With Seyoung, Mom spent her daily life lying in bed at night without a stitch of clothing, letting the girl nurse from her breasts until they fell asleep.</p>
 
-<p>The fact that such a mother was suddenly unable to leave the master bedroom now because the living room light was "too bright" made Shiwoo feel utterly bewildered.</p>
+<p>The fact that such a mother was suddenly unable to leave the master bedroom now because the living room light was</p>
+
+<p>"too bright"</p>
+
+<p>made Shiwoo feel utterly bewildered.</p>
 
 <p>[It's not like you guys haven't seen each other naked, and Sehee and Seyoung are already out here completely naked. You're the mother, so how can you be the only one acting like this?]</p>
 

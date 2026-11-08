@@ -32,7 +32,15 @@ chapter = 417
 
 <p>Seonju Imo, while still maintaining her teasing attitude towards Mom, spoke as if Mom's change was welcome and admirable.</p>
 
-<p>「What do you mean "see you often"! I told you to stop, but you really don't know what "enough" means!」</p>
+<p>「What do you mean</p>
+
+<p>"see you often"</p>
+
+<p>! I told you to stop, but you really don't know what</p>
+
+<p>"enough"</p>
+
+<p>means!」</p>
 
 <p>「If you think about it, this all happened because of you! You and Gyuri planned this from the beginning, didn't you?!」</p>
 

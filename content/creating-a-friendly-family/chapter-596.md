@@ -16,7 +16,9 @@ chapter = 596
 
 <p>The raw, unadulterated sex and ejaculation inside her with Sehee Nuna, without a condom... That night, Shiwoo's mind was a bit complicated with worries about pregnancy. In the end, he called Seonju Imo and asked about the morning-after pill. Seonju Imo immediately caught on to Shiwoo and Sehee Nuna's situation, saying she would take care of it herself, and the next day, she hastily took Sehee Nuna somewhere.</p>
 
-<p>At first, Shiwoo thought Seonju Imo had taken Sehee Nuna to a hospital or doctor through a route only she knew. But after some time, Shiwoo learned a completely different truth through Sehee Nuna's smartphone. Seonju Imo had taken Sehee Nuna not to a hospital, but to meet Sejin Nuna. As it happened, Sejin Nuna had the morning-after pill, and thanks to that, the problem could be quietly resolved. If he hadn't contacted Seonju Imo, it might have passed even more quietly... Anyway, that day, Sehee Nuna learned that Sejin Nuna was pregnant and received the key to the drawer containing the slave ledger from her.</p>
+<p>At first, Shiwoo thought Seonju Imo had taken Sehee Nuna to a hospital or doctor through a route only she knew. But after some time, Shiwoo learned a completely different truth through Sehee Nuna's smartphone. Seonju Imo had taken Sehee Nuna not to a hospital, but to meet Sejin Nuna. As it happened, Sejin Nuna had the morning-after pill, and thanks to that, the problem could be quietly resolved. If he hadn't contacted Seonju Imo, it might have passed even more quietly...</p>
+
+<p>Anyway, that day, Sehee Nuna learned that Sejin Nuna was pregnant and received the key to the drawer containing the slave ledger from her.</p>
 
 <p>Sejin Nuna must have known that Shiwoo and Sehee Nuna had sex. If she had been in contact with Seonju Imo, she probably knew in detail about the relationships with the other family members as well. Shiwoo waited for Sejin Nuna's answer and reaction with a pounding heart.</p>
 
@@ -82,7 +84,9 @@ chapter = 596
 
 <p>Shiwoo opened the freezer door and checked inside... Sure enough, just as Shiwoo had expected, about five small containers, identical to the ones next to the breast pump, were inside the freezer. Inside the containers was a smooth, creamy, brownish liquid. Shiwoo, seeing the thick, rich liquid that had come from Sejin Nuna's body with his own eyes, felt his penis strangely twitch, as if it was about to ejaculate. As if suppressing his surging desire, Shiwoo closed the refrigerator door and returned to his seat.</p>
 
-<p>Why was the breast pump, which hadn't been out until just now, left out? Didn't Sejin Nuna think it was strange to show something like that to Shiwoo? In a normal household, an older sister using a breast pump while pregnant would have been naturally accepted without a word. But because Sejin Nuna was pregnant with Dad's child... Because Shiwoo was in a complicated relationship with other family members... And because Shiwoo's visit was for them to acknowledge those facts and discuss the marriage contract with the baby in her womb... The situations unfolding like this inevitably felt different from what ordinary people would experience.</p>
+<p>Why was the breast pump, which hadn't been out until just now, left out? Didn't Sejin Nuna think it was strange to show something like that to Shiwoo? In a normal household, an older sister using a breast pump while pregnant would have been naturally accepted without a word. But because Sejin Nuna was pregnant with Dad's child... Because Shiwoo was in a complicated relationship with other family members... And because Shiwoo's visit was for them to acknowledge those facts and discuss the marriage contract with the baby in her womb...</p>
+
+<p>The situations unfolding like this inevitably felt different from what ordinary people would experience.</p>
 
 <p>A moment later, Sejin Nuna came out of the bathroom. Sejin Nuna put on her apron and began to resume the cooking she had stopped earlier. As if nothing had happened inside the bathroom...</p>
 

@@ -38,15 +38,21 @@ chapter = 649
 
 <p>"You were watching, weren't you? You too, Noona..." Shiwoo asked cautiously of the trembling woman.</p>
 
-<p>"Yes... that's right..." Her answer was calm yet slightly trembling.</p>
+<p>"Yes... that's right..."</p>
+
+<p>Her answer was calm yet slightly trembling.</p>
 
 <p>Shiwoo gently placed his hand on her buttocks.</p>
 
 <p>"If I come on Wednesday... can I meet you inside again?" Shiwoo asked, kneading her buttocks as if grabbing them.</p>
 
-<p>"I suppose so... hum..." She answered, her body twitching in response to Shiwoo's hand gripping her ass.</p>
+<p>"I suppose so... hum..."</p>
 
-<p>"Earlier! I think you said there wasn't no way to recognize each other in the dark cafe... How were we supposed to recognize each other?" Shiwoo asked again, as if confirming the answer to the question he hadn't finished earlier.</p>
+<p>She answered, her body twitching in response to Shiwoo's hand gripping her ass.</p>
+
+<p>"Earlier! I think you said there wasn't no way to recognize each other in the dark cafe... How were we supposed to recognize each other?"</p>
+
+<p>Shiwoo asked again, as if confirming the answer to the question he hadn't finished earlier.</p>
 
 <p>She hesitated for a moment, wavering in her response.</p>
 
@@ -54,13 +60,21 @@ chapter = 649
 
 <p>Shiwoo's hand left her buttocks for a moment before slamming down hard again onto her cozy flesh.</p>
 
-<p>"Answer!" Shiwoo spoke to her in a firm tone, as if he wouldn't tolerate even a shred of hesitation.</p>
+<p>"Answer!"</p>
 
-<p>"Heuk... Ma, Master... doesn't need to recognize us... because we, we will be able to recognize you..." She answered with a bowed head through trembling breaths, as if she had already accepted all of this like fate.</p>
+<p>Shiwoo spoke to her in a firm tone, as if he wouldn't tolerate even a shred of hesitation.</p>
 
-<p>"What? What are you talking about...?" Shiwoo looked down at her and asked again, his gaze a mix of impatience and anxiety.</p>
+<p>"Heuk... Ma, Master... doesn't need to recognize us... because we, we will be able to recognize you..."</p>
 
-<p>"Because we are also... doing... ha-eu..." She was catching her breath, barely spitting out words that Shiwoo couldn't quite make out in a voice that trembled as if crawling away.</p>
+<p>She answered with a bowed head through trembling breaths, as if she had already accepted all of this like fate.</p>
+
+<p>"What? What are you talking about...?"</p>
+
+<p>Shiwoo looked down at her and asked again, his gaze a mix of impatience and anxiety.</p>
+
+<p>"Because we are also... doing... ha-eu..."</p>
+
+<p>She was catching her breath, barely spitting out words that Shiwoo couldn't quite make out in a voice that trembled as if crawling away.</p>
 
 <p>Though her words were unintelligible, a strange sense of relief and calmness spread through his chest. Shiwoo set aside the plastic bag of ice cream he was holding. Then, he immediately lowered his pants and pulled his erect penis out of his clothes.</p>
 
@@ -98,9 +112,13 @@ chapter = 649
 
 <p>"A-Are you okay?!" Shiwoo pulled his waist back slightly and asked her.</p>
 
-<p>"Yes... yes... ha-eu... eu..." She answered, moaning as her vagina hole tightened around Shiwoo's penis, which was halfway inside her.</p>
+<p>"Yes... yes... ha-eu... eu..."</p>
 
-<p>"You should have said something! Why didn't you say anything?!" Shiwoo looked at her trembling shoulders, his voice a mix of surprise and pity.</p>
+<p>She answered, moaning as her vagina hole tightened around Shiwoo's penis, which was halfway inside her.</p>
+
+<p>"You should have said something! Why didn't you say anything?!"</p>
+
+<p>Shiwoo looked at her trembling shoulders, his voice a mix of surprise and pity.</p>
 
 <p>Contrary to his worried words, Shiwoo's penis inside her hole continued to expand, parting the narrow gap in her flesh.</p>
 

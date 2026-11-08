@@ -56,7 +56,11 @@ chapter = 605
 
 <p>As she arranged the dishes, Sejin Nuna explained, as if continuing the words she had just spoken while looking at Shiwoo's face.</p>
 
-<p>Shiwoo's mind first went blank with the thought, 'Can a "normal romantic relationship" even exist between a father and daughter in the first place?' and his head felt numb.</p>
+<p>Shiwoo's mind first went blank with the thought, 'Can a</p>
+
+<p>"normal romantic relationship"</p>
+
+<p>even exist between a father and daughter in the first place?' and his head felt numb.</p>
 
 <p>But as Shiwoo chewed over the meaning of Sejin Nuna's words, he soon felt his thoughts gradually organizing.</p>
 

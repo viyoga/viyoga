@@ -142,7 +142,11 @@ chapter = 776
 
 <p>"Mom is okay... I, I think I feel... good right now... I like it..."</p>
 
-<p>She followed up with an answer that seemed to emphasize her position as "Mom" and their mother-daughter relationship even in the midst of this.</p>
+<p>She followed up with an answer that seemed to emphasize her position as</p>
+
+<p>"Mom"</p>
+
+<p>and their mother-daughter relationship even in the midst of this.</p>
 
 <p>Shiwoo released the flick and pressed down on Mom's nipple with his thumb, rubbing it softly.</p>
 

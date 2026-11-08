@@ -36,9 +36,9 @@ chapter = 244
 
 <p>「Eueueuung~」</p>
 
-<p>Mom let out a long sound, a mix of a sigh and a response, as if Shiwoo's whispered words were perplexing. Shiwoo pulled his hand from inside Mom's clothes and, standing, thrust his erect penis before Mom's face. His enormous penis, protruding from his pants, was throbbing as if it would explode at any moment. Shiwoo grabbed the hem of Mom's light purple oversized T-shirt, flipping it up to undress her. Mom's hands went up, and her clothes were removed as Shiwoo did. Mom's large breasts, encased in a white lingerie bra, were exposed. Luscious and captivating flesh sat beautifully in place.</p>
+<p>Mom let out a long sound, a mix of a sigh and a response, as if Shiwoo's whispered words were perplexing. Shiwoo pulled his hand from inside Mom's clothes and, standing, thrust his erect penis before Mom's face. His enormous penis, protruding from his pants, was throbbing as if it would explode at any moment. Shiwoo grabbed the hem of Mom's light purple oversized T-shirt, flipping it up to undress her. Mom's hands went up, and her clothes were removed as Shiwoo did.</p>
 
-<p>Shiwoo also unhooked the waist of Mom's gray flare skirt. Then, he pulled the skirt down, separating it from Mom's body. Mom was once again sitting before Shiwoo in just her underwear. Shiwoo gripped the shaft of his enormous penis and brought the tip of its glans to Mom's face. Shiwoo's majestically swollen penis was thrust towards Mom's lips.</p>
+<p>Mom's large breasts, encased in a white lingerie bra, were exposed. Luscious and captivating flesh sat beautifully in place. Shiwoo also unhooked the waist of Mom's gray flare skirt. Then, he pulled the skirt down, separating it from Mom's body. Mom was once again sitting before Shiwoo in just her underwear. Shiwoo gripped the shaft of his enormous penis and brought the tip of its glans to Mom's face. Shiwoo's majestically swollen penis was thrust towards Mom's lips.</p>
 
 <p>-Tak! Tak! Tak! Tak!</p>
 
@@ -54,7 +54,9 @@ chapter = 244
 
 <p>-Chalkak! Chalkak! Chalkak!</p>
 
-<p>Mom's image, with an expression no different from a sex slave as she held Shiwoo's cock in her mouth, was captured directly on the smartphone screen. Shiwoo opened the chat window where Mom and Seonju Imo were together and invited Sehee Nuna to that chat window. He had gathered the three family members he had sex with into one room. Shiwoo uploaded the photo of Mom he had just taken to the group chat room with Mom, Seonju Imo, and Sehee Nuna. Notification sounds rang almost simultaneously on Mom's and Sehee Nuna's smartphones. Immediately, the number next to the photo changed to 1. The two people, excluding Mom, had just checked the photo Shiwoo sent.</p>
+<p>Mom's image, with an expression no different from a sex slave as she held Shiwoo's cock in her mouth, was captured directly on the smartphone screen. Shiwoo opened the chat window where Mom and Seonju Imo were together and invited Sehee Nuna to that chat window. He had gathered the three family members he had sex with into one room. Shiwoo uploaded the photo of Mom he had just taken to the group chat room with Mom, Seonju Imo, and Sehee Nuna.</p>
+
+<p>Notification sounds rang almost simultaneously on Mom's and Sehee Nuna's smartphones. Immediately, the number next to the photo changed to 1. The two people, excluding Mom, had just checked the photo Shiwoo sent.</p>
 
 <p>「Oh my~ It seems you've completely subjugated older sister now~ Congratulations, Master-nim~!」</p>
 
@@ -102,9 +104,9 @@ chapter = 244
 
 <p>「Sehee, you too, take off your T-shirt now and start clitoris masturbation! Imagining Seonmi sucking yours!」</p>
 
-<p>Shiwoo gave his final command to Sehee Nuna. Then, Shiwoo showed his smartphone screen to Mom, who was sucking his penis. Mom began to read the messages in the smartphone chat window, sweeping Shiwoo's cock with her mouth. Mom's breath began to grow rough. Mom had now confirmed that Sehee Nuna had been invited to the room where only she and Seonju Imo had been, that her own photo taken just now had been shared, and the commands Shiwoo had given to Seonju Imo and Sehee Nuna. Suddenly, Mom's tongue play, which had been caressing Shiwoo's glans, began to intensify.</p>
+<p>Shiwoo gave his final command to Sehee Nuna. Then, Shiwoo showed his smartphone screen to Mom, who was sucking his penis. Mom began to read the messages in the smartphone chat window, sweeping Shiwoo's cock with her mouth. Mom's breath began to grow rough. Mom had now confirmed that Sehee Nuna had been invited to the room where only she and Seonju Imo had been, that her own photo taken just now had been shared, and the commands Shiwoo had given to Seonju Imo and Sehee Nuna.</p>
 
-<p>Turning to look at Sehee Nuna, who was sitting on the sofa, she had brought her hand inside her panties and was masturbating, gazing at Shiwoo and Mom's oral sex like a spectator watching porn. Her T-shirt was off, as per Shiwoo's command. Both Mom and Sehee Nuna continued their oral sex and masturbation, respectively, wearing only the stimulating lingerie underwear Shiwoo had bought them.</p>
+<p>Suddenly, Mom's tongue play, which had been caressing Shiwoo's glans, began to intensify. Turning to look at Sehee Nuna, who was sitting on the sofa, she had brought her hand inside her panties and was masturbating, gazing at Shiwoo and Mom's oral sex like a spectator watching porn. Her T-shirt was off, as per Shiwoo's command. Both Mom and Sehee Nuna continued their oral sex and masturbation, respectively, wearing only the stimulating lingerie underwear Shiwoo had bought them.</p>
 
 <p class="scene-break">· · ·</p>
 

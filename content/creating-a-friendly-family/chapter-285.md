@@ -96,7 +96,11 @@ chapter = 285
 
 <p>Sehee's thighs, spread wide and twitching as if drained of strength.</p>
 
-<p>On the delicate skin of that intimate inner thigh, Sinbi Nuna's initial tattoo, marked "B S," was visible, overlapping with the unhealed wound of a hickey.</p>
+<p>On the delicate skin of that intimate inner thigh, Sinbi Nuna's initial tattoo, marked</p>
+
+<p>"B S,"</p>
+
+<p>was visible, overlapping with the unhealed wound of a hickey.</p>
 
 <p>Shiwoo brought his finger to the initial tattoo etched on Sehee's inner thigh.</p>
 

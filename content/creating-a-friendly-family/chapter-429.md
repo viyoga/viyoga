@@ -104,7 +104,11 @@ chapter = 429
 
 <p>[Yes! Seonmi, get my initial tattoo, SWY, right below your pussy hole! Because it's a mark that you're my slave!] Shiwoo conveyed his desires to Mom firmly and precisely.</p>
 
-<p>And that too, no longer calling her "Mom" but by her name...</p>
+<p>And that too, no longer calling her</p>
+
+<p>"Mom"</p>
+
+<p>but by her name...</p>
 
 <p>In the 1:1 chat window, where they were supposed to be mother and son, at Shiwoo's provocative demand and tone, Mom seemed to be speechless again for a moment.</p>
 
@@ -120,15 +124,25 @@ chapter = 429
 
 <p>As if about to burst at any moment, Shiwoo's penis was brutally engorged.</p>
 
-<p>[Good! Then I'm coming now, so wait just like that. Mom!] Shiwoo spoke as if to end the conversation, and called her "Mom" again.</p>
+<p>[Good! Then I'm coming now, so wait just like that. Mom!] Shiwoo spoke as if to end the conversation, and called her</p>
 
-<p>As if after the play was over, he was trying to keep his promise to return her to being "Mom"...</p>
+<p>"Mom"</p>
+
+<p>again.</p>
+
+<p>As if after the play was over, he was trying to keep his promise to return her to being</p>
+
+<p>"Mom"</p>
+
+<p>...</p>
 
 <p>Shiwoo picked up the wet wipes he had gotten from the vending machine along with the mop, and headed towards the room where Mom was.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>"You'll have to get a Brazilian wax later~!" As soon as he entered the room, seeing the hair protruding from outside her red micro bikini swimsuit, below Mom's lower abdomen, where she sat in the corner, Shiwoo spoke in a casual, passing tone.</p>
+<p>"You'll have to get a Brazilian wax later~!"</p>
+
+<p>As soon as he entered the room, seeing the hair protruding from outside her red micro bikini swimsuit, below Mom's lower abdomen, where she sat in the corner, Shiwoo spoke in a casual, passing tone.</p>
 
 <p>Her body was clothed in the red micro bikini swimsuit that Shiwoo had brought.</p>
 

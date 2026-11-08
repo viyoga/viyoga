@@ -22,9 +22,13 @@ chapter = 68
 
 <p>Shiwoo aligned the head of his cock along the vertical line of the flesh hole that had been pried open, and gently pressed the shaft downwards, preparing for insertion.</p>
 
-<p>"Now, I'm going in," Shiwoo whispered into the ear of Sehee, who lay with her eyes tightly shut as if awaiting her younger brother's disposition.</p>
+<p>"Now, I'm going in,"</p>
 
-<p>"S-slowly..." Sehee spoke to Shiwoo in a pleading tone, under the pressure of his penis gently pressing against the narrow opening of her vaginal membrane.</p>
+<p>Shiwoo whispered into the ear of Sehee, who lay with her eyes tightly shut as if awaiting her younger brother's disposition.</p>
+
+<p>"S-slowly..."</p>
+
+<p>Sehee spoke to Shiwoo in a pleading tone, under the pressure of his penis gently pressing against the narrow opening of her vaginal membrane.</p>
 
 <p>Looking down at Sehee, who wore the expression of a woman, Shiwoo smiled contentedly and nodded.</p>
 
@@ -162,17 +166,23 @@ chapter = 68
 
 <p>Worried about Sehee's condition, Shiwoo barely managed to adjust his posture.</p>
 
-<p>"Sehee-ya, you know what to do if you really can't bear it, right?" Shiwoo asked, as if making a final check of the safe word they had agreed upon after seeing it in the video.</p>
+<p>"Sehee-ya, you know what to do if you really can't bear it, right?"</p>
+
+<p>Shiwoo asked, as if making a final check of the safe word they had agreed upon after seeing it in the video.</p>
 
 <p>-Now, as if he was about to begin thrusting his penis into Sehee in earnest-</p>
 
 <p>Perhaps embarrassed to look at Shiwoo's face with his penis deeply embedded, Sehee avoided his gaze, nodded slightly, then pulled Shiwoo's face closer and embraced him, as if crossing their cheeks.</p>
 
-<p>"W-would I ever say such a thing out loud?! You idiot~ Heut!" Sehee's trembling voice reached Shiwoo's ear faintly.</p>
+<p>"W-would I ever say such a thing out loud?! You idiot~ Heut!"</p>
+
+<p>Sehee's trembling voice reached Shiwoo's ear faintly.</p>
 
 <p>Sehee's rebellious attitude, which seemed to have changed from just a moment ago.</p>
 
-<p>"And Shiwoo, why have you been calling my name so casually since earlier? Haa~ You're messing with your Nuna, you little... Just because I'm quiet, you think it's okay?! I'm really upset, you know?! Haa~ Haa~" Sehee breathed roughly and, as if deliberately trying to provoke Shiwoo, complained in a quarrelsome tone.</p>
+<p>"And Shiwoo, why have you been calling my name so casually since earlier? Haa~ You're messing with your Nuna, you little... Just because I'm quiet, you think it's okay?! I'm really upset, you know?! Haa~ Haa~"</p>
+
+<p>Sehee breathed roughly and, as if deliberately trying to provoke Shiwoo, complained in a quarrelsome tone.</p>
 
 <p>After watching the video, had her masochistic tendencies, unknown even to herself, been stimulated?</p>
 
@@ -182,13 +192,17 @@ chapter = 68
 
 <p>In Shiwoo's chest, a strong sadistic urge to thrust his penis, piercing Sehee's uterus, right now, strongly arose.</p>
 
-<p>"It's really... going to hurt, and I'm not going to stop, ever~!!!" Shiwoo, as if playing along with Sehee's provocation, was giving Sehee a final warning.</p>
+<p>"It's really... going to hurt, and I'm not going to stop, ever~!!!"</p>
+
+<p>Shiwoo, as if playing along with Sehee's provocation, was giving Sehee a final warning.</p>
 
 <p>Perhaps recalling the sight of the female participants sprawled in pleasure in the video he had just seen, Sehee's arms and legs, wrapped around Shiwoo, began to tremble violently as soon as she heard Shiwoo's warning.</p>
 
 <p>Recalling the pain and pleasure from when he had just been deeply embedded, Sehee's vaginal muscles, gripping Shiwoo's penis, repeatedly clenched and relaxed.</p>
 
-<p>"...Go...go ahead and try..." The provocative answer that came from Sehee's mouth.</p>
+<p>"...Go...go ahead and try..."</p>
+
+<p>The provocative answer that came from Sehee's mouth.</p>
 
 <p>Even though her voice was trembling...</p>
 
@@ -232,7 +246,9 @@ chapter = 68
 
 <p>But it was far from enough to affect Shiwoo's violent thrusting.</p>
 
-<p>"Haeueu Haaak Sh-Shiwoo-ya... what do I do now~!!!" Sehee cried out pleadingly, calling Shiwoo's name.</p>
+<p>"Haeueu Haaak Sh-Shiwoo-ya... what do I do now~!!!"</p>
+
+<p>Sehee cried out pleadingly, calling Shiwoo's name.</p>
 
 <p>"Sehee, you're mine now~!!! I won't give you to anyone~!!!"</p>
 

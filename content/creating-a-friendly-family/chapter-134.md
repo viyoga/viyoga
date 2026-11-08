@@ -4,15 +4,21 @@ weight = 134
 [extra]
 chapter = 134
 +++
-<p>"When is Ajusshi coming?" Shiwoo asked, suppressing the urge to pounce on Gyuri Ajumma right then and there.</p>
+<p>"When is Ajusshi coming?"</p>
 
-<p>"Him? He'll probably be back around dinner, or maybe even later... Why?" Gyuri Ajumma answered Shiwoo's question as she reached up to the cupboard for a teacup.</p>
+<p>Shiwoo asked, suppressing the urge to pounce on Gyuri Ajumma right then and there.</p>
+
+<p>"Him? He'll probably be back around dinner, or maybe even later... Why?"</p>
+
+<p>Gyuri Ajumma answered Shiwoo's question as she reached up to the cupboard for a teacup.</p>
 
 <p>Gyuri Ajumma's back, with her arms slightly raised. The curve of her slender waist and plump buttocks became even more distinct in Shiwoo's eyes.</p>
 
 <p>Having confirmed Ajusshi's return time, Shiwoo's cock grew even harder and more rigid. Shiwoo imagined himself immediately forcing Gyuri Ajumma onto the kitchen floor, lifting her skirt, inserting his cock, and ramming into her until she begged for mercy.</p>
 
-<p>"Oh, no, just wondering." Shiwoo said, moving aside his school uniform jacket that had been covering his front.</p>
+<p>"Oh, no, just wondering."</p>
+
+<p>Shiwoo said, moving aside his school uniform jacket that had been covering his front.</p>
 
 <p>His erect penis was thrusting up as if it would tear through his pants. The realization that making his fantasy a reality would be far from difficult doubled Shiwoo's excitement, making his body tremble.</p>
 
@@ -30,7 +36,9 @@ chapter = 134
 
 <p>Gyuri Ajumma immediately picked up the smartphone from the sink and checked it. Gyuri Ajumma's body seemed to freeze for a moment, then she casually put the smartphone down as if nothing had happened.</p>
 
-<p>"Aren't you doing yoga today? I heard you do it every day?" Shiwoo deliberately gave her no breathing room, immediately asking Gyuri Ajumma a question that came to mind.</p>
+<p>"Aren't you doing yoga today? I heard you do it every day?"</p>
+
+<p>Shiwoo deliberately gave her no breathing room, immediately asking Gyuri Ajumma a question that came to mind.</p>
 
 <p>"Uh... yeah, I think I overdid it all day, so I'm going to rest today..." Gyuri Ajumma answered in a slightly choked voice.</p>
 
@@ -42,15 +50,23 @@ chapter = 134
 
 <p>As soon as she checked the smartphone, Gyuri Ajumma's body trembled, as if the sensation of passing out had resurfaced.</p>
 
-<p>"You look a little tired, are you feeling okay?" Shiwoo cautiously checked on Gyuri Ajumma's condition, matching her mood.</p>
+<p>"You look a little tired, are you feeling okay?"</p>
 
-<p>"Yeah... my shoulders and back are a little... stiff..." Gyuri Ajumma's voice trembled, sounding slightly aroused.</p>
+<p>Shiwoo cautiously checked on Gyuri Ajumma's condition, matching her mood.</p>
+
+<p>"Yeah... my shoulders and back are a little... stiff..."</p>
+
+<p>Gyuri Ajumma's voice trembled, sounding slightly aroused.</p>
 
 <p>"Well, that's perfect. Shall I give you a massage?" Shiwoo didn't miss the opportunity and asked Gyuri Ajumma.</p>
 
-<p>"Ma... massage?" Gyuri Ajumma asked back, her face flushed, as she brought the teacup with green tea to the table.</p>
+<p>"Ma... massage?"</p>
 
-<p>"Yes, I promised to give you one before, didn't I? Cheoljin and Ajusshi will probably be late... and you said your shoulders and back are stiff, so..." Shiwoo spoke as if confirming to Gyuri Ajumma that she no longer had any reason to refuse.</p>
+<p>Gyuri Ajumma asked back, her face flushed, as she brought the teacup with green tea to the table.</p>
+
+<p>"Yes, I promised to give you one before, didn't I? Cheoljin and Ajusshi will probably be late... and you said your shoulders and back are stiff, so..."</p>
+
+<p>Shiwoo spoke as if confirming to Gyuri Ajumma that she no longer had any reason to refuse.</p>
 
 <p>「Y-you will?」 Gyuri Ajumma gave an affirmative answer, sounding shy.</p>
 
@@ -58,15 +74,23 @@ chapter = 134
 
 <p>Gyuri Ajumma placed the teacup on the table, then her eyes, wide and unfocused, confirmed the enormous bulge in Shiwoo's pants.</p>
 
-<p>"Those clothes might get in the way during the massage, so after you finish your tea, would you mind changing into your yoga outfit? You know, the pink tank top and gray leggings I saw before?" Shiwoo boldly took a sip of tea, then demanded that Gyuri Ajumma change into the specific outfit he had seen her in before.</p>
+<p>"Those clothes might get in the way during the massage, so after you finish your tea, would you mind changing into your yoga outfit? You know, the pink tank top and gray leggings I saw before?"</p>
 
-<p>"Oh... you remembered that well?" Gyuri Ajumma looked a little surprised, then cast her eyes down as she spoke to Shiwoo.</p>
+<p>Shiwoo boldly took a sip of tea, then demanded that Gyuri Ajumma change into the specific outfit he had seen her in before.</p>
 
-<p>"Of course. I even took pictures, didn't I? By the way, can I take some photos of you during the massage today too?" Shiwoo was asking for Gyuri Ajumma's permission for something he could have done without asking.</p>
+<p>"Oh... you remembered that well?"</p>
+
+<p>Gyuri Ajumma looked a little surprised, then cast her eyes down as she spoke to Shiwoo.</p>
+
+<p>"Of course. I even took pictures, didn't I? By the way, can I take some photos of you during the massage today too?"</p>
+
+<p>Shiwoo was asking for Gyuri Ajumma's permission for something he could have done without asking.</p>
 
 <p>It was as if he wanted to remind Gyuri Ajumma of their past physical contact, even though he knew she couldn't refuse.</p>
 
-<p>"...Mm..." Gyuri Ajumma's answer was subtly trembling.</p>
+<p>"...Mm..."</p>
+
+<p>Gyuri Ajumma's answer was subtly trembling.</p>
 
 <p>The two of them drank their tea in silence for a moment. A secret blend of excitement and tension seemed to melt and flow in the air between them.</p>
 
@@ -120,21 +144,33 @@ chapter = 134
 
 <p>Gyuri Ajumma blushed slightly, as if embarrassed by Shiwoo's gaze, and raised her arms to cover her body.</p>
 
-<p>"You can lie down here." Shiwoo pointed to the spot where the yoga mat was spread and guided Gyuri Ajumma.</p>
+<p>"You can lie down here."</p>
+
+<p>Shiwoo pointed to the spot where the yoga mat was spread and guided Gyuri Ajumma.</p>
 
 <p>Gyuri Ajumma approached the spot Shiwoo indicated, subtly glancing at the shelf where the camera had been.</p>
 
-<p>"I turned it off." Shiwoo informed her in advance that the camera was off, so Gyuri Ajumma wouldn't worry.</p>
+<p>"I turned it off."</p>
+
+<p>Shiwoo informed her in advance that the camera was off, so Gyuri Ajumma wouldn't worry.</p>
 
 <p>Gyuri Ajumma looked at Shiwoo's face with an unreadable expression, then turned her head towards the front door, checking that it was closed.</p>
 
-<p>"Haaah~" Gyuri Ajumma sighed, lowering her head as if all strength had left her.</p>
+<p>"Haaah~"</p>
 
-<p>"A-are you okay?" Shiwoo asked, worried that Gyuri Ajumma might be angry about the secretly filmed video and the camera.</p>
+<p>Gyuri Ajumma sighed, lowering her head as if all strength had left her.</p>
 
-<p>"Yeah... I'm okay... Do I just lie down here?" Fortunately, there was no anger or irritation in Gyuri Ajumma's tone.</p>
+<p>"A-are you okay?"</p>
 
-<p>"Yes... you can lie prone this way." Shiwoo, relieved, reached out and took Gyuri Ajumma's arm.</p>
+<p>Shiwoo asked, worried that Gyuri Ajumma might be angry about the secretly filmed video and the camera.</p>
+
+<p>"Yeah... I'm okay... Do I just lie down here?"</p>
+
+<p>Fortunately, there was no anger or irritation in Gyuri Ajumma's tone.</p>
+
+<p>"Yes... you can lie prone this way."</p>
+
+<p>Shiwoo, relieved, reached out and took Gyuri Ajumma's arm.</p>
 
 <p>Shiwoo gently placed his hand on her thigh, guiding Gyuri Ajumma to lie prone safely. Gyuri Ajumma flinched once more at Shiwoo's touch.</p>
 
@@ -142,6 +178,8 @@ chapter = 134
 
 <p>As soon as Gyuri Ajumma lay prone, Shiwoo placed his hands on her buttocks and began to knead them. Gyuri Ajumma's buttocks, swollen from the spanking.</p>
 
-<p>"Heeueum..." Gyuri Ajumma let out a deep, sensual moaning sound, as if complaining of stimulating pain.</p>
+<p>"Heeueum..."</p>
+
+<p>Gyuri Ajumma let out a deep, sensual moaning sound, as if complaining of stimulating pain.</p>
 
 <p>In a space cut off from outside gazes and the flow of air, Shiwoo and Gyuri Ajumma's secret second sex was about to begin.</p>

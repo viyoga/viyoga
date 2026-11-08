@@ -42,7 +42,11 @@ chapter = 553
 
 <p>Seyoung changed the subject again, asking Shiwoo as if she was curious about the situation when he first had sex with Mom.</p>
 
-<p>As the word "sex" came out of Seyoung's mouth one after another without any hesitation, Shiwoo's penis became strongly engorged.</p>
+<p>As the word</p>
+
+<p>"sex"</p>
+
+<p>came out of Seyoung's mouth one after another without any hesitation, Shiwoo's penis became strongly engorged.</p>
 
 <p>Seyoung looked up at Shiwoo, and as if reacting immediately to Shiwoo's swelling penis, her vagina hole tightened.</p>
 

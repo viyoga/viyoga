@@ -110,7 +110,13 @@ chapter = 595
 
 <p>"The baby's Dad... is it 'that person' I know?"</p>
 
-<p>Shiwoo couldn't directly say the words "Dad's baby," so he carefully asked, using the title "that person" instead.</p>
+<p>Shiwoo couldn't directly say the words</p>
+
+<p>"Dad's baby," so he carefully asked, using the title</p>
+
+<p>"that person"</p>
+
+<p>instead.</p>
 
 <p>Sejin Nuna smiles shyly and quietly nods her head.</p>
 

@@ -118,7 +118,9 @@ chapter = 624
 
 <p>Sejin Nuna exhaled roughly, as if understanding the meaning of the graffiti Shiwoo had drawn.</p>
 
-<p>The horizontal line drawn where the arrow pointed was one stroke of the Chinese character for "correct."</p>
+<p>The horizontal line drawn where the arrow pointed was one stroke of the Chinese character for</p>
+
+<p>"correct."</p>
 
 <p>It was a mark that Shiwoo had ejaculated inside her vagina once...</p>
 

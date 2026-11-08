@@ -110,7 +110,9 @@ chapter = 594
 
 <p>,A picture of Mom's pussy! A picture of Seonmi-nim's pussy with her panties hanging on her thighs like a pervert and wearing a vibrator!」</p>
 
-<p>Shiwoo was demanding a picture of a specific area, using explicit words and changing the way he referred to Mom to "Seonmi-nim."</p>
+<p>Shiwoo was demanding a picture of a specific area, using explicit words and changing the way he referred to Mom to</p>
+
+<p>"Seonmi-nim."</p>
 
 <p>Mom hesitated and pondered for even longer than before, then sent a reply.</p>
 

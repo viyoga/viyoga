@@ -132,7 +132,9 @@ chapter = 320
 
 <p>On the way to the restroom, Shiwoo looked at his smartphone and spoke as if to himself.</p>
 
-<p>Seyoung and Sua looked at Shiwoo with puzzled expressions at the mention of "puppies."</p>
+<p>Seyoung and Sua looked at Shiwoo with puzzled expressions at the mention of</p>
+
+<p>"puppies."</p>
 
 <p>"Seyoung, have you heard anything from Seonmi and Sehee?"</p>
 

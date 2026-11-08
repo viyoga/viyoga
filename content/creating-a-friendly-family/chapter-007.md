@@ -20,9 +20,9 @@ chapter = 7
 
 <p>「Oh? Sinbi Nuna? You were here too?」</p>
 
-<p>Next to her was Sinbi Nuna, his Nuna's friend. Sehee Nuna's best friend and the older sister of the beautiful pervert, Shin Seulgi. With makeup and clothes unlike her usual style, he hadn't recognized her immediately. Sinbi Nuna, true to her name, exuded an aura of mystery—somewhat exotic. A beautiful face with bob-cut hair that reached below her ears. A small, slender-looking body. Voluptuous breasts and buttocks. It was undeniably a woman's body, perfectly endowed. She had exercised with Sehee Nuna until middle school academy. When Sehee Nuna quit exercising, Sinbi Nuna seemed to have followed suit.</p>
+<p>Next to her was Sinbi Nuna, his Nuna's friend. Sehee Nuna's best friend and the older sister of the beautiful pervert, Shin Seulgi. With makeup and clothes unlike her usual style, he hadn't recognized her immediately. Sinbi Nuna, true to her name, exuded an aura of mystery—somewhat exotic. A beautiful face with bob-cut hair that reached below her ears. A small, slender-looking body. Voluptuous breasts and buttocks. It was undeniably a woman's body, perfectly endowed. She had exercised with Sehee Nuna until middle school academy.</p>
 
-<p>While they each might have had their reasons, there was no doubt they were close. -It was Sinbi Nuna who told Shiwoo why Sehee Nuna quit exercising- Sinbi Nuna had folded her academy uniform skirt up short, wearing it like a mini-skirt. Standing next to Sehee Nuna, her plump yet shapely thighs seemed to exude a charm quite different from Sehee Nuna's.</p>
+<p>When Sehee Nuna quit exercising, Sinbi Nuna seemed to have followed suit. While they each might have had their reasons, there was no doubt they were close. -It was Sinbi Nuna who told Shiwoo why Sehee Nuna quit exercising- Sinbi Nuna had folded her academy uniform skirt up short, wearing it like a mini-skirt. Standing next to Sehee Nuna, her plump yet shapely thighs seemed to exude a charm quite different from Sehee Nuna's.</p>
 
 <p>「Hello~ So you're Sehee's younger brother, Shiwoo?」 「Oh my, you're as handsome as I heard?」 「Are you coming back from the academy now?」</p>
 
@@ -154,7 +154,11 @@ chapter = 7
 
 <p class="scene-break">· · ·</p>
 
-<p>On the first floor, Sehee Nuna was practicing dance steps while watching an internet video. She was practicing the basic steps of a dance called b-boying. Sinbi Nuna, seeing Sehee Nuna so engrossed, pursued her lips and made a gesture for silence. Then, she mouthed 'Watch closely' exaggeratedly to Shiwoo, before stealthily approaching Sehee Nuna from behind. Looking at Shiwoo, she counted "one, two, three" with her fingers, then Sinbi Nuna lifted Sehee Nuna's skirt.</p>
+<p>On the first floor, Sehee Nuna was practicing dance steps while watching an internet video. She was practicing the basic steps of a dance called b-boying. Sinbi Nuna, seeing Sehee Nuna so engrossed, pursued her lips and made a gesture for silence. Then, she mouthed 'Watch closely' exaggeratedly to Shiwoo, before stealthily approaching Sehee Nuna from behind. Looking at Shiwoo, she counted</p>
+
+<p>"one, two, three"</p>
+
+<p>with her fingers, then Sinbi Nuna lifted Sehee Nuna's skirt.</p>
 
 <p>「Ah! What are you doing!!!」</p>
 

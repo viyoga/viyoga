@@ -28,7 +28,9 @@ chapter = 177
 
 <p>Shiwoo slightly lifted his cock from her head and shook it over her forehead and crown, as if shaking off the last of the residual urine.</p>
 
-<p>"Heut... Heueu... Haaht," Seonju Imo trembled at Shiwoo's actions, moaning as if sobbing.</p>
+<p>"Heut... Heueu... Haaht,"</p>
+
+<p>Seonju Imo trembled at Shiwoo's actions, moaning as if sobbing.</p>
 
 <p>-Chalkak!</p>
 
@@ -254,7 +256,9 @@ chapter = 177
 
 <p>Shiwoo slightly lifted his cock from her head and shook it over her forehead and crown, as if shaking off the last of the residual urine.</p>
 
-<p>"Heut... Heueu... Haaht," Seonju Imo trembled at Shiwoo's actions, moaning as if sobbing.</p>
+<p>"Heut... Heueu... Haaht,"</p>
+
+<p>Seonju Imo trembled at Shiwoo's actions, moaning as if sobbing.</p>
 
 <p>-Chalkak!</p>
 

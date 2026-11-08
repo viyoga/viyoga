@@ -144,7 +144,9 @@ chapter = 715
 
 <p>Shiwoo spoke as he looked down at her, his penis filling Aunt Seonju's mouth.</p>
 
-<p>"Heon-mi eon-ni ah-kka... nol-li-go bi-ut-eot-deon-geo mi-an-hae nae-ga jal-mot-haet-eo..." (Seonmi-eonni, I'm sorry for teasing and laughing at you earlier... I was wrong...)</p>
+<p>"Heon-mi eon-ni ah-kka... nol-li-go bi-ut-eot-deon-geo mi-an-hae nae-ga jal-mot-haet-eo..."</p>
+
+<p>(Seonmi-eonni, I'm sorry for teasing and laughing at you earlier... I was wrong...)</p>
 
 <p>Aunt Seonju spoke while holding Shiwoo's item deep in her mouth, her gaze fixed on the smartphone camera lens. Although the pronunciation was not clear due to the massive hunk of flesh filling her mouth, the sentence and intonation were enough to be conveyed to Mom.</p>
 

@@ -14,9 +14,15 @@ chapter = 394
 
 <p>Perhaps because of the shock he received when he first discovered Dad's name in the slave contract, Shiwoo clearly remembers the contents written in the lessee list remarks column of the lease agreement.</p>
 
-<p>The phrase "twins" was written when Dad leased Gyuri Ajumma for the second time.</p>
+<p>The phrase</p>
 
-<p>And Shiwoo clearly remembers that everything else in the other boxes was marked as "failure."</p>
+<p>"twins"</p>
+
+<p>was written when Dad leased Gyuri Ajumma for the second time.</p>
+
+<p>And Shiwoo clearly remembers that everything else in the other boxes was marked as</p>
+
+<p>"failure."</p>
 
 <p>Shiwoo infers that it was probably a contract indicating whether a leased slave with prior experience was pregnant or not.</p>
 

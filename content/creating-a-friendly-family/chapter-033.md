@@ -214,7 +214,11 @@ chapter = 33
 
 <p>He chose a Crunky Choco Mint, two Gugu Cones, and a vanilla Bungeoppang ice cream from the ice cream freezer.</p>
 
-<p>Then, he went to the shelf where household goods were displayed and picked up a box of condoms with the size marked as "Large".</p>
+<p>Then, he went to the shelf where household goods were displayed and picked up a box of condoms with the size marked as</p>
+
+<p>"Large"</p>
+
+<p>.</p>
 
 <p>Shiwoo took the receipt while paying with his card.</p>
 

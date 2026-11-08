@@ -36,7 +36,11 @@ chapter = 589
 
 <p>[Yeah~ How have you been, Jagi? Is your body okay? Why haven't you contacted me? I thought you had forgotten about me~]</p>
 
-<p>Gyuri Ajumma calls Shiwoo by the term "Jagi" and replies to Shiwoo as if she is very happy to hear from him.</p>
+<p>Gyuri Ajumma calls Shiwoo by the term</p>
+
+<p>"Jagi"</p>
+
+<p>and replies to Shiwoo as if she is very happy to hear from him.</p>
 
 <p>It felt as if her warm smile and happy voice were felt intact in the text.</p>
 

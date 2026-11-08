@@ -112,7 +112,11 @@ chapter = 25
 
 <p>In addition, with the accident insurance money also available, there was no particular difficulty in living.</p>
 
-<p>But even so, Mom, worried about "what if," was trying to utilize her free daytime hours to do a part-time job.</p>
+<p>But even so, Mom, worried about</p>
+
+<p>"what if,"</p>
+
+<p>was trying to utilize her free daytime hours to do a part-time job.</p>
 
 <p>Seonju Imo was running a brokerage agency business, specializing in managing only freelance models.</p>
 

@@ -156,7 +156,11 @@ chapter = 536
 
 <p>Shiwoo spoke, continuously fondling the leash attached to her dog collar.</p>
 
-<p>At the words "walking naked," Mom was flinching as if yesterday's memories came back to her.</p>
+<p>At the words</p>
+
+<p>"walking naked,"</p>
+
+<p>Mom was flinching as if yesterday's memories came back to her.</p>
 
 <p>"Well, since you were like that until morning, it's pretty much like you went for a walk, isn't it? You've put on your underwear and clothes, so now you can just completely return to being Mom... Understood?"</p>
 

@@ -160,7 +160,11 @@ chapter = 647
 
 <p>A cold sensation ran down his spine like a current of electricity, and strength began to return to his member once again.</p>
 
-<p>'By "above," she probably means... Teacher Yu Yena, right?'</p>
+<p>'By</p>
+
+<p>"above," she probably means...</p>
+
+<p>Teacher Yu Yena, right?'</p>
 
 <p>'Could she really have been watching all of Siwoo's antics?'</p>
 

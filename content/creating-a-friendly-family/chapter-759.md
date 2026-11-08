@@ -100,7 +100,11 @@ chapter = 759
 
 <p>Mom answered in a hesitant, pathetic voice. She seemed to be waiting for the people standing around them to disappear from sight. But new visitors would keep coming in from the entrance following the tour path anyway...</p>
 
-<p>Perhaps Mom wanted to let the people who were nearby when Shiwoo called her "Mom" earlier move on ahead first.</p>
+<p>Perhaps Mom wanted to let the people who were nearby when Shiwoo called her</p>
+
+<p>"Mom"</p>
+
+<p>earlier move on ahead first.</p>
 
 <p>Shiwoo moved the hand resting on her waist up and down. His fingertips brushed against her breasts and thighs as he stroked her. Mom's breathing grew irregularly labored, as if she were exhaling a heat she could no longer suppress.</p>
 

@@ -20,15 +20,19 @@ chapter = 698
 
 <p>Chyu-am, chyup, seul-reum, jjyup, hal-reum!</p>
 
-<p>Seyoung and Sehee Nuna's lips moved between Mom and Shiwoo's flesh, leaving behind wet breaths and subtle traces. Like overlapping rhythms, the afterglow and resonance of pleasure engraved on the skin repeated a cycle of entangling and unraveling, growing even thicker between the two. Seyoung's tongue, with its lecherous breath and touch, was staining the sensations of Shiwoo's back and Mom's flank with purple pleasure. Every time her tongue grazed the flesh, a sharp thrill spread through the whole body, and a bizarre pleasure felt as if the senses were twisting. Sehee Nuna swept Shiwoo's buttocks from side to side with her lips and tongue, then brought the tip of her tongue to the crack between them.</p>
+<p>Seyoung and Sehee Nuna's lips moved between Mom and Shiwoo's flesh, leaving behind wet breaths and subtle traces. Like overlapping rhythms, the afterglow and resonance of pleasure engraved on the skin repeated a cycle of entangling and unraveling, growing even thicker between the two. Seyoung's tongue, with its lecherous breath and touch, was staining the sensations of Shiwoo's back and Mom's flank with purple pleasure. Every time her tongue grazed the flesh, a sharp thrill spread through the whole body, and a bizarre pleasure felt as if the senses were twisting.</p>
 
-<p>When the tip of her tongue grazed the tender flesh that could never be reached normally, Shiwoo felt an unknown sense of shame along with a twisted desire slowly rearing its head. Sehee Nuna's tongue moved to the crack of Mom, who was pinned underneath, secretly digging into her dormant senses and awakening a thrill that permeated deep into her body. Mom's body was trembling, her vagina hole tightening fully as if she had reached a climax at some point.</p>
+<p>Sehee Nuna swept Shiwoo's buttocks from side to side with her lips and tongue, then brought the tip of her tongue to the crack between them. When the tip of her tongue grazed the tender flesh that could never be reached normally, Shiwoo felt an unknown sense of shame along with a twisted desire slowly rearing its head. Sehee Nuna's tongue moved to the crack of Mom, who was pinned underneath, secretly digging into her dormant senses and awakening a thrill that permeated deep into her body.</p>
+
+<p>Mom's body was trembling, her vagina hole tightening fully as if she had reached a climax at some point.</p>
 
 <p>"Ha-euuu... ha-aang... ha-aaa... heu-eu-eut...."</p>
 
 <p>Mom moaned while embracing Shiwoo's body.</p>
 
-<p>"Heu-eu... th-this... ha-eut... shouldn't be happening.... ha-aa... ha-eu-eu..." "Ma-Master... ha-aaa... I'm... I'm sorry... ha-eung... Master~ hi-it..."</p>
+<p>"Heu-eu... th-this... ha-eut... shouldn't be happening.... ha-aa... ha-eu-eu..."</p>
+
+<p>"Ma-Master... ha-aaa... I'm... I'm sorry... ha-eung... Master~ hi-it..."</p>
 
 <p>Even while reaching climax, Mom was apologizing with suppressed breath and a trembling voice, as if remembering Shiwoo's command to relax. Sehee Nuna and Seyoung's lips and tongue continued to sweep over the joined bodies of the two.</p>
 
@@ -56,7 +60,9 @@ chapter = 698
 
 <p>Shiwoo whispered, using the title 'Mom' again at a volume Sehee Nuna and Seyoung couldn't hear.</p>
 
-<p>"I only told you to do that when we were outside today..." "It's been a long time since we got home, hasn't it? Why are you still using formal speech and calling her 'agassi'?"</p>
+<p>"I only told you to do that when we were outside today..."</p>
+
+<p>"It's been a long time since we got home, hasn't it? Why are you still using formal speech and calling her 'agassi'?"</p>
 
 <p>Shiwoo continued to ask Mom playfully, as if curious.</p>
 
@@ -96,7 +102,9 @@ chapter = 698
 
 <p>"Ha-aa... ha-aaaaa... ha-uu... ha-aa-aa..."</p>
 
-<p>Shiwoo stopped his waist and panted heavily on top of Mom's body. Shiwoo's penis remained firmly buried inside Mom's body, sensitively enduring the pressure of the slippery, tightening vaginal flesh. Seyoung's tongue, which had already soaked her brother's back, licked up his back to his nape. Leaning half her body on Shiwoo's back, which was covering Mom's body, Seyoung pressed her breasts against Shiwoo's back, which she had moistened with her own saliva. Seyoung maintained a delicate balance, continuing the friction of her breasts and tongue in time with Shiwoo's breathing. A tingling thrill seemed to flow through Shiwoo's neck and back. Sehee Nuna went down and was caressing Mom's thighs, calves, and feet, which were wrapped around Shiwoo's body, one by one.</p>
+<p>Shiwoo stopped his waist and panted heavily on top of Mom's body. Shiwoo's penis remained firmly buried inside Mom's body, sensitively enduring the pressure of the slippery, tightening vaginal flesh. Seyoung's tongue, which had already soaked her brother's back, licked up his back to his nape. Leaning half her body on Shiwoo's back, which was covering Mom's body, Seyoung pressed her breasts against Shiwoo's back, which she had moistened with her own saliva. Seyoung maintained a delicate balance, continuing the friction of her breasts and tongue in time with Shiwoo's breathing.</p>
+
+<p>A tingling thrill seemed to flow through Shiwoo's neck and back. Sehee Nuna went down and was caressing Mom's thighs, calves, and feet, which were wrapped around Shiwoo's body, one by one.</p>
 
 <p>Chyu-rup chu-ap chyu-up chyup seu-reup!</p>
 

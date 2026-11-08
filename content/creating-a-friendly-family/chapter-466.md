@@ -16,7 +16,9 @@ chapter = 466
 
 <p>Mom was speaking as if desperately protesting to Sehee Nuna about her contradictory attitude and actions. It seemed Mom wanted to tell Sehee Nuna that in order to return to being Mom after finishing all the perverse master-slave play with Shiwoo, she had no choice but to follow the conditions Shiwoo had presented. But as if she suddenly realized that such pathetic excuses couldn't even convince herself, Mom trailed off her words, trembling like someone steeped in pleasure.</p>
 
-<p>"I don't understand... You could have just ignored him! If that's the case, you should have said no from the start! And now that you've opened yourself up like this, isn't there no need to go back?" "Anyway, when Shiwoo pushes you, you'll just pretend you can't help it, spread your legs even in front of Seyoung, and immediately start calling him 'Master~'!"</p>
+<p>"I don't understand... You could have just ignored him! If that's the case, you should have said no from the start! And now that you've opened yourself up like this, isn't there no need to go back?"</p>
+
+<p>"Anyway, when Shiwoo pushes you, you'll just pretend you can't help it, spread your legs even in front of Seyoung, and immediately start calling him 'Master~'!"</p>
 
 <p>Sehee Nuna spoke in a cynical, blaming tone about Mom's contradictory attitudes and words.</p>
 
@@ -36,7 +38,11 @@ chapter = 466
 
 <p>At the frantic abuse pouring from her son and daughter's mouths, Mom was uttering words of apology in polite speech, her eyes welling with tears.</p>
 
-<p>"Now that I think about it, among you two, Sehee seems to be the most obedient and well-behaved." "She does everything she's told without a word of complaint, doesn't grumble or complain afterwards, and even takes off her own underwear before coming down!" "Unlike some fucking bitch who, after being stripped, just throws on an apron and acts coy!"</p>
+<p>"Now that I think about it, among you two, Sehee seems to be the most obedient and well-behaved."</p>
+
+<p>"She does everything she's told without a word of complaint, doesn't grumble or complain afterwards, and even takes off her own underwear before coming down!"</p>
+
+<p>"Unlike some fucking bitch who, after being stripped, just throws on an apron and acts coy!"</p>
 
 <p>Seeing Mom apologizing with tear-filled eyes, Shiwoo pressed her even harder with cold and cruel remarks.</p>
 
@@ -56,7 +62,9 @@ chapter = 466
 
 <p>"Grab the sink and lean forward for a moment!"</p>
 
-<p>Shiwoo commanded in a dry tone, lightly pressing Mom's back with his hand. Mom glanced towards the shower room where Seyoung was, then soon followed Shiwoo's command, gripping the sink and bending her body forward. Shiwoo untied Mom's apron waist strap and neck strap in turn. The apron, which had been hanging from Mom's body and waist, dropped to the kitchen floor with a thud, pulled by gravity. Shiwoo then pushed up Mom's white t-shirt, which was barely covering her buttocks, all the way to her waist. Mom's wet lingerie underwear and the texture of her buttocks were exposed before Shiwoo's eyes. Shiwoo grabbed her pelvis with both hands and pulled her tightly towards himself. Mom ended up standing in a bent-over position, gripping the sink with her buttocks pushed back.</p>
+<p>Shiwoo commanded in a dry tone, lightly pressing Mom's back with his hand. Mom glanced towards the shower room where Seyoung was, then soon followed Shiwoo's command, gripping the sink and bending her body forward. Shiwoo untied Mom's apron waist strap and neck strap in turn. The apron, which had been hanging from Mom's body and waist, dropped to the kitchen floor with a thud, pulled by gravity. Shiwoo then pushed up Mom's white t-shirt, which was barely covering her buttocks, all the way to her waist.</p>
+
+<p>Mom's wet lingerie underwear and the texture of her buttocks were exposed before Shiwoo's eyes. Shiwoo grabbed her pelvis with both hands and pulled her tightly towards himself. Mom ended up standing in a bent-over position, gripping the sink with her buttocks pushed back.</p>
 
 <p>Shiwoo hooked his thumbs into both waistlines of the soaking wet white lingerie panties and pulled them down. Revealing the well-formed, lewd flesh and the valley between, Mom's panties slid down to mid-thigh. Mom's buttocks were already swollen red with overlapping handprint marks. Shiwoo placed his palm over Mom's swollen buttocks. Mom tensed her buttock muscles tightly, regulating her breathing. Both of her thighs were tightly squeezed inward, full of tension.</p>
 
@@ -66,14 +74,28 @@ chapter = 466
 
 <p>"Sh-Shiwoo-ya..."</p>
 
-<p>Mom instantly squeezed her legs together again, calling Shiwoo's name as if startled. Shiwoo's wrist was wedged as if caught between Mom's legs. Suddenly, Shiwoo raised his other arm and forcefully slapped Mom's wet buttock flesh. Jjal-ssak! A loud slapping sound echoed through the kitchen and living room. "Hau-woooouuk!" Mom's long moaning sound, as if suppressing pain... Mom again tensed her pelvis and buttock muscles tightly, trembling violently.</p>
+<p>Mom instantly squeezed her legs together again, calling Shiwoo's name as if startled. Shiwoo's wrist was wedged as if caught between Mom's legs. Suddenly, Shiwoo raised his other arm and forcefully slapped Mom's wet buttock flesh. Jjal-ssak! A loud slapping sound echoed through the kitchen and living room.</p>
+
+<p>"Hau-woooouuk!"</p>
+
+<p>Mom's long moaning sound, as if suppressing pain... Mom again tensed her pelvis and buttock muscles tightly, trembling violently.</p>
 
 <p>"Didn't I tell you to spread your legs and relax? Why are you getting hit like this for something you didn't have to get hit for?"</p>
 
-<p>Shiwoo, annoyed as if fed up with Mom's behavior, scolded her. "I-I'm sorry...it was too sudden...I was startled...haa-euk..." Mom made excuses, using polite speech to Shiwoo. Jjal-ssak! Once again, Shiwoo's palm landed hotly on Mom's buttocks. "Haa-euk!" With the burning pain striking her buttocks, Mom slammed her head into the sink she was leaning on, her posture almost collapsing as she writhed in agony.</p>
+<p>Shiwoo, annoyed as if fed up with Mom's behavior, scolded her.</p>
+
+<p>"I-I'm sorry...it was too sudden...I was startled...haa-euk..." Mom made excuses, using polite speech to Shiwoo.</p>
+
+<p>Jjal-ssak! Once again, Shiwoo's palm landed hotly on Mom's buttocks.</p>
+
+<p>"Haa-euk!"</p>
+
+<p>With the burning pain striking her buttocks, Mom slammed her head into the sink she was leaning on, her posture almost collapsing as she writhed in agony.</p>
 
 <p>"You fucking bitch, stop making excuses and just spread your legs!"</p>
 
 <p>Shiwoo spoke to Mom once again, coldly and cruelly. Mom straightened her posture, extending the arms she had rested on the sink. Then, as Shiwoo had told her, she spread her legs and relaxed her body. Shiwoo pushed his arm, which he had wedged between Mom's legs, forward with a thrust. Passing the sensitive labial flesh of her crotch, Shiwoo directly grasped the egg-shaped vibrator installed in front of her clitoris with his hand.</p>
 
-<p>Mom, who had been leaning on the sink in a posture like she was being punished, looked down with a puzzled expression. The vibrator had already stopped operating. Shiwoo searched for the button on the corner of the vibrator with the sensation of his fingertips. And he pressed the button on the corner of the vibrator, which was touching his fingertip, deeply for about 5 seconds. Mom's vibrator vibrated about three times and then became quiet again. Mom's vibrator had switched to Wi-Fi pairing mode. Shiwoo caressed Mom's crevice as he withdrew his hand from between her legs. Next, Shiwoo pulled up Mom's lingerie panties, which had been down to mid-thigh, to the lower part where her buttock curve began, leaving them precariously perched. Mom was left standing with her buttock flesh exposed, as if she had awkwardly half-dressed in her panties.</p>
+<p>Mom, who had been leaning on the sink in a posture like she was being punished, looked down with a puzzled expression. The vibrator had already stopped operating. Shiwoo searched for the button on the corner of the vibrator with the sensation of his fingertips. And he pressed the button on the corner of the vibrator, which was touching his fingertip, deeply for about 5 seconds. Mom's vibrator vibrated about three times and then became quiet again. Mom's vibrator had switched to Wi-Fi pairing mode.</p>
+
+<p>Shiwoo caressed Mom's crevice as he withdrew his hand from between her legs. Next, Shiwoo pulled up Mom's lingerie panties, which had been down to mid-thigh, to the lower part where her buttock curve began, leaving them precariously perched. Mom was left standing with her buttock flesh exposed, as if she had awkwardly half-dressed in her panties.</p>

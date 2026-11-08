@@ -4,9 +4,13 @@ weight = 339
 [extra]
 chapter = 339
 +++
-<p>"And Sejin Nuna too!! How could you forget Sejin Nuna's?!" Seyoung continued, speaking in a tone as if her older brother's oversight of Sejin Nuna was absurd.</p>
+<p>"And Sejin Nuna too!! How could you forget Sejin Nuna's?!"</p>
 
-<p>"Ah...Se...Sejin Nuna's too..." Shiwoo stammered his reply, seemingly a little flustered by Seyoung's mention of Sejin Nuna.</p>
+<p>Seyoung continued, speaking in a tone as if her older brother's oversight of Sejin Nuna was absurd.</p>
+
+<p>"Ah...Se...Sejin Nuna's too..."</p>
+
+<p>Shiwoo stammered his reply, seemingly a little flustered by Seyoung's mention of Sejin Nuna.</p>
 
 <p>"Sejin Nuna will be really upset later if she finds out~ Hehe" Seyoung spoke, teasing Shiwoo with a slightly playful tone.</p>
 
@@ -18,23 +22,35 @@ chapter = 339
 
 <p>Without any prior discussion, what kind of reaction would Sejin Nuna, whom he hadn't seen in a long time, show if he presented her with a dog collar? Even if he knew about Sejin Nuna's relationship with Dad or the reason she left home, it seemed unavoidable to feel awkward about Sejin Nuna, unlike with other family members.</p>
 
-<p>"Th-then, Seyoung, would you like to pick out Sejin Nuna's and Sae-a's too?" Shiwoo suggested that Seyoung choose the design and color of Sejin Nuna's and Sae-a's dog collars.</p>
+<p>"Th-then, Seyoung, would you like to pick out Sejin Nuna's and Sae-a's too?"</p>
 
-<p>"Okay~ I'll pick Sae-a's first~!" Seyoung replied to Shiwoo's words, then slowly scanned the display stand where the dog collars were arranged.</p>
+<p>Shiwoo suggested that Seyoung choose the design and color of Sejin Nuna's and Sae-a's dog collars.</p>
+
+<p>"Okay~ I'll pick Sae-a's first~!"</p>
+
+<p>Seyoung replied to Shiwoo's words, then slowly scanned the display stand where the dog collars were arranged.</p>
 
 <p>And soon, her index finger pointed to a teal-colored collar in the middle.</p>
 
 <p>"How about that one? The green one in the middle!" Seyoung said, looking up at Shiwoo with bright, clear eyes.</p>
 
-<p>"Are you talking about this one?" Shiwoo picked up the dog collar Seyoung pointed to and asked, looking at her.</p>
+<p>"Are you talking about this one?"</p>
 
-<p>"Yes~ that one! I really like that color~" Seyoung confirmed with her expression and words that the teal dog collar Shiwoo had picked up was indeed the one she had chosen.</p>
+<p>Shiwoo picked up the dog collar Seyoung pointed to and asked, looking at her.</p>
+
+<p>"Yes~ that one! I really like that color~"</p>
+
+<p>Seyoung confirmed with her expression and words that the teal dog collar Shiwoo had picked up was indeed the one she had chosen.</p>
 
 <p>Shiwoo placed the teal dog collar, along with its matching leash, into the basket.</p>
 
-<p>"And~ Sejin Nuna's is~" Seyoung continued, her voice slightly excited, as she chose a dog collar for Sejin Nuna.</p>
+<p>"And~ Sejin Nuna's is~"</p>
 
-<p>"This one would be good~!!" Seyoung took a collar hanging on the display stand directly in front of her and handed it to Shiwoo.</p>
+<p>Seyoung continued, her voice slightly excited, as she chose a dog collar for Sejin Nuna.</p>
+
+<p>"This one would be good~!!"</p>
+
+<p>Seyoung took a collar hanging on the display stand directly in front of her and handed it to Shiwoo.</p>
 
 <p>It was a slightly thick, heavy-feeling chain collar. The dog collar had protruding studs designed to press against the inside of the neck.</p>
 
@@ -42,7 +58,9 @@ chapter = 339
 
 <p>A training collar that pressed painfully against the neck the more it was pulled. The chain collar, studded on the inside, came as a set with a chain leash.</p>
 
-<p>"Uh...this one?" Shiwoo received the chain dog collar, showing a slightly flustered expression, and asked Seyoung as if to confirm.</p>
+<p>"Uh...this one?"</p>
+
+<p>Shiwoo received the chain dog collar, showing a slightly flustered expression, and asked Seyoung as if to confirm.</p>
 
 <p>"Yes! Something like this would suit Sejin Nuna well. Hehe~" Seyoung said to Shiwoo, flashing an innocent smile.</p>
 
@@ -52,7 +70,9 @@ chapter = 339
 
 <p>Shiwoo, pretending nothing was amiss, put the chain dog collar he had received from Seyoung into the basket.</p>
 
-<p>"Then, is it just Seonju's and Sehee's left to choose? I'll pick Sehee's, so Sua, would you like to pick Seonju's?" Shiwoo said to Sua, as if trying to change the mood.</p>
+<p>"Then, is it just Seonju's and Sehee's left to choose? I'll pick Sehee's, so Sua, would you like to pick Seonju's?"</p>
+
+<p>Shiwoo said to Sua, as if trying to change the mood.</p>
 
 <p>"Mm..." Sua nodded shyly in response.</p>
 
@@ -64,7 +84,9 @@ chapter = 339
 
 <p>"That would suit her really well too~" Seyoung said, her expression satisfied and excited.</p>
 
-<p>"Oppa~! Oppa! This! The one at Sua's house!" Seyoung then called out to Shiwoo, pointing at something a few steps away.</p>
+<p>"Oppa~! Oppa! This! The one at Sua's house!"</p>
+
+<p>Seyoung then called out to Shiwoo, pointing at something a few steps away.</p>
 
 <p>What Seyoung was pointing at was a large iron cage, similar to the one he had seen at Seonju Imo-nim's house. An iron cage large enough to hold several large dogs. Its length and width were sufficient for an adult man to lie down in... The height of the cage seemed to be about Seyoung's height.</p>
 
@@ -72,9 +94,13 @@ chapter = 339
 
 <p>Shiwoo momentarily imagined his family members inside the iron cage. A tingling current seemed to flow rapidly through his spine and entire body.</p>
 
-<p>"It would be great if we installed this in our living room too," Seyoung said, smiling brightly as if she had read Shiwoo's thoughts.</p>
+<p>"It would be great if we installed this in our living room too,"</p>
 
-<p>"Should we?! This is too big, so we'll have to get it delivered." Shiwoo now replied as if he didn't care about Seyoung discovering his fantasies.</p>
+<p>Seyoung said, smiling brightly as if she had read Shiwoo's thoughts.</p>
+
+<p>"Should we?! This is too big, so we'll have to get it delivered."</p>
+
+<p>Shiwoo now replied as if he didn't care about Seyoung discovering his fantasies.</p>
 
 <p>-Click! Click! Click!- Shiwoo took photos of the entire iron cage Seyoung had chosen, along with the price tag showing the model name.</p>
 
@@ -88,7 +114,9 @@ chapter = 339
 
 <p>"What's that?" Shiwoo asked, curious about what Seyoung was choosing.</p>
 
-<p>"Dog tags~ We need these too, don't we?" Seyoung showed Shiwoo the name tag identification tags in her palm, speaking boastfully.</p>
+<p>"Dog tags~ We need these too, don't we?"</p>
+
+<p>Seyoung showed Shiwoo the name tag identification tags in her palm, speaking boastfully.</p>
 
 <p>Shiwoo picked up a design he liked from the name tags Seyoung had chosen and examined it. It was a black heart-shaped name tag made of stainless steel.</p>
 

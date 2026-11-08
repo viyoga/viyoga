@@ -194,7 +194,9 @@ chapter = 408
 
 <p>As if emphasizing the fact that he still has control of the conversation...</p>
 
-<p>"Doo-roo-roo-rook!" "Jeeeeeeng!"</p>
+<p>"Doo-roo-roo-rook!"</p>
+
+<p>"Jeeeeeeng!"</p>
 
 <p>The vibration of the smartphone placed on the table and the vibrator installed in Mom's crotch increase simultaneously.</p>
 

@@ -18,7 +18,11 @@ chapter = 665
 
 <p>Shiwoo spoke while maintaining a calm sense of distance within their familiar conversation.</p>
 
-<p>The "meal" he had prepared referred to the sushi he had set up on the dining table, using Sua's body as the dish.</p>
+<p>The</p>
+
+<p>"meal"</p>
+
+<p>he had prepared referred to the sushi he had set up on the dining table, using Sua's body as the dish.</p>
 
 <p>If Seonju Imo had checked the videos and photos, she would certainly know what Shiwoo's words implied.</p>
 

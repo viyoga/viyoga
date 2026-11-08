@@ -138,7 +138,9 @@ chapter = 740
 
 <p>Mom spoke in a scolding tone as if she were appalled by Shiwoo's excuse.</p>
 
-<p>Even so, she didn't seem to particularly deny the words "first date."</p>
+<p>Even so, she didn't seem to particularly deny the words</p>
+
+<p>"first date."</p>
 
 <p>[If I went home with the way I'm feeling now, Mom, you wouldn't be able to go out, you know? By the time you snapped out of it, it would probably be the next morning or afternoon.]</p>
 

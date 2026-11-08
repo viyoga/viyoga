@@ -80,7 +80,9 @@ chapter = 97
 
 <p>「Haaeut~ Haat Haak W-wait!」</p>
 
-<p>A sudden, intense stimulation overwhelmed him. Perhaps due to the masturbation he had just performed after watching the video, Shiwoo was experiencing an unusually early and intense climax. Seeing Shiwoo's contorted expression, Sehee Nuna stopped her hand and turned on the shower, beginning to wash around Shiwoo's groin. Sehee Nuna spread her palm, rubbed the glans and the base of the shaft, then gently took his testicles and washed them as if kneading. Shiwoo felt a strange sense of relief from Sehee Nuna's warm touch, which gently enveloped his testicles. Shiwoo's expression softened, as if he was excited by Sehee Nuna's gentle caress. The soap suds on Shiwoo's groin were washed away by the shower water, all flowing down to the floor. Sehee Nuna turned off the shower and knelt down on the floor. Sehee Nuna's hands rested on Shiwoo's thighs. Sehee Nuna's lips touched his glans.</p>
+<p>A sudden, intense stimulation overwhelmed him. Perhaps due to the masturbation he had just performed after watching the video, Shiwoo was experiencing an unusually early and intense climax. Seeing Shiwoo's contorted expression, Sehee Nuna stopped her hand and turned on the shower, beginning to wash around Shiwoo's groin. Sehee Nuna spread her palm, rubbed the glans and the base of the shaft, then gently took his testicles and washed them as if kneading. Shiwoo felt a strange sense of relief from Sehee Nuna's warm touch, which gently enveloped his testicles.</p>
+
+<p>Shiwoo's expression softened, as if he was excited by Sehee Nuna's gentle caress. The soap suds on Shiwoo's groin were washed away by the shower water, all flowing down to the floor. Sehee Nuna turned off the shower and knelt down on the floor. Sehee Nuna's hands rested on Shiwoo's thighs. Sehee Nuna's lips touched his glans.</p>
 
 <p>「Chyup Chyuup Chyup」</p>
 
@@ -114,11 +116,11 @@ chapter = 97
 
 <p>「Uuk... Keut..... Hat....」</p>
 
-<p>Shiwoo held the back of her head, pressed her against his pelvis, and pulled hard, holding her there for a while. Sehee Nuna's body trembled as if her throat was completely blocked. A moment later, Sehee Nuna began to shake her body violently, struggling to pull away. Shiwoo did not let Sehee Nuna go. Sehee Nuna began to pound Shiwoo's thighs hard. Sehee Nuna's limbs trembled violently as she tried to escape Shiwoo. Streams of water could be seen falling from her eyes. Her eyes were already bloodshot from earlier. Eventually, Sehee Nuna's expression began to change, becoming terrified.</p>
+<p>Shiwoo held the back of her head, pressed her against his pelvis, and pulled hard, holding her there for a while. Sehee Nuna's body trembled as if her throat was completely blocked. A moment later, Sehee Nuna began to shake her body violently, struggling to pull away. Shiwoo did not let Sehee Nuna go. Sehee Nuna began to pound Shiwoo's thighs hard. Sehee Nuna's limbs trembled violently as she tried to escape Shiwoo. Streams of water could be seen falling from her eyes.</p>
 
-<p>Sehee Nuna thrashed, fiercely scratching Shiwoo's thighs. Sharp pain accompanied red scratches etched into the flesh of his thighs. Shiwoo felt an illusion that he was completely dominating Sehee Nuna at that moment. A chilling pleasure spread throughout his body. Just a little more... Just a little more... If I just do a little more, wouldn't I be able to make sure Sehee Nuna never meets another man? If I just do a little more, wouldn't I be able to make Sehee Nuna completely my own possession? With a desperate heart, Shiwoo shoved his 'thing' into Sehee Nuna's throat to its limit.</p>
+<p>Her eyes were already bloodshot from earlier. Eventually, Sehee Nuna's expression began to change, becoming terrified. Sehee Nuna thrashed, fiercely scratching Shiwoo's thighs. Sharp pain accompanied red scratches etched into the flesh of his thighs. Shiwoo felt an illusion that he was completely dominating Sehee Nuna at that moment. A chilling pleasure spread throughout his body. Just a little more... Just a little more... If I just do a little more, wouldn't I be able to make sure Sehee Nuna never meets another man?</p>
 
-<p>Shiwoo's climax surged to an extreme amidst superstitious delusions and confusion. Sehee Nuna's eyeballs rolled back as she looked at Shiwoo, revealing the whites of her eyes. Feeling a sudden chill, Shiwoo pulled his penis out of Sehee Nuna's mouth.</p>
+<p>If I just do a little more, wouldn't I be able to make Sehee Nuna completely my own possession? With a desperate heart, Shiwoo shoved his 'thing' into Sehee Nuna's throat to its limit. Shiwoo's climax surged to an extreme amidst superstitious delusions and confusion. Sehee Nuna's eyeballs rolled back as she looked at Shiwoo, revealing the whites of her eyes. Feeling a sudden chill, Shiwoo pulled his penis out of Sehee Nuna's mouth.</p>
 
 <p>「Huaaaak!!! Haaah~ Koolleok Haak Haaaat~ Koolleok!!!」</p>
 

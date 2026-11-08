@@ -102,7 +102,9 @@ chapter = 246
 
 <p>'What's embarrassing? We've already done that calling each other by those honorifics via text, haven't we? We've even done it a few times on the phone~!' Shiwoo spoke to Mom as if persuading her that it was no big deal.</p>
 
-<p>'You! Think about Mom's position for a bit~! We first agreed to only do it via text, but now it's actually happening, isn't it?' 'But after spending all day as Mom and son, suddenly when the time comes, you'll just call Mom by her name, Seonmi, and Mom will call you Master-nim—isn't that embarrassing?' Mom, by now, was sending a long message as if complaining. It seemed Mom was expressing embarrassment about the situation of discussing such matters concretely, like the depraved relationship she was developing with her son. Mom was precisely pinpointing the perverse aspect Shiwoo desired, and speaking of it herself as if ashamed.</p>
+<p>'You! Think about Mom's position for a bit~! We first agreed to only do it via text, but now it's actually happening, isn't it?' 'But after spending all day as Mom and son, suddenly when the time comes, you'll just call Mom by her name, Seonmi, and Mom will call you Master-nim—isn't that embarrassing?' Mom, by now, was sending a long message as if complaining. It seemed Mom was expressing embarrassment about the situation of discussing such matters concretely, like the depraved relationship she was developing with her son.</p>
+
+<p>Mom was precisely pinpointing the perverse aspect Shiwoo desired, and speaking of it herself as if ashamed.</p>
 
 <p>'I'm fine with it~ hehe, but Mom seems to dislike it, huh?' Shiwoo, having roughly grasped Mom's intentions, spoke to her as if teasing.</p>
 

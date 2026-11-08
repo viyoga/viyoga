@@ -156,11 +156,19 @@ chapter = 309
 
 <p>Shiwoo commanded Sehee Nuna as if he had thought of it again.</p>
 
-<p>'The one you wrote with lipstick? The one that said "Son's Exclusive Whore Pussy"?'</p>
+<p>'The one you wrote with lipstick? The one that said</p>
+
+<p>"Son's Exclusive Whore Pussy"</p>
+
+<p>?'</p>
 
 <p>Sehee Nuna asked as if confirming, moving the embarrassing phrase that Shiwoo had written on Mom's stomach with lipstick to the chat room as it was.</p>
 
-<p>'Yeah, that one! But now it's not just son's exclusive anymore. Write "Son and Daughter's Exclusive Whore Pussy"! And this time, a red permanent marker would be better than lipstick. So it lasts longer~'</p>
+<p>'Yeah, that one! But now it's not just son's exclusive anymore. Write</p>
+
+<p>"Son and Daughter's Exclusive Whore Pussy"</p>
+
+<p>! And this time, a red permanent marker would be better than lipstick. So it lasts longer~'</p>
 
 <p>Shiwoo playfully told Sehee Nuna the sentence and tool to write on Mom's stomach, as if choosing them for her.</p>
 

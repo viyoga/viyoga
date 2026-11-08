@@ -40,7 +40,11 @@ chapter = 119
 
 <p>Mom, who had eventually succumbed to Shiwoo's exposure, persuasion, and threats.</p>
 
-<p>Mom had also started using the title "Master-nim" to Shiwoo now.</p>
+<p>Mom had also started using the title</p>
+
+<p>"Master-nim"</p>
+
+<p>to Shiwoo now.</p>
 
 <p>The slippery friction sound of wet flesh being scorched and burned, and the lewd moans of the mother and daughter, piled up like harmonies, were still ringing in Shiwoo's ears.</p>
 

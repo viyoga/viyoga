@@ -40,7 +40,11 @@ chapter = 727
 
 <p>Shiwoo's heart seemed to throb, swayed by a new influx of excitement and arousal.</p>
 
-<p>['"Do it" is informal speech. You fucking bitch, Oh Yerin!']</p>
+<p>['</p>
+
+<p>"Do it"</p>
+
+<p>is informal speech. You fucking bitch, Oh Yerin!']</p>
 
 <p>[And of course I'll do it when we're alone! Do you want me to strip you naked in front of others and humiliate you?]</p>
 

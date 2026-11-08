@@ -32,7 +32,9 @@ chapter = 9
 
 <p>"No, nothing unusual happened~ Mom, you and Seyoung are a bit late today, aren't you?"</p>
 
-<p>Shiwoo answered that way and then thought about things that could be called "unusual."</p>
+<p>Shiwoo answered that way and then thought about things that could be called</p>
+
+<p>"unusual."</p>
 
 <p>Hitting Gyuri Ajumma's buttocks for the first time.</p>
 

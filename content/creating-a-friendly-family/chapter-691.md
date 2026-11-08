@@ -24,7 +24,9 @@ chapter = 691
 
 <p>Sehee-nuna exhaled a slightly trembling breath and answered while looking straight into Shiwoo's eyes, her expression a mix of embarrassment and fluttering excitement. It seemed the two of them had already completely broken down the boundaries of mother and daughter while Shiwoo was away. Was the play with the female owner of the tattoo shop the catalyst that finally untied the last string binding them?</p>
 
-<p>Shiwoo imagined the sight of Sehee-nuna falling asleep while sucking on Mom's breast. Sehee-nuna's lips would linger around Mom's voluminous breasts. In the silence where warm heat and soft breath spread, a rhythm and movement that created pleasure would quietly continue as she moved between both breasts. Sehee-nuna's lips, which had been holding Mom's prominent mounds of flesh and the nipples protruding atop them in her mouth, would naturally move to Mom's lips before long. As their tongues mixed in deep communion, the two would gradually become one. After pulling her lips away from Mom's, Sehee-nuna would then bring her own breasts to Mom's face. Mom's lips would naturally tighten and bite down on Sehee-nuna's nipples. With their breasts and lips being exchanged, Mom and Sehee-nuna stood on the subtle boundary of domination and submission. Losing the fact that they were mother and daughter, Mom and Sehee-nuna were falling deeper and deeper into each other.</p>
+<p>Shiwoo imagined the sight of Sehee-nuna falling asleep while sucking on Mom's breast. Sehee-nuna's lips would linger around Mom's voluminous breasts. In the silence where warm heat and soft breath spread, a rhythm and movement that created pleasure would quietly continue as she moved between both breasts. Sehee-nuna's lips, which had been holding Mom's prominent mounds of flesh and the nipples protruding atop them in her mouth, would naturally move to Mom's lips before long. As their tongues mixed in deep communion, the two would gradually become one.</p>
+
+<p>After pulling her lips away from Mom's, Sehee-nuna would then bring her own breasts to Mom's face. Mom's lips would naturally tighten and bite down on Sehee-nuna's nipples. With their breasts and lips being exchanged, Mom and Sehee-nuna stood on the subtle boundary of domination and submission. Losing the fact that they were mother and daughter, Mom and Sehee-nuna were falling deeper and deeper into each other.</p>
 
 <p>Just by imagining the changing relationship and appearance of the two, Shiwoo's penis, held inside Seyoung's mouth, throbbed violently and poured out a mouthful of pre-cum.</p>
 
@@ -74,7 +76,19 @@ chapter = 691
 
 <p>"I-it's not like that... Se-Sehee was the one who brought it up first... and I was going to tell you right away after I spoke to Master... Th-there's an order to things, you know."</p>
 
-<p>At Seyoung's words mixed with disappointment, Mom answered with a tense and anxious voice, avoiding her gaze like someone making excuses after being caught cheating. Even while facing Seyoung and having a conversation, Mom was now naturally calling Shiwoo "Master." In front of Seyoung, Mom's form of address for Sehee-nuna had reverted from "Agassi" back to "Sehee." Mom seemed to belatedly blush as she chewed over the sentences and words she had just uttered in front of Seyoung.</p>
+<p>At Seyoung's words mixed with disappointment, Mom answered with a tense and anxious voice, avoiding her gaze like someone making excuses after being caught cheating. Even while facing Seyoung and having a conversation, Mom was now naturally calling Shiwoo</p>
+
+<p>"Master."</p>
+
+<p>In front of Seyoung, Mom's form of address for Sehee-nuna had reverted from</p>
+
+<p>"Agassi"</p>
+
+<p>back to</p>
+
+<p>"Sehee."</p>
+
+<p>Mom seemed to belatedly blush as she chewed over the sentences and words she had just uttered in front of Seyoung.</p>
 
 <p>"What do you mean it's not like that? Anyway, weren't you going to go along with what Sehee-eonni said? Knowing full well that once you got permission from Master, it wouldn't change no matter what I said afterward!"</p>
 

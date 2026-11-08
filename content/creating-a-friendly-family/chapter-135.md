@@ -24,7 +24,9 @@ chapter = 135
 
 <p>With a single moaning sound, Gyuri Ajumma's buttocks flesh momentarily twitched and seemed to rise, then relaxed and settled.</p>
 
-<p>"It seems your muscles are very tense, would you like to relax a bit?" Shiwoo said slyly, then slowly tried to spread Gyuri Ajumma's thighs apart again.</p>
+<p>"It seems your muscles are very tense, would you like to relax a bit?"</p>
+
+<p>Shiwoo said slyly, then slowly tried to spread Gyuri Ajumma's thighs apart again.</p>
 
 <p>Slowly revealed, like a deeply hidden natural ruin, was the mound of Gyuri Ajumma's groin beneath the cleft of her buttocks.</p>
 
@@ -58,7 +60,9 @@ chapter = 135
 
 <p>As if startled by Shiwoo's sudden hand movement, Gyuri Ajumma's pelvis instantly jolted upwards.</p>
 
-<p>"Does it hurt?" Shiwoo asked, inserting his middle finger vertically into Gyuri Ajumma's parted slit and gently stroking it up and down.</p>
+<p>"Does it hurt?"</p>
+
+<p>Shiwoo asked, inserting his middle finger vertically into Gyuri Ajumma's parted slit and gently stroking it up and down.</p>
 
 <p>Gyuri Ajumma's slippery vaginal fluid was generously coating Shiwoo's finger as if it were being applied.</p>
 
@@ -68,7 +72,9 @@ chapter = 135
 
 <p>Perhaps because the front door was closed, Gyuri Ajumma's moaning sounds seemed much louder and bolder than when she had been caressed by Shiwoo on the sofa during lunchtime.</p>
 
-<p>"We have plenty of time, so from now on, I'll slowly and thoroughly loosen you up," Shiwoo said, as if declaring the events that were about to unfold to Ajumma.</p>
+<p>"We have plenty of time, so from now on, I'll slowly and thoroughly loosen you up,"</p>
+
+<p>Shiwoo said, as if declaring the events that were about to unfold to Ajumma.</p>
 
 <p>"Heueu... Eung..."</p>
 
@@ -90,7 +96,9 @@ chapter = 135
 
 <p>Gyuri Ajumma was making a sound as if feeling refreshed.</p>
 
-<p>"How about here? Does it feel cool?" Shiwoo asked Gyuri Ajumma, gently pressing a pressure point on her calf.</p>
+<p>"How about here? Does it feel cool?"</p>
+
+<p>Shiwoo asked Gyuri Ajumma, gently pressing a pressure point on her calf.</p>
 
 <p>"Eum... Eung... it feels cool~ Shiwoo, you're so good at massage... Did you learn it somewhere?" Gyuri Ajumma asked, praising Shiwoo in a relaxed, husky voice.</p>
 
@@ -100,7 +108,9 @@ chapter = 135
 
 <p>Gyuri Ajumma was now making sounds, completely relaxed as if she had fully surrendered her body to Shiwoo.</p>
 
-<p>"You said your shoulders and back were stiff earlier, right? This time, I'll loosen up your back area," Shiwoo said, using four fingers to stroke upwards from her calves to her thighs and buttocks, as if raking.</p>
+<p>"You said your shoulders and back were stiff earlier, right? This time, I'll loosen up your back area,"</p>
+
+<p>Shiwoo said, using four fingers to stroke upwards from her calves to her thighs and buttocks, as if raking.</p>
 
 <p>"Heueu... Eung..."</p>
 
@@ -116,7 +126,9 @@ chapter = 135
 
 <p>Shiwoo gently rubbed Gyuri Ajumma's bare skin waist with his palm.</p>
 
-<p>"If it hurts too much to bear, tell me! Okay?" Shiwoo said, slipping one hand beneath the pink tank top fabric clinging to Gyuri Ajumma's body.</p>
+<p>"If it hurts too much to bear, tell me! Okay?"</p>
+
+<p>Shiwoo said, slipping one hand beneath the pink tank top fabric clinging to Gyuri Ajumma's body.</p>
 
 <p>The warm bare skin heat from Gyuri Ajumma's back, beneath her clothing, transferred to Shiwoo's hand.</p>
 
@@ -198,11 +210,15 @@ chapter = 135
 
 <p>Gyuri Ajumma's buttocks flesh and muscles trembled as if tensed, once again clenching Shiwoo's cock as if embracing it between the cleft.</p>
 
-<p>"Are you okay?" Shiwoo asked Gyuri Ajumma, still maintaining the relationship of a friend's mother and a son's friend.</p>
+<p>"Are you okay?"</p>
+
+<p>Shiwoo asked Gyuri Ajumma, still maintaining the relationship of a friend's mother and a son's friend.</p>
 
 <p>Gyuri Ajumma, as if embarrassed, buried her face between her arms and merely nodded her head in response to Shiwoo's question.</p>
 
-<p>"Gyuri Ajumma, may I ask you something?" Shiwoo asked, caressing Gyuri Ajumma's buttocks as if to soothe them.</p>
+<p>"Gyuri Ajumma, may I ask you something?"</p>
+
+<p>Shiwoo asked, caressing Gyuri Ajumma's buttocks as if to soothe them.</p>
 
 <p>Gyuri Ajumma seemed to take a few rough breaths through her nose, then nodded her head again in the same posture.</p>
 

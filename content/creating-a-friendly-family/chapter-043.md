@@ -68,13 +68,21 @@ chapter = 43
 
 <p>'Hehehe.'</p>
 
-<p>Shiwoo wrote a series of "hieut" (ㅎㅎㅎ) to Mom, as if foreshadowing a sexual joke.</p>
+<p>Shiwoo wrote a series of</p>
+
+<p>"hieut"</p>
+
+<p>(ㅎㅎㅎ) to Mom, as if foreshadowing a sexual joke.</p>
 
 <p>'Why? Is something weird?'</p>
 
 <p>Mom asked, wondering if she had said something wrong.</p>
 
-<p>'No, I'm just happy~ But then, can I save Mom's number as "Girlfriend"?'</p>
+<p>'No, I'm just happy~ But then, can I save Mom's number as</p>
+
+<p>"Girlfriend"</p>
+
+<p>?'</p>
 
 <p>Shiwoo asked Mom jokingly.</p>
 
@@ -90,7 +98,11 @@ chapter = 43
 
 <p>Mom seemed to be taking Shiwoo's words more seriously than expected, given that he said he was serious.</p>
 
-<p>'They wouldn't know even if they saw it~ Or should I write "Seonmi" next to it so it's easy to recognize? Hehe.'</p>
+<p>'They wouldn't know even if they saw it~ Or should I write</p>
+
+<p>"Seonmi"</p>
+
+<p>next to it so it's easy to recognize? Hehe.'</p>
 
 <p>Shiwoo tried to embarrass Mom even more.</p>
 

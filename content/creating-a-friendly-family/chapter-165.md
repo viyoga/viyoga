@@ -114,7 +114,11 @@ chapter = 165
 
 <p>The honorific of submission, which she had cried out countless times in her dazed state throughout the night, burst from Sehee-nuna's still half-asleep mouth.</p>
 
-<p>Shiwoo felt an overwhelming pleasure and satisfaction from the honorific "Master-nim" mixed with Sehee-nuna's moaning.</p>
+<p>Shiwoo felt an overwhelming pleasure and satisfaction from the honorific</p>
+
+<p>"Master-nim"</p>
+
+<p>mixed with Sehee-nuna's moaning.</p>
 
 <p>-Peok! Peok! Peok! Peok! Peok! Peok!</p>
 
@@ -156,7 +160,11 @@ chapter = 165
 
 <p>The two hastily packed their bags and left the house together to go to the academy.</p>
 
-<p>Sehee-nuna, who had been calling Shiwoo "Master-nim" without caution or hesitation, embracing his body and reaching climax, no longer displayed such vulgar and seductive behavior on their way to the academy.</p>
+<p>Sehee-nuna, who had been calling Shiwoo</p>
+
+<p>"Master-nim"</p>
+
+<p>without caution or hesitation, embracing his body and reaching climax, no longer displayed such vulgar and seductive behavior on their way to the academy.</p>
 
 <p>Aside from occasionally averting her gaze shyly when their eyes met, Sehee-nuna looked as she usually did.</p>
 

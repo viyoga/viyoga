@@ -4,7 +4,9 @@ weight = 670
 [extra]
 chapter = 670
 +++
-<p>Those pointed ears, covered in soft, light brown fur, blended naturally into Seyoung's hair. It was as if the cat ears had been a part of her from the beginning, sitting atop her head without a hint of dissonance. Seeing her in this novel, different light, a corner of Shiwoo's chest tickled in response. Naturally, Shiwoo's penis surged and throbbed... Perhaps thanks to the newly sprouted cat ears, Seyoung's breasts and hips exuded an atmosphere far more captivating and lewd than before. The subtle sexiness and deep sensuality radiating from her were as natural and intense as if they had always been meant to be that way.</p>
+<p>Those pointed ears, covered in soft, light brown fur, blended naturally into Seyoung's hair. It was as if the cat ears had been a part of her from the beginning, sitting atop her head without a hint of dissonance. Seeing her in this novel, different light, a corner of Shiwoo's chest tickled in response. Naturally, Shiwoo's penis surged and throbbed... Perhaps thanks to the newly sprouted cat ears, Seyoung's breasts and hips exuded an atmosphere far more captivating and lewd than before.</p>
+
+<p>The subtle sexiness and deep sensuality radiating from her were as natural and intense as if they had always been meant to be that way.</p>
 
 <p>"Oh~ Imo is here~ Seyoung, were you in your room? What were you doing?"</p>
 
@@ -12,7 +14,9 @@ chapter = 670
 
 <p>"Yeah! Welcome, Seonju Imo ! I was getting ready for dinner while waiting for you! I missed you~ Hehe~"</p>
 
-<p>Seyoung buried her face deep into Seonju Imo 's breasts and hugged her tight, wrapping her arms around her hips . A sense of yearning, like reuniting with a dear family member not seen in a long time, radiated from her. Seonju Imo naturally pulled Seyoung's body close, quietly embracing her. At that moment, Seyoung's hand, which had been holding her hips , stroked Seonju Imo 's large buttocks . Seonju Imo flinched slightly as if surprised, but soon accepted the touch, hugging Seyoung back as if nothing were wrong. Seyoung's hand, softly caressing Seonju Imo 's large, luscious buttocks , gently delved between the crack of her ass as if checking for something.</p>
+<p>Seyoung buried her face deep into Seonju Imo 's breasts and hugged her tight, wrapping her arms around her hips . A sense of yearning, like reuniting with a dear family member not seen in a long time, radiated from her. Seonju Imo naturally pulled Seyoung's body close, quietly embracing her. At that moment, Seyoung's hand, which had been holding her hips , stroked Seonju Imo 's large buttocks . Seonju Imo flinched slightly as if surprised, but soon accepted the touch, hugging Seyoung back as if nothing were wrong.</p>
+
+<p>Seyoung's hand, softly caressing Seonju Imo 's large, luscious buttocks , gently delved between the crack of her ass as if checking for something.</p>
 
 <p>At that secret and unfamiliar sight, Shiwoo caught his breath for a moment, unable to keep up with the situation. Seyoung pulled her face away from Seonju Imo 's breasts and looked up at her.</p>
 

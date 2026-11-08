@@ -164,7 +164,11 @@ chapter = 406
 
 <p>At Shiwoo's words, Mom expressed her feelings using an angry emoticon.</p>
 
-<p>["Get close," my ass! Just thinking about seeing Sehee's face again makes my face burn with embarrassment!]</p>
+<p>[</p>
+
+<p>"Get close,"</p>
+
+<p>my ass! Just thinking about seeing Sehee's face again makes my face burn with embarrassment!]</p>
 
 <p>Mom reacted indignantly to Shiwoo's added words.</p>
 
