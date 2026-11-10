@@ -10,9 +10,9 @@ chapter = 167
 
 <p>Imagining the scene when that kiss mark was made, Shiwoo's lower body swelled up even more massively.</p>
 
-<p>Seyoung Nuna, checking the people around, unbuttoned Sinbi Nuna's chest and brought her lips to it.</p>
+<p>Sehee Nuna, checking the people around, unbuttoned Sinbi Nuna's chest and brought her lips to it.</p>
 
-<p>Seyoung Nuna's lips touched Sinbi Nuna's plump and soft skin, bursting blood vessels and sucking with great force.</p>
+<p>Sehee Nuna's lips touched Sinbi Nuna's plump and soft skin, bursting blood vessels and sucking with great force.</p>
 
 <p>Sehee Nuna seemed to become bolder when she was with Sinbi Nuna.</p>
 
