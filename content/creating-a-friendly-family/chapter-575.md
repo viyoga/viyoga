@@ -24,13 +24,13 @@ chapter = 575
 
 <p>Shiwoo receives his rice, side dishes, and soup, and approaches the seat where Cheoljin is sitting.</p>
 
-<p>「Why are you so late after going to the bathroom? Did you come after jerking off while thinking about your new girlfriend?」</p>
+<p>"Why are you so late after going to the bathroom? Did you come after jerking off while thinking about your new girlfriend?"</p>
 
 <p>Cheoljin jokes mischievously, as if for the surrounding friends to hear...</p>
 
 <p>The gazes of the seated friends and the girls standing nearby focus on them.</p>
 
-<p>「What, what the fuck are you talking about, you crazy bastard?! I just had a bad stomach, so it took a bit longer!」</p>
+<p>"What, what the fuck are you talking about, you crazy bastard?! I just had a bad stomach, so it took a bit longer!"</p>
 
 <p>Shiwoo, feeling a twinge of guilt, but responding to Cheoljin's unchanging attitude of joking as usual, yells back as if relieved.</p>
 
@@ -50,11 +50,11 @@ chapter = 575
 
 <p>As Shiwoo is finishing his meal, Cheoljin opens his mouth in a low voice.</p>
 
-<p>「Shall we talk for a bit on the rooftop after eating? I'll buy you a drink this time.」</p>
+<p>"Shall we talk for a bit on the rooftop after eating? I'll buy you a drink this time."</p>
 
 <p>Cheoljin conveys his words to Shiwoo, fixing his gaze on his tray as if indifferent...</p>
 
-<p>「Huh? Uh... sure,」</p>
+<p>"Huh? Uh... sure,"</p>
 
 <p>Shiwoo, caught off guard, reacts with a start at Cheoljin's sudden words.</p>
 
@@ -62,17 +62,17 @@ chapter = 575
 
 <p>Having finished his meal, Shiwoo clears his tray and heads to the academy rooftop with Cheoljin.</p>
 
-<p>「Did you get home okay with Sehee Nuna that night?」</p>
+<p>"Did you get home okay with Sehee Nuna that night?"</p>
 
 <p>Cheoljin asks Shiwoo again as if speaking normally.</p>
 
 <p>'That night' probably refers to the night of the meeting when they parted ways last Friday.</p>
 
-<p>「Yeah... I got home okay... I was the last one to come out of the police station after everyone left though...」</p>
+<p>"Yeah... I got home okay... I was the last one to come out of the police station after everyone left though..."</p>
 
 <p>Shiwoo replies to Cheoljin, recalling the events at the police station that day.</p>
 
-<p>「Didn't Seonju Imo say she couldn't come because she was busy with work? What happened after we left?」</p>
+<p>"Didn't Seonju Imo say she couldn't come because she was busy with work? What happened after we left?"</p>
 
 <p>Cheoljin asks, seemingly curious about who came to pick up Shiwoo and Sehee Nuna from the police station that day.</p>
 
@@ -80,19 +80,19 @@ chapter = 575
 
 <p>Or he might be pretending not to know, testing Shiwoo...</p>
 
-<p>「Ah It worked out well somehow My aunt just happened to be nearby... so she came to pick me up right after you guys left.」</p>
+<p>"Ah It worked out well somehow My aunt just happened to be nearby... so she came to pick me up right after you guys left."</p>
 
 <p>Shiwoo mentions the word 'aunt' as if giving a hint, without directly mentioning Yu Yena Teacher.</p>
 
-<p>「Aunt? You had an aunt?」</p>
+<p>"Aunt? You had an aunt?"</p>
 
 <p>Cheoljin asks Shiwoo, his eyes sparkling for a moment.</p>
 
-<p>「Yeah, I do... someone like that... We don't interact much, so she doesn't seem that close to us... Thanks to her, it worked out well though... Anyway, what about you? Did anything happen after you went home with Gyuri Ajumma that night?」</p>
+<p>"Yeah, I do... someone like that... We don't interact much, so she doesn't seem that close to us... Thanks to her, it worked out well though... Anyway, what about you? Did anything happen after you went home with Gyuri Ajumma that night?"</p>
 
 <p>Shiwoo vaguely glosses over the story about Yu Yena Teacher and continues the question as if diverting Cheoljin's attention.</p>
 
-<p>「Ah- don't even mention it... I got scolded by my mom the whole way home... I don't know why she nagged so much even though I'm old enough I thought my ears were going to fall off that day」</p>
+<p>"Ah- don't even mention it... I got scolded by my mom the whole way home... I don't know why she nagged so much even though I'm old enough I thought my ears were going to fall off that day"</p>
 
 <p>Cheoljin rambles on as if telling a story about what he experienced on the way home with Gyuri Ajumma that day, as if joking.</p>
 
@@ -102,11 +102,11 @@ chapter = 575
 
 <p>Especially when considering Gyuri Ajumma's bondage play from last Wednesday, the situation of Gyuri Ajumma scolding Cheoljin is now unimaginable.</p>
 
-<p>「Got scolded? Aren't you and your mom like that...? You even did all that on Wednesday, right? But you're getting scolded for fighting and going to the police station?」</p>
+<p>"Got scolded? Aren't you and your mom like that...? You even did all that on Wednesday, right? But you're getting scolded for fighting and going to the police station?"</p>
 
 <p>Shiwoo turns his head to look at Cheoljin and asks as if puzzled.</p>
 
-<p>「What? What are you talking about? Of course, parents and children scold each other sometimes...」</p>
+<p>"What? What are you talking about? Of course, parents and children scold each other sometimes..."</p>
 
 <p>Cheoljin replies as if he doesn't understand Shiwoo's words.</p>
 
@@ -114,11 +114,11 @@ chapter = 575
 
 <p>Shiwoo pauses awkwardly in a state of bewilderment, as if experiencing cognitive dissonance.</p>
 
-<p>「Didn't you say before that you really think of your mom that way? That you can't play if you're not sincere?」</p>
+<p>"Didn't you say before that you really think of your mom that way? That you can't play if you're not sincere?"</p>
 
 <p>Shiwoo quickly regains his composure and asks, pressing him as if recalling what Cheoljin had said before.</p>
 
-<p>「That's only when I'm playing, of course! How can I live like that with my mom all day long?」</p>
+<p>"That's only when I'm playing, of course! How can I live like that with my mom all day long?"</p>
 
 <p>Cheoljin looks at Shiwoo with a dumbfounded expression, making a mocking sneer as he speaks.</p>
 
@@ -146,9 +146,9 @@ chapter = 575
 
 <p>Common sense was just like a futile line, and the moment he crossed that line, he felt as if everything contradictory was scattering and collapsing.</p>
 
-<p>「The funny thing is that most of the nagging my mom did was about your face, Shiwoo! She kept asking me why I was with you and let you get to that state. I got bruised here and there too, you know.」</p>
+<p>"The funny thing is that most of the nagging my mom did was about your face, Shiwoo! She kept asking me why I was with you and let you get to that state. I got bruised here and there too, you know."</p>
 
-<p>「At first, she kept badgering me, asking if I had hit you with the hyungs! It seems like my mom feels really special about you, like a lover or husband, after doing it once Isn't that really pathetic for an old woman? Kik!」</p>
+<p>"At first, she kept badgering me, asking if I had hit you with the hyungs! It seems like my mom feels really special about you, like a lover or husband, after doing it once Isn't that really pathetic for an old woman? Kik!"</p>
 
 <p>Cheoljin once again throws a joke that crosses the line at Shiwoo, treating the sexual relationship between his mom and his friend as a light joke, as if it were a trivial everyday story.</p>
 
@@ -168,10 +168,10 @@ chapter = 575
 
 <p class="scene-break">· · ·</p>
 
-<p>「By the way, you haven't forgotten that you were going to let me touch Sinbi's breasts that day, have you? I've been really looking forward to it since then! That's why I had no choice but to leave Sehee and my partner Semi as they were and come down」</p>
+<p>"By the way, you haven't forgotten that you were going to let me touch Sinbi's breasts that day, have you? I've been really looking forward to it since then! That's why I had no choice but to leave Sehee and my partner Semi as they were and come down"</p>
 
 <p>Opening the steel door and stepping onto the academy building's rooftop, Cheoljin still speaks as if throwing a light joke.</p>
 
-<p>「Would that even work? Just because I tell Sinbi Nuna to let you touch them, would she let you touch her breasts?」</p>
+<p>"Would that even work? Just because I tell Sinbi Nuna to let you touch them, would she let you touch her breasts?"</p>
 
 <p>Shiwoo, feeling dumbfounded, counters Cheoljin's joke as if sternly brushing it off.</p>

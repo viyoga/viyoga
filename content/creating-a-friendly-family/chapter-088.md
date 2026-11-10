@@ -4,7 +4,7 @@ weight = 88
 [extra]
 chapter = 88
 +++
-<p>「But are you sure you don't need to call Sua?」</p>
+<p>"But are you sure you don't need to call Sua?"</p>
 
 <p>Shiwoo said, looking down at Seonju Imo with a mischievous tone.</p>
 
@@ -14,11 +14,11 @@ chapter = 88
 
 <p>Each time Shiwoo moved his hips back and forth, the tip of his glans repeatedly tapped and thrust against Seonju Imo's chin and cheek.</p>
 
-<p>「Huh? Su...Sua? Why Sua?」</p>
+<p>"Huh? Su...Sua? Why Sua?"</p>
 
 <p>As her chin and cheek were being struck by his glans, Seonju Imo was flustered when Sua's name came out of Shiwoo's mouth again.</p>
 
-<p>「You're not going straight home, are you? You should call Sua and tell her you'll be late so she doesn't worry!! She's your daughter!!」</p>
+<p>"You're not going straight home, are you? You should call Sua and tell her you'll be late so she doesn't worry!! She's your daughter!!"</p>
 
 <p>Emphasizing the word 'daughter,' Shiwoo spoke as if trying to remind her of the lewd talk about Sua he had whispered earlier when they were having sex while pretending to be asleep.</p>
 
@@ -38,13 +38,13 @@ chapter = 88
 
 <p>As if forcing an answer, Shiwoo strongly gripped Seonju Imo's large breasts and twisted them.</p>
 
-<p>「Ugh... th-then... should I try calling? It would be good to talk to Sua, right?」</p>
+<p>"Ugh... th-then... should I try calling? It would be good to talk to Sua, right?"</p>
 
 <p>Seonju Imo answered, as if submitting to Shiwoo's authority.</p>
 
 <p>Shiwoo released the strength from the hand gripping her breast and began to caress Seonju Imo's nipple with the tip of his thumb, as if stroking it.</p>
 
-<p>「Haaah」</p>
+<p>"Haaah"</p>
 
 <p>Seonju Imo's deep sigh, whether from relief at being freed from his oppressive touch or a reaction to his stimulating fondling, was impossible to tell.</p>
 
@@ -56,11 +56,11 @@ chapter = 88
 
 <p>Seonju Imo picked up her smartphone and called Sua.</p>
 
-<p>「Put it on speakerphone!!」</p>
+<p>"Put it on speakerphone!!"</p>
 
 <p>Shiwoo said to Seonju Imo, short and commanding.</p>
 
-<p>「Y-yes... okay... I just put it on speakerphone, right?」</p>
+<p>"Y-yes... okay... I just put it on speakerphone, right?"</p>
 
 <p>Seonju Imo answered Shiwoo submissively, pressing the speaker button on the smartphone's call screen.</p>
 
@@ -74,15 +74,15 @@ chapter = 88
 
 <p>Seonju Imo's eyes were unfocused, as if intoxicated by Shiwoo's humiliating act of discipline.</p>
 
-<p>「But what if we keep doing this and it feels so good it becomes a habit? Kikik」</p>
+<p>"But what if we keep doing this and it feels so good it becomes a habit? Kikik"</p>
 
 <p>Seonju Imo's body trembled uncontrollably as she spoke to Shiwoo, seemingly delighted by the new game they had accidentally discovered.</p>
 
-<p>「Then we'll just do it every day like a habit! Really, the women in this house worry too much about useless things!!」</p>
+<p>"Then we'll just do it every day like a habit! Really, the women in this house worry too much about useless things!!"</p>
 
 <p>Shiwoo pressed his body over Seonju Imo's, then moved down and began to suck her breasts.</p>
 
-<p>「Heueut... Haaht...」</p>
+<p>"Heueut... Haaht..."</p>
 
 <p>At Shiwoo's sudden action, Seonju Imo cried out as if startled.</p>
 
@@ -90,25 +90,25 @@ chapter = 88
 
 <p class="scene-break">· · ·</p>
 
-<p>「Mom?」</p>
+<p>"Mom?"</p>
 
 <p>Sua's voice, answering the phone.</p>
 
-<p>「Heeung My daughter Did you have a good day at school? ...What are you doing now?」</p>
+<p>"Heeung My daughter Did you have a good day at school? ...What are you doing now?"</p>
 
 <p>Seonju Imo, even while having her breasts sucked by Shiwoo, struggled to greet her daughter as usual.</p>
 
-<p>「Yeah... I just ate the chicken porridge Seonmi Imo brought, and now I'm doing homework with Seyoung...」</p>
+<p>"Yeah... I just ate the chicken porridge Seonmi Imo brought, and now I'm doing homework with Seyoung..."</p>
 
 <p>Sua's clear, bright voice came through at length.</p>
 
 <p>Shiwoo gathered both of Seonju Imo's nipples together, took them into his mouth, and focused his assault.</p>
 
-<p>「Oh... haah... really? Nothing special happening?」</p>
+<p>"Oh... haah... really? Nothing special happening?"</p>
 
 <p>Seonju Imo, barely enduring Shiwoo's fondling, managed to speak.</p>
 
-<p>「No, nothing special Mom, are you still at Shiwoo Oppa's house?」</p>
+<p>"No, nothing special Mom, are you still at Shiwoo Oppa's house?"</p>
 
 <p>Sua's voice, continuing a normal conversation with her mother.</p>
 
@@ -116,7 +116,7 @@ chapter = 88
 
 <p>Shiwoo's tongue glided past Seonju Imo's stomach and anterior pelvis, descending to the pubic bone area below her smoothly groomed groin.</p>
 
-<p>「Uh... that's right, at Shiwoo Oppa's... Hmm... it might take a little, ugh... time for Mom to get home, you see?」</p>
+<p>"Uh... that's right, at Shiwoo Oppa's... Hmm... it might take a little, ugh... time for Mom to get home, you see?"</p>
 
 <p>Seonju Imo spoke, exhaling short, sharp breaths intermittently.</p>
 
@@ -124,31 +124,31 @@ chapter = 88
 
 <p>Shiwoo gently parted Seonju Imo's legs, entered between them, and meticulously licked the area around the cave-like entrance, split open like a fissure.</p>
 
-<p>「So you're coming home late today? How late? Mom, why does your voice sound like that?」</p>
+<p>"So you're coming home late today? How late? Mom, why does your voice sound like that?"</p>
 
 <p>Sua also asked, sounding puzzled, as if her mother's voice seemed a little strange.</p>
 
 <p>Sua's voice, suspicious of her mother's tone, seemed to be a great stimulant for Shiwoo.</p>
 
-<p>「Oh Mom's getting something nice from Shiwoo Oppa right now? Heut...」</p>
+<p>"Oh Mom's getting something nice from Shiwoo Oppa right now? Heut..."</p>
 
 <p>Seonju Imo answered, receiving Shiwoo's cunnilingus.</p>
 
 <p>Shiwoo was persistently licking and rolling Seonju Imo's clitoris with the tip of his tongue.</p>
 
-<p>「Something nice?」</p>
+<p>"Something nice?"</p>
 
-<p>「Yeah... a massage...!! Shiwoo Oppa, heu... had promised to give me one before... I told him I was tired from standing all day today... so he said he'd do it... So, haaht But... Shiwoo's massage technique is so good... too strong... heoeo... if you do that... eun... Shi... Shiwoo!!」</p>
+<p>"Yeah... a massage...!! Shiwoo Oppa, heu... had promised to give me one before... I told him I was tired from standing all day today... so he said he'd do it... So, haaht But... Shiwoo's massage technique is so good... too strong... heoeo... if you do that... eun... Shi... Shiwoo!!"</p>
 
 <p>Seonju Imo's body trembled convulsively, reaching climax.</p>
 
 <p>Seonju Imo, without Shiwoo even asking, rambled on with a long explanation, letting Sua hear her moaning sound as she reached climax.</p>
 
-<p>「Mom, are you okay?」</p>
+<p>"Mom, are you okay?"</p>
 
 <p>Sua, speaking as if worried about her mother.</p>
 
-<p>「Eueung... Mom's okay Haaah Later, Sua, you should also ask Shiwoo Oppa to give you a massage... heu... it feels so good, you know?」</p>
+<p>"Eueung... Mom's okay Haaah Later, Sua, you should also ask Shiwoo Oppa to give you a massage... heu... it feels so good, you know?"</p>
 
 <p>Seonju Imo, with unfocused eyes, looked at Shiwoo and spoke to Sua, her body twitching and shuddering.</p>
 
@@ -158,7 +158,7 @@ chapter = 88
 
 <p>With a satisfied expression, Shiwoo nodded his head.</p>
 
-<p>「Uh... anyway... Mom might be late today, so don't worry and go to sleep quickly Understood?」</p>
+<p>"Uh... anyway... Mom might be late today, so don't worry and go to sleep quickly Understood?"</p>
 
 <p>Seonju Imo spoke urgently and quickly hung up the phone before Sua could even answer.</p>
 
@@ -184,13 +184,13 @@ chapter = 88
 
 <p>Along with the resolve to definitely impregnate Seonju Imo...</p>
 
-<p>「I really hope it's a daughter who looks like Seonju.」</p>
+<p>"I really hope it's a daughter who looks like Seonju."</p>
 
 <p>Shiwoo quietly whispered his true feelings into Seonju Imo's ear.</p>
 
 <p>Seonju Imo wrapped her arms around Shiwoo's back and parted her lips for him.</p>
 
-<p>「Chyuup Oop Chyup」</p>
+<p>"Chyuup Oop Chyup"</p>
 
 <p>The lewd, wet sounds of their lips intertwining filled the living room.</p>
 
@@ -212,19 +212,19 @@ chapter = 88
 
 <p>A few seconds of silence...</p>
 
-<p>「......!」</p>
+<p>"......!"</p>
 
-<p>「......!!」</p>
+<p>"......!!"</p>
 
-<p>「......!!!」</p>
+<p>"......!!!"</p>
 
-<p>「Sh-Shiwoo, move!!」</p>
+<p>"Sh-Shiwoo, move!!"</p>
 
 <p>Breaking the silence, Seonju Imo's urgent voice burst out, sounding flustered.</p>
 
 <p>Seonju Imo pushed Shiwoo away and stood up.</p>
 
-<p>「Huh? Oh!」</p>
+<p>"Huh? Oh!"</p>
 
 <p>Shiwoo was pushed away with surprising ease by Seonju Imo's strength.</p>
 
@@ -240,7 +240,7 @@ chapter = 88
 
 <p>Someone was about to enter the house.</p>
 
-<p>「I have to do something...」</p>
+<p>"I have to do something..."</p>
 
 <p>Shiwoo picked up the pants he had taken off on the floor and put them on.</p>
 
@@ -250,15 +250,15 @@ chapter = 88
 
 <p>Just as he was wondering how to clean up the stains on the floor, the front door opened.</p>
 
-<p>「Shiwoo, I'm home」</p>
+<p>"Shiwoo, I'm home"</p>
 
 <p>Sehee Nuna entered the entryway, her hands full of white plastic bags.</p>
 
-<p>「Uh... Sehee Nuna?」</p>
+<p>"Uh... Sehee Nuna?"</p>
 
 <p>Shiwoo answered from the living room, caught off guard.</p>
 
-<p>「Oh? Is Seonju Imo here?」</p>
+<p>"Oh? Is Seonju Imo here?"</p>
 
 <p>Sehee Nuna asked, seeing Seonju Imo's pink high heels in the entryway.</p>
 

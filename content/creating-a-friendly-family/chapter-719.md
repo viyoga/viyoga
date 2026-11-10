@@ -102,14 +102,14 @@ chapter = 719
 
 <p>Around the time he reached the park in front of the house, a text sent from Mom arrived on Shiwoo's smartphone.</p>
 
-<p>『Uigh!』</p>
+<p>"Uigh!"</p>
 
 <p>Mom's text, as if scolding and lamenting.</p>
 
-<p>『Why?』</p>
+<p>"Why?"</p>
 
 <p>Shiwoo asked playfully, feigning innocence.</p>
 
-<p>『Why are you bullying Seonju using Mom as an excuse?! Who asked you to do that to my sister?』</p>
+<p>"Why are you bullying Seonju using Mom as an excuse?! Who asked you to do that to my sister?"</p>
 
 <p>Mom sent a text to Shiwoo as if grumbling in disbelief.</p>

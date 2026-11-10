@@ -16,7 +16,7 @@ chapter = 155
 
 <p>Sehee-nuna's glistening lips, licked clean and wiped, shone lustrously under the light.</p>
 
-<p>「Don't swallow, stay like that!」</p>
+<p>"Don't swallow, stay like that!"</p>
 
 <p>Shiwoo commanded Seonju Imo in a strong tone.</p>
 
@@ -40,7 +40,7 @@ chapter = 155
 
 <p>And at the same time, a faint vibrating sound was heard from Seonju Imo's crotch.</p>
 
-<p>「Haaaeuugh! Keueuk!」</p>
+<p>"Haaaeuugh! Keueuk!"</p>
 
 <p>As if it were natural, muffled moaning sounds and coughing sounds leaked out from inside Seonju Imo's mouth, which was open and holding chicken porridge, echoing with the vibrating sound.</p>
 
@@ -106,7 +106,7 @@ chapter = 155
 
 <p>Sehee-nuna, with flushed, unfocused eyes, was gazing at the part where Shiwoo's penis and Seonju Imo's lips were touching and rubbing.</p>
 
-<p>「Come up!」</p>
+<p>"Come up!"</p>
 
 <p>Shiwoo looked down at Sehee-nuna and commanded.</p>
 
@@ -114,7 +114,7 @@ chapter = 155
 
 <p>Sehee-nuna, as if she hadn't understood Shiwoo's command, was in a hesitant, awkward posture, not knowing what to do.</p>
 
-<p>「Get up on the table! And lie prone!」</p>
+<p>"Get up on the table! And lie prone!"</p>
 
 <p>Shiwoo raised his voice slightly and commanded Sehee-nuna.</p>
 
@@ -166,13 +166,13 @@ chapter = 155
 
 <p>Tongues extended and entwined as if crossing.</p>
 
-<p>「Chyu-rup! Chyu-wap! Ha-up!」</p>
+<p>"Chyu-rup! Chyu-wap! Ha-up!"</p>
 
 <p>Chicken porridge mixed with Shiwoo's semen was being exchanged back and forth between Sehee-nuna's and Seonju Imo's mouths.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>「Ol-gak! Ol-gak! Ol-gak!」</p>
+<p>"Ol-gak! Ol-gak! Ol-gak!"</p>
 
 <p>Seonju Imo's swallowing sounds were heard in Shiwoo's ears.</p>
 
@@ -198,7 +198,7 @@ chapter = 155
 
 <p>Shiwoo was watching Sehee-nuna, who was hugging and kissing Seonju Imo.</p>
 
-<p>「At this rate, all the time will be spent eating!」</p>
+<p>"At this rate, all the time will be spent eating!"</p>
 
 <p>Shiwoo spoke, feeling a strange jealousy, not knowing who it was directed at.</p>
 
@@ -222,6 +222,6 @@ chapter = 155
 
 <p>Shiwoo grabbed the opposite handle of the jump rope that bound Seonju Imo, led her to the floor where the chicken porridge had spilled, and made her kneel.</p>
 
-<p>「Seonju, what you're going to eat is spilled on the floor! From now on, lick it all up without leaving anything!」</p>
+<p>"Seonju, what you're going to eat is spilled on the floor! From now on, lick it all up without leaving anything!"</p>
 
 <p>Shiwoo commanded Seonju Imo, gently pressing her upper body down with his foot from behind so that her head, kneeling on the floor, tilted downwards.</p>

@@ -8,7 +8,7 @@ chapter = 533
 
 <p>Shiwoo stared intently at the chat window on his smartphone screen, waiting for Mom's reply with a tense feeling.</p>
 
-<p>「I've done it before...a long time ago...」</p>
+<p>"I've done it before...a long time ago..."</p>
 
 <p>A reply, as if confessing the past, came back from Mom.</p>
 
@@ -24,11 +24,11 @@ chapter = 533
 
 <p>Shiwoo switched the screen to the chat window and sent the photo of his penis he had just taken to Mom.</p>
 
-<p>「I haven't cum yet. I'm going out to the living room just like this! I have something to ask you, so be ready!」</p>
+<p>"I haven't cum yet. I'm going out to the living room just like this! I have something to ask you, so be ready!"</p>
 
 <p>And immediately after that, Shiwoo wrote and sent a message, as if telling Mom to prepare herself mentally.</p>
 
-<p>「Okay...」</p>
+<p>"Okay..."</p>
 
 <p>A reply came back from Mom.</p>
 
@@ -60,7 +60,7 @@ chapter = 533
 
 <p>Mom seemed to deliberately move her body a little more busily, continuing her cooking.</p>
 
-<p>「Mom, is breakfast almost ready?」</p>
+<p>"Mom, is breakfast almost ready?"</p>
 
 <p>Shiwoo approached Mom from behind and spoke to her in a lively voice.</p>
 
@@ -70,7 +70,7 @@ chapter = 533
 
 <p>As if flustered by Shiwoo's almost naked appearance, Mom quickly turned her head forward again.</p>
 
-<p>「Uh? Oh...th-that, it'll be ready soon...j-just give me a little time...the preparation...」</p>
+<p>"Uh? Oh...th-that, it'll be ready soon...j-just give me a little time...the preparation..."</p>
 
 <p>Mom answered Shiwoo's question, moving her hands busily as if flustered.</p>
 
@@ -82,17 +82,17 @@ chapter = 533
 
 <p>Mom turned her head towards the electric rice cooker as if startled again.</p>
 
-<p>「Haaaah...」</p>
+<p>"Haaaah..."</p>
 
 <p>For a moment, as if she had recognized her own flustered state, Mom let out a long sigh.</p>
 
 <p>Mom turned off the gas stove that was heating the curry pot and prepared a large bowl for the rice and curry.</p>
 
-<p>「You can take your time It'll probably take more than 10 minutes for Seyoung to come out after washing her hair. Sehee will probably only come down if I call her from the 2nd floor...」</p>
+<p>"You can take your time It'll probably take more than 10 minutes for Seyoung to come out after washing her hair. Sehee will probably only come down if I call her from the 2nd floor..."</p>
 
 <p>Shiwoo repeated what he had said in the chat, letting Mom know as if emphasizing again that there was plenty of time.</p>
 
-<p>「Uh...yeah...I-I know...」</p>
+<p>"Uh...yeah...I-I know..."</p>
 
 <p>Mom answered, placing the bowl for rice and curry on the counter space of the sink.</p>
 
@@ -112,9 +112,9 @@ chapter = 533
 
 <p>Mom's buttocks, which had been tensed up, slowly relaxed.</p>
 
-<p>「As soon as I woke up this morning, I went to Sehee and made her suck my thing, you know? To clean off the grime stuck to my cock from doing it with Mom yesterday! If Mom had been next to me, I would have made Mom do it...」</p>
+<p>"As soon as I woke up this morning, I went to Sehee and made her suck my thing, you know? To clean off the grime stuck to my cock from doing it with Mom yesterday! If Mom had been next to me, I would have made Mom do it..."</p>
 
-<p>「Just now, inside the shower room, I made Seyoung suck it too. Maybe because she received good early education, she sucked it well. You saw the video, so you know, right?」</p>
+<p>"Just now, inside the shower room, I made Seyoung suck it too. Maybe because she received good early education, she sucked it well. You saw the video, so you know, right?"</p>
 
 <p>Shiwoo was telling Mom about the oral sex he had received in turn from Sehee Nuna and Seyoung after waking up this morning.</p>
 
@@ -126,7 +126,7 @@ chapter = 533
 
 <p>She, who had confirmed the towel in her hand, trembled greatly and flinched once again.</p>
 
-<p>「I haven't cum yet, you know? I want to let Mom taste it too! Now it's Mom's turn to suck! Here.」</p>
+<p>"I haven't cum yet, you know? I want to let Mom taste it too! Now it's Mom's turn to suck! Here."</p>
 
 <p>Shiwoo spoke, thrusting out his penis, with its reddish flesh exposed, towards the side of Mom's pelvis, as if provocatively showing it off.</p>
 
@@ -150,15 +150,15 @@ chapter = 533
 
 <p>Shiwoo mercilessly slapped Mom's buttocks as she tried to pull down her skirt.</p>
 
-<p>「Hauuut!」</p>
+<p>"Hauuut!"</p>
 
 <p>Mom let out a moaning sound, and as if suddenly coming to her senses, quickly removed the hand that was holding her skirt.</p>
 
-<p>「I told you there was plenty of time, didn't I?! Why?! Are you worried Seyoung might come out? Should I go in with you now and tell them to start training right away, regardless of family members?」</p>
+<p>"I told you there was plenty of time, didn't I?! Why?! Are you worried Seyoung might come out? Should I go in with you now and tell them to start training right away, regardless of family members?"</p>
 
 <p>Shiwoo was speaking in an overbearing manner, poking the flesh of Mom's large buttocks with his hand as if to hit it again.</p>
 
-<p>「Ah...no...I'm sorry...because it's morning...I...I unconsciously...couldn't help it...」</p>
+<p>"Ah...no...I'm sorry...because it's morning...I...I unconsciously...couldn't help it..."</p>
 
 <p>Mom was speaking to Shiwoo awkwardly, apologizing in polite speech.</p>
 
@@ -166,15 +166,15 @@ chapter = 533
 
 <p>Shiwoo slapped Mom's other buttocks hard once more.</p>
 
-<p>「Haat!」</p>
+<p>"Haat!"</p>
 
 <p>Mom moaned, gripping the sink with both hands as if falling forward.</p>
 
-<p>「Who told you to use polite speech to your son just because of that? I told you to pretend to be Mom in the morning, didn't I?!」</p>
+<p>"Who told you to use polite speech to your son just because of that? I told you to pretend to be Mom in the morning, didn't I?!"</p>
 
 <p>Shiwoo spoke, raising his voice as if scolding Mom.</p>
 
-<p>「Uh...euh...haaah...I-I'm sorry, Shiwoo...Mom...I-I didn't...know...that's why I did it...Heueueu...」</p>
+<p>"Uh...euh...haaah...I-I'm sorry, Shiwoo...Mom...I-I didn't...know...that's why I did it...Heueueu..."</p>
 
 <p>Mom spoke to Shiwoo, her entire face flushed crimson, as if shameful and awkward feelings were surging up from deep within her chest.</p>
 
@@ -184,48 +184,48 @@ chapter = 533
 
 <p>Shiwoo stroked her buttocks with the hand gripping the collar, as if calming Mom.</p>
 
-<p>「Earlier, while getting your buttocks spanked, you said you had been trained before, didn't you? By a much younger woman...」</p>
+<p>"Earlier, while getting your buttocks spanked, you said you had been trained before, didn't you? By a much younger woman..."</p>
 
 <p>Shiwoo asked her, as if subtly continuing the conversation he had with Mom in the chat from the changing room.</p>
 
-<p>「Uh? Ah...yeah...」</p>
+<p>"Uh? Ah...yeah..."</p>
 
 <p>Mom answered flustered, as if out of her mind, in the situation of being spanked by Shiwoo with her buttocks exposed in the kitchen.</p>
 
-<p>「How many years difference was there between you and her? Was there a big age difference, similar to Seyoung?」</p>
+<p>"How many years difference was there between you and her? Was there a big age difference, similar to Seyoung?"</p>
 
 <p>Shiwoo asked questions regarding the partner Mom said she had been trained by, as if curious.</p>
 
-<p>「Ah...no...because I was young back then too. It wasn't as big a difference as with Seyoung now...」</p>
+<p>"Ah...no...because I was young back then too. It wasn't as big a difference as with Seyoung now..."</p>
 
 <p>Mom answered Shiwoo, recalling memories for a moment and staring into space with hazy eyes, as if thinking.</p>
 
-<p>「Many people?」</p>
+<p>"Many people?"</p>
 
 <p>Shiwoo continued to ask questions with a cautious attitude, as if exploring Mom's past.</p>
 
-<p>「N-no...」</p>
+<p>"N-no..."</p>
 
 <p>Mom hastily shook her head from side to side.</p>
 
-<p>「You mean one person, right?」</p>
+<p>"You mean one person, right?"</p>
 
 <p>Shiwoo was digging into her past, as if he would treat her differently depending on Mom's training status.</p>
 
-<p>「Uh, yeah....one person.」</p>
+<p>"Uh, yeah....one person."</p>
 
 <p>Mom answered carefully, as if confirming her own experience.</p>
 
-<p>「Someone I've met before?」</p>
+<p>"Someone I've met before?"</p>
 
 <p>Shiwoo continuously asked questions to figure out if the person Mom was talking about was someone he knew.</p>
 
-<p>「Probably...I think you've met them...」</p>
+<p>"Probably...I think you've met them..."</p>
 
 <p>Mom answered Shiwoo with the word 'probably...', as if dropping an indirect hint.</p>
 
 <p>Instantly, Shiwoo's heart began to pound.</p>
 
-<p>「Recently?」</p>
+<p>"Recently?"</p>
 
 <p>Shiwoo was asking her a series of questions, as if trying to exclude uncertain possibilities and clues.</p>

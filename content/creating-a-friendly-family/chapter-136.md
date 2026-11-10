@@ -4,13 +4,13 @@ weight = 136
 [extra]
 chapter = 136
 +++
-<p>「What did you do with my Mom?」</p>
+<p>"What did you do with my Mom?"</p>
 
 <p>Shiwoo's text message sent to Gyuri Ajumma's smartphone.</p>
 
 <p>Gyuri Ajumma, lying prone, picked up her smartphone and checked Shiwoo's message.</p>
 
-<p>「?」</p>
+<p>"?"</p>
 
 <p>Gyuri Ajumma stared at her smartphone for a while, looking puzzled, then sent a single question mark to Shiwoo.</p>
 
@@ -18,15 +18,15 @@ chapter = 136
 
 <p>Shiwoo abruptly slapped Gyuri Ajumma's buttocks with his palm.</p>
 
-<p>「Heeueut」</p>
+<p>"Heeueut"</p>
 
-<p>「Gyuri, what's your relationship with my Mom?」</p>
+<p>"Gyuri, what's your relationship with my Mom?"</p>
 
 <p>Shiwoo's text message was sent again.</p>
 
 <p>Shiwoo waited for Gyuri Ajumma's reply.</p>
 
-<p>「What relationship? Seonmi and I are just old friends.」</p>
+<p>"What relationship? Seonmi and I are just old friends."</p>
 
 <p>Gyuri Ajumma quickly moved her hands and sent a reply to Shiwoo.</p>
 
@@ -34,7 +34,7 @@ chapter = 136
 
 <p>Shiwoo's palm fell mercilessly onto Gyuri Ajumma's buttocks once more.</p>
 
-<p>「Haaaeut! Heeueung」</p>
+<p>"Haaaeut! Heeueung"</p>
 
 <p>Gyuri Ajumma was letting out moaning sounds as if she was about to cry.</p>
 
@@ -134,7 +134,7 @@ chapter = 136
 
 <p>-Ssueok!</p>
 
-<p>「Haeuk!」</p>
+<p>"Haeuk!"</p>
 
 <p>Gyuri Ajumma's sensitive vagina hole, stretched open by the tip of Shiwoo's glans, squeezed Shiwoo's cock tightly as if wringing out pleasure.</p>
 
@@ -174,39 +174,39 @@ chapter = 136
 
 <p>Shiwoo slowly pushed his hips up, pressing deep inside Gyuri Ajumma's vagina hole until it was aching.</p>
 
-<p>「Aaaheut!!」</p>
+<p>"Aaaheut!!"</p>
 
 <p>A long, sensual moan escaped Gyuri Ajumma's lips.</p>
 
 <p>Shiwoo pulled his hips back again, stopping with only his glans resting at the vaginal opening.</p>
 
-<p>「Haaaeuu」</p>
+<p>"Haaaeuu"</p>
 
 <p>Gyuri Ajumma's breath sounded regretful.</p>
 
-<p>「Does it feel good here?」</p>
+<p>"Does it feel good here?"</p>
 
 <p>Shiwoo asked Gyuri Ajumma, his tone different from the text message, as if the insertion and thrusting of his penis were part of a massage course.</p>
 
-<p>「Ah... un It... it feels good... Shiwoo, c-can you... do it a little harder... there?」</p>
+<p>"Ah... un It... it feels good... Shiwoo, c-can you... do it a little harder... there?"</p>
 
 <p>Gyuri Ajumma, her body aroused, closed her eyes tightly and spoke to Shiwoo as if urging him on.</p>
 
-<p>「It depends on your answer. I'll do it slowly. We can't have it like lunchtime again, can we? Right?」</p>
+<p>"It depends on your answer. I'll do it slowly. We can't have it like lunchtime again, can we? Right?"</p>
 
 <p>Shiwoo spoke teasingly, recalling how he hadn't gotten an answer at lunchtime and had knocked Gyuri Ajumma out with his violent hip movements.</p>
 
-<p>「Heeueung」</p>
+<p>"Heeueung"</p>
 
 <p>Gyuri Ajumma let out a pitiful moan, wiggling her buttocks slightly as if being coquettish.</p>
 
 <p>Shiwoo, holding his smartphone, typed and sent a slightly different question this time.</p>
 
-<p>「Gyuri, you had sex with my Dad, didn't you?」</p>
+<p>"Gyuri, you had sex with my Dad, didn't you?"</p>
 
 <p>Gyuri Ajumma, her face buried, glanced sideways to check the smartphone in her hand.</p>
 
-<p>「Haaaa」</p>
+<p>"Haaaa"</p>
 
 <p>At Shiwoo's direct question, Gyuri Ajumma let out a long sigh, as if troubled.</p>
 
@@ -214,13 +214,13 @@ chapter = 136
 
 <p>Whether it was because of the undeniable evidence Shiwoo had sent, or because she wanted Shiwoo's refreshing massage, this time she seemed willing to answer Shiwoo's question obediently.</p>
 
-<p>「Mom knows too?」</p>
+<p>"Mom knows too?"</p>
 
 <p>Shiwoo's question continued via text.</p>
 
 <p>Gyuri Ajumma checked the message and nodded her head again.</p>
 
-<p>「That you're a slave too?」</p>
+<p>"That you're a slave too?"</p>
 
 <p>Gyuri Ajumma closed her eyes tightly and nodded her head.</p>
 
@@ -234,7 +234,7 @@ chapter = 136
 
 <p>-Ssugueok! -Ssugueok! -Ssugueok!</p>
 
-<p>「Aheut! Aaaheut! Ahuheut」</p>
+<p>"Aheut! Aaaheut! Ahuheut"</p>
 
 <p>Gyuri Ajumma's moaning sounds began to burst forth.</p>
 
@@ -244,7 +244,7 @@ chapter = 136
 
 <p>His glans rested at the edge of her pussy again.</p>
 
-<p>「Haaaeuu」</p>
+<p>"Haaaeuu"</p>
 
 <p>Gyuri Ajumma's breath sounded regretful.</p>
 

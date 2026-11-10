@@ -4,49 +4,49 @@ weight = 737
 [extra]
 chapter = 737
 +++
-<p>「It's not like it's impossible now But wouldn't it be a bit awkward between us later if you do that before even trying to call me Gomo?」</p>
+<p>"It's not like it's impossible now But wouldn't it be a bit awkward between us later if you do that before even trying to call me Gomo?"</p>
 
 <p>Yu Yena-seonsaengnim was sending texts to Shiwoo in a playful tone, as if she were now openly revealing her true identity.</p>
 
-<p>「Isn't the time for worrying about being awkward long gone? What if I go to the magic academy today and just rape you right then and there, Yu Yena?」</p>
+<p>"Isn't the time for worrying about being awkward long gone? What if I go to the magic academy today and just rape you right then and there, Yu Yena?"</p>
 
 <p>Shiwoo wrote back provocatively, deliberately including Yu Yena-seonsaengnim's name in the sentence.</p>
 
-<p>「Oh my... so suddenly? But don't you have a date with your Mom today, Shiwoo? If you keep getting distracted like that, your Sae-eonni will get upset soon, won't she?」</p>
+<p>"Oh my... so suddenly? But don't you have a date with your Mom today, Shiwoo? If you keep getting distracted like that, your Sae-eonni will get upset soon, won't she?"</p>
 
 <p>Yu Yena-seonsaengnim brushed off Shiwoo's provocative joke as if it were nothing. Furthermore, she seemed to already know that Shiwoo was planning to go out with his Mom today.</p>
 
-<p>「That doesn't matter, does it? I'm meeting Mom after school anyway! And if I feel like it, I might just cut class and leave right now!」</p>
+<p>"That doesn't matter, does it? I'm meeting Mom after school anyway! And if I feel like it, I might just cut class and leave right now!"</p>
 
-<p>「I could go find you right now and do it! What does a title matter at this point? Don't you think so too?」</p>
+<p>"I could go find you right now and do it! What does a title matter at this point? Don't you think so too?"</p>
 
 <p>Shiwoo spoke as if scanning Yu Yena-seonsaengnim's reaction across the chat window on his smartphone screen, his expression strangely tense.</p>
 
-<p>「Well I suppose so Hut! Then do as you please, Shiwoo. Like I said, I didn't mind from the start...」</p>
+<p>"Well I suppose so Hut! Then do as you please, Shiwoo. Like I said, I didn't mind from the start..."</p>
 
 <p>Yu Yena-seonsaengnim spoke as if formally granting permission for the titles or tone Shiwoo used to address her. Her message seemed to transmit a throbbing heat to Shiwoo's penis.</p>
 
-<p>「Let's leave it at that then... So, I'll leave Seulgi to you, Yena. I don't need to worry about her separately after this, right?」</p>
+<p>"Let's leave it at that then... So, I'll leave Seulgi to you, Yena. I don't need to worry about her separately after this, right?"</p>
 
 <p>Shiwoo asked Yu Yena-seonsaengnim as if to confirm.</p>
 
-<p>「Yes. You don't have to worry. We'll take care of it ourselves.」</p>
+<p>"Yes. You don't have to worry. We'll take care of it ourselves."</p>
 
 <p>Yu Yena-seonsaengnim answered as if to instill confidence in Shiwoo's question.</p>
 
-<p>「Instead, I'd like you to refrain from doing that to Seulgi at the academy from now on.」</p>
+<p>"Instead, I'd like you to refrain from doing that to Seulgi at the academy from now on."</p>
 
-<p>「I wouldn't be able to stop you if you said you'd do it, but Seulgi isn't used to that kind of thing yet...」</p>
+<p>"I wouldn't be able to stop you if you said you'd do it, but Seulgi isn't used to that kind of thing yet..."</p>
 
-<p>「Besides, if we get caught by someone else, it'll be a hassle for us to clean up...」</p>
+<p>"Besides, if we get caught by someone else, it'll be a hassle for us to clean up..."</p>
 
 <p>She continued in a slightly serious tone, as if warning Shiwoo not to take the situation lightly. Shiwoo, who was already thinking that what he did to Seulgi today might have gone too far.</p>
 
-<p>「Alright... I'll be careful at the academy from now on...」</p>
+<p>"Alright... I'll be careful at the academy from now on..."</p>
 
 <p>Shiwoo answers as if readily agreeing to Yu Yena-seonsaengnim's warning.</p>
 
-<p>「Yes, that's a relief... Thank you for understanding」</p>
+<p>"Yes, that's a relief... Thank you for understanding"</p>
 
 <p>Yu Yena-seonsaengnim felt relieved at Shiwoo's answer and expressed her gratitude in a calm tone. Her submissive attitude seemed to acknowledge Shiwoo's authority no matter how one looked at it...</p>
 
@@ -58,43 +58,43 @@ chapter = 737
 
 <p>And he cautiously sends a text message about something he felt he wouldn't have another chance to ask Yu Yena-seonsaengnim if not for his current mood.</p>
 
-<p>「But... do we really have to decide on a sacrifice? Isn't there any other way?」</p>
+<p>"But... do we really have to decide on a sacrifice? Isn't there any other way?"</p>
 
 <p>Shiwoo was asking as if holding onto and confirming a question for which the answer had already been decided. After checking Shiwoo's text, Yu Yena-seonsaengnim hesitated for a long time as if carefully choosing her answer before replying.</p>
 
-<p>「You already know there's no turning back, right? To gain the authority to protect your family and those around you, the only way right now is to make such a sacrifice...」</p>
+<p>"You already know there's no turning back, right? To gain the authority to protect your family and those around you, the only way right now is to make such a sacrifice..."</p>
 
 <p>She was speaking as if reminding Shiwoo of reality in a cold tone.</p>
 
-<p>「What was all that Seyoung told me yesterday then? That it could be bypassed or reversed at any time? Didn't you tell Seyoung that, Yena?」</p>
+<p>"What was all that Seyoung told me yesterday then? That it could be bypassed or reversed at any time? Didn't you tell Seyoung that, Yena?"</p>
 
 <p>Shiwoo wrote the message as if he could no longer bury the rising anxiety and doubt.</p>
 
-<p>「Well... I'm not sure what you and Seyoung talked about yesterday, but it's better not to talk about it in more detail here... That will probably be the choice of you and those children...」</p>
+<p>"Well... I'm not sure what you and Seyoung talked about yesterday, but it's better not to talk about it in more detail here... That will probably be the choice of you and those children..."</p>
 
 <p>Yu Yena-seonsaengnim was answering as if pretending not to know what Shiwoo was talking about. What was she up to? Or was there a reason she had to hide it on purpose? Shiwoo watched the smartphone screen for a moment as if chewing over the vague anxiety and tension.</p>
 
-<p>「Then what do you, Yu Yena, want from me? You said you chose to be offered as a sacrifice yourself? What do you want from me in return? Do you want the inheritance Dad left behind? Or a higher authority than now?」</p>
+<p>"Then what do you, Yu Yena, want from me? You said you chose to be offered as a sacrifice yourself? What do you want from me in return? Do you want the inheritance Dad left behind? Or a higher authority than now?"</p>
 
 <p>Shiwoo wrote and sent another sharp message, changing the question as if to drag out her inner thoughts that she was trying to hide until the end.</p>
 
-<p>「What I want you to achieve... in exchange for offering me as a sacrifice... isn't those kinds of things...」</p>
+<p>"What I want you to achieve... in exchange for offering me as a sacrifice... isn't those kinds of things..."</p>
 
 <p>Yu Yena-seonsaengnim sent an answer denying Shiwoo's question and seemed to hesitate for a moment.</p>
 
-<p>「Then? What is it you want me to achieve?!」</p>
+<p>"Then? What is it you want me to achieve?!"</p>
 
 <p>Shiwoo immediately wrote a text to her as if urging her, not hiding his impatient heart.</p>
 
-<p>「What I want... is to break the succession of status and the shackles of restraint... that will be passed on to the children in our wombs... That is the only thing I want.」</p>
+<p>"What I want... is to break the succession of status and the shackles of restraint... that will be passed on to the children in our wombs... That is the only thing I want."</p>
 
 <p>After stalling for a bit more time, Yu Yena-seonsaengnim finally left a sentence for Shiwoo as if she had pondered it.</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
 <p>Shiwoo asks her back in a dazed mood.</p>
 
-<p>「If it's you, Shiwoo, it will surely be possible... Because you, whom we have watched for a long time, would never try to force unwanted desires on others...」</p>
+<p>"If it's you, Shiwoo, it will surely be possible... Because you, whom we have watched for a long time, would never try to force unwanted desires on others..."</p>
 
 <p>And then Yu Yena-seonsaengnim added the next words cautiously, but in a tone full of conviction. Shiwoo stood there for a while with Yu Yena-seonsaengnim's text in hand, staring at the sentence on the screen as if chewing it over.</p>
 

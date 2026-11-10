@@ -50,7 +50,7 @@ chapter = 410
 
 <p>Mom grabbed the hem of the clothes she was wearing and pulled it out slightly, speaking as if it was unfair and unjust.</p>
 
-<p>Shiwoo, who knew Mom's tendencies better than anyone from his past experiences, found Mom's words, 「Do you think Mom is doing this because I like it?」, very amusing.</p>
+<p>Shiwoo, who knew Mom's tendencies better than anyone from his past experiences, found Mom's words, "Do you think Mom is doing this because I like it?", very amusing.</p>
 
 <p>The clothes Mom was wearing were the clothes she had changed into on Sehee's orders.</p>
 

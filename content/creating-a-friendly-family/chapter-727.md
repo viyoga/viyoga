@@ -4,7 +4,7 @@ weight = 727
 [extra]
 chapter = 727
 +++
-<p>『Yes. I think that would be okay...』</p>
+<p>"Yes. I think that would be okay..."</p>
 
 <p>Oh Yerin Teacher sent the message, her attitude suggesting agreement as she accepted Shiwoo's words.</p>
 
@@ -24,9 +24,9 @@ chapter = 727
 
 <p>Oh Yerin Teacher seemed to hesitate and worry for a moment before typing her reply.</p>
 
-<p>『Just do... the same as you do with others... I think calling me Yerin would be fine...』</p>
+<p>"Just do... the same as you do with others... I think calling me Yerin would be fine..."</p>
 
-<p>『Instead, I'd like it if you could avoid it when people are around or at the academy...』</p>
+<p>"Instead, I'd like it if you could avoid it when people are around or at the academy..."</p>
 
 <p>The words that had just left her fingertips were glowing faintly on the smartphone screen.</p>
 
@@ -56,7 +56,7 @@ chapter = 727
 
 <p>Along with the harsh words he spat at her, a sensation of something flipping over slowly grew inside Shiwoo.</p>
 
-<p>『I'm sorry... Please call me Yerin when we're alone. You can call me a fucking bitch too.』</p>
+<p>"I'm sorry... Please call me Yerin when we're alone. You can call me a fucking bitch too."</p>
 
 <p>Oh Yerin Teacher seemed to cast off her authority and dignity as a teacher, cautiously revealing herself to Shiwoo through the text.</p>
 

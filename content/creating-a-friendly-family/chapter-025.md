@@ -12,21 +12,21 @@ chapter = 25
 
 <p>Then, perhaps feeling Shiwoo's gaze on her, Gyuri Ajumma turned her head towards Shiwoo and met his eyes.</p>
 
-<p>「Shiwoo, you haven't been coming to our house much since then, have you?」</p>
+<p>"Shiwoo, you haven't been coming to our house much since then, have you?"</p>
 
 <p>Gyuri Ajumma said with a gentle smile towards Shiwoo, who flinched in surprise as their eyes met.</p>
 
-<p>「I want to visit, but Cheoljin-i seems very busy these days.」</p>
+<p>"I want to visit, but Cheoljin-i seems very busy these days."</p>
 
 <p>Shiwoo spoke comfortably, after confirming Gyuri Ajumma's uniquely comforting, warm gaze.</p>
 
-<p>「You can come visit alone when Cheoljin-i isn't home... By the way, I really don't know what Cheoljin-i is up to these days He goes out at dawn and comes back late at night, you know? Shiwoo, have you heard anything from Cheoljin-i?」</p>
+<p>"You can come visit alone when Cheoljin-i isn't home... By the way, I really don't know what Cheoljin-i is up to these days He goes out at dawn and comes back late at night, you know? Shiwoo, have you heard anything from Cheoljin-i?"</p>
 
 <p>At Gyuri Ajumma's question, all Shiwoo could think of was the slave contract of Gyuri Ajumma that Cheoljin had sent him, but there was no way he could openly tell Gyuri Ajumma about it.</p>
 
 <p>And now, more than that, Shiwoo was more concerned about the first sentence Ajumma had said, as if deliberately letting it slip.</p>
 
-<p>「You can come visit alone when Cheoljin-i isn't home...」</p>
+<p>"You can come visit alone when Cheoljin-i isn't home..."</p>
 
 <p>Shiwoo could be sure that there was clearly a sexual meaning implied, one that could only be shared between Shiwoo and Gyuri Ajumma.</p>
 
@@ -34,11 +34,11 @@ chapter = 25
 
 <p>For some reason, Shiwoo felt a strong sadistic desire for humiliation and degradation towards Gyuri Ajumma surging up intensely.</p>
 
-<p>「Is Cheoljin-i still doing that to Ajumma when he's home?」</p>
+<p>"Is Cheoljin-i still doing that to Ajumma when he's home?"</p>
 
 <p>Shiwoo mischievously asked Gyuri Ajumma about that secret act they had agreed not to tell others about.</p>
 
-<p>「Uh... uh... something like that...」</p>
+<p>"Uh... uh... something like that..."</p>
 
 <p>Gyuri Ajumma stammered her reply, seemingly a little flustered.</p>
 
@@ -46,19 +46,19 @@ chapter = 25
 
 <p>As Shiwoo's foot gently bumped Gyuri Ajumma's foot, she seemed a little surprised, but soon, as if responding, she stretched out her leg, letting her calf cross with Shiwoo's calf.</p>
 
-<p>「Is it okay to leave it like that?」</p>
+<p>"Is it okay to leave it like that?"</p>
 
 <p>Shiwoo's ambiguous question, as if probing Gyuri Ajumma's intentions.</p>
 
-<p>「Well... I also think it's unavoidable now, and I feel a little... accustomed to it, I just wish other people didn't know...」</p>
+<p>"Well... I also think it's unavoidable now, and I feel a little... accustomed to it, I just wish other people didn't know..."</p>
 
 <p>Gyuri Ajumma spoke hesitantly, mixing the two matters as if dragging them out, unable to clearly finish her sentence about whether she was referring to Cheoljin or Shiwoo.</p>
 
-<p>「What does Ajusshi say?」</p>
+<p>"What does Ajusshi say?"</p>
 
 <p>As Shiwoo spoke, he simultaneously extended his other leg forward, creating a posture where both his legs seemed to embrace Ajumma's calves.</p>
 
-<p>「He... he naturally wouldn't know, because we'll keep it a secret.」</p>
+<p>"He... he naturally wouldn't know, because we'll keep it a secret."</p>
 
 <p>Gyuri Ajumma looked at Shiwoo and spoke, as if making a promise to him, her eyes slightly unfocused from the alcohol.</p>
 
@@ -74,11 +74,11 @@ chapter = 25
 
 <p>At this moment, Shiwoo was a meticulous predator who had coiled around one of the delicious prey like a snake with his own will and captured it.</p>
 
-<p>「Did something happen to Cheoljin Oppa?」</p>
+<p>"Did something happen to Cheoljin Oppa?"</p>
 
 <p>Seyoung, who had been quietly listening to Gyuri Ajumma and Shiwoo's conversation beside them, asked Shiwoo with a worried expression.</p>
 
-<p>「Cheoljin Oppa seems to be going through a rebellious phase these days Seyoung-i, you don't have to worry」</p>
+<p>"Cheoljin Oppa seems to be going through a rebellious phase these days Seyoung-i, you don't have to worry"</p>
 
 <p>Gyuri Ajumma, with her unique reassuring eye-smile, answered Seyoung instead of Shiwoo.</p>
 
@@ -94,19 +94,19 @@ chapter = 25
 
 <p class="scene-break">· · ·</p>
 
-<p>「Unnie, but that thing we talked about before, it's really starting next week, right?」</p>
+<p>"Unnie, but that thing we talked about before, it's really starting next week, right?"</p>
 
 <p>Seonju Imo, looking at Mom, started the conversation again.</p>
 
-<p>「Of course! We already agreed to start next week We can't live forever just eating away at the insurance money.」</p>
+<p>"Of course! We already agreed to start next week We can't live forever just eating away at the insurance money."</p>
 
 <p>Mom answered Seonju Imo's question as if something had already been decided.</p>
 
-<p>「Didn't Hyungbu leave you plenty of money?」</p>
+<p>"Didn't Hyungbu leave you plenty of money?"</p>
 
-<p>「You never know what might happen to the kids later, so I should at least earn some living expenses, and anyway, it's just a part-time job for a short while when I have free time during the day.」</p>
+<p>"You never know what might happen to the kids later, so I should at least earn some living expenses, and anyway, it's just a part-time job for a short while when I have free time during the day."</p>
 
-<p>「If Unnie says she'll do it, then I'm grateful.」</p>
+<p>"If Unnie says she'll do it, then I'm grateful."</p>
 
 <p>When his father passed away, Shiwoo's family was left with ample assets.</p>
 
@@ -134,33 +134,33 @@ chapter = 25
 
 <p class="scene-break">· · ·</p>
 
-<p>「Oppa, what are you doing after intermediate academy on Monday?」</p>
+<p>"Oppa, what are you doing after intermediate academy on Monday?"</p>
 
 <p>Seyoung, who was sitting next to Shiwoo, eating fruit alongside Sua, asked Shiwoo.</p>
 
-<p>「Huh? Monday?」</p>
+<p>"Huh? Monday?"</p>
 
 <p>Shiwoo asked Seyoung back, wondering what was up.</p>
 
-<p>「Yes, Monday! I have a guardian interview at the academy, can't Oppa come with me?」</p>
+<p>"Yes, Monday! I have a guardian interview at the academy, can't Oppa come with me?"</p>
 
 <p>Seyoung gently placed a hand on Shiwoo's arm and cautiously asked.</p>
 
-<p>「Didn't you go to the academy with Seonju Imo?」</p>
+<p>"Didn't you go to the academy with Seonju Imo?"</p>
 
 <p>Sehee Nuna, who was listening from across the room, asked Seyoung as if something was strange.</p>
 
-<p>「Yes, I went with Seonju Imo, but they said for guardian interviews, it has to be a direct guardian living with me, hehe.」</p>
+<p>"Yes, I went with Seonju Imo, but they said for guardian interviews, it has to be a direct guardian living with me, hehe."</p>
 
 <p>Seyoung said, making a cute expression as if she too had been in a difficult situation.</p>
 
-<p>「Shouldn't you tell Mom? Is it okay for an intermediate student Oppa to go?」</p>
+<p>"Shouldn't you tell Mom? Is it okay for an intermediate student Oppa to go?"</p>
 
 <p>Shiwoo said to Seyoung, glancing at Sehee Nuna.</p>
 
 <p>-Anyway, since they had agreed to go together for two weeks-</p>
 
-<p>「Yes, the academy said Oppa is fine, and Mom might be busy with work during the day starting Monday, so she told me to ask Oppa once, didn't she? I also want Oppa to come with me this time, hehe」</p>
+<p>"Yes, the academy said Oppa is fine, and Mom might be busy with work during the day starting Monday, so she told me to ask Oppa once, didn't she? I also want Oppa to come with me this time, hehe"</p>
 
 <p>Shiwoo was touched by Seyoung's last thoughtful words.</p>
 
@@ -170,7 +170,7 @@ chapter = 25
 
 <p>A gesture that was virtually the same as giving up her time.</p>
 
-<p>「On Monday, after I come back from elementary academy, I'll be at Sua's house, so Oppa, you can pick us up right after intermediate academy, okay?」</p>
+<p>"On Monday, after I come back from elementary academy, I'll be at Sua's house, so Oppa, you can pick us up right after intermediate academy, okay?"</p>
 
 <p>Thus, at Seyoung's request, Shiwoo ended up having a guardian interview at the magic academy on Monday.</p>
 
@@ -186,14 +186,14 @@ chapter = 25
 
 <p>The Moms were chattering as the alcohol took effect, and it seemed Sehee Nuna's clothes had become the topic again.</p>
 
-<p>「You said you even gave her that underwear?」</p>
+<p>"You said you even gave her that underwear?"</p>
 
 <p>Mom said to Seonju Imo, as if getting pissed off again.</p>
 
-<p>「If you're family, you see bare skin and live like that, don't you?」</p>
+<p>"If you're family, you see bare skin and live like that, don't you?"</p>
 
-<p>「I told you, that doesn't work in our house? Ugh How many times do I have to say it?」</p>
+<p>"I told you, that doesn't work in our house? Ugh How many times do I have to say it?"</p>
 
-<p>「Because of Shiwoo?」</p>
+<p>"Because of Shiwoo?"</p>
 
 <p>Listening carelessly to the Moms' conversation, Shiwoo was flustered by his name suddenly popping out.</p>

@@ -6,7 +6,7 @@ chapter = 12
 +++
 <p>A short while after Seonmi and Seyoung arrived home,</p>
 
-<p>「Now, we promised the teacher-nim we'd set a time to do it, didn't we? And we just got back, Seyoung hasn't washed, and neither have I, so let's do it after we wash, okay?」</p>
+<p>"Now, we promised the teacher-nim we'd set a time to do it, didn't we? And we just got back, Seyoung hasn't washed, and neither have I, so let's do it after we wash, okay?"</p>
 
 <p>Seonmi soothed the whining Seyoung. She received the blindfold from Shiwoo. After Shiwoo returned to his room, Seonmi gathered her panties and a light purple silk nightgown and headed to the bathroom.</p>
 
@@ -18,9 +18,9 @@ chapter = 12
 
 <p>Seyoung also grasped Mom's other breast fully with her hand, pressing and rubbing it against her own face.</p>
 
-<p>「Oh dear, take it slow, slow... No milk comes out, but do you like Mom's breasts that much?」 Seonmi tried to distract herself by talking to Seyoung, attempting to hide the embarrassment that followed her heightened senses. 「Hehe, Mom's breasts are so pretty, it feels good. I want to live my whole life touching Mom's breasts like this.」 Saying this innocently, Seyoung put more force into her lips, which were suckling the nipple, and began to mouth it. 「Oh, Seyoung-ah, if you suckle like that, Mom's nipples will wear out.」 Seonmi, whose breasts were being suckled so intensely, sighed as she spoke, trying to conceal her ragged breathing.</p>
+<p>"Oh dear, take it slow, slow... No milk comes out, but do you like Mom's breasts that much?" Seonmi tried to distract herself by talking to Seyoung, attempting to hide the embarrassment that followed her heightened senses. "Hehe, Mom's breasts are so pretty, it feels good. I want to live my whole life touching Mom's breasts like this." Saying this innocently, Seyoung put more force into her lips, which were suckling the nipple, and began to mouth it. "Oh, Seyoung-ah, if you suckle like that, Mom's nipples will wear out." Seonmi, whose breasts were being suckled so intensely, sighed as she spoke, trying to conceal her ragged breathing.</p>
 
-<p>「Does it hurt?」 Seyoung slightly pulled her mouth away from the nipple and asked, sounding worried. Saliva, connected to the nipple, hung from her lips. 「No, it doesn't hurt, but if you suckle that hard, Mom gets tired.」 「Okay, then I'll try to suckle gently.」 Seyoung carefully began to suckle her breast again. As Seyoung's mouth slowly rubbed against her highly sensitive nipple, Seonmi's breast seemed to receive an even greater stimulation. And beneath the blindfold, Seonmi's expression was gradually contorting.</p>
+<p>"Does it hurt?" Seyoung slightly pulled her mouth away from the nipple and asked, sounding worried. Saliva, connected to the nipple, hung from her lips. "No, it doesn't hurt, but if you suckle that hard, Mom gets tired." "Okay, then I'll try to suckle gently." Seyoung carefully began to suckle her breast again. As Seyoung's mouth slowly rubbed against her highly sensitive nipple, Seonmi's breast seemed to receive an even greater stimulation. And beneath the blindfold, Seonmi's expression was gradually contorting.</p>
 
 <p>Honestly, Seonmi didn't dislike the sensation when Seyoung touched or suckled her breasts. However, the problem was how to process that not-unpleasant sensation without feeling it sexually. As a result, her body became stiff with tension. Even though her daughter was suckling her breasts for less than ten minutes, her body felt like it was becoming utterly exhausted.</p>
 
@@ -28,7 +28,7 @@ chapter = 12
 
 <p>She heard Shiwoo enter the room and stop. Though her eyes were covered by the blindfold and she could see nothing, she felt her son's gaze fixed on her breasts. Just the thought of Shiwoo looking down at her made Seonmi's heart pound faster. Since he was the type to masturbate with his mother's underwear, it wouldn't be strange if he got an erection from seeing her exposed breasts. No, Seonmi was certain he would be aroused and get an erection.</p>
 
-<p>「Mom? Are you asleep?」 Shiwoo's voice, calling out to Mom cautiously. She didn't want to gather her breasts, get up, and face Shiwoo. She could explain later. If she told Shiwoo about Seyoung's diagnosis and prescription from the hospital, she could surely make him fully understand the situation. There was no problem with a mother showing her breasts to her son. Seonmi just wanted to escape the current situation.</p>
+<p>"Mom? Are you asleep?" Shiwoo's voice, calling out to Mom cautiously. She didn't want to gather her breasts, get up, and face Shiwoo. She could explain later. If she told Shiwoo about Seyoung's diagnosis and prescription from the hospital, she could surely make him fully understand the situation. There was no problem with a mother showing her breasts to her son. Seonmi just wanted to escape the current situation.</p>
 
 <p>As she was thinking that, Shiwoo pulled Seyoung, who was suckling at her breast in Seonmi's embrace, backwards. Seonmi's firm nipple, which Seyoung's lips had been holding. As Seyoung was suddenly pulled back by Shiwoo, her nipple gently brushed against Seyoung's lips, and a thrilling sensation shot through her. A shiver, like an electric current, ran down her spine. Seonmi barely managed to suppress a moaning sound that almost escaped her lips. Her wet nipple was exposed to the cold air.</p>
 

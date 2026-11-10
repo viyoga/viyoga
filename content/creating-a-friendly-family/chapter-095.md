@@ -6,19 +6,19 @@ chapter = 95
 +++
 <p>Sehee Nuna took her mouth off Shiwoo's penis.</p>
 
-<p>「Ah... Eugh」</p>
+<p>"Ah... Eugh"</p>
 
 <p>Shiwoo let out a regretful moan, as if lingering on the warm oral mucosa and lip sensation of Sehee Nuna's mouth as it pulled away from his penis.</p>
 
-<p>「That's enough, isn't it?!」</p>
+<p>"That's enough, isn't it?!"</p>
 
 <p>Sehee Nuna said, wiping the opaque fluid mixed with saliva that had flowed around her mouth with the back of her hand.</p>
 
-<p>「Ugh... Mmm...」</p>
+<p>"Ugh... Mmm..."</p>
 
 <p>Shiwoo's hands, which had been resting on Sehee Nuna's head, fell naturally onto the bed as if losing all strength.</p>
 
-<p>「Get up quickly!! You need to shower and eat!」</p>
+<p>"Get up quickly!! You need to shower and eat!"</p>
 
 <p>Sehee Nuna said that, then stood up, turned, and exited Shiwoo's room.</p>
 
@@ -40,7 +40,7 @@ chapter = 95
 
 <p>Sehee Nuna was waiting for Shiwoo by the main gate, warming up.</p>
 
-<p>「Hurry up!! We're late!! At this rate, we won't even have time to shower!」</p>
+<p>"Hurry up!! We're late!! At this rate, we won't even have time to shower!"</p>
 
 <p>Sehee Nuna spoke to Shiwoo, who was coming out of the house, as if chiding him.</p>
 
@@ -48,11 +48,11 @@ chapter = 95
 
 <p>Furthermore, if one were to say she had taken that younger brother's penis into her mouth, made him ejaculate, and then swallowed all his semen, who would truly believe it?</p>
 
-<p>「Sorry, I was just tidying up」</p>
+<p>"Sorry, I was just tidying up"</p>
 
 <p>Shiwoo apologized to Sehee Nuna, feeling both awkwardness and a sense of pride.</p>
 
-<p>「Today, I'm running at my own pace, so keep up and don't fall behind Got it?」</p>
+<p>"Today, I'm running at my own pace, so keep up and don't fall behind Got it?"</p>
 
 <p>Sehee Nuna seemed to calculate something while looking at her smartphone's clock, then said that to Shiwoo and immediately started running forward.</p>
 
@@ -74,11 +74,11 @@ chapter = 95
 
 <p>Seeing Shiwoo running, awkwardly covering his front, Sehee Nuna slowed her pace and began running alongside him.</p>
 
-<p>「What are you doing!?」</p>
+<p>"What are you doing!?"</p>
 
 <p>Sehee Nuna spoke to Shiwoo in a chiding tone.</p>
 
-<p>「Sehee Nuna Haaah! C-can we just sit for a bit before we go? Haaah Haaah」</p>
+<p>"Sehee Nuna Haaah! C-can we just sit for a bit before we go? Haaah Haaah"</p>
 
 <p>Shiwoo slowly stopped, covering his front, and spoke to Sehee Nuna as if in distress.</p>
 
@@ -86,31 +86,31 @@ chapter = 95
 
 <p>Sehee Nuna revealed her dark, smooth skin and her beautifully shaped, large breasts encased in a white tank top jersey.</p>
 
-<p>「Here! Tie this around your waist! What kind of kid gets like that even while running?! From now on, always wear an outer layer when you're with me! Got it?」</p>
+<p>"Here! Tie this around your waist! What kind of kid gets like that even while running?! From now on, always wear an outer layer when you're with me! Got it?"</p>
 
 <p>Sehee Nuna handed Shiwoo the clothes, nagging him in a way that was unlike her.</p>
 
-<p>「Ugh... Haaah... Sorry... Haaah... Haaah...」</p>
+<p>"Ugh... Haaah... Sorry... Haaah... Haaah..."</p>
 
 <p>Shiwoo wrapped the sleeve of the light purple hooded zip-up jacket he received from Sehee Nuna around his waist, barely covering his fully erect 'thing', and spoke.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>「The guys coming this time they're all athletic Oppa-s!」</p>
+<p>"The guys coming this time they're all athletic Oppa-s!"</p>
 
 <p>Sehee Nuna said, looking down at Shiwoo, who was bent over, hands on his knees, catching his breath.</p>
 
-<p>「Huh? Haaah Haaah Wh-what?」</p>
+<p>"Huh? Haaah Haaah Wh-what?"</p>
 
 <p>Shiwoo, not immediately understanding what Sehee Nuna was saying, looked at her face and asked.</p>
 
-<p>「Our group blind date, I mean! The one we decided on for Friday!」</p>
+<p>"Our group blind date, I mean! The one we decided on for Friday!"</p>
 
 <p>-Sehee Nuna seemed to be bringing up the blind date conversation she had started with Shiwoo last night.-</p>
 
 <p>As Shiwoo tried to meet her eyes, Sehee Nuna avoided his gaze, looking indifferently at the floor behind Shiwoo as she spoke.</p>
 
-<p>「Oh? Haaah Ah」</p>
+<p>"Oh? Haaah Ah"</p>
 
 <p>Shiwoo, panting as if he were dying, struggling physically even with morning jogging.</p>
 
@@ -124,19 +124,19 @@ chapter = 95
 
 <p>Yet, with no retort coming to mind, Shiwoo felt pathetic.</p>
 
-<p>「I've put you down as a first-year at an elite academy, so keep that in mind!」</p>
+<p>"I've put you down as a first-year at an elite academy, so keep that in mind!"</p>
 
 <p>Sehee Nuna still couldn't look Shiwoo directly in the eye, focusing her gaze on the floor behind where Shiwoo stood as she spoke.</p>
 
-<p>「No... why?! Hmph」</p>
+<p>"No... why?! Hmph"</p>
 
 <p>Shiwoo, suppressing his breath in discomfort, flared up and challenged her.</p>
 
-<p>「If you say you're a second-year at an intermediate academy, it'll be awkward to hang out, won't it?! So just say you're the same age as us!」</p>
+<p>"If you say you're a second-year at an intermediate academy, it'll be awkward to hang out, won't it?! So just say you're the same age as us!"</p>
 
 <p>Whether she knew Shiwoo's feelings or not, Sehee Nuna diligently and clearly answered his challenging questions.</p>
 
-<p>「You're tall and your physique is quite good, so no one will think it's strange if you say you're a first-year at an elite academy!」</p>
+<p>"You're tall and your physique is quite good, so no one will think it's strange if you say you're a first-year at an elite academy!"</p>
 
 <p>In a slightly different tone than usual, Sehee Nuna explained things to Shiwoo patiently, as if placating him.</p>
 
@@ -144,21 +144,21 @@ chapter = 95
 
 <p>Shiwoo was originally supposed to be paired with one of Sehee Nuna's friends, excluding Sehee Nuna and Sinbi Nuna, but after several discussions and consultations, he seemed to have ultimately been paired with Sinbi Nuna.</p>
 
-<p>「This time, it's just to meet, so Shiwoo, you should pretend not to know, observe the atmosphere for a bit, and if they don't seem like bad people, then you and Sinbi can get up and leave separately in the middle! Got it?」</p>
+<p>"This time, it's just to meet, so Shiwoo, you should pretend not to know, observe the atmosphere for a bit, and if they don't seem like bad people, then you and Sinbi can get up and leave separately in the middle! Got it?"</p>
 
 <p>Sehee Nuna seemed to intend to both set Shiwoo up with Sinbi Nuna and definitely use him as her bodyguard this time.</p>
 
-<p>「No, why? We can just stay until the end and come back together!」</p>
+<p>"No, why? We can just stay until the end and come back together!"</p>
 
 <p>Shiwoo burst out, feeling resentful.</p>
 
-<p>「If you're there, we can't really have fun! My friends know you're my younger brother! And you'll have things you want to do separately with Sinbi, won't you!?」</p>
+<p>"If you're there, we can't really have fun! My friends know you're my younger brother! And you'll have things you want to do separately with Sinbi, won't you!?"</p>
 
 <p>Sehee Nuna seemed to have no intention of changing the one-sided plan she and her friends had made.</p>
 
 <p>-Shiwoo's futile struggle-</p>
 
-<p>「Stop talking nonsense and do as I say!! Sinbi agreed too Got it?」</p>
+<p>"Stop talking nonsense and do as I say!! Sinbi agreed too Got it?"</p>
 
 <p>After the short conversation, which crushed his will to resist during his breathing break, Sehee Nuna started running again, as if abandoning Shiwoo.</p>
 
@@ -168,11 +168,11 @@ chapter = 95
 
 <p class="scene-break">· · ·</p>
 
-<p>「Shiwoo, we're late because of you!! I'm going to shower first, so take the hamburgers out of the fridge and microwave them! Got it?」</p>
+<p>"Shiwoo, we're late because of you!! I'm going to shower first, so take the hamburgers out of the fridge and microwave them! Got it?"</p>
 
 <p>As soon as they arrived home, Sehee Nuna spoke to Shiwoo as if chiding him, then entered the shower room.</p>
 
-<p>「Got it」</p>
+<p>"Got it"</p>
 
 <p>Even as he answered, Shiwoo felt an unnecessary sense of injustice and resentment.</p>
 
@@ -230,7 +230,7 @@ chapter = 95
 
 <p>Shocking materials, even upon re-watching.</p>
 
-<p>「Oh?」</p>
+<p>"Oh?"</p>
 
 <p>Just as Shiwoo scrolled down to the very bottom of the chat window,</p>
 

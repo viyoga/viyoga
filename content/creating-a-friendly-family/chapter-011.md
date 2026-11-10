@@ -6,13 +6,13 @@ chapter = 11
 +++
 <p>That morning again.</p>
 
-<p>「I've spoken to Gyuri. She'll be home this afternoon, so stop by after your academy and pick up the blindfold.」</p>
+<p>"I've spoken to Gyuri. She'll be home this afternoon, so stop by after your academy and pick up the blindfold."</p>
 
 <p>Seonmi said to her son, Shiwoo, as he prepared for his academy and headed out the door.</p>
 
-<p>「Yeah, got it. Just pick up the blindfold, right? I'll be back.」</p>
+<p>"Yeah, got it. Just pick up the blindfold, right? I'll be back."</p>
 
-<p>「Alright, be careful on your way」</p>
+<p>"Alright, be careful on your way"</p>
 
 <p>With her son's farewell as the last, Seonmi had sent all the children to their academies.</p>
 
@@ -142,19 +142,19 @@ chapter = 11
 
 <p>The two were drinking tea and chatting when they started talking about Sehee's clothes.</p>
 
-<p>「At home, with family, you should show a little skin! Sehee's doing a good job, I say!」</p>
+<p>"At home, with family, you should show a little skin! Sehee's doing a good job, I say!"</p>
 
 <p>Her aunt began to speak, taking Sehee's side.</p>
 
-<p>「Good at it, my ass! That sly fox is just teasing Shiwoo」</p>
+<p>"Good at it, my ass! That sly fox is just teasing Shiwoo"</p>
 
 <p>Seonmi, who had seen Shiwoo being teased that morning, reacted with even more excitement to Seonju's words, feeling sorry for him.</p>
 
-<p>「If you keep yourself so wrapped up at home like Unnie, boys will only lose their immunity to stimulation! He even started masturbating with Unnie's panties, didn't he? If you're going to pretend not to know anyway, shouldn't Unnie help him cum freely, just like Sehee?」</p>
+<p>"If you keep yourself so wrapped up at home like Unnie, boys will only lose their immunity to stimulation! He even started masturbating with Unnie's panties, didn't he? If you're going to pretend not to know anyway, shouldn't Unnie help him cum freely, just like Sehee?"</p>
 
 <p>Seonju said, teasing her agitated older sister this time.</p>
 
-<p>「Hello? Shiwoo is my son, you know? If something else happens, will you take responsibility?」</p>
+<p>"Hello? Shiwoo is my son, you know? If something else happens, will you take responsibility?"</p>
 
 <p>Seonmi replied, as if dumbfounded by Seonju's words.</p>
 
@@ -164,17 +164,17 @@ chapter = 11
 
 <p>After a brief silence, Seonju was the first to speak.</p>
 
-<p>「Does Sejin still not come home often? And Unnie, she doesn't answer your calls much?」</p>
+<p>"Does Sejin still not come home often? And Unnie, she doesn't answer your calls much?"</p>
 
-<p>「Yeah, she seems to have taken a leave of absence from university and started a part-time job. I hear news through Shiwoo, but...」</p>
+<p>"Yeah, she seems to have taken a leave of absence from university and started a part-time job. I hear news through Shiwoo, but..."</p>
 
 <p>Seonmi's voice trailed off.</p>
 
-<p>「Go and talk to her properly. You can't keep living like this.」</p>
+<p>"Go and talk to her properly. You can't keep living like this."</p>
 
 <p>Seonju felt sorry for the distance between them.</p>
 
-<p>「I think it's still a bit awkward. Let's not talk about that anymore.」</p>
+<p>"I think it's still a bit awkward. Let's not talk about that anymore."</p>
 
 <p>Seonmi cut off Seonju's words evasively.</p>
 
@@ -194,7 +194,7 @@ chapter = 11
 
 <p>For Seonmi, whose maternal self was strong, that was too cruel a thing.</p>
 
-<p>「Alright, Unnie, let's all see Gyuri Unnie on the weekend I'm leaving!」</p>
+<p>"Alright, Unnie, let's all see Gyuri Unnie on the weekend I'm leaving!"</p>
 
 <p>After chatting for about 30 more minutes, Seonju said her goodbyes, promising to meet again, and left.</p>
 

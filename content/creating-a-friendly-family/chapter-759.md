@@ -4,27 +4,27 @@ weight = 759
 [extra]
 chapter = 759
 +++
-<p>「You're doing this on purpose, aren't you? Just to make Mom nervous and embarrassed!」</p>
+<p>"You're doing this on purpose, aren't you? Just to make Mom nervous and embarrassed!"</p>
 
 <p>Seonmi seemed more concerned about the eyes of the groups of people scattered around them than Shiwoo's own gaze. Was she worried about the background image of their 1:1 secret chat room? It was a photo of her taken with her eyes squeezed shut and her mouth hanging open, filled with Shiwoo's semen...</p>
 
-<p>「Why would I be? We've been getting along just fine as a normal mother and son since we entered the aquarium. A son shouldn't just grope his mom's breasts and ass whenever he wants, right?」</p>
+<p>"Why would I be? We've been getting along just fine as a normal mother and son since we entered the aquarium. A son shouldn't just grope his mom's breasts and ass whenever he wants, right?"</p>
 
 <p>Shiwoo played dumb, acting sly and nonchalant even though he saw right through her inner turmoil and psychology.</p>
 
-<p>「Ha! Who's threatening you to act like mother and son in an aquarium? And does a 'normal' son walk around in front of his mother with his thing rock-hard like that all day?」</p>
+<p>"Ha! Who's threatening you to act like mother and son in an aquarium? And does a 'normal' son walk around in front of his mother with his thing rock-hard like that all day?"</p>
 
 <p>Seonmi shot back via text, rebuking his shameless intentions. She saw right through Shiwoo's foul motive—he wasn't trying to pass them off as a simple illicit couple; he wanted to satisfy a depraved pleasure by making sure people recognized them as mother and son while he mocked and debased her.</p>
 
-<p>「Haha, Seonmi, I can't help it when I'm walking with you. So what should I do? Should I stop calling you Mom and just call you Seonmi again?」</p>
+<p>"Haha, Seonmi, I can't help it when I'm walking with you. So what should I do? Should I stop calling you Mom and just call you Seonmi again?"</p>
 
-<p>「Should I act like a student cutting class, and you act like a housewife who abandoned all her chores? Like an affair couple with a huge age gap?」</p>
+<p>"Should I act like a student cutting class, and you act like a housewife who abandoned all her chores? Like an affair couple with a huge age gap?"</p>
 
-<p>「Should I just touch your breasts and ass openly? Would that be more comfortable for you right now? Tell me, Seonmi. I'll do whatever you want!」</p>
+<p>"Should I just touch your breasts and ass openly? Would that be more comfortable for you right now? Tell me, Seonmi. I'll do whatever you want!"</p>
 
 <p>Shiwoo continued to send teasing, sly messages to harass his mother.</p>
 
-<p>「Everyone around us can already tell we're mother and son, so what are you even talking about?! Just don't talk to me! Walk away from me like you don't know me!」</p>
+<p>"Everyone around us can already tell we're mother and son, so what are you even talking about?! Just don't talk to me! Walk away from me like you don't know me!"</p>
 
 <p>Seonmi tapped at her screen with an edgy, anxious vibe, as if she had been stripped naked and forced to stand in the middle of the street. Her face flushed a deep crimson from a mix of shame and frustration as she breathed heavily.</p>
 
@@ -118,7 +118,7 @@ chapter = 759
 
 <p>Shiwoo quickly pulled out his phone to check the message.</p>
 
-<p>「What do you mean, marriage between a mother and son! And are you even at an age to be talking about marriage?」</p>
+<p>"What do you mean, marriage between a mother and son! And are you even at an age to be talking about marriage?"</p>
 
 <p>It was a message from the very woman currently held in his arms. And it wasn't from their normal 1:1 chat, but the 1:1 secret chat...</p>
 

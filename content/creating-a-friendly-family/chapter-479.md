@@ -4,11 +4,11 @@ weight = 479
 [extra]
 chapter = 479
 +++
-<p>「Considering that, you took mine pretty well, didn't you? Come to think of it, Seonju and Gyuri also seemed quite used to that kind of thing! Hehehe, Mom, you haven't done that kind of stuff a lot with your aunts before, have you?」</p>
+<p>"Considering that, you took mine pretty well, didn't you? Come to think of it, Seonju and Gyuri also seemed quite used to that kind of thing! Hehehe, Mom, you haven't done that kind of stuff a lot with your aunts before, have you?"</p>
 
 <p>Shiwoo, subtly bringing up the story of Mom receiving his semen and piss through Sehee Nuna's mouth, spoke to Mom in a teasing tone, as if he was making fun of her.</p>
 
-<p>「What do you mean, 'done'? Who would make Mom do something like that? When you look at it, both Sehee and you are really perverts!」</p>
+<p>"What do you mean, 'done'? Who would make Mom do something like that? When you look at it, both Sehee and you are really perverts!"</p>
 
 <p>Mom, as if flaring up at Shiwoo's teasing, was showing a reaction of criticizing the two siblings as perverts.</p>
 
@@ -28,11 +28,11 @@ chapter = 479
 
 <p>Shiwoo quickly uploaded the photo to the 1:1 chat window with Mom.</p>
 
-<p>「I don't think the person who took a picture in this outfit and sent it is the one to talk, hehehe」</p>
+<p>"I don't think the person who took a picture in this outfit and sent it is the one to talk, hehehe"</p>
 
 <p>Following the photo, Shiwoo threw a joke as if teasing Mom.</p>
 
-<p>「-_-^」</p>
+<p>"-_-^"</p>
 
 <p>Mom was responding to Shiwoo's joke with her unique emoticon.</p>
 
@@ -42,23 +42,23 @@ chapter = 479
 
 <p>Shiwoo thought that right now was the perfect timing to bring up the play they had decided to spend as husband and wife with Mom tonight.</p>
 
-<p>「Ah, that's right! We had something we decided to do together tonight while putting Seyoung to sleep, right? Do you remember?」</p>
+<p>"Ah, that's right! We had something we decided to do together tonight while putting Seyoung to sleep, right? Do you remember?"</p>
 
 <p>Shiwoo spoke as if suddenly remembering, as if bringing up a new topic of conversation to Mom.</p>
 
-<p>「What? If you ask like that, how would Mom know?!」</p>
+<p>"What? If you ask like that, how would Mom know?!"</p>
 
 <p>Mom, whether she was pretending not to know on purpose, whether she was embarrassed to bring it up even though she knew, or whether she really didn't remember, asked back to Shiwoo as if scolding him.</p>
 
-<p>「We were just talking about it a while ago... Don't you remember?」</p>
+<p>"We were just talking about it a while ago... Don't you remember?"</p>
 
 <p>Shiwoo, with a feeling of testing Mom, asked Mom again, putting a slightly disappointed emotion in the text.</p>
 
-<p>「There are more than one or two things we decided to do! If you say it like that, I don't know, so just tell me!」</p>
+<p>"There are more than one or two things we decided to do! If you say it like that, I don't know, so just tell me!"</p>
 
 <p>Mom, scolding Shiwoo once again, spoke as if urging him to answer.</p>
 
-<p>「Hehehehe, when Seyoung is breastfeeding and sleeping, we decided to let Seyoung know and live like a married couple from now on, that's what I'm talking about」</p>
+<p>"Hehehehe, when Seyoung is breastfeeding and sleeping, we decided to let Seyoung know and live like a married couple from now on, that's what I'm talking about"</p>
 
 <p>Shiwoo, unable to resist Mom's scolding and urging, spoke to Mom about what they had decided to do tonight, as if revealing the answer.</p>
 
@@ -68,7 +68,7 @@ chapter = 479
 
 <p>Shiwoo waited leisurely until Mom answered.</p>
 
-<p>「I know! That's why I'm doing this! If that's the case, I think it would be more comfortable to be naked! Sigh!」</p>
+<p>"I know! That's why I'm doing this! If that's the case, I think it would be more comfortable to be naked! Sigh!"</p>
 
 <p>Mom, as if admitting that she knew from the beginning what Shiwoo was trying to say, answered Shiwoo, complaining.</p>
 
@@ -76,11 +76,11 @@ chapter = 479
 
 <p>It seemed that Mom was now fully understanding Shiwoo's thoughts.</p>
 
-<p>「It's the first day Mom and I are living as a married couple in front of Seyoung, so the outfit is important I'll take off your underwear later as much as you're sick of it, so just bear with it a little!」</p>
+<p>"It's the first day Mom and I are living as a married couple in front of Seyoung, so the outfit is important I'll take off your underwear later as much as you're sick of it, so just bear with it a little!"</p>
 
 <p>Shiwoo continued to throw lewd jokes at Mom, speaking as if coaxing Mom's feelings.</p>
 
-<p>「So why do you have to do that in front of Seyoung! We can just do it secretly between the two of us!」</p>
+<p>"So why do you have to do that in front of Seyoung! We can just do it secretly between the two of us!"</p>
 
 <p>Mom, belatedly feeling a sense of skepticism about the act she was doing, was complaining to Shiwoo with a mix of annoyance.</p>
 
@@ -88,21 +88,21 @@ chapter = 479
 
 <p>Could it mean that she can do anything now when it's just the two of them?</p>
 
-<p>「We decided to do it in front of Seyoung, didn't we!? If we decided to do it, we have to keep it! A rule is a rule! Or should I call Seyoung to the 2nd floor right now? I don't really care if I sleep with Sehee too」</p>
+<p>"We decided to do it in front of Seyoung, didn't we!? If we decided to do it, we have to keep it! A rule is a rule! Or should I call Seyoung to the 2nd floor right now? I don't really care if I sleep with Sehee too"</p>
 
 <p>Shiwoo spoke as if teasing Mom, provoking her with a firm tone.</p>
 
-<p>「Who said I wouldn't do it? I'm not saying I won't do it! Are you going to keep picking on Mom while making me say weird things? You know Mom can't refuse!」</p>
+<p>"Who said I wouldn't do it? I'm not saying I won't do it! Are you going to keep picking on Mom while making me say weird things? You know Mom can't refuse!"</p>
 
 <p>Mom said as if Shiwoo's spiteful tone and attitude were very hateful.</p>
 
-<p>「Ah You weren't saying you wouldn't do it? Hehehe, I thought you were going to say you didn't like it Anyway, we need a witness for our wedding Where else can we find a witness as reliable as Seyoung?」</p>
+<p>"Ah You weren't saying you wouldn't do it? Hehehe, I thought you were going to say you didn't like it Anyway, we need a witness for our wedding Where else can we find a witness as reliable as Seyoung?"</p>
 
 <p>Shiwoo now spoke to Mom in a skillful way, as if he was skillfully teasing her with a greasy attitude.</p>
 
 <p>Before he knew it, the role-playing of 'living like a married couple' had subtly changed into 'a wedding between mother and son'.</p>
 
-<p>「And Mom is marrying Oppa, so you have to get permission from Seyoung! Isn't that right?」</p>
+<p>"And Mom is marrying Oppa, so you have to get permission from Seyoung! Isn't that right?"</p>
 
 <p>Shiwoo went one step further, ridiculing Mom and driving a wedge as if what they had decided to do in the first place was a wedding.</p>
 
@@ -112,11 +112,11 @@ chapter = 479
 
 <p>Shiwoo, continuing to push Mom, who was not answering, spoke.</p>
 
-<p>「We have the bride's outfit, and we have a witness for the wedding, so why don't we do one more thing while we're at it?」</p>
+<p>"We have the bride's outfit, and we have a witness for the wedding, so why don't we do one more thing while we're at it?"</p>
 
 <p>Shiwoo spoke as if laying the groundwork to explain the marriage contract.</p>
 
-<p>「...What?」</p>
+<p>"...What?"</p>
 
 <p>Mom, with an uneasy feeling at Shiwoo's words, asked back briefly.</p>
 
@@ -128,31 +128,31 @@ chapter = 479
 
 <p>In fact, there was no need for a separate explanation because it was to let Mom know that he had secretly created a marriage contract for the play.</p>
 
-<p>「Mom?」</p>
+<p>"Mom?"</p>
 
 <p>Shiwoo called her as if checking Mom's condition, who had become silent.</p>
 
-<p>「Why?」</p>
+<p>"Why?"</p>
 
 <p>Mom was answering calmly as if hiding her agitation.</p>
 
-<p>「Should I go down to the 1st floor in advance before Seyoung goes into the main room?」</p>
+<p>"Should I go down to the 1st floor in advance before Seyoung goes into the main room?"</p>
 
 <p>Shiwoo spoke as if subtly probing Mom.</p>
 
-<p>「What? Now?」</p>
+<p>"What? Now?"</p>
 
 <p>Mom reacted as if slightly flustered and asked Shiwoo.</p>
 
-<p>「Yeah, right now!」</p>
+<p>"Yeah, right now!"</p>
 
 <p>Shiwoo answered Mom in an assertive tone, as if notifying her.</p>
 
-<p>「...What for?」</p>
+<p>"...What for?"</p>
 
 <p>Mom asked as if she knew what Shiwoo was trying to do, but was just checking.</p>
 
-<p>「We have to sign our marriage contract, and it's better to go and prepare in advance than to go in and put mine in Mom when Seyoung is breastfeeding, right?」</p>
+<p>"We have to sign our marriage contract, and it's better to go and prepare in advance than to go in and put mine in Mom when Seyoung is breastfeeding, right?"</p>
 
 <p>Shiwoo was telling Mom what he was going to do simply and clearly.</p>
 
@@ -160,7 +160,7 @@ chapter = 479
 
 <p>Mom, at Shiwoo's explicit text without saying it in a roundabout way, seemed to have no place to avoid anymore.</p>
 
-<p>「Do as you please, Shiwoo...」</p>
+<p>"Do as you please, Shiwoo..."</p>
 
 <p>Mom's text, sent as if there was nothing she could do anymore.</p>
 

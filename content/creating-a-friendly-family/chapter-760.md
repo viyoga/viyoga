@@ -4,7 +4,7 @@ weight = 760
 [extra]
 chapter = 760
 +++
-<p>「What does age matter? Seonmi, you and I are already in a relationship as man and woman, having sex and all Why can't we get married just because I'm young?」</p>
+<p>"What does age matter? Seonmi, you and I are already in a relationship as man and woman, having sex and all Why can't we get married just because I'm young?"</p>
 
 <p>Shiwoo sent the text while feeling the minute physical reactions of his Mom, who was held fast in his arms, in real-time.</p>
 
@@ -12,25 +12,25 @@ chapter = 760
 
 <p>Then, she immediately typed a reply to his text.</p>
 
-<p>「Is that the same thing? Sex is something that can happen a few times by mistake when you're caught up in the mood, but marriage is a completely different story!」</p>
+<p>"Is that the same thing? Sex is something that can happen a few times by mistake when you're caught up in the mood, but marriage is a completely different story!"</p>
 
 <p>Even though it was just through text, Mom was now using the word 'sex' without hesitation in a conversation with her son...</p>
 
-<p>「What's the difference? If a mother and son have already had sex, they can get married if they get caught up in the mood too hehe」</p>
+<p>"What's the difference? If a mother and son have already had sex, they can get married if they get caught up in the mood too hehe"</p>
 
 <p>Shiwoo playfully countered his Mom's words.</p>
 
-<p>「Sex is something you do for a moment and then stop! Marriage requires you to think that way permanently!」</p>
+<p>"Sex is something you do for a moment and then stop! Marriage requires you to think that way permanently!"</p>
 
-<p>「And in the first place, you and I are parent and child, so other people wouldn't even recognize something like marriage anyway?」</p>
+<p>"And in the first place, you and I are parent and child, so other people wouldn't even recognize something like marriage anyway?"</p>
 
 <p>She ignored Shiwoo's hand as it kneaded her buttocks and sent the text with a firm, adamant attitude.</p>
 
-<p>「What other people? Who are you talking about?! Did we get permission from people to form a Master-Slave relationship and have sex as mother and son?」</p>
+<p>"What other people? Who are you talking about?! Did we get permission from people to form a Master-Slave relationship and have sex as mother and son?"</p>
 
-<p>「Why do we even need to tell others about sex or marriage? We can just do it ourselves, and if others find out, we just let them find out」</p>
+<p>"Why do we even need to tell others about sex or marriage? We can just do it ourselves, and if others find out, we just let them find out"</p>
 
-<p>「Besides, isn't a slave relationship something you have to live out like a daily routine? What exactly is the difference? If we get married, what's going to change from how it is now? Tell me?」</p>
+<p>"Besides, isn't a slave relationship something you have to live out like a daily routine? What exactly is the difference? If we get married, what's going to change from how it is now? Tell me?"</p>
 
 <p>Shiwoo savored the exhilaration of Mom's shame-filled arousal through his palm as he wrote a long, provocative message.</p>
 
@@ -40,23 +40,23 @@ chapter = 760
 
 <p>Or was she just now imagining the life she would lead with her son after getting married?</p>
 
-<p>「But Seonmi, aren't you making one big mistake right now?」</p>
+<p>"But Seonmi, aren't you making one big mistake right now?"</p>
 
 <p>As if he had already guessed Mom's reaction, Shiwoo typed the message with a mischievous smirk on his lips and pressed the send button.</p>
 
-<p>「What mistake?」</p>
+<p>"What mistake?"</p>
 
 <p>Mom sent back a text almost immediately, as if reacting to Shiwoo's question.</p>
 
-<p>「We already signed a marriage oath along with the slave contract! We're practically a married couple!」</p>
+<p>"We already signed a marriage oath along with the slave contract! We're practically a married couple!"</p>
 
 <p>Shiwoo stared down at Mom's fingers resting on the smartphone, reminding her that there was no longer any place to run.</p>
 
-<p>「Thatt was just written to go along with the feelinng of the slave play!」</p>
+<p>"Thatt was just written to go along with the feelinng of the slave play!"</p>
 
 <p>Mom replied hurriedly, her text riddled with typos as she tried to refute Shiwoo's words.</p>
 
-<p>「Then we can just get married with that same feeling What's the problem?」</p>
+<p>"Then we can just get married with that same feeling What's the problem?"</p>
 
 <p>Shiwoo moved his pinky finger as if sliding it into the crack of Mom's buttocks and sent the text mockingly.</p>
 
@@ -64,13 +64,13 @@ chapter = 760
 
 <p>Perhaps because she was feeling a sudden surge of shame for having taken Shiwoo's proposal seriously, her nasal breathing began to grow heavy.</p>
 
-<p>「How can a mother and son just get married like that!? It's already exhausting enough just talking to you while switching back and forth between slave roles!」</p>
+<p>"How can a mother and son just get married like that!? It's already exhausting enough just talking to you while switching back and forth between slave roles!"</p>
 
-<p>「And aren't you going to take your finger out?! Who said you could do that to your mother in a place with so many people!?」</p>
+<p>"And aren't you going to take your finger out?! Who said you could do that to your mother in a place with so many people!?"</p>
 
-<p>「It's not like you're playing with a person! If you're going to be like that, just force me to do it! Why ask like you're suggesting something!」</p>
+<p>"It's not like you're playing with a person! If you're going to be like that, just force me to do it! Why ask like you're suggesting something!"</p>
 
-<p>「Even earlier, saying nonsense about using separate rooms from the wife you'll marry later! Am I crazy? What kind of resentment am I supposed to hear from your future wife!」</p>
+<p>"Even earlier, saying nonsense about using separate rooms from the wife you'll marry later! Am I crazy? What kind of resentment am I supposed to hear from your future wife!"</p>
 
 <p>Mom vented her inconsistent irritation, her face flushed red as her fingers moved busily to send the text.</p>
 

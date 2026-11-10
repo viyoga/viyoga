@@ -108,23 +108,23 @@ chapter = 62
 
 <p>-A bra wet with Shiwoo's semen and panties damp with Sehee Nuna's own vaginal fluid, a matching set-</p>
 
-<p>「Shiwoo, what are you doing?」</p>
+<p>"Shiwoo, what are you doing?"</p>
 
 <p>Sehee Nuna's voice, who was washing inside the shower room, was heard.</p>
 
-<p>「W-while waiting, something just occurred to me...」 Shiwoo spoke evasively, flustered by Sehee Nuna's sudden voice.</p>
+<p>"W-while waiting, something just occurred to me..." Shiwoo spoke evasively, flustered by Sehee Nuna's sudden voice.</p>
 
-<p>「What? What is it?」 Sehee Nuna was asking Shiwoo once more, perhaps sensing something strange.</p>
+<p>"What? What is it?" Sehee Nuna was asking Shiwoo once more, perhaps sensing something strange.</p>
 
-<p>「Sehee Nuna! You know that video you asked me to show you earlier?」 Shiwoo recalled in an instant the conversation with Sehee Nuna at the department store during the day, when she had admired (?) Shiwoo's huge penis, and spoke.</p>
+<p>"Sehee Nuna! You know that video you asked me to show you earlier?" Shiwoo recalled in an instant the conversation with Sehee Nuna at the department store during the day, when she had admired (?) Shiwoo's huge penis, and spoke.</p>
 
 <p>-A precious porn video that would prove that a huge penis, as large as Shiwoo's, could enter a woman-</p>
 
-<p>「Ah... uh... yeah.」 Sehee Nuna also, perhaps remembering the conversation they had earlier about Shiwoo's thing, was answering, though stammering.</p>
+<p>"Ah... uh... yeah." Sehee Nuna also, perhaps remembering the conversation they had earlier about Shiwoo's thing, was answering, though stammering.</p>
 
-<p>「That... a little later, want to watch it together in the living room?」 Shiwoo felt satisfied that it was quite appropriate for an abrupt excuse, and waited for Sehee Nuna's answer.</p>
+<p>"That... a little later, want to watch it together in the living room?" Shiwoo felt satisfied that it was quite appropriate for an abrupt excuse, and waited for Sehee Nuna's answer.</p>
 
-<p>「D-depending on the situation...」 Sehee Nuna answered, hesitating and seeming to think.</p>
+<p>"D-depending on the situation..." Sehee Nuna answered, hesitating and seeming to think.</p>
 
 <p>Sehee Nuna's answer was so lovely to Shiwoo.</p>
 
@@ -132,7 +132,7 @@ chapter = 62
 
 <p>Shiwoo was barely suppressing such impulsive desires.</p>
 
-<p>「Okay then I'll get it ready!!」 After saying that to Sehee Nuna, Shiwoo exited the changing room.</p>
+<p>"Okay then I'll get it ready!!" After saying that to Sehee Nuna, Shiwoo exited the changing room.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -234,9 +234,9 @@ chapter = 62
 
 <p>A moment later,</p>
 
-<p>「Tak!!!」 A dull thud, strongly hitting Shiwoo's head, rang through the living room.</p>
+<p>"Tak!!!" A dull thud, strongly hitting Shiwoo's head, rang through the living room.</p>
 
-<p>「Ouch!」 Feeling pain, Shiwoo clutched his head, moaning, and when he turned around, there was Sehee Nuna, wrapped in Mom's blanket, standing with a goddess-like posture, glaring as if to devour Shiwoo.</p>
+<p>"Ouch!" Feeling pain, Shiwoo clutched his head, moaning, and when he turned around, there was Sehee Nuna, wrapped in Mom's blanket, standing with a goddess-like posture, glaring as if to devour Shiwoo.</p>
 
 <p>Between Mom's blanket, which was wrapping Sehee Nuna's body, something like a piece of red epidermal-patterned fabric seemed to be visible here and there.</p>
 

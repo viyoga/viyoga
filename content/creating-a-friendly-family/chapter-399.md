@@ -34,7 +34,7 @@ chapter = 399
 
 <p>What was Mom going to say to Shiwoo?</p>
 
-<p>「Mom, didn't you call me because you had something to say?」</p>
+<p>"Mom, didn't you call me because you had something to say?"</p>
 
 <p>Taking the initiative to speak, Shiwoo asked Mom.</p>
 
@@ -46,7 +46,7 @@ chapter = 399
 
 <p>Then, as if something had occurred to her, Mom opened her mouth.</p>
 
-<p>「If you look inside that shopping basket, there's a frozen pizza, right? You saw the microwave in the hall near the entrance earlier, didn't you? Go heat one up and bring it now! Before you go, take out a couple of canned beers too!」</p>
+<p>"If you look inside that shopping basket, there's a frozen pizza, right? You saw the microwave in the hall near the entrance earlier, didn't you? Go heat one up and bring it now! Before you go, take out a couple of canned beers too!"</p>
 
 <p>Although there was a glass door through which the inside was clearly visible, perhaps finding the situation of being alone with Shiwoo in the room awkward, she couldn't meet his eyes and gave instructions while looking straight ahead.</p>
 
@@ -64,39 +64,39 @@ chapter = 399
 
 <p>Was Mom thinking of trying new cigarettes?</p>
 
-<p>「This?」</p>
+<p>"This?"</p>
 
 <p>Putting aside his bewildered feelings, Shiwoo took out the frozen pizza from the shopping bag, showed it to Mom in front of her eyes, and spoke.</p>
 
-<p>「But it's food brought from outside, can we eat it here?」</p>
+<p>"But it's food brought from outside, can we eat it here?"</p>
 
 <p>Shiwoo spoke under his breath, as if muttering to himself.</p>
 
-<p>「It's a place that does delivery, so. Just clean up well!」</p>
+<p>"It's a place that does delivery, so. Just clean up well!"</p>
 
 <p>Mom was giving Shiwoo an unexpectedly clear answer.</p>
 
-<p>「Still, isn't alcohol not allowed? In karaoke rooms like this, it usually says 'No Alcohol,' doesn't it?」</p>
+<p>"Still, isn't alcohol not allowed? In karaoke rooms like this, it usually says 'No Alcohol,' doesn't it?"</p>
 
 <p>Shiwoo spoke as if slightly worried, placing the beer cans on the table.</p>
 
 <p>Only then did Mom, with hazy eyes, look at Shiwoo as if resentful and speak.</p>
 
-<p>「Who cares! The owner isn't watching all day! Stop grumbling and just go quickly!」</p>
+<p>"Who cares! The owner isn't watching all day! Stop grumbling and just go quickly!"</p>
 
 <p>In a tone mixed with annoyance, Mom was speaking to Shiwoo.</p>
 
-<p>「Alright alright But why have you been so annoyed with me since earlier?」</p>
+<p>"Alright alright But why have you been so annoyed with me since earlier?"</p>
 
 <p>Shiwoo spoke to Mom as if unjustly accused.</p>
 
 <p>For a moment, Mom turned her head back and glared at Shiwoo.</p>
 
-<p>「I just need to heat this up for about 5 minutes, right?」</p>
+<p>"I just need to heat this up for about 5 minutes, right?"</p>
 
 <p>As if avoiding Mom's gaze, Shiwoo spoke slyly, holding the pizza, and left for the karaoke room's main hall.</p>
 
-<p>「Heu-yu!」</p>
+<p>"Heu-yu!"</p>
 
 <p>From behind Shiwoo as he left the room, a suppressed, hot sigh from Mom could be heard.</p>
 
@@ -122,9 +122,9 @@ chapter = 399
 
 <p>A crazy thought suddenly popped up in Shiwoo's mind.</p>
 
-<p>「If I were to take out my penis here and masturbate right now...」</p>
+<p>"If I were to take out my penis here and masturbate right now..."</p>
 
-<p>「And if I showed that to Mom, who's alone in the room, as a video?」</p>
+<p>"And if I showed that to Mom, who's alone in the room, as a video?"</p>
 
 <p>Shiwoo seemed to ponder for a moment, then took his penis out of his pants.</p>
 
@@ -178,7 +178,7 @@ chapter = 399
 
 <p>While Shiwoo was out, Mom had opened her second can of beer and was gulping it down.</p>
 
-<p>「You could have eaten it with the pizza What's the rush?」</p>
+<p>"You could have eaten it with the pizza What's the rush?"</p>
 
 <p>On the table, placing the pizza he had just heated, Shiwoo spoke in an innocent tone.</p>
 

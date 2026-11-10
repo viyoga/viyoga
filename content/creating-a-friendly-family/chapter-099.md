@@ -132,17 +132,17 @@ chapter = 99
 
 <p>Shiwoo pressed the power button, then typed Seyoung's birthday into the password input screen.</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>A message to re-enter the password appeared on the smartphone screen, which he had naturally expected to unlock.</p>
 
 <p>Shiwoo typed in the numbers once again.</p>
 
-<p>「Uh-oh!?」</p>
+<p>"Uh-oh!?"</p>
 
 <p>Shiwoo's smartphone screen wouldn't unlock.</p>
 
-<p>「No way...」</p>
+<p>"No way..."</p>
 
 <p>Shiwoo finally typed Seyoung's birthday, character by character, precisely into the smartphone.</p>
 
@@ -176,51 +176,51 @@ chapter = 99
 
 <p>As soon as Shiwoo confirmed that the password had been changed to Sehee Nuna's birthday, he sent her a text message.</p>
 
-<p>「Why did you leave first? You should have woken me up!」</p>
+<p>"Why did you leave first? You should have woken me up!"</p>
 
 <p>Shiwoo's text message, sent as if showing his disappointment.</p>
 
-<p>「After showing even that kind of appearance, how could I look you straight in the face immediately You idiot!!!」</p>
+<p>"After showing even that kind of appearance, how could I look you straight in the face immediately You idiot!!!"</p>
 
 <p>Sehee Nuna's reply flew in immediately, without delay, as if she had been holding her smartphone in her hand.</p>
 
-<p>「What's the big deal? Honestly, I almost came right then!」</p>
+<p>"What's the big deal? Honestly, I almost came right then!"</p>
 
 <p>Shiwoo, recalling Sehee Nuna's urination scene, said.</p>
 
-<p>「Shut up! Anyway, looks like you figured it out well, huh? I thought it would take a while? You figured it out right away?」</p>
+<p>"Shut up! Anyway, looks like you figured it out well, huh? I thought it would take a while? You figured it out right away?"</p>
 
-<p>「Of course!! If it's something like this, I can solve it right away!!」</p>
+<p>"Of course!! If it's something like this, I can solve it right away!!"</p>
 
 <p>Shiwoo, speaking to Sehee Nuna as if boasting triumphantly.</p>
 
-<p>「Yeah Guess the kid isn't a complete blockhead after all lol」</p>
+<p>"Yeah Guess the kid isn't a complete blockhead after all lol"</p>
 
 <p>Sehee Nuna's text message, slightly more playful and high-spirited than usual.</p>
 
 <p>At such a text message from Sehee Nuna, Shiwoo's anxious heart seemed to calm down little by little.</p>
 
-<p>「But are you okay?」</p>
+<p>"But are you okay?"</p>
 
 <p>Shiwoo, asking to check Sehee Nuna's condition.</p>
 
-<p>「After being subjected to that, do you think I'd be okay?! It's still tingling」</p>
+<p>"After being subjected to that, do you think I'd be okay?! It's still tingling"</p>
 
 <p>Sehee Nuna, answering curtly, expressing her complaint.</p>
 
-<p>「Did it hurt?」</p>
+<p>"Did it hurt?"</p>
 
 <p>Recalling actions like shoving his penis into her throat to the point of making her vomit stomach acid, mercilessly slapping her buttocks with his palm, and shoving his thumb into her anus, Shiwoo asked carefully, as if worried.</p>
 
-<p>「Of course it hurt!! How could it not hurt when you do that? And why on earth did you put your finger in there?!」</p>
+<p>"Of course it hurt!! How could it not hurt when you do that? And why on earth did you put your finger in there?!"</p>
 
 <p>Sehee Nuna sent a text message as if in a fit of anger.</p>
 
-<p>「Sorry, lolol」</p>
+<p>"Sorry, lolol"</p>
 
 <p>Shiwoo, apologizing awkwardly.</p>
 
-<p>「More than that, what kind of kid are you? You did that yesterday and the day before, and your 'thing' just won't go down?」</p>
+<p>"More than that, what kind of kid are you? You did that yesterday and the day before, and your 'thing' just won't go down?"</p>
 
 <p>The 'day before yesterday' was probably referring to the intercourse Shiwoo and Sehee Nuna had, and 'yesterday' seemed to be referring to the intercourse Shiwoo and Seonju Imo had.</p>
 
@@ -228,15 +228,15 @@ chapter = 99
 
 <p>Sehee Nuna now seemed to be completely willing to have such conversations with Shiwoo via chat, without any formality or restraint.</p>
 
-<p>「Sorry But when I see Sehee Nuna, I get so aroused I can't help it.」</p>
+<p>"Sorry But when I see Sehee Nuna, I get so aroused I can't help it."</p>
 
 <p>Shiwoo, honestly revealing his true feelings.</p>
 
-<p>「Ehyu!! Still, when you do it, tell me beforehand, you dummy!!! If I ever hear you did that to Sinbi Nuna later, I'll really kill you then!?」</p>
+<p>"Ehyu!! Still, when you do it, tell me beforehand, you dummy!!! If I ever hear you did that to Sinbi Nuna later, I'll really kill you then!?"</p>
 
 <p>Sehee Nuna, warning him again as if in a fit of anger while talking about Sinbi Nuna.</p>
 
-<p>「Haha, okay I'll really be careful with Sinbi Nuna later」</p>
+<p>"Haha, okay I'll really be careful with Sinbi Nuna later"</p>
 
 <p>Shiwoo, answering as if suppressed by Sehee Nuna's authority.</p>
 
@@ -244,23 +244,23 @@ chapter = 99
 
 <p class="scene-break">· · ·</p>
 
-<p>「And don't you dare change it!! Because I'll never do such things for you again!!」</p>
+<p>"And don't you dare change it!! Because I'll never do such things for you again!!"</p>
 
 <p>Sehee Nuna said, as if adding one more thing, without a subject.</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
 <p>Shiwoo, not knowing what Sehee Nuna was talking about, asked.</p>
 
-<p>「The password!」</p>
+<p>"The password!"</p>
 
 <p>Sehee Nuna, so shamelessly demanding an infringement of Shiwoo's rights regarding personal information protection.</p>
 
-<p>「No, why that?」</p>
+<p>"No, why that?"</p>
 
 <p>Shiwoo was saying, as if arguing, with a feeling that even so, it was a bit wrong.</p>
 
-<p>「I'm doing all sorts of things for you, so I should at least know what you're up to, shouldn't I!!!!」</p>
+<p>"I'm doing all sorts of things for you, so I should at least know what you're up to, shouldn't I!!!!"</p>
 
 <p>Sehee Nuna's text message, snapping with the force of four exclamation marks.</p>
 
@@ -268,15 +268,15 @@ chapter = 99
 
 <p>Shiwoo seemed to have no choice but to accept Sehee Nuna's unreasonable demand after all.</p>
 
-<p>「Then what should I do after the academy?」</p>
+<p>"Then what should I do after the academy?"</p>
 
 <p>Shiwoo, asking as if trying to further confirm their adjusted relationship with Sehee Nuna.</p>
 
-<p>「What do you mean, 'what should I do'? You have to come pick me up!」</p>
+<p>"What do you mean, 'what should I do'? You have to come pick me up!"</p>
 
 <p>Sehee Nuna, answering again as if it were obvious.</p>
 
-<p>「Alright then!!」</p>
+<p>"Alright then!!"</p>
 
 <p>Shiwoo, answering with a refreshing feeling at the thought that he could still remain in the role of Sehee Nuna's bodyguard.</p>
 

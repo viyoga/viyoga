@@ -12,11 +12,11 @@ chapter = 149
 
 <p>In that instant, Shiwoo strongly slapped Sehee-nuna's buttocks.</p>
 
-<p>「Haa-eut!」</p>
+<p>"Haa-eut!"</p>
 
 <p>Sehee-nuna's moaning sound sprang out, her waist and upper body recoiling as if startled.</p>
 
-<p>「Put it up!」</p>
+<p>"Put it up!"</p>
 
 <p>Shiwoo commanded Sehee-nuna concisely yet resolutely.</p>
 
@@ -28,7 +28,7 @@ chapter = 149
 
 <p>Shiwoo's smartphone vibrated again as Sehee-nuna's hand touched it.</p>
 
-<p>「Haa-aang Haa-eung Haaaa-aah」</p>
+<p>"Haa-aang Haa-eung Haaaa-aah"</p>
 
 <p>In response, Seonju Imo's almost hysterical cries of pleasure could be heard from the changing room.</p>
 
@@ -40,13 +40,13 @@ chapter = 149
 
 <p>Shiwoo's penis began to wildly thrust in and out deep inside Sehee-nuna's cave.</p>
 
-<p>「Haa-euk Haa-aak Haa Haa-eut」</p>
+<p>"Haa-euk Haa-aak Haa Haa-eut"</p>
 
 <p>Sehee-nuna moaned in response to Shiwoo's hip movements, unconsciously wiggling the finger touching the smartphone.</p>
 
 <p>Each time her finger moved up and down, the intensity of the wireless vibrator installed on Seonju Imo changed.</p>
 
-<p>「Haa-aat Haat Haa-euk...Heu-euk!」</p>
+<p>"Haa-aat Haat Haa-euk...Heu-euk!"</p>
 
 <p>Seonju Imo's moans were also changing in response to Sehee-nuna's finger movements.</p>
 
@@ -58,13 +58,13 @@ chapter = 149
 
 <p>Shiwoo's hand was slapping Sehee-nuna's buttocks.</p>
 
-<p>「Aaa-eut! ...Haa-eut!」</p>
+<p>"Aaa-eut! ...Haa-eut!"</p>
 
 <p>Sehee-nuna's hand repeatedly touched and lifted from the smartphone due to Shiwoo's fierce spanking.</p>
 
 <p>Along with Sehee-nuna's ragged breathing, Seonju Imo's irregular moaning sounds could be heard from the changing room.</p>
 
-<p>「How is it? Can you hear it? Sehee, you're the one who made Seonju like that!」</p>
+<p>"How is it? Can you hear it? Sehee, you're the one who made Seonju like that!"</p>
 
 <p>Shiwoo was teasing Sehee-nuna, who was kneeling on the floor, hands braced, lying prone.</p>
 
@@ -72,7 +72,7 @@ chapter = 149
 
 <p>-Ssuk-geok! Ssuk-geok! Ssuk-geok!-</p>
 
-<p>「Heu-eu...euk...Heu-euk ...Haat...」</p>
+<p>"Heu-eu...euk...Heu-euk ...Haat..."</p>
 
 <p>As if submitting to Shiwoo's thrusts, which sought to subjugate her, Sehee-nuna was cautiously letting out shy moans.</p>
 
@@ -80,7 +80,7 @@ chapter = 149
 
 <p>Shiwoo's piston-like thrusts grew faster and faster.</p>
 
-<p>「Haat! Haa-aat! Haa-aang!」</p>
+<p>"Haat! Haa-aat! Haa-aang!"</p>
 
 <p>Sehee-nuna's moans also grew louder, matching Shiwoo's piston-like thrusts.</p>
 
@@ -92,7 +92,7 @@ chapter = 149
 
 <p>The sensation of ejaculation rushed in.</p>
 
-<p>「Haa-euk! Haa-eut! Haat! Haa-aak!」</p>
+<p>"Haa-euk! Haa-eut! Haat! Haa-aak!"</p>
 
 <p>Sehee-nuna's cries of pleasure echoed through the house.</p>
 
@@ -100,7 +100,7 @@ chapter = 149
 
 <p>Shiwoo was fully savoring the sensation of Sehee-nuna's vaginal flesh embracing his penis.</p>
 
-<p>「Euu...」</p>
+<p>"Euu..."</p>
 
 <p>A faint moan escaped Shiwoo's lips as he instinctively knew he was about to ejaculate.</p>
 
@@ -128,7 +128,7 @@ chapter = 149
 
 <p>Shiwoo's thick cream was chaotically mixed on top of the chicken porridge, resting there as if it had been its original color from the start.</p>
 
-<p>「Haa haa haa...」</p>
+<p>"Haa haa haa..."</p>
 
 <p>Immediately after ejaculating, Shiwoo gasped for breath.</p>
 
@@ -148,11 +148,11 @@ chapter = 149
 
 <p>Shiwoo grabbed Sehee-nuna's head with both hands and pushed his cock into her open mouth as if stuffing it in.</p>
 
-<p>「Woo-oob!」</p>
+<p>"Woo-oob!"</p>
 
 <p>As Shiwoo's penis, slightly softened after ejaculation, tried to enter Sehee-nuna's throat, a sound like gagging escaped her mouth.</p>
 
-<p>「Wook! Woo-wook!」</p>
+<p>"Wook! Woo-wook!"</p>
 
 <p>Sehee-nuna's throat constriction strongly gripped Shiwoo's shaft.</p>
 
@@ -160,7 +160,7 @@ chapter = 149
 
 <p>Shiwoo held Sehee-nuna's head steady with both hands and roughly shoved his hardening cock deep into Sehee-nuna's throat.</p>
 
-<p>「Woo-woo-woob!! Ku-ap! Ku-oob! Keuk!」</p>
+<p>"Woo-woo-woob!! Ku-ap! Ku-oob! Keuk!"</p>
 
 <p>Sehee-nuna trembled violently, her throat seemingly completely blocked, and looked up at Shiwoo with unfocused eyes.</p>
 
@@ -178,7 +178,7 @@ chapter = 149
 
 <p>Shiwoo watched Sehee-nuna's trembling for a few seconds as if savoring the sight.</p>
 
-<p>「Woo-eop! Eop! Eo-eop! Eu-eup!」</p>
+<p>"Woo-eop! Eop! Eo-eop! Eu-eup!"</p>
 
 <p>Sehee-nuna gripped the penis as if squeezing it with her mouth and throat, and her body convulsed violently as if hiccuping.</p>
 
@@ -196,11 +196,11 @@ chapter = 149
 
 <p>.</p>
 
-<p>「I'm going to go to Seonju now!」</p>
+<p>"I'm going to go to Seonju now!"</p>
 
 <p>Shiwoo said, placing his smartphone by Sehee-nuna's head.</p>
 
-<p>「Haa...haa...haa-eueu...」</p>
+<p>"Haa...haa...haa-eueu..."</p>
 
 <p>Sehee-nuna, sprawled on the floor as if unfocused, was gasping for breath.</p>
 

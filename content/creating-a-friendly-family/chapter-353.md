@@ -82,23 +82,23 @@ chapter = 353
 
 <p>Then, he pressed down on his sisters' heads with even more force towards his penis.</p>
 
-<p>「Ooohp」</p>
+<p>"Ooohp"</p>
 
 <p>His sisters strained their cheeks and mouths, trying not to spill the semen held within.</p>
 
 <p>Under the pressure from both sides, a squeezing pleasure intensely radiated from the tip of his penis, traveling up its shaft.</p>
 
-<p>「When we get home, Sua, first transfer everything in your mouth into Seonju's mouth! Every last drop!」</p>
+<p>"When we get home, Sua, first transfer everything in your mouth into Seonju's mouth! Every last drop!"</p>
 
 <p>Shiwoo commanded, pressing his sisters' faces against his enormous penis as if wantonly crushing them.</p>
 
-<p>「Ooh-mm...mm」</p>
+<p>"Ooh-mm...mm"</p>
 
 <p>Sua, with Shiwoo's semen in her mouth, her hair gripped.</p>
 
 <p>Instead of answering, Sua blinked and let out a small, guttural moaning sound.</p>
 
-<p>「Seyoung, after Sua does that, spit everything in your mouth onto Seonju's face! Make sure it's spread everywhere! It doesn't matter if it gets on her clothes!」</p>
+<p>"Seyoung, after Sua does that, spit everything in your mouth onto Seonju's face! Make sure it's spread everywhere! It doesn't matter if it gets on her clothes!"</p>
 
 <p>Shiwoo then instructed Seyoung on what she had to do once they entered Seonju Imo-nim's house.</p>
 
@@ -136,21 +136,21 @@ chapter = 353
 
 <p>The car was passing along the road just before entering the residential alley leading to Seonju Imo-nim's house.</p>
 
-<p>「Mister-! You can stop here!」</p>
+<p>"Mister-! You can stop here!"</p>
 
 <p>Shiwoo leaned forward and spoke in a voice loud enough for the driver Mister-ssi to hear.</p>
 
-<p>「There's still a little way to go, do you want to get off here?」</p>
+<p>"There's still a little way to go, do you want to get off here?"</p>
 
 <p>The driver Mister-ssi glanced back at the seat where Shiwoo was sitting and asked, as if confirming.</p>
 
-<p>「Yes, I'd like to take a walk with my sisters from here to the house.」</p>
+<p>"Yes, I'd like to take a walk with my sisters from here to the house."</p>
 
 <p>Shiwoo answered the driver Mister-ssi naturally.</p>
 
 <p>The call van soon stopped at the entrance of the residential alley.</p>
 
-<p>「Thank you! Drive safely.」</p>
+<p>"Thank you! Drive safely."</p>
 
 <p>Shiwoo politely bowed, then gathered the shopping bags and luggage and got out of the call van taxi.</p>
 
@@ -172,7 +172,7 @@ chapter = 353
 
 <p>Shiwoo flicked the leashes he held, as if to urge his sisters forward.</p>
 
-<p>「Heup」, 「Ha-eum」</p>
+<p>"Heup", "Ha-eum"</p>
 
 <p>Sua and Seyoung made sounds as if reacting to Shiwoo, and began to walk ahead.</p>
 

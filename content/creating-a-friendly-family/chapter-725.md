@@ -4,17 +4,17 @@ weight = 725
 [extra]
 chapter = 725
 +++
-<p>「What the hell are you saying? Have you finally lost your mind? Why would our class teacher suddenly ask me out on a date?」</p>
+<p>"What the hell are you saying? Have you finally lost your mind? Why would our class teacher suddenly ask me out on a date?"</p>
 
 <p>Shiwoo reacted with a dead serious expression, as if Cheoljin's nonsensical joke was truly absurd.</p>
 
 <p>Yesterday, Cheoljin had checked the Slave Contract of Lee Jina-nim that Shiwoo had sent via smartphone. So, if he were talking about Lee Jina-nim in that manner, at least there would be some context... but bringing up their current class teacher, Oh Yerin-nim, just because Shiwoo had been called to the faculty office, seemed like nothing more than Cheoljin running his mouth to tease him.</p>
 
-<p>「Oh? Weren't you taking tomorrow off? Weren't you going to talk to the class teacher to get your stories straight?」</p>
+<p>"Oh? Weren't you taking tomorrow off? Weren't you going to talk to the class teacher to get your stories straight?"</p>
 
 <p>Despite Shiwoo's stern reaction, Cheoljin maintained his sly attitude and a smirk as he questioned him.</p>
 
-<p>「It just happened to turn out that way, but so what? What does me taking tomorrow off have to do with the class teacher?」</p>
+<p>"It just happened to turn out that way, but so what? What does me taking tomorrow off have to do with the class teacher?"</p>
 
 <p>Shiwoo spoke to Cheoljin, his face lightly frowning as a hint of irritation rose within him.</p>
 
@@ -22,27 +22,27 @@ chapter = 725
 
 <p>Normally, he might have just let Cheoljin's playful tone slide, but today, for some reason, it felt like he was being unnecessarily sensitive.</p>
 
-<p>「Aha! I guess you don't know yet? Pu-hi-hi-hit ! Well, I suppose they don't exactly announce it to the students...」</p>
+<p>"Aha! I guess you don't know yet? Pu-hi-hi-hit ! Well, I suppose they don't exactly announce it to the students..."</p>
 
 <p>Cheoljin nodded as if he had grasped and understood everything, wearing a boastful smirk as if he held the upper hand.</p>
 
-<p>「Don't know what? Who didn't say what?」</p>
+<p>"Don't know what? Who didn't say what?"</p>
 
 <p>Shiwoo looked at Cheoljin with a suspicious expression, asking almost against his will.</p>
 
-<p>「Shall I tell you something really interesting?」</p>
+<p>"Shall I tell you something really interesting?"</p>
 
 <p>Regardless of Shiwoo's fed-up reaction, Cheoljin lowered his voice further, as if he had made up his mind to expose some illicit secret.</p>
 
-<p>「 Ehyu !」</p>
+<p>" Ehyu !"</p>
 
 <p>Shiwoo let out a sigh, already exhausted by the start of Cheoljin's guessing game.</p>
 
-<p>「...What! You brat, what?! If you're going to do it anyway, just say it... Don't beat around the bush and drain my energy!」</p>
+<p>"...What! You brat, what?! If you're going to do it anyway, just say it... Don't beat around the bush and drain my energy!"</p>
 
 <p>Shiwoo reacted with annoyance, recalling Cheoljin's previous eccentric behaviors and his way of speaking that turned one's stomach inside out. Yet, even so, he kept his ears open, inwardly paying attention to the story Cheoljin was about to tell.</p>
 
-<p>「 He-he-he-he ... It seems there are quite a few other academy students besides you, Shiwoo, who are being marked as present even though they aren't coming to the academy tomorrow... In our class... and in Seulgi's class too...」</p>
+<p>" He-he-he-he ... It seems there are quite a few other academy students besides you, Shiwoo, who are being marked as present even though they aren't coming to the academy tomorrow... In our class... and in Seulgi's class too..."</p>
 
 <p>Cheoljin spoke to Shiwoo, pulling the corners of his mouth up even higher, creating a strangely meaningful atmosphere...</p>
 
@@ -56,7 +56,7 @@ chapter = 725
 
 <p>realization.</p>
 
-<p>「Well it's not like it's rare for people to miss class for menstrual leave or other reasons in every class, but it seems like quite a few of them overlap for tomorrow?」</p>
+<p>"Well it's not like it's rare for people to miss class for menstrual leave or other reasons in every class, but it seems like quite a few of them overlap for tomorrow?"</p>
 
 <p>Cheoljin raised the end of his sentence questioningly, shrugging his shoulders as if he couldn't be certain himself, playing it off with a smirk.</p>
 
@@ -68,23 +68,23 @@ chapter = 725
 
 <p>Shiwoo's eyes darted around, scanning the faces of the female students in the classroom one by one, as if engraving them into his memory. The secrets hidden within them swelled amidst a lewd tension, swaying precariously as if they might spill over at any moment.</p>
 
-<p>「Shall I tell you one more interesting thing?」</p>
+<p>"Shall I tell you one more interesting thing?"</p>
 
 <p>Cheoljin spoke again to Shiwoo, who had been looking around the classroom.</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>Shiwoo hurriedly turned back to Cheoljin, looking startled.</p>
 
-<p>「Tomorrow... it seems it's not just the students who were allowed to take off like that...」</p>
+<p>"Tomorrow... it seems it's not just the students who were allowed to take off like that..."</p>
 
 <p>Cheoljin continued at his own pace, giving Shiwoo no room to think about anything else.</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
 <p>Shiwoo reacted with a bewildered expression at Cheoljin's words.</p>
 
-<p>「It looks like our class teacher is also missing tomorrow under the pretext of training...」</p>
+<p>"It looks like our class teacher is also missing tomorrow under the pretext of training..."</p>
 
 <p>With a playful smile deeply etched into his lips, Cheoljin looked at Shiwoo triumphantly.</p>
 

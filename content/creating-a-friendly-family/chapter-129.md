@@ -18,15 +18,15 @@ chapter = 129
 
 <p class="scene-break">· · ·</p>
 
-<p>「But this... this is adultery, right?」</p>
+<p>"But this... this is adultery, right?"</p>
 
 <p>While feeding her milk, Shiwoo cautiously asks Gyuri Ajumma, as if confirming the situation.</p>
 
-<p>「Ad...adultery?」</p>
+<p>"Ad...adultery?"</p>
 
 <p>Gyuri Ajumma asks back, as if puzzled by Shiwoo's sudden words.</p>
 
-<p>「Yeah... Originally, we shouldn't be doing this, right?... Because Ajusshi is here...」</p>
+<p>"Yeah... Originally, we shouldn't be doing this, right?... Because Ajusshi is here..."</p>
 
 <p>Shiwoo was saying this while pushing his cock deep inside Gyuri Ajumma.</p>
 
@@ -52,13 +52,13 @@ chapter = 129
 
 <p>Perhaps he could get a hint from Gyuri Ajumma about the future relationships with his family.</p>
 
-<p>「Why? What if that person... wasn't here? Ho...could it be that you, Shiwoo, have feelings for me?... Haaat... If I become that kind of relationship with you... Se...Seonmi will really scold me?」</p>
+<p>"Why? What if that person... wasn't here? Ho...could it be that you, Shiwoo, have feelings for me?... Haaat... If I become that kind of relationship with you... Se...Seonmi will really scold me?"</p>
 
 <p>As Gyuri Ajumma spoke to Shiwoo, her vaginal walls and pussy flesh were strongly tightening around Shiwoo's cock.</p>
 
 <p>Gyuri Ajumma's meaningful line, clearly using the word 'adultery' with a meaning quite different from how ordinary people used it.</p>
 
-<p>「Wh...What are you talking about? It's not that, it's that if Ajusshi finds out about us doing this, it'll be a big problem, won't it?!」</p>
+<p>"Wh...What are you talking about? It's not that, it's that if Ajusshi finds out about us doing this, it'll be a big problem, won't it?!"</p>
 
 <p>Shiwoo was momentarily flustered by the sudden tightening of her pussy and Mom's name popping out of Gyuri Ajumma's mouth.</p>
 
@@ -66,7 +66,7 @@ chapter = 129
 
 <p>Shiwoo's thrusting suddenly intensified, as if trying to defuse a situation where he seemed to be getting a somewhat absurd misunderstanding from Gyuri Ajumma.</p>
 
-<p>「Haaat Haaaat Haaang I thought, haa... what was that... Ah, it's funny... I, haaat... really in this state, heueueut... don't even have the energy to laugh... hehe... drinking kimchi soup alone... heueu...」</p>
+<p>"Haaat Haaaat Haaang I thought, haa... what was that... Ah, it's funny... I, haaat... really in this state, heueueut... don't even have the energy to laugh... hehe... drinking kimchi soup alone... heueu..."</p>
 
 <p>Gyuri Ajumma, unable to move and heading towards climax from Shiwoo's fierce thrusting, mixed her words with moans as if trying to hide her embarrassment.</p>
 
@@ -74,15 +74,15 @@ chapter = 129
 
 <p>Shiwoo somehow felt relieved by Gyuri Ajumma's disheveled appearance.</p>
 
-<p>「Since that day, has Mom said anything to you, Gyuri?」</p>
+<p>"Since that day, has Mom said anything to you, Gyuri?"</p>
 
 <p>Since the topic came up, Shiwoo decided to ask Ajumma about things concerning Mom, one by one.</p>
 
-<p>「Th...that day? Saturday?」</p>
+<p>"Th...that day? Saturday?"</p>
 
 <p>Gyuri Ajumma also immediately recalled the events of Saturday at Shiwoo's mention of 'that day' and replied.</p>
 
-<p>「Yeah... I went to the convenience store for a moment to get hangover remedies after giving Seonju Imo and you, Gyuri, a massage, remember? When I came back, everything was tidied up. Did Mom say anything special to you in the meantime?」</p>
+<p>"Yeah... I went to the convenience store for a moment to get hangover remedies after giving Seonju Imo and you, Gyuri, a massage, remember? When I came back, everything was tidied up. Did Mom say anything special to you in the meantime?"</p>
 
 <p>This was about the time last Saturday at the family gathering when Shiwoo, feigning a massage, first attempted deepthroat fellatio on Gyuri Ajumma.</p>
 
@@ -112,7 +112,7 @@ chapter = 129
 
 <p>Shiwoo could no longer pretend not to know the joke Seonju Imo had let slip.</p>
 
-<p>「N...now... Huhu... Se...Seonmi, what's she going to say to me? Sh...she's the one who broke the promise from the start... Should we just do it openly for Seonmi to see? Ad...adultery? Heueueuk...」</p>
+<p>"N...now... Huhu... Se...Seonmi, what's she going to say to me? Sh...she's the one who broke the promise from the start... Should we just do it openly for Seonmi to see? Ad...adultery? Heueueuk..."</p>
 
 <p>Gyuri Ajumma, speaking while trembling as if reaching climax.</p>
 
@@ -124,17 +124,17 @@ chapter = 129
 
 <p>Gyuri Ajumma's tone and laughter, as if she was in a superior position compared to her friend, Mom.</p>
 
-<p>「Mom broke a promise? What promise?」</p>
+<p>"Mom broke a promise? What promise?"</p>
 
 <p>Shiwoo strongly gripped Gyuri Ajumma's buttocks as if he had found a clue that would resolve the doubts festering in his chest.</p>
 
 <p>At the same time, Shiwoo's cock became fully engorged.</p>
 
-<p>「To...to exchange...we...we were supposed to.... Haaaeuu Heueueu... Haaang」</p>
+<p>"To...to exchange...we...we were supposed to.... Haaaeuu Heueueu... Haaang"</p>
 
 <p>Gyuri Ajumma, who was reaching climax, seemed to be greatly stimulated by Shiwoo's engorged cock, and stopped speaking mid-sentence, curling her body inward and letting out a stiff moaning sound.</p>
 
-<p>「Exchange what?」</p>
+<p>"Exchange what?"</p>
 
 <p>Shiwoo was speaking while directly feeling the sensation of Gyuri Ajumma's vagina hole tightly gripping his cock.</p>
 
@@ -142,17 +142,17 @@ chapter = 129
 
 <p>Gyuri Ajumma, unable to suppress the overwhelming, anxious, passionate sensation, trembled violently and moaned.</p>
 
-<p>「What promise?! Fucking bitch! Aren't you going to answer properly?!」</p>
+<p>"What promise?! Fucking bitch! Aren't you going to answer properly?!"</p>
 
 <p>-Challssak!</p>
 
 <p>Shiwoo strongly slapped Gyuri Ajumma's buttocks as if urging an answer.</p>
 
-<p>「Haaat... Ev...everything! My...my husband and...children...co...contract.... Haaak... Haaaeuuung」</p>
+<p>"Haaat... Ev...everything! My...my husband and...children...co...contract.... Haaak... Haaaeuuung"</p>
 
 <p>Gyuri Ajumma, mumbling incomprehensible words, came.</p>
 
-<p>「Aish, what the hell are you talking about?!」</p>
+<p>"Aish, what the hell are you talking about?!"</p>
 
 <p>Shiwoo shouted nervously.</p>
 
@@ -188,7 +188,7 @@ chapter = 129
 
 <p>A fresh sensation, as if the tip of Shiwoo's glans was being sucked into a new space deep inside Gyuri Ajumma's body.</p>
 
-<p>「Kyaaaak! Heueuaang!!」</p>
+<p>"Kyaaaak! Heueuaang!!"</p>
 
 <p>Gyuri Ajumma screamed as if terrified, as if she had even forgotten that the front door was open.</p>
 

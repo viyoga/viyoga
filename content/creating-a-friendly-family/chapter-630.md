@@ -4,15 +4,15 @@ weight = 630
 [extra]
 chapter = 630
 +++
-<p>「This is a command I'm giving to celebrate Mom truly becoming my slave, so listen!」</p>
+<p>"This is a command I'm giving to celebrate Mom truly becoming my slave, so listen!"</p>
 
-<p>「Go eat something delicious outside with Sehee, take your time shopping, and then come home! It doesn't matter if you're a bit late!」</p>
+<p>"Go eat something delicious outside with Sehee, take your time shopping, and then come home! It doesn't matter if you're a bit late!"</p>
 
 <p>Shiwoo spoke to her in a firm yet affectionate tone to soften Mom's stubbornness.</p>
 
 <p>Mom seemed to hesitate for a long while after seeing Shiwoo's command...</p>
 
-<p>「Understood. Since you're talking like that, Shiwoo... then I'll do as you say...」</p>
+<p>"Understood. Since you're talking like that, Shiwoo... then I'll do as you say..."</p>
 
 <p>Mom replied as if following Shiwoo's instructions, while still maintaining her dignity and face as a mother.</p>
 
@@ -38,35 +38,35 @@ chapter = 630
 
 <p>His firmly erect item swelled even more painfully, stretching the front of his pants and his waistline.</p>
 
-<p>「Mom! By any chance, are you still near the tattoo shop?」</p>
+<p>"Mom! By any chance, are you still near the tattoo shop?"</p>
 
 <p>Shiwoo asked as if confirming something that had just crossed his mind.</p>
 
-<p>「Yes... I'm still near the tattoo shop. Why?」</p>
+<p>"Yes... I'm still near the tattoo shop. Why?"</p>
 
 <p>Mom replied cautiously, as if slightly tensed by Shiwoo's words.</p>
 
-<p>「Mom! You said earlier that they sell SM tools at the tattoo shop, right?! Things like blindfolds, handcuffs, and whips?」</p>
+<p>"Mom! You said earlier that they sell SM tools at the tattoo shop, right?! Things like blindfolds, handcuffs, and whips?"</p>
 
 <p>Shiwoo asked Mom in a somewhat excited tone.</p>
 
-<p>「Yes... they were selling them... those kinds of things...」</p>
+<p>"Yes... they were selling them... those kinds of things..."</p>
 
 <p>Mom replied, her voice trailing off as if she felt an unknown anxiety at Shiwoo's question.</p>
 
-<p>「Was there anything like rope there?」</p>
+<p>"Was there anything like rope there?"</p>
 
 <p>Shiwoo asked, curling the corners of his mouth as if enjoying Mom's anxiety.</p>
 
-<p>「I don't know, I think there might have been... I don't remember it all... but why that?」</p>
+<p>"I don't know, I think there might have been... I don't remember it all... but why that?"</p>
 
 <p>Mom asked back, gauging Shiwoo's reaction.</p>
 
-<p>「I think we can do something more fun now Why don't you go back to the tattoo shop and ask if they have any ropes or restraints?」</p>
+<p>"I think we can do something more fun now Why don't you go back to the tattoo shop and ask if they have any ropes or restraints?"</p>
 
 <p>Shiwoo was now openly instructing Mom to go back to the tattoo shop and ask if they had the items he was looking for.</p>
 
-<p>「Ask? Go back there?」</p>
+<p>"Ask? Go back there?"</p>
 
 <p>Mom reacted as if troubled by Shiwoo's instruction.</p>
 
@@ -88,13 +88,13 @@ chapter = 630
 
 <p>After setting the vibrator to its operating state and holding it, Shiwoo opened the 1:1 chat with Mom again.</p>
 
-<p>「Hold Sehee's hand, go into the shop, and ask if they have ropes or restraints! Right now!」</p>
+<p>"Hold Sehee's hand, go into the shop, and ask if they have ropes or restraints! Right now!"</p>
 
 <p>Shiwoo spoke to Mom again, as if clearly organizing his instructions.</p>
 
 <p>The vibration of the smartphone Shiwoo was holding continued.</p>
 
-<p>「...Understood! I get it!」</p>
+<p>"...Understood! I get it!"</p>
 
 <p>After a short hesitation, Mom sent a reply to Shiwoo almost immediately.</p>
 
@@ -108,17 +108,17 @@ chapter = 630
 
 <p>Shiwoo stops the vibrator's operation after hearing Mom's answer.</p>
 
-<p>「I'll go in with Sehee right now and ask!」</p>
+<p>"I'll go in with Sehee right now and ask!"</p>
 
-<p>「Ropes and what? Restraints?」</p>
+<p>"Ropes and what? Restraints?"</p>
 
 <p>Mom sends a message as if actively participating in Shiwoo's plan and play, her tone laced with a strange passion.</p>
 
-<p>「Yeah! Ropes, restraints, and handcuffs! And ask what else they have! Listen to the explanations well and tell me right away! If you can take pictures, take them and send them!」</p>
+<p>"Yeah! Ropes, restraints, and handcuffs! And ask what else they have! Listen to the explanations well and tell me right away! If you can take pictures, take them and send them!"</p>
 
 <p>Shiwoo instructed the procedure in detail, as if assigning Mom a special task.</p>
 
-<p>「Yes! I'm back in front of the shop now. I'm right in front. I'll go in and ask!」</p>
+<p>"Yes! I'm back in front of the shop now. I'm right in front. I'll go in and ask!"</p>
 
 <p>Mom replied as if she had become an enthusiastic participant in the roleplay Shiwoo had created.</p>
 
@@ -154,7 +154,7 @@ chapter = 630
 
 <p>And the price tags for each item were photographed in close-up.</p>
 
-<p>「They have everything! Handcuffs, ropes, and even restraints to tie hands and feet...」</p>
+<p>"They have everything! Handcuffs, ropes, and even restraints to tie hands and feet..."</p>
 
 <p>It seemed Mom had gone back to that tattoo shop, which doubled as an adult toy store, and asked about the items for sale just as Shiwoo had instructed.</p>
 
@@ -182,25 +182,25 @@ chapter = 630
 
 <p>Just enough that he could easily buy them with the allowance he currently receives...</p>
 
-<p>「Not bad Then should we just buy the handcuffs, ropes, whip, and restraints all at once?」</p>
+<p>"Not bad Then should we just buy the handcuffs, ropes, whip, and restraints all at once?"</p>
 
 <p>Shiwoo spoke slyly, as if asking for her opinion while testing Mom's reaction.</p>
 
-<p>「All of... this?」</p>
+<p>"All of... this?"</p>
 
 <p>Mom reacted to Shiwoo's message as if swallowing some complex emotion.</p>
 
-<p>「Yeah, while we're buying them Let's buy blindfolds too, for Sehee and Seyoung...」</p>
+<p>"Yeah, while we're buying them Let's buy blindfolds too, for Sehee and Seyoung..."</p>
 
-<p>「Ah, and don't forget Sejin's! You pick the blindfold design, Mom!」</p>
+<p>"Ah, and don't forget Sejin's! You pick the blindfold design, Mom!"</p>
 
 <p>Shiwoo spoke to Mom as if making a natural, nonchalant decision.</p>
 
-<p>「Understood... Handcuffs, ropes, whip, and restraints... and for the blindfold designs, I'll pick them out and buy three, including Sehee, Seyoung, and Sejin's, right?」</p>
+<p>"Understood... Handcuffs, ropes, whip, and restraints... and for the blindfold designs, I'll pick them out and buy three, including Sehee, Seyoung, and Sejin's, right?"</p>
 
 <p>Mom replied as if submissively following Shiwoo's decision.</p>
 
-<p>「Right And since it'll be hard to carry them while shopping, tell them to send the items by courier!」</p>
+<p>"Right And since it'll be hard to carry them while shopping, tell them to send the items by courier!"</p>
 
 <p>Shiwoo followed up with calm instructions, conscious of Mom's reaction and state.</p>
 
@@ -208,12 +208,12 @@ chapter = 630
 
 <p>Then, after a short while, Mom's text came back.</p>
 
-<p>「The shop owner here asked us earlier...」</p>
+<p>"The shop owner here asked us earlier..."</p>
 
-<p>「If we have a separate Master...」</p>
+<p>"If we have a separate Master..."</p>
 
 <p>Mom spoke to Shiwoo as if revealing a cautious secret.</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
 <p>Shiwoo reacted as if a bit flustered by Mom's sudden words.</p>

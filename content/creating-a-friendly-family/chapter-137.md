@@ -4,7 +4,7 @@ weight = 137
 [extra]
 chapter = 137
 +++
-<p>「Slave contract, you put it in the briefcase, didn't you? Deliberately for Cheoljin to find and see?!」</p>
+<p>"Slave contract, you put it in the briefcase, didn't you? Deliberately for Cheoljin to find and see?!"</p>
 
 <p>Shiwoo continued to interrogate Gyuri Ajumma via text message.</p>
 
@@ -12,21 +12,21 @@ chapter = 137
 
 <p>Shiwoo now began to type a message, moving his hips very slowly back and forth.</p>
 
-<p>「You thought Cheoljin would brag about it to me? You knew it would be revealed from the start, didn't you?」</p>
+<p>"You thought Cheoljin would brag about it to me? You knew it would be revealed from the start, didn't you?"</p>
 
 <p>Shiwoo was now specifically confirming the situations he had been inferring in his mind, writing and sending them to Gyuri Ajumma.</p>
 
-<p>「Heeueu...eum」</p>
+<p>"Heeueu...eum"</p>
 
 <p>Gyuri Ajumma let out a moaning sound, as if responding to Shiwoo's movements.</p>
 
-<p>「Why? Did you want to advertise that you're a whore slave and lure young guys like that? You wanted to be fucked by kids much younger than you?」</p>
+<p>"Why? Did you want to advertise that you're a whore slave and lure young guys like that? You wanted to be fucked by kids much younger than you?"</p>
 
 <p>Shiwoo continued to move his hips, deliberately typing the message with one hand as if slandering Gyuri Ajumma.</p>
 
 <p>Shiwoo's cock was rubbing against the vaginal wall folds inside Gyuri Ajumma's vagina hole, slowly increasing its speed and pressure.</p>
 
-<p>「Haaaeueuk!」</p>
+<p>"Haaaeueuk!"</p>
 
 <p>Even before he made any full-fledged moves, Gyuri Ajumma reacted to Shiwoo's contemptuous, slanderous words.</p>
 
@@ -38,7 +38,7 @@ chapter = 137
 
 <p>The sound of Shiwoo's penis sliding into Gyuri Ajumma's vagina hole echoed dully, like a cavernous reverberation.</p>
 
-<p>「Haaat!」</p>
+<p>"Haaat!"</p>
 
 <p>Gyuri Ajumma, her head thrown back, let out a delayed moaning sound at Shiwoo's sudden movement.</p>
 
@@ -46,9 +46,9 @@ chapter = 137
 
 <p>-Chall-ssak!</p>
 
-<p>「Haat!」</p>
+<p>"Haat!"</p>
 
-<p>「You need to relax! If you keep moving like that because it hurts, I can't give you a proper massage. If anything's uncomfortable, you need to tell me right away, okay?」</p>
+<p>"You need to relax! If you keep moving like that because it hurts, I can't give you a proper massage. If anything's uncomfortable, you need to tell me right away, okay?"</p>
 
 <p>Shiwoo said, spanking Gyuri Ajumma's buttocks with a satisfying smack.</p>
 
@@ -60,7 +60,7 @@ chapter = 137
 
 <p>Gyuri Ajumma, her head bowed, hesitated for a moment before laboriously picking up her smartphone to type a message.</p>
 
-<p>「Only for you, Shiwoo. Because you, Shiwoo, need to know.」</p>
+<p>"Only for you, Shiwoo. Because you, Shiwoo, need to know."</p>
 
 <p>Gyuri Ajumma's message appeared in Shiwoo's smartphone chat window.</p>
 
@@ -70,15 +70,15 @@ chapter = 137
 
 <p>A faint tremor ran through Gyuri Ajumma's body after she sent the message.</p>
 
-<p>「That you're a whore? A slave? Why did I need to know that?」</p>
+<p>"That you're a whore? A slave? Why did I need to know that?"</p>
 
 <p>Shiwoo calmly moved his hips back and forth, writing and sending a text message to Gyuri Ajumma.</p>
 
-<p>「Because we promised!」</p>
+<p>"Because we promised!"</p>
 
 <p>Gyuri Ajumma's answer came back simply.</p>
 
-<p>「With whom? What promise?!」</p>
+<p>"With whom? What promise?!"</p>
 
 <p>At the word 'promise,' Shiwoo's hip movements began to quicken, as if slightly excited.</p>
 
@@ -90,7 +90,7 @@ chapter = 137
 
 <p>As the text grew long, Shiwoo slapped Gyuri Ajumma's buttocks with his palm as if urging an answer.</p>
 
-<p>「Heeueueut Heeueut」</p>
+<p>"Heeueueut Heeueut"</p>
 
 <p>Gyuri Ajumma was exhaling, as if sighing.</p>
 
@@ -102,31 +102,31 @@ chapter = 137
 
 <p>Shiwoo looked down at Gyuri Ajumma, who was typing a message with his cock still inserted, and spanked her at regular intervals.</p>
 
-<p>「Haat!」</p>
+<p>"Haat!"</p>
 
-<p>「Haaat!」</p>
+<p>"Haaat!"</p>
 
-<p>「Heueuk!」</p>
+<p>"Heueuk!"</p>
 
 <p>Gyuri Ajumma seemed to be having difficulty explaining something, repeatedly deleting the text written on the screen.</p>
 
 <p>After burying her head for a long time, Gyuri Ajumma's message finally came through, as if she had made up her mind.</p>
 
-<p>「You won't get angry at me, will you?」</p>
+<p>"You won't get angry at me, will you?"</p>
 
 <p>Gyuri Ajumma asked cautiously, seemingly worried about Shiwoo's reaction.</p>
 
 <p>-Chall-ssak!!</p>
 
-<p>「Heueut!」</p>
+<p>"Heueut!"</p>
 
 <p>-Chall-ssak!!</p>
 
-<p>「Haat!」</p>
+<p>"Haat!"</p>
 
 <p>-Chall-ssak!!</p>
 
-<p>「Haaaeut!」</p>
+<p>"Haaaeut!"</p>
 
 <p>Shiwoo's spanking continued, maintaining its rhythm.</p>
 
@@ -136,7 +136,7 @@ chapter = 137
 
 <p>—and as if expressing his resolve and vowing to maintain a fair attitude and stance as Gyuri Ajumma's master, no matter what had happened—</p>
 
-<p>「Huuu」</p>
+<p>"Huuu"</p>
 
 <p>In the midst of it all, Gyuri Ajumma took a deep breath, then searched for something on her smartphone.</p>
 
@@ -200,7 +200,7 @@ chapter = 137
 
 <p>Shiwoo's penis became fully engorged, and Gyuri Ajumma's pussy was stretched from within.</p>
 
-<p>「Haaaeut!」</p>
+<p>"Haaaeut!"</p>
 
 <p>Gyuri Ajumma moaned, feeling the pressure.</p>
 
@@ -216,19 +216,19 @@ chapter = 137
 
 <p>-Chall-ssak!!</p>
 
-<p>「Haaaeut!」</p>
+<p>"Haaaeut!"</p>
 
 <p>After striking her several times, seeing Gyuri Ajumma let out a long moan as if suffering in pain, Shiwoo felt a little calmer.</p>
 
-<p>「What is this?」</p>
+<p>"What is this?"</p>
 
 <p>Shiwoo calmed himself and typed a message to Gyuri Ajumma.</p>
 
-<p>「When your Mom was pregnant with you.」</p>
+<p>"When your Mom was pregnant with you."</p>
 
 <p>Gyuri Ajumma answered Shiwoo's question.</p>
 
-<p>「You married my Mom? You fucking bitches, exchanging rings?! You did this when I was in her womb?」</p>
+<p>"You married my Mom? You fucking bitches, exchanging rings?! You did this when I was in her womb?"</p>
 
 <p>Shiwoo cursed and typed the message, as if trying to quell the complex emotions surging within him.</p>
 
@@ -236,29 +236,29 @@ chapter = 137
 
 <p>-Chall-ssak!!</p>
 
-<p>「Heut!」</p>
+<p>"Heut!"</p>
 
 <p>Perhaps displeased with Gyuri Ajumma's answer by shaking her head instead of texting, Shiwoo struck Gyuri Ajumma's buttocks hard.</p>
 
-<p>「Aren't you going to answer properly?! Then what is it? Is my Mom also a slave bitch after all?」</p>
+<p>"Aren't you going to answer properly?! Then what is it? Is my Mom also a slave bitch after all?"</p>
 
 <p>Shiwoo's next message followed.</p>
 
-<p>「Not anymore!」</p>
+<p>"Not anymore!"</p>
 
 <p>Gyuri Ajumma quickly replied.</p>
 
-<p>「You could quit in the middle? If that's the case, why are you still doing this?」</p>
+<p>"You could quit in the middle? If that's the case, why are you still doing this?"</p>
 
-<p>「Originally, you couldn't quit! How can you say you'll do it first and then quit? After getting me pregnant...」</p>
+<p>"Originally, you couldn't quit! How can you say you'll do it first and then quit? After getting me pregnant..."</p>
 
-<p>「You said my Mom isn't anymore? You fucking bitch!」</p>
+<p>"You said my Mom isn't anymore? You fucking bitch!"</p>
 
 <p>-Chall-ssak!</p>
 
 <p>Shiwoo, feeling insulted by Gyuri Ajumma's contradictory words, flared up.</p>
 
-<p>「Your Dad passed away last year. So...」</p>
+<p>"Your Dad passed away last year. So..."</p>
 
 <p>Gyuri Ajumma, trembling as if she might get spanked more, continued to type without pause.</p>
 
@@ -268,17 +268,17 @@ chapter = 137
 
 <p>Does the master-slave relationship dissolve if one partner dies?</p>
 
-<p>「What is this wedding? Isn't it just some kind of play? You said Mom isn't a slave anymore, right? Then whatever it is, it shouldn't matter, should it? Why did you want to show me your slave contract?」</p>
+<p>"What is this wedding? Isn't it just some kind of play? You said Mom isn't a slave anymore, right? Then whatever it is, it shouldn't matter, should it? Why did you want to show me your slave contract?"</p>
 
 <p>Shiwoo, feeling anxious, poured out questions.</p>
 
 <p>Shiwoo was worried that this slave wedding might be some kind of ritual for exchanging slaves.</p>
 
-<p>「The wedding is real!」</p>
+<p>"The wedding is real!"</p>
 
 <p>Gyuri Ajumma's text message seemed to stab uncomfortably at Shiwoo's chest.</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
 <p>Shiwoo's heart began to pound violently, and cold sweat broke out.</p>
 

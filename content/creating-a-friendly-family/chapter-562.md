@@ -6,39 +6,39 @@ chapter = 562
 +++
 <p>Judging from Seyoung's moans in the video, it seemed that the video was being filmed around the time Shiwoo started thrusting his hips after inserting into Seyoung.</p>
 
-<p>「Look here! You know all this is because of you, right?」</p>
+<p>"Look here! You know all this is because of you, right?"</p>
 
 <p>Sehee Nuna listens to the moans coming from Seyoung's room, points the camera, and questions Mom as if stimulating her guilt.</p>
 
 <p>Mom avoids eye contact as if feeling guilty at Sehee Nuna's words and can't answer properly.</p>
 
-<p>「Earlier, you took Master's semen into your mouth and mixed it into the curry to feed us, right? How could you, as a Mom, do such a thing to your own daughters?」</p>
+<p>"Earlier, you took Master's semen into your mouth and mixed it into the curry to feed us, right? How could you, as a Mom, do such a thing to your own daughters?"</p>
 
 <p>Sehee Nuna continues to corner Mom with a sharp voice, as if constantly reproaching her.</p>
 
 <p>In the video, Sehee Nuna's title for Shiwoo naturally changes to Master.</p>
 
-<p>「Th-that... that's because... Mom couldn't help it... Sehee, you know... I was just following orders...」</p>
+<p>"Th-that... that's because... Mom couldn't help it... Sehee, you know... I was just following orders..."</p>
 
 <p>Mom speaks to Sehee Nuna in a barely audible voice, hesitating and making excuses.</p>
 
-<p>「Ha-! Are you blaming our Master now?」</p>
+<p>"Ha-! Are you blaming our Master now?"</p>
 
 <p>Sehee Nuna expresses her criticism with a sigh of ridicule at Mom's absurd excuse that seems to shift responsibility to Shiwoo.</p>
 
-<p>「I'm not... not blaming him...」</p>
+<p>"I'm not... not blaming him..."</p>
 
 <p>Mom continues her excuses as if intimidated by Sehee Nuna's voice and words.</p>
 
-<p>「Tss!」</p>
+<p>"Tss!"</p>
 
 <p>Sehee Nuna makes a threatening sound as she inhales.</p>
 
-<p>「Heut...」</p>
+<p>"Heut..."</p>
 
 <p>Mom reacts to Sehee Nuna's sound and flinches for a moment.</p>
 
-<p>「Seonmi! Even if it's Master's order! You secretly did all those things to us, and now you're pretending to worry about it alone? Honestly, it's really funny, you know?」</p>
+<p>"Seonmi! Even if it's Master's order! You secretly did all those things to us, and now you're pretending to worry about it alone? Honestly, it's really funny, you know?"</p>
 
 <p>Sehee Nuna says to Mom with a feigned sense of resentment, speaking sarcastically.</p>
 
@@ -46,15 +46,15 @@ chapter = 562
 
 <p>The moaning sound continues intermittently from Seyoung's room.</p>
 
-<p>「Seyoung is like that, and you're okay with it? Do you even have a sense of being a Mom? Do you even want to be a Mom now?」</p>
+<p>"Seyoung is like that, and you're okay with it? Do you even have a sense of being a Mom? Do you even want to be a Mom now?"</p>
 
 <p>Sehee Nuna speaks to her in a slightly agitated voice, as if doubting and undermining Mom's authority and qualifications.</p>
 
-<p>「Heeeuuuuuh...」</p>
+<p>"Heeeuuuuuh..."</p>
 
 <p>Mom groans as if feeling sorrow at Sehee Nuna's words that painfully pierce her heart.</p>
 
-<p>「The truth is, you're enjoying it! Aren't you just continuing to take such an ambiguous attitude, hoping that Master and the other family members will push you according to your inclinations?」</p>
+<p>"The truth is, you're enjoying it! Aren't you just continuing to take such an ambiguous attitude, hoping that Master and the other family members will push you according to your inclinations?"</p>
 
 <p>Sehee Nuna asks in a cold and ruthless voice, as if she sees through Mom's inclinations and true intentions.</p>
 
@@ -72,7 +72,7 @@ chapter = 562
 
 <p>Mom trembles slightly at the gentle touch of her daughter, who had been harshly scolding her and driving her into a corner until just now.</p>
 
-<p>「Hic...heeeuuuuh...heeuung...hic...」</p>
+<p>"Hic...heeeuuuuh...heeuung...hic..."</p>
 
 <p>Mom suddenly starts sobbing sorrowfully...</p>
 
@@ -80,37 +80,37 @@ chapter = 562
 
 <p>Sehee Nuna watches Mom like that for a moment.</p>
 
-<p>「Aigoo It's okay, it's okay Don't cry」</p>
+<p>"Aigoo It's okay, it's okay Don't cry"</p>
 
 <p>Sehee Nuna sighs as if she can't help it and soothes Mom as she sees her crying.</p>
 
-<p>「I'll help you... It can't be helped now. I know how you feel, too...」</p>
+<p>"I'll help you... It can't be helped now. I know how you feel, too..."</p>
 
 <p>Sehee Nuna sighs and speaks in a soft voice, this time stroking Mom's back as if comforting her.</p>
 
 <p>Mom was staring at the camera Sehee Nuna was holding with pitiful eyes.</p>
 
-<p>「Okay! We have to go in now! Master might scold us if we're late, so let's clean up here later!」</p>
+<p>"Okay! We have to go in now! Master might scold us if we're late, so let's clean up here later!"</p>
 
 <p>Sehee Nuna speaks as if urging Mom, comforting her like a child.</p>
 
 <p>Mom sniffles and nods at Sehee Nuna's words.</p>
 
-<p>「And apart from deciding what to do when we're all together in the future, when we do this kind of thing together, use honorifics to me like you do to Master. It'll be easier for you if you're going to do it anyway, right, Seonmi?」</p>
+<p>"And apart from deciding what to do when we're all together in the future, when we do this kind of thing together, use honorifics to me like you do to Master. It'll be easier for you if you're going to do it anyway, right, Seonmi?"</p>
 
 <p>Sehee Nuna suggests in a soft voice, as if trying to get Mom's consent.</p>
 
-<p>「Yes...yes...I understand...hic...」</p>
+<p>"Yes...yes...I understand...hic..."</p>
 
 <p>Mom is answering with honorifics, sniffling at Sehee Nuna's soft yet firm request.</p>
 
 <p>Mom was answering without any resistance or refutation to her daughter, who calls Shiwoo Master and calls her by her first name without honorifics.</p>
 
-<p>「Call me 'Little Master' or 'Sehee-nim'... I'm going to call Mom by her name now too...」</p>
+<p>"Call me 'Little Master' or 'Sehee-nim'... I'm going to call Mom by her name now too..."</p>
 
 <p>Sehee Nuna's additional requests follow with a smile.</p>
 
-<p>「Heut...yes...I'll do that... Little Master...」</p>
+<p>"Heut...yes...I'll do that... Little Master..."</p>
 
 <p>Mom answers with a dazed expression, her eyes moist and unfocused.</p>
 
@@ -136,7 +136,7 @@ chapter = 562
 
 <p>It was a vibrator that Sehee Nuna had attached to Mom as soon as she arrived in the master bedroom.</p>
 
-<p>「Haaah...haaa...haaaaaaaah...」</p>
+<p>"Haaah...haaa...haaaaaaaah..."</p>
 
 <p>Mom is exhaling with difficulty, as if enduring the stimulation felt in her crotch.</p>
 
@@ -146,11 +146,11 @@ chapter = 562
 
 <p>Sehee Nuna then climbs onto the bed and enters between Mom's spread legs, kneeling.</p>
 
-<p>「I'm going to start... from the right...」</p>
+<p>"I'm going to start... from the right..."</p>
 
 <p>Sehee Nuna says, looking down at Mom's twitching buttocks.</p>
 
-<p>「Yes...Little Master...please start...」</p>
+<p>"Yes...Little Master...please start..."</p>
 
 <p>Mom answers with her face buried in the pillow.</p>
 
@@ -158,7 +158,7 @@ chapter = 562
 
 <p>Sehee Nuna lowers her upper body and brings her lips to Mom's buttocks.</p>
 
-<p>「Chwileop chwaap chwuum...」</p>
+<p>"Chwileop chwaap chwuum..."</p>
 
 <p>Sehee Nuna starts licking the curry on Mom's buttocks with her tongue.</p>
 
@@ -166,11 +166,11 @@ chapter = 562
 
 <p>Mom was wiggling her body, shaking her pelvis and waist up and down slightly, tensing the muscles of her buttocks.</p>
 
-<p>「Relax! It's hard to suck if you move like that!」</p>
+<p>"Relax! It's hard to suck if you move like that!"</p>
 
 <p>Sehee Nuna takes her lips off Mom's buttocks when her buttock muscles twitch and says as if expressing dissatisfaction.</p>
 
-<p>「Haaaeung...haaaaa...yes...haaaeeuh...I'm, I'm sorry.」</p>
+<p>"Haaaeung...haaaaa...yes...haaaeeuh...I'm, I'm sorry."</p>
 
 <p>Mom apologized to Sehee Nuna, breathing heavily as if it was difficult.</p>
 
@@ -180,7 +180,7 @@ chapter = 562
 
 <p>Sehee Nuna, having confirmed Mom's condition and reaction, brings her lips to her buttocks again.</p>
 
-<p>「Chwileop chwileop hoooeup...soooeup」</p>
+<p>"Chwileop chwileop hoooeup...soooeup"</p>
 
 <p>Sehee Nuna's tongue was sweeping deeply into Mom's buttocks, which seemed to have softened as the tension was released.</p>
 
@@ -188,7 +188,7 @@ chapter = 562
 
 <p>Mom's body trembles as if enduring the stimulation of Sehee Nuna's tongue and lips, which are deeply pressed into the flesh of her buttocks.</p>
 
-<p>「Gulp gulp gulp」</p>
+<p>"Gulp gulp gulp"</p>
 
 <p>The filth in her mouth slowly passed into Sehee Nuna's throat.</p>
 
@@ -198,7 +198,7 @@ chapter = 562
 
 <p>The curry that was on Mom's buttock cheeks seemed to have been wiped clean by Sehee Nuna's lips and tongue.</p>
 
-<p>「Now I'm going to wipe what's in the crevice... Can you lift your buttocks back like this a little?」</p>
+<p>"Now I'm going to wipe what's in the crevice... Can you lift your buttocks back like this a little?"</p>
 
 <p>Sehee Nuna commands, touching Mom's pelvis with a calm voice.</p>
 
@@ -208,11 +208,11 @@ chapter = 562
 
 <p>Mom stiffens her body as if nervous, bending her waist back and lifting her pelvis slightly.</p>
 
-<p>「Don't tense up! It might not be cleaned properly all the way inside...!」</p>
+<p>"Don't tense up! It might not be cleaned properly all the way inside...!"</p>
 
 <p>Sehee Nuna speaks to Mom in a solemn yet firm voice, as if giving her a warning.</p>
 
-<p>「Yes...yes...! I'll...I'll be careful...」</p>
+<p>"Yes...yes...! I'll...I'll be careful..."</p>
 
 <p>Mom answered in a trembling voice to Sehee Nuna's warning.</p>
 
@@ -228,23 +228,23 @@ chapter = 562
 
 <p>Tears of listless resignation and regret are flowing down Mom's eyes.</p>
 
-<p>「So...does it feel like things are getting sorted out a bit? What do you want to do now? Have you made a decision in your heart while you were with me?」</p>
+<p>"So...does it feel like things are getting sorted out a bit? What do you want to do now? Have you made a decision in your heart while you were with me?"</p>
 
 <p>Sehee Nuna looks down at Mom and asks as if urging her to answer.</p>
 
-<p>「Se...Sehee-ya...but...that's...haa...Mom...not yet...」</p>
+<p>"Se...Sehee-ya...but...that's...haa...Mom...not yet..."</p>
 
 <p>Mom looks up at Sehee Nuna behind the camera and answers, trailing off as if troubled.</p>
 
-<p>「Do you still want to be 'Mom'? You just leave Seyoung doing that with Master, and you've done all these things with me by Master's orders, and now do you even have a sense of being 'Mom'?」</p>
+<p>"Do you still want to be 'Mom'? You just leave Seyoung doing that with Master, and you've done all these things with me by Master's orders, and now do you even have a sense of being 'Mom'?"</p>
 
 <p>Again, before starting the act, Sehee Nuna repeats the question she asked at the beginning, driving Mom into a corner.</p>
 
-<p>「Heeeuuuuuh...hic...hic....so...I...how...can I decide such a thing...heeeuh...still, I've lived as your Mom until now...heeeuh..」</p>
+<p>"Heeeuuuuuh...hic...hic....so...I...how...can I decide such a thing...heeeuh...still, I've lived as your Mom until now...heeeuh.."</p>
 
 <p>Mom says to Sehee Nuna with a distorted face and a sobbing voice.</p>
 
-<p>「Hic...heut...to tell me...to decide this...it's too cruel...heeeuh...hic...hic...heeeuh..」</p>
+<p>"Hic...heut...to tell me...to decide this...it's too cruel...heeeuh...hic...hic...heeeuh.."</p>
 
 <p>Mom shrinks her body, which still hasn't cooled down from the afterglow and heat of pleasure, covers her face with her palms, and sobs as if choked up.</p>
 
@@ -258,7 +258,7 @@ chapter = 562
 
 <p>Sehee Nuna seems to have thrown the recording smartphone camera onto the bed and is taking some action.</p>
 
-<p>「Okay, okay I'll wait until Mom is ready... Master will probably understand too... I'll help you, so don't worry!」</p>
+<p>"Okay, okay I'll wait until Mom is ready... Master will probably understand too... I'll help you, so don't worry!"</p>
 
 <p>Sehee Nuna's gentle voice is heard from the black screen, comforting Mom.</p>
 
@@ -266,17 +266,17 @@ chapter = 562
 
 <p>The sound of stroking her body is heard, along with Mom's breathing, sobbing and relieved.</p>
 
-<p>「Okay, now we have to clean up! The panties were supposed to be hanging in the middle of your thighs, right? Okay, put your legs together! I'll put them on for you!」</p>
+<p>"Okay, now we have to clean up! The panties were supposed to be hanging in the middle of your thighs, right? Okay, put your legs together! I'll put them on for you!"</p>
 
 <p>Sehee Nuna seems to be talking to her as she puts Mom's panties on.</p>
 
-<p>「And I'll stick this back on! Master might use it, so keep it on all day today! If the battery runs out, Seonmi, you have to charge it and stick it back on! Got it?」</p>
+<p>"And I'll stick this back on! Master might use it, so keep it on all day today! If the battery runs out, Seonmi, you have to charge it and stick it back on! Got it?"</p>
 
 <p>Sehee Nuna then commands Mom in a solemn yet gentle voice.</p>
 
 <p>Sehee Nuna is probably talking while picking up the vibrator.</p>
 
-<p>「Yes, yes...Master...」</p>
+<p>"Yes, yes...Master..."</p>
 
 <p>Mom answers Sehee Nuna with a subdued and wet voice.</p>
 
@@ -338,7 +338,7 @@ chapter = 562
 
 <p>Apart from the dog collar, panties, and vibrator, she was not wearing any other clothes.</p>
 
-<p>「Haaaaaa....haaa....haaaeeuh...haaaa...」</p>
+<p>"Haaaaaa....haaa....haaaeeuh...haaaa..."</p>
 
 <p>A rough breath, as if overwhelmed by pleasure, was coming out of her mouth.</p>
 
@@ -382,7 +382,7 @@ chapter = 562
 
 <p>Mom was breathing roughly through her nose.</p>
 
-<p>「Twae! Twae! Twat!」</p>
+<p>"Twae! Twae! Twat!"</p>
 
 <p>Seyoung, after transferring almost all of the semen in her mouth to Mom's mouth, spits out the remaining semen residue on Mom's face as if spitting.</p>
 
@@ -396,7 +396,7 @@ chapter = 562
 
 <p>Seyoung brings her face close to Mom's face.</p>
 
-<p>「Kiss!」</p>
+<p>"Kiss!"</p>
 
 <p>Seyoung suddenly matches her lips to Mom's lips.</p>
 
@@ -404,7 +404,7 @@ chapter = 562
 
 <p>Seyoung, after kissing Mom, raises her upper body and looks down at Mom as she is.</p>
 
-<p>「Don't swallow or spill it! Got it?!」</p>
+<p>"Don't swallow or spill it! Got it?!"</p>
 
 <p>Seyoung said as if directly warning Mom.</p>
 
@@ -414,7 +414,7 @@ chapter = 562
 
 <p>Seyoung reaches out her hand to Mom's head and strokes her hair as if tidying it up.</p>
 
-<p>「Heeeuuuuehm...」</p>
+<p>"Heeeuuuuehm..."</p>
 
 <p>Mom's breath was exhaled long and heavily.</p>
 

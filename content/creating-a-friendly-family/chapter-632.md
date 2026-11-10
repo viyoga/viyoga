@@ -4,17 +4,17 @@ weight = 632
 [extra]
 chapter = 632
 +++
-<p>「Mom, then have a good shopping trip with Sehee I'll forgive you for cheating with Sehee just for today. Report to me separately later if anything happens! ㅎㅎㅎ」</p>
+<p>"Mom, then have a good shopping trip with Sehee I'll forgive you for cheating with Sehee just for today. Report to me separately later if anything happens! ㅎㅎㅎ"</p>
 
 <p>Shiwoo sends the text to Mom as if leaving a final, playful greeting.</p>
 
-<p>「Shiwoo, you make sure to eat well with Seyoung! Don't think about just filling up on bread or something just because you're eating out! Watch out for the night roads! It's still cold at night, so don't wander around until late and come home early!」</p>
+<p>"Shiwoo, you make sure to eat well with Seyoung! Don't think about just filling up on bread or something just because you're eating out! Watch out for the night roads! It's still cold at night, so don't wander around until late and come home early!"</p>
 
 <p>In response to Shiwoo's mischievous words, Mom replied like she was nagging, without being greatly agitated or rebelling this time.</p>
 
 <p>Did she think that reacting to Shiwoo's wicked jokes would only build up unnecessary fatigue? Or did it mean she was now leaving open a positive possibility regarding the specific situation with Sehee Nuna that Shiwoo mentioned?</p>
 
-<p>「Got it I love you.」</p>
+<p>"Got it I love you."</p>
 
 <p>Shiwoo stops teasing Mom playfully and conveys his heart to her as if shyly confessing his sincere feelings.</p>
 
@@ -22,17 +22,17 @@ chapter = 632
 
 <p>After reading Shiwoo's text, Mom didn't reply for a while, as if lost in deep thought. Like she was taking time to solidify her conviction regarding the decision she finally made amidst conflicting emotions...</p>
 
-<p>「...Seonmi-ya?」</p>
+<p>"...Seonmi-ya?"</p>
 
 <p>When the silence grew long, Shiwoo cautiously tried calling Mom's name.</p>
 
 <p>And then, a long while later...</p>
 
-<p>「I'm going to do whatever I want today! I don't care what happens later! Don't say anything else later!」</p>
+<p>"I'm going to do whatever I want today! I don't care what happens later! Don't say anything else later!"</p>
 
 <p>Mom sent a text to Shiwoo as if revealing the conclusion she had reached after a long hesitation. Like a declaration of deviance, it was a line from Mom that felt as if she had crossed a certain boundary at the edge of a cliff by herself.</p>
 
-<p>「Mom... loves you too... Yu Shiwoo... of course I do! Since things have already come to this!」</p>
+<p>"Mom... loves you too... Yu Shiwoo... of course I do! Since things have already come to this!"</p>
 
 <p>And then, as if adding an unfamiliar weight, Mom added his surname before Shiwoo's name, conveying a different kind of emotion she hadn't been able to express until now.</p>
 
@@ -66,7 +66,7 @@ chapter = 632
 
 <p>The hand Shiwoo held his smartphone with trembled minutely with arousal and bewilderment. And not long after, a text arrived from Sehee Nuna.</p>
 
-<p>「Seonmi told me to tell Master... that we might be a bit late coming home today...」</p>
+<p>"Seonmi told me to tell Master... that we might be a bit late coming home today..."</p>
 
 <p>Sehee Nuna sent a text to Shiwoo conveying Mom's words as if leaving a lingering feeling and an implication. A heartbeat so intense it felt like he was running out of breath dug deep into Shiwoo's inner self once again.</p>
 
@@ -86,25 +86,25 @@ chapter = 632
 
 <p>Before he knew it, the train arrived at the subway station near the magic academy. Checking the time, there seemed to be a bit of leeway until Seyoung finished her academy session.</p>
 
-<p>「I went to Sejin Nuna's house, and now I've arrived at the station near the academy.」</p>
+<p>"I went to Sejin Nuna's house, and now I've arrived at the station near the academy."</p>
 
 <p>Shiwoo sends a text to Seyoung informing her of his arrival. A moment later, a text arrives from Seyoung.</p>
 
-<p>「Oh, you're early? Did things go well with Sejin Eonni?」</p>
+<p>"Oh, you're early? Did things go well with Sejin Eonni?"</p>
 
 <p>Seyoung asks as if curious about Shiwoo going to Sejin Nuna's officetel today.</p>
 
-<p>「Yeah! All the talking is finished... Sejin Nuna might come back home soon...」</p>
+<p>"Yeah! All the talking is finished... Sejin Nuna might come back home soon..."</p>
 
 <p>Shiwoo tells Seyoung as if informing her of the result of his visit to Sejin Nuna's house.</p>
 
-<p>「Really? That's great! Hehe I'm in class It'll be over in a bit!」</p>
+<p>"Really? That's great! Hehe I'm in class It'll be over in a bit!"</p>
 
-<p>「Do you want to go to the cafe in the basement of the academy? Let's eat ice cream later! With Sua!」</p>
+<p>"Do you want to go to the cafe in the basement of the academy? Let's eat ice cream later! With Sua!"</p>
 
 <p>Seyoung replied with an excited reaction as if she was happy that Shiwoo had come to pick her up.</p>
 
-<p>「Got it! I'll be down there! Text me as soon as class is over!」</p>
+<p>"Got it! I'll be down there! Text me as soon as class is over!"</p>
 
 <p>After checking Seyoung's reply, Shiwoo began walking toward the academy building. The things that happened with Sejin Nuna and the conversation he shared with Mom kept swirling in his head.</p>
 

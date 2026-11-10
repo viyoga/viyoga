@@ -10,7 +10,7 @@ chapter = 700
 
 <p>Then, Shiwoo yanked it upward as if he were fishing.</p>
 
-<p>「Haaaaaaat!」</p>
+<p>"Haaaaaaat!"</p>
 
 <p>Sehee-nuna's lip was pulled upward, her face contorting into a pained moan and expression.</p>
 
@@ -22,7 +22,7 @@ chapter = 700
 
 <p>Shiwoo let go of the lip he was holding with his toes and placed his foot on top of her head.</p>
 
-<p>「You fucking bitch, it's your turn now, so get ready!」</p>
+<p>"You fucking bitch, it's your turn now, so get ready!"</p>
 
 <p>Shiwoo spoke while grinding his foot into Sehee-nuna's head.</p>
 
@@ -34,7 +34,7 @@ chapter = 700
 
 <p>Trembling between the crushing weight and the constriction, Sehee-nuna seemed to fall into a contradictory sensation.</p>
 
-<p>「Huuuuuuk... Master... Hauuuuk...」</p>
+<p>"Huuuuuuk... Master... Hauuuuk..."</p>
 
 <p>At some point, a sobbing sound escaped her mouth.</p>
 
@@ -44,7 +44,7 @@ chapter = 700
 
 <p>Shiwoo took his stance and lashed her buttocks, which were thrust toward the ceiling, with his palm.</p>
 
-<p>「Hauuuut!」</p>
+<p>"Hauuuut!"</p>
 
 <p>Sehee-nuna moaned piteously as if in pain.</p>
 
@@ -66,7 +66,7 @@ chapter = 700
 
 <p>Then, he fitted the tip of his tilted penis between her crack.</p>
 
-<p>「Hauuuum..!」</p>
+<p>"Hauuuum..!"</p>
 
 <p>As the flesh of the tip of Shiwoo's penis caught between the crack, Sehee-nuna let out a moan that seemed like a mix of burden, fluttering excitement, and tension.</p>
 
@@ -78,7 +78,7 @@ chapter = 700
 
 <p>Pulling Sehee-nuna's pelvis toward him, he thrust his penis into her tightly constricted vagina hole.</p>
 
-<p>「Haaaat..!」</p>
+<p>"Haaaat..!"</p>
 
 <p>Accepting Shiwoo's massive penis as it pushed in with difficulty, Sehee-nuna let out a moan with her face buried in the floor.</p>
 
@@ -90,15 +90,15 @@ chapter = 700
 
 <p>After matching the appropriate depth of his penis and the height of her pelvis, Shiwoo suddenly lashed Sehee-nuna's buttocks hard.</p>
 
-<p>「Hauut!」</p>
+<p>"Hauut!"</p>
 
 <p>Sehee-nuna flinched and moaned as if startled.</p>
 
-<p>「Get up and stand on all fours! How long is this fucking bitch going to stay sprawled out?!」</p>
+<p>"Get up and stand on all fours! How long is this fucking bitch going to stay sprawled out?!"</p>
 
 <p>Shiwoo shouted at her coercively.</p>
 
-<p>「Hau... yes... yes... Master...」</p>
+<p>"Hau... yes... yes... Master..."</p>
 
 <p>Sehee-nuna propped up her arms and lifted her face from the living room floor.</p>
 
@@ -108,7 +108,7 @@ chapter = 700
 
 <p>Shiwoo gripped the leash short and snapped his waist forward as if stabbing.</p>
 
-<p>「Haut!」</p>
+<p>"Haut!"</p>
 
 <p>Sehee-nuna lost her balance and collapsed forward again.</p>
 
@@ -116,7 +116,7 @@ chapter = 700
 
 <p>Shiwoo's palm fell upon her buttocks again.</p>
 
-<p>「Hauuuung, ha-ang, hauuut.」</p>
+<p>"Hauuuung, ha-ang, hauuut."</p>
 
 <p>Sehee-nuna swallowed short moans, her throat vibrating.</p>
 
@@ -126,11 +126,11 @@ chapter = 700
 
 <p>Chul-keok, chul-geok! Jul-keok!</p>
 
-<p>「Walk forward! To the sofa!」</p>
+<p>"Walk forward! To the sofa!"</p>
 
 <p>Shiwoo commanded, shoving his penis into Sehee-nuna's vaginal opening.</p>
 
-<p>「Yes... huu... haut...」</p>
+<p>"Yes... huu... haut..."</p>
 
 <p>Sehee-nuna crawled on her elbows across the floor, walking forward as if obeying Shiwoo's command.</p>
 
@@ -140,15 +140,15 @@ chapter = 700
 
 <p>Shiwoo lashed her buttocks again.</p>
 
-<p>「Huuuut!」</p>
+<p>"Huuuut!"</p>
 
 <p>Sehee-nuna's shoulders jerked and her neck shrunk as if she didn't know why.</p>
 
-<p>「Straighten your arms! And you should lift your head!」</p>
+<p>"Straighten your arms! And you should lift your head!"</p>
 
 <p>Shiwoo said, pulling her purple collar tight as if he wouldn't give her even a moment to release the tension.</p>
 
-<p>「Yes... hau... I'm sorry...」</p>
+<p>"Yes... hau... I'm sorry..."</p>
 
 <p>Sehee-nuna was struggling to lift her head while sprawled out.</p>
 
@@ -184,7 +184,7 @@ chapter = 700
 
 <p>Mom's elastic breasts shook like waves.</p>
 
-<p>「Haa... hau... haaa...」</p>
+<p>"Haa... hau... haaa..."</p>
 
 <p>Mom let out exhausted gasps, her body twitching.</p>
 
@@ -194,7 +194,7 @@ chapter = 700
 
 <p>Passing the slightly fleshy belly and the Dantian, the remote was being playfully tapped by Seyoung over the skin of the plump, gathered, wet groin.</p>
 
-<p>「Haut, haaaat, haaaa... hup...」</p>
+<p>"Haut, haaaat, haaaa... hup..."</p>
 
 <p>Whether Mom had heard some caution or warning from Seyoung, she didn't even think of stopping Seyoung's remote as it went down to her groin; she just spread her legs slightly, took the impact, and let out suppressed moans.</p>
 
@@ -202,7 +202,7 @@ chapter = 700
 
 <p>Shiwoo's item throbbed and writhed inside Sehee-nuna, adding a tingling pressure.</p>
 
-<p>「Huuuuuuuut!」</p>
+<p>"Huuuuuuuut!"</p>
 
 <p>Sehee-nuna moaned, her whole body stiffening with unbearable tension as she momentarily stopped walking.</p>
 
@@ -212,7 +212,7 @@ chapter = 700
 
 <p>Dropping her head to the floor again, Sehee-nuna collapsed forward with her buttocks thrust up.</p>
 
-<p>「Hauuung, haaaa, haaaaaat!」</p>
+<p>"Hauuung, haaaa, haaaaaat!"</p>
 
 <p>In the midst of tension and confusion, Sehee-nuna sobbed like a moan, gasping for breath.</p>
 
@@ -230,9 +230,9 @@ chapter = 700
 
 <p>The alien sound of a plastic rod being inserted into tender clam meat echoed strangely.</p>
 
-<p>「Ha-ang, haaaa, haaaat!」</p>
+<p>"Ha-ang, haaaa, haaaat!"</p>
 
-<p>「Hau, ha-am... hauuuuu!」</p>
+<p>"Hau, ha-am... hauuuuu!"</p>
 
 <p>The subtle tension and trembling spreading through Mom and Sehee-nuna's moans and breaths surged and resonated like ripples across the living room space.</p>
 

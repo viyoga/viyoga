@@ -6,7 +6,7 @@ chapter = 633
 +++
 <p>Shiwoo passed through the wide central lobby and, before reaching the hallway with the elevators, turned his steps toward the stairs.</p>
 
-<p>The standing signboard placed between the stairs and the railing looked like something that might have stood in front of an old medieval inn or a general store. Iron decorations were densely embedded into the blackened wooden board, and the sharply curved metal frame exuded an atmosphere that was both classical and sophisticated. Upon it, the business name 『The Witch and the Cats』 was engraved in Gothic-style gold lettering, with decorations that looked like melted red wax flowing along the edges.</p>
+<p>The standing signboard placed between the stairs and the railing looked like something that might have stood in front of an old medieval inn or a general store. Iron decorations were densely embedded into the blackened wooden board, and the sharply curved metal frame exuded an atmosphere that was both classical and sophisticated. Upon it, the business name "The Witch and the Cats" was engraved in Gothic-style gold lettering, with decorations that looked like melted red wax flowing along the edges.</p>
 
 <p>Below that, a large, thick board had been attached. Various recommended drinks and desserts were charmingly decorated with chalk on the black-painted board, making it look like an information board for a tea house in a fairy tale.</p>
 

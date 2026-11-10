@@ -26,7 +26,7 @@ chapter = 162
 
 <p>Sehee-nuna leaned her head forward and licked at the connected area where Shiwoo and Seonju Imo were joined, as if tickling it.</p>
 
-<p>「Heu-eut!」</p>
+<p>"Heu-eut!"</p>
 
 <p>Seonju Imo trembled and moaned at Sehee-nuna's tongue stimulation, which reached her once again.</p>
 
@@ -100,7 +100,7 @@ chapter = 162
 
 <p>Shiwoo approached Sehee-nuna and Seonju Imo, who were piled on top of each other in a strange position.</p>
 
-<p>「Seonju Imo! Seonju Imo?!」</p>
+<p>"Seonju Imo! Seonju Imo?!"</p>
 
 <p>First, Shiwoo shook Seonju Imo's body, which was lying face down on top, to wake her.</p>
 
@@ -110,21 +110,21 @@ chapter = 162
 
 <p>With the intention of waking Seonju Imo, Shiwoo raised his hand and slapped Seonju Imo's defenseless buttocks hard.</p>
 
-<p>「Haa-eut!!」</p>
+<p>"Haa-eut!!"</p>
 
 <p>Instantly, Seonju Imo let out a moan and trembled violently as if suddenly coming to her senses.</p>
 
-<p>「You need to get up You'll be suffocated under Sehee-nuna!」</p>
+<p>"You need to get up You'll be suffocated under Sehee-nuna!"</p>
 
 <p>Shiwoo then tapped Seonju Imo's buttocks, speaking as if gently instructing her.</p>
 
-<p>「Heu-eu...Heu-eung!」</p>
+<p>"Heu-eu...Heu-eung!"</p>
 
 <p>Though it was a light touch, Seonju Imo felt a sharp pain from Shiwoo's hand touching her sensitively swollen buttocks flesh.</p>
 
 <p>Seonju Imo was reacting to Shiwoo's touch, letting out a moaning sound as if complaining of pain.</p>
 
-<p>「My...my body doesn't have strength...it won't go in...Master-nim! Heu-eu...」</p>
+<p>"My...my body doesn't have strength...it won't go in...Master-nim! Heu-eu..."</p>
 
 <p>Seonju Imo was struggling to raise her body, but it seemed she couldn't exert much strength.</p>
 
@@ -158,23 +158,23 @@ chapter = 162
 
 <p>Shiwoo's smartphone and the vibrator were vibrating at a weak intensity.</p>
 
-<p>「Haa-eueueu...」</p>
+<p>"Haa-eueueu..."</p>
 
 <p>Seonju Imo's regretful moaning sound.</p>
 
-<p>「Seonju, from now on, you'll carry this inside you! Whether you're at home with the kids or out working, it doesn't matter! Always! Keep it charged on time! Understood?!」</p>
+<p>"Seonju, from now on, you'll carry this inside you! Whether you're at home with the kids or out working, it doesn't matter! Always! Keep it charged on time! Understood?!"</p>
 
 <p>Shiwoo commanded in a resolute tone, inserting his finger between the crevice as if checking the state of the vibrator vibrating inside Seonju Imo's vaginal opening.</p>
 
-<p>「Yes...I...I'll do that, Master-nim Haa...」</p>
+<p>"Yes...I...I'll do that, Master-nim Haa..."</p>
 
 <p>Seonju Imo answered submissively.</p>
 
-<p>「But can you move?」</p>
+<p>"But can you move?"</p>
 
 <p>Shiwoo observed Seonju Imo's condition and spoke.</p>
 
-<p>「If I...if I rest just a little, I think I'll be fine. Heu-eueu...」</p>
+<p>"If I...if I rest just a little, I think I'll be fine. Heu-eueu..."</p>
 
 <p>Seonju Imo answered, with both arms raised as if covering her face, as if it was hard to endure.</p>
 
@@ -182,19 +182,19 @@ chapter = 162
 
 <p>Shiwoo, just for the sake of it, slapped Seonju Imo's buttocks hard once more, below her raised knees as she lay on her back.</p>
 
-<p>「Heueuk!」</p>
+<p>"Heueuk!"</p>
 
 <p>Shiwoo felt satisfied at Seonju Imo's moaning sound, which invariably burst out.</p>
 
 <p>Shiwoo pressed the hold button on the smartphone screen and looked down at Seonju Imo as if appreciating her for a moment.</p>
 
-<p>「Haa-eu! Haa-eueu! Haa-aa!」</p>
+<p>"Haa-eu! Haa-eueu! Haa-aa!"</p>
 
 <p>Faint moans were continuously leaking out from Seonju Imo's mouth.</p>
 
 <p>Shiwoo shifted his gaze to Sehee-nuna, who was lying next to him, leaving Seonju Imo as she was.</p>
 
-<p>「Sehee-nuna! Are you alright?」</p>
+<p>"Sehee-nuna! Are you alright?"</p>
 
 <p>Sehee-nuna's face, rubbed and spread, as if smeared all over with Shiwoo's semen received from Seonju Imo's valley.</p>
 
@@ -202,7 +202,7 @@ chapter = 162
 
 <p>Seeing Sehee-nuna's stimulating face, Shiwoo's penis rose firmly again.</p>
 
-<p>「Can you get up? You shouldn't fall asleep like this, should you?」</p>
+<p>"Can you get up? You shouldn't fall asleep like this, should you?"</p>
 
 <p>Shiwoo said, looking lovingly at Sehee-nuna, who was stained with his semen.</p>
 
@@ -210,7 +210,7 @@ chapter = 162
 
 <p>Shiwoo's swollen cock was touching Sehee-nuna's side.</p>
 
-<p>「Haa!」</p>
+<p>"Haa!"</p>
 
 <p>Seeing Shiwoo's erect cock, Sehee-nuna let out a hollow laugh as if dumbfounded.</p>
 
@@ -222,7 +222,7 @@ chapter = 162
 
 <p>Seeing Sehee-nuna's sexy face, covered in semen, Shiwoo smiled awkwardly.</p>
 
-<p>「First, shall we go to the master bedroom and the three of us lie on the bed? We can wash later...」</p>
+<p>"First, shall we go to the master bedroom and the three of us lie on the bed? We can wash later..."</p>
 
 <p>Shiwoo carefully suggested to Sehee-nuna.</p>
 
@@ -236,7 +236,7 @@ chapter = 162
 
 <p>Shiwoo tried to support Sehee-nuna, keeping his body close.</p>
 
-<p>「I'm fine, so take care of Seonju Imo first! You idiot!」</p>
+<p>"I'm fine, so take care of Seonju Imo first! You idiot!"</p>
 
 <p>Seeing such a Shiwoo, Sehee-nuna spoke curtly.</p>
 

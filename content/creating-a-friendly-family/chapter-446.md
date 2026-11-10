@@ -6,13 +6,13 @@ chapter = 446
 +++
 <p>The text felt as if a young adolescent girl was complaining, expressing dissatisfaction and rebellion.</p>
 
-<p>「Huh? Is that all? Nothing else?」</p>
+<p>"Huh? Is that all? Nothing else?"</p>
 
 <p>Shiwoo asked, puzzled, as if surprised by Mom, who was unexpectedly getting annoyed and throwing a tantrum.</p>
 
 <p>Shiwoo had expected her to at least bring up the times he slapped her cheeks or stripped her naked and left her in front of the gate.</p>
 
-<p>「Then is that it! What more can Mom say to you now?!」</p>
+<p>"Then is that it! What more can Mom say to you now?!"</p>
 
 <p>Mom retorted to Shiwoo, as if she couldn't understand why Shiwoo was puzzled.</p>
 
@@ -20,13 +20,13 @@ chapter = 446
 
 <p>Was Mom feeling confused about all the play she had with Shiwoo, yet genuinely falling into it, enjoying it while satisfying her masochistic excitement and thrilling stimulation?</p>
 
-<p>「No, I'm asking if that's all you wanted to say when you opened our chat window? The number disappeared right after you sent the text, right?」</p>
+<p>"No, I'm asking if that's all you wanted to say when you opened our chat window? The number disappeared right after you sent the text, right?"</p>
 
 <p>Shiwoo asked again, as if trying to confirm Mom's state and intentions once more.</p>
 
 <p>Mom didn't reply for a while, then sent another text to Shiwoo.</p>
 
-<p>「Just bring my clothes quickly! Mom's going to take a shower right now! I can't reply anymore!」</p>
+<p>"Just bring my clothes quickly! Mom's going to take a shower right now! I can't reply anymore!"</p>
 
 <p>Mom sent a text to Shiwoo in a tone that seemed annoyed.</p>
 

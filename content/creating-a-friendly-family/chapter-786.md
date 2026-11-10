@@ -18,7 +18,7 @@ chapter = 786
 
 <p>A smile of conquest he couldn't hide spread across his lips at the sense of victory from having completely dominated her.</p>
 
-<p>『Just call me whatever you want Master, Honey, Hubby, or Shiwoo. There must be a title you've become at least a little comfortable with by now, right? Hehehe.』</p>
+<p>"Just call me whatever you want Master, Honey, Hubby, or Shiwoo. There must be a title you've become at least a little comfortable with by now, right? Hehehe."</p>
 
 <p>Seeing Mom unable to even lift her head, soaked in shame, Shiwoo sends a mocking message as if pressing for her confirmation.</p>
 
@@ -26,7 +26,7 @@ chapter = 786
 
 <p>She hesitates, watching Shiwoo's reaction as if choosing her words, her fingers trembling and flinching over the smartphone keyboard.</p>
 
-<p>『Can't you just decide for me?』</p>
+<p>"Can't you just decide for me?"</p>
 
 <p>Mom clung to Shiwoo with a pathetic tone, as if she were a doll whose will had been completely stripped away, looking like she might break at any moment.</p>
 
@@ -38,7 +38,7 @@ chapter = 786
 
 <p>Her flushed face seemed to represent her complex inner state.</p>
 
-<p>『Should we just be Mom and son for now? It feels like we went a bit too deep back at the motel.』</p>
+<p>"Should we just be Mom and son for now? It feels like we went a bit too deep back at the motel."</p>
 
 <p>Shiwoo shook her composure by suggesting a normal relationship, as if granting a mischievous mercy.</p>
 
@@ -46,15 +46,15 @@ chapter = 786
 
 <p>Then, she suddenly switched from the secret chat to a regular 1:1 chatroom and messaged him.</p>
 
-<p>『Go!』</p>
+<p>"Go!"</p>
 
 <p>The short message Mom sent appeared in the regular 1:1 chatroom.</p>
 
-<p>『What?』</p>
+<p>"What?"</p>
 
 <p>Shiwoo asked back, puzzled.</p>
 
-<p>『You said we were going to a coffee shop! Let's go in!』</p>
+<p>"You said we were going to a coffee shop! Let's go in!"</p>
 
 <p>For some reason, Mom spoke with a slightly hurried tone, as if rushing Shiwoo.</p>
 
@@ -68,11 +68,11 @@ chapter = 786
 
 <p>But her desperate struggle to hide behind the mask of normalcy only served to heat Shiwoo's twisted desires even more.</p>
 
-<p>『Alright, I'll search for one now, so just wait a bit』</p>
+<p>"Alright, I'll search for one now, so just wait a bit"</p>
 
 <p>Shiwoo replied and opened a navigation app on his smartphone to search for nearby cafes.</p>
 
-<p>『This way, follow me!』</p>
+<p>"This way, follow me!"</p>
 
 <p>After confirming the direction, Shiwoo sent a text to Mom, pointing beyond the alley.</p>
 
@@ -80,25 +80,25 @@ chapter = 786
 
 <p>While walking, Shiwoo opened the chatroom with her again and asked.</p>
 
-<p>『By the way, isn't it uncomfortable to walk right now?』</p>
+<p>"By the way, isn't it uncomfortable to walk right now?"</p>
 
 <p>Shiwoo asked the question, gauging her stride by the sound of the bell coming from behind him.</p>
 
-<p>『What? Why would walking be uncomfortable?』</p>
+<p>"What? Why would walking be uncomfortable?"</p>
 
 <p>Mom asked back, feigning ignorance, but she couldn't hide the tension hanging at the end of her sentence.</p>
 
-<p>『You're not wearing any panties right now. No bra, either.』</p>
+<p>"You're not wearing any panties right now. No bra, either."</p>
 
 <p>Shiwoo spoke as if explicitly digging into and poking at her shame.</p>
 
 <p>Mom seemed to hesitate to answer again, but soon typed out a sentence to Shiwoo.</p>
 
-<p>『It's not the first time, so what...』</p>
+<p>"It's not the first time, so what..."</p>
 
 <p>Mom answered as if resigned, recalling the humiliating exposure she had endured at the karaoke bar last time.</p>
 
-<p>『Isn't the love juice and the stuff I came inside you leaking out? Is it really okay to walk without panties?』</p>
+<p>"Isn't the love juice and the stuff I came inside you leaking out? Is it really okay to walk without panties?"</p>
 
 <p>Shiwoo checked on her condition, mixing in explicit words.</p>
 
@@ -106,7 +106,7 @@ chapter = 786
 
 <p>Perhaps because of Shiwoo's blatant gaze as he looked back, Mom walked while gasping for breath.</p>
 
-<p>『It's not the first time for that either, you know?!』</p>
+<p>"It's not the first time for that either, you know?!"</p>
 
 <p>Then, Mom replied to Shiwoo with a playful use of polite speech.</p>
 
@@ -114,43 +114,43 @@ chapter = 786
 
 <p>However, her use of polite speech in this situation made Shiwoo feel strangely flustered.</p>
 
-<p>『Why the sudden polite speech?』</p>
+<p>"Why the sudden polite speech?"</p>
 
 <p>Shiwoo sneered as if enjoying her sudden change in attitude.</p>
 
-<p>『You told me to do whatever I want!』</p>
+<p>"You told me to do whatever I want!"</p>
 
 <p>Mom responded pertly.</p>
 
-<p>『No, Mom asked me to decide, so I said let's be 'Mom and son' for now, right? So why the sudden polite speech?』</p>
+<p>"No, Mom asked me to decide, so I said let's be 'Mom and son' for now, right? So why the sudden polite speech?"</p>
 
 <p>Shiwoo pressed her, as if nitpicking.</p>
 
-<p>『I've always used this way of speaking normally, so why bring it up now?! So what?! Should I not use polite speech?』</p>
+<p>"I've always used this way of speaking normally, so why bring it up now?! So what?! Should I not use polite speech?"</p>
 
 <p>At her son's blatant pointing out, Mom retorted as if it were unfair.</p>
 
-<p>『Heh No, Mom, do whatever you want from now on』</p>
+<p>"Heh No, Mom, do whatever you want from now on"</p>
 
 <p>When Shiwoo replied as if amused, Mom's text came back immediately, snapping at him.</p>
 
-<p>『Just walk faster then!』</p>
+<p>"Just walk faster then!"</p>
 
 <p>She was snapping at Shiwoo with a firm tone, as if she had completely returned to the role of a mother.</p>
 
-<p>『Alright But seriously, isn't it leaking down there? Looking at Sehee, it seemed like she couldn't even walk without a panty liner.』</p>
+<p>"Alright But seriously, isn't it leaking down there? Looking at Sehee, it seemed like she couldn't even walk without a panty liner."</p>
 
 <p>Shiwoo poked at her sore spot once more, feigning pure curiosity.</p>
 
-<p>『I have to go to the restroom as soon as we get into the coffee shop...』</p>
+<p>"I have to go to the restroom as soon as we get into the coffee shop..."</p>
 
 <p>Mom's reply arrived urgently.</p>
 
-<p>『Huh?』</p>
+<p>"Huh?"</p>
 
 <p>Shiwoo reacted with doubt again at Mom's answer.</p>
 
-<p>『It's flowing down past my knees right now, and if I stay like this any longer, I think it'll run down my calves and soak my shoes! So just go quickly! Please!』</p>
+<p>"It's flowing down past my knees right now, and if I stay like this any longer, I think it'll run down my calves and soak my shoes! So just go quickly! Please!"</p>
 
 <p>Mom confessed through text, as if chewing over her own state of disgrace.</p>
 

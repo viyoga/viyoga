@@ -18,7 +18,7 @@ chapter = 171
 
 <p>If Seyoung hadn't been there, Shiwoo might have immediately put his impulsive fantasy into action.</p>
 
-<p>「Awu It's hot! I'll go to the bathroom for a bit!」</p>
+<p>"Awu It's hot! I'll go to the bathroom for a bit!"</p>
 
 <p>Seonju Imo got up from her seat and headed to the bathroom, as if trying to irresponsibly leave all these situations unattended.</p>
 
@@ -34,23 +34,23 @@ chapter = 171
 
 <p>Shiwoo endures his precarious impulsive desires and carefully observes Seyoung's condition.</p>
 
-<p>「Sua-ya, what's wrong? Are you sick somewhere?」</p>
+<p>"Sua-ya, what's wrong? Are you sick somewhere?"</p>
 
 <p>Seyoung asked with a worried expression as she got up from her seat and approached Sua, who was sitting across the table.</p>
 
-<p>「Ugh...uh...I'm...I'm okay Haa...」</p>
+<p>"Ugh...uh...I'm...I'm okay Haa..."</p>
 
 <p>Sua shuddered once and answered while looking at Seyoung.</p>
 
-<p>「Sua-ya! Why are you shivering like this? Are you cold right now?」</p>
+<p>"Sua-ya! Why are you shivering like this? Are you cold right now?"</p>
 
 <p>Seyoung's expression seemed to genuinely worry as she stroked Sua's back.</p>
 
-<p>「I think the ice cream we ate earlier was too cold...It's nothing」</p>
+<p>"I think the ice cream we ate earlier was too cold...It's nothing"</p>
 
 <p>Sua smiles and answers, as if trying to reassure Seyoung.</p>
 
-<p>「Really? It's not too painful? You don't need to go to the bathroom right now?」</p>
+<p>"Really? It's not too painful? You don't need to go to the bathroom right now?"</p>
 
 <p>Seyoung speaks while holding the puppy that had been placed near Sua's feet.</p>
 
@@ -76,7 +76,7 @@ chapter = 171
 
 <p>The vibrator, which had been set to the highest intensity, starts operating again with a loud vibrating sound.</p>
 
-<p>「Haaeeeuuueuk! Shi...Shiwoo Oppa!」</p>
+<p>"Haaeeeuuueuk! Shi...Shiwoo Oppa!"</p>
 
 <p>Sua, startled by the sudden vibration of the vibrator, lets out a rough moaning sound and desperately calls out to Shiwoo.</p>
 
@@ -90,7 +90,7 @@ chapter = 171
 
 <p>Seyoung is looking at Shiwoo with a bewildered expression, as if asking what's going on.</p>
 
-<p>「Uh...uh...that's...Se...Seyoung-ah...」</p>
+<p>"Uh...uh...that's...Se...Seyoung-ah..."</p>
 
 <p>Flustered, Shiwoo stutters and moves his lips with a voice that doesn't come out properly, trying to make excuses to Seyoung.</p>
 
@@ -110,15 +110,15 @@ chapter = 171
 
 <p>Seonju Imo, who had gone to the bathroom as if to avoid the situation, returns just in time.</p>
 
-<p>「It seems Shiwoo was thinking about it to some extent before we came?!」</p>
+<p>"It seems Shiwoo was thinking about it to some extent before we came?!"</p>
 
 <p>Seonju Imo was saying something incomprehensible to Shiwoo as soon as she returned from the bathroom.</p>
 
-<p>「Wh...what?」</p>
+<p>"Wh...what?"</p>
 
 <p>Shiwoo reacts as if confused because he can't sort out the situation from just now and Seonju Imo's words.</p>
 
-<p>「Shiwoo, you're so healthy?! It's different because you're young! Or is it just Shiwoo who's special? Kikik!」</p>
+<p>"Shiwoo, you're so healthy?! It's different because you're young! Or is it just Shiwoo who's special? Kikik!"</p>
 
 <p>Seonju Imo was talking to Shiwoo in a teasing tone, as if impressed.</p>
 
@@ -136,25 +136,25 @@ chapter = 171
 
 <p>Then, she looks down at Sua, who is lying face down, and then looks at Shiwoo's face with a suggestive expression, as if she has roughly grasped the situation.</p>
 
-<p>「Mom...I need to go to the bathroom...」</p>
+<p>"Mom...I need to go to the bathroom..."</p>
 
 <p>Sua raises her head, looks at Seonju Imo, who has returned from the bathroom, and speaks as if asking for help.</p>
 
 <p>Seonju Imo doesn't answer Sua's words and just smiles sweetly while looking at Shiwoo.</p>
 
-<p>「Oh?...oh...hurry up and go! Sua-ya!」</p>
+<p>"Oh?...oh...hurry up and go! Sua-ya!"</p>
 
 <p>Shiwoo, as if worried about Sua's condition, quickly answers on behalf of Seonju Imo.</p>
 
-<p>「It's a rare opportunity, wouldn't it be a shame?」</p>
+<p>"It's a rare opportunity, wouldn't it be a shame?"</p>
 
 <p>Seonju Imo throws a joke at Shiwoo that is hard to understand as Sua tries to leave her seat.</p>
 
-<p>「Wh...what is?」</p>
+<p>"Wh...what is?"</p>
 
 <p>Shiwoo asks back, checking Sua's condition.</p>
 
-<p>「She didn't even let me rest all night! Kikik」</p>
+<p>"She didn't even let me rest all night! Kikik"</p>
 
 <p>Seonju Imo was saying things to Shiwoo that Seyoung in the living room shouldn't hear.</p>
 
@@ -176,19 +176,19 @@ chapter = 171
 
 <p>But when such a situation actually came to pass, an unidentifiable embarrassment, guilt, and depraved feeling seemed to rush into Shiwoo's chest all at once.</p>
 
-<p>「But shouldn't Seonju Imo take care of Sua?」</p>
+<p>"But shouldn't Seonju Imo take care of Sua?"</p>
 
 <p>Shiwoo says to Seonju Imo as if scolding her, worrying about his young cousin.</p>
 
-<p>「She'll do it on her own even if I leave her alone She knows everything now anyway」</p>
+<p>"She'll do it on her own even if I leave her alone She knows everything now anyway"</p>
 
 <p>Seonju Imo answers Shiwoo, smiling as if it's nothing and joking at his worries.</p>
 
-<p>「Still, Mom should go!」</p>
+<p>"Still, Mom should go!"</p>
 
 <p>Shiwoo raises his voice slightly, as if telling Seonju Imo to resolve this situation.</p>
 
-<p>「If you're really worried, why don't Master-nim go to Sua right now? I'm okay! I can take Seyoung and the puppy for a walk Kikik」</p>
+<p>"If you're really worried, why don't Master-nim go to Sua right now? I'm okay! I can take Seyoung and the puppy for a walk Kikik"</p>
 
 <p>Seonju Imo brings one hand to her mouth and covers it, and whispers to Shiwoo in a voice that Seyoung can't hear.</p>
 
@@ -200,12 +200,12 @@ chapter = 171
 
 <p>Shiwoo felt a displeased feeling as if the hierarchy between master and slave was shaking due to Seonju Imo's excessive teasing.</p>
 
-<p>「Seonju, you fucking bitch! I let you be, and you're trying to do whatever you want, aren't you?」</p>
+<p>"Seonju, you fucking bitch! I let you be, and you're trying to do whatever you want, aren't you?"</p>
 
 <p>Shiwoo lowers his voice and speaks to Seonju Imo in a stern tone, as if giving her a warning.</p>
 
 <p>Seonju Imo is startled for a moment at Shiwoo's curse and removes her smile.</p>
 
-<p>「Hey, you slut! Go up to my room on the second floor and take off all your clothes! Get ready to be beaten!」</p>
+<p>"Hey, you slut! Go up to my room on the second floor and take off all your clothes! Get ready to be beaten!"</p>
 
 <p>Shiwoo, thinking of fixing Seonju Imo's disrespectful attitude and bad habits, uses a strong tone and orders Seonju Imo as if scolding her.</p>

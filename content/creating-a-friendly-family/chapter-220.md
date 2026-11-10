@@ -12,7 +12,7 @@ chapter = 220
 
 <p>Shiwoo's semen, recovered into Seonju Imo-nim's mouth, was swallowed into her throat without hesitation.</p>
 
-<p>「OlgakOlgak」</p>
+<p>"OlgakOlgak"</p>
 
 <p>Again, Seonju Imo-nim was doing something Shiwoo hadn't even ordered, acting on her own accord.</p>
 
@@ -24,7 +24,7 @@ chapter = 220
 
 <p>Her extended tongue wrapped around Mom's nipple.</p>
 
-<p>「Heueungeung」</p>
+<p>"Heueungeung"</p>
 
 <p>A sweet moan leaked from Mom's mouth as Seonju Imo-nim sucked on her breast.</p>
 
@@ -36,7 +36,7 @@ chapter = 220
 
 <p>Shiwoo was trying to unleash some of the sadistic impulse that had risen due to Seonju Imo-nim onto Mom.</p>
 
-<p>「Haa-eut! Haaat! Haaa-aat!」</p>
+<p>"Haa-eut! Haaat! Haaa-aat!"</p>
 
 <p>Mom, having her breasts sucked by Seonju Imo-nim while being pounded by Shiwoo, spat out uncontrollable moans.</p>
 
@@ -64,7 +64,7 @@ chapter = 220
 
 <p>Shiwoo was imagining a destructive scene where he would take Mom to the living room right now and violate her in front of Seyoung and Sua, thrusting deeply into Mom's cave.</p>
 
-<p>「Haaat! Haaang Haeueuk! Haaat!</p>
+<p>"Haaat! Haaang Haeueuk! Haaat!"</p>
 
 <p>His piston action became even more intense and deeper.</p>
 

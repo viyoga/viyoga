@@ -4,23 +4,23 @@ weight = 92
 [extra]
 chapter = 92
 +++
-<p>「What are you talking about?」</p>
+<p>"What are you talking about?"</p>
 
 <p>Shiwoo, concealing a dizzying sense of bewilderment, decided to deny anything regarding Mom or Sehee Nuna for now.</p>
 
-<p>「Well, it's like this your Mom suddenly showed up with Seyoung-yi yesterday morning without a word, didn't explain what happened, and has been staying at our house ever since」</p>
+<p>"Well, it's like this your Mom suddenly showed up with Seyoung-yi yesterday morning without a word, didn't explain what happened, and has been staying at our house ever since"</p>
 
-<p>「She spent all day staring at her smartphone, sighing deeply as if the world had ended, but today she's completely giddy, giggling like a different person Didn't Shiwoo make her like that?」</p>
+<p>"She spent all day staring at her smartphone, sighing deeply as if the world had ended, but today she's completely giddy, giggling like a different person Didn't Shiwoo make her like that?"</p>
 
 <p>Seonju Imo began to unravel and explain each suspicious circumstance.</p>
 
-<p>「What's that supposed to mean?!」</p>
+<p>"What's that supposed to mean?!"</p>
 
 <p>Despite Seonju Imo's explanation, Shiwoo stubbornly pretended not to know.</p>
 
-<p>「And if you look at how Sehee treats Shiwoo yesterday and today, it's definitely suspicious She must have clearly figured out what kind of relationship Shiwoo and I have, but she's acting so nonchalant, kekeke."」</p>
+<p>"And if you look at how Sehee treats Shiwoo yesterday and today, it's definitely suspicious She must have clearly figured out what kind of relationship Shiwoo and I have, but she's acting so nonchalant, kekeke."</p>
 
-<p>「I might be able to teach Shiwoo many more pleasurable things... Won't you just tell Imo the truth?」</p>
+<p>"I might be able to teach Shiwoo many more pleasurable things... Won't you just tell Imo the truth?"</p>
 
 <p>Seonju Imo was pleading with Shiwoo, acting coyly.</p>
 
@@ -30,27 +30,27 @@ chapter = 92
 
 <p>And once again, he imagined Mom, Seonju Imo, and Sehee Nuna clinging to his cock, simultaneously licking it with their tongues.</p>
 
-<p>「What are you going to do if I tell you?」</p>
+<p>"What are you going to do if I tell you?"</p>
 
 <p>Shiwoo was asking with the intention of subtly probing Seonju Imo's true feelings.</p>
 
-<p>「I'll have to sort out the hierarchy between Eonni and Sehee kekeke. They still don't know about each other, right?」</p>
+<p>"I'll have to sort out the hierarchy between Eonni and Sehee kekeke. They still don't know about each other, right?"</p>
 
 <p>Seonju Imo spoke playfully.</p>
 
-<p>「Seonju-ya!? You're crossing the line impudently, aren't you? Next time you come, you're going to get a good scolding from me!」</p>
+<p>"Seonju-ya!? You're crossing the line impudently, aren't you? Next time you come, you're going to get a good scolding from me!"</p>
 
 <p>Shiwoo sent a message, calling Seonju Imo's name in a severely scolding tone.</p>
 
-<p>「Whyyy? Heeing Are you just going to keep pretending not to know me, darling?」</p>
+<p>"Whyyy? Heeing Are you just going to keep pretending not to know me, darling?"</p>
 
 <p>As soon as Shiwoo called Seonju Imo's name, Seonju Imo subtly addressed him as 'darling,' as if pouting.</p>
 
-<p>「You'll have to wait and see what happens next!」</p>
+<p>"You'll have to wait and see what happens next!"</p>
 
 <p>Shiwoo was worried that his already precarious relationships with Mom and Sehee Nuna might worsen even further with Seonju Imo's intervention.</p>
 
-<p>「I felt so good today, I think I already know? What's going to happen?! At this point, Eonni probably knows too, kekeke.」</p>
+<p>"I felt so good today, I think I already know? What's going to happen?! At this point, Eonni probably knows too, kekeke."</p>
 
 <p>Seonju Imo was talking about the sex she had with Shiwoo today as if it were a joke.</p>
 
@@ -60,15 +60,15 @@ chapter = 92
 
 <p class="scene-break">· · ·</p>
 
-<p>「But are you okay, Seonju?」</p>
+<p>"But are you okay, Seonju?"</p>
 
-<p>「Huh? About what?」</p>
+<p>"Huh? About what?"</p>
 
-<p>「About Mom finding out about our relationship.」</p>
+<p>"About Mom finding out about our relationship."</p>
 
 <p>Shiwoo had already dropped the honorific 'Imo'.</p>
 
-<p>「What does it matter? Eonni and I aren't really in a position to get angry at each other now And you might not know this, but Seonmi Eonni, Gyuri Eonni, and I usually talk about men quite freely, you know?」</p>
+<p>"What does it matter? Eonni and I aren't really in a position to get angry at each other now And you might not know this, but Seonmi Eonni, Gyuri Eonni, and I usually talk about men quite freely, you know?"</p>
 
 <p>Seonju Imo brought up aspects of the mothers that Shiwoo didn't know about.</p>
 
@@ -94,7 +94,7 @@ chapter = 92
 
 <p class="scene-break">· · ·</p>
 
-<p>「What about Sua? If Sua finds out about us? Her dignity as a mother, everything, will be utterly shattered, won't it?」</p>
+<p>"What about Sua? If Sua finds out about us? Her dignity as a mother, everything, will be utterly shattered, won't it?"</p>
 
 <p>Shiwoo cautiously shifted the topic from Mom to Sua, asking half-jokingly.</p>
 
@@ -108,11 +108,11 @@ chapter = 92
 
 <p>Shiwoo wondered what reaction Seonju Imo would have shown if she hadn't deliberately pretended to be asleep.</p>
 
-<p>「How are you going to act like a mother to your slut of a daughter from now on?!」</p>
+<p>"How are you going to act like a mother to your slut of a daughter from now on?!"</p>
 
 <p>Shiwoo, pressing Seonju Imo for an answer again, asked in a depraved, disrespectful tone.</p>
 
-<p>「Well? Before that, won't my darling somehow take care of it? kekeke」</p>
+<p>"Well? Before that, won't my darling somehow take care of it? kekeke"</p>
 
 <p>Indeed, Seonju Imo skillfully parried even coercive and malicious jokes using her daughter as a subject, employing the seductive charm of an adult woman.</p>
 
@@ -176,7 +176,7 @@ chapter = 92
 
 <p>Shiwoo stared at the chat window with Imo for a long time, his heart pounding with anxiety.</p>
 
-<p>「If you're worried about Sua, tell me now!! If Imo says it's okay, I'm going to meet Sua with the intention of having sex with her from now on! I might even do it forcibly and violently!!」</p>
+<p>"If you're worried about Sua, tell me now!! If Imo says it's okay, I'm going to meet Sua with the intention of having sex with her from now on! I might even do it forcibly and violently!!"</p>
 
 <p>Shiwoo's message, sent as if to confirm Seonju Imo's true feelings.</p>
 

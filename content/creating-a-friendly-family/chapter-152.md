@@ -46,7 +46,7 @@ chapter = 152
 
 <p>Sehee-nuna's gaze, which Shiwoo was meeting, was trembling as if she had a premonition of what was to come.</p>
 
-<p>「I'm going to put it on Seonju. You don't need to be careful in front of Seonju Imo anymore! From now on, I'll treat her as if she's not your aunt! I'll take care of the rest. Sehee, you don't have to worry!」</p>
+<p>"I'm going to put it on Seonju. You don't need to be careful in front of Seonju Imo anymore! From now on, I'll treat her as if she's not your aunt! I'll take care of the rest. Sehee, you don't have to worry!"</p>
 
 <p>Shiwoo looked into Sehee-nuna's eyes and spoke with a reassuring smile.</p>
 
@@ -58,7 +58,7 @@ chapter = 152
 
 <p>Shiwoo's slab of flesh filled Sehee-nuna's open mouth.</p>
 
-<p>「Ha-oob! Woob! Seureup!」</p>
+<p>"Ha-oob! Woob! Seureup!"</p>
 
 <p>Sehee-nuna's moist tongue wrapped around Shiwoo's expanding penis as it pushed inside.</p>
 
@@ -68,7 +68,7 @@ chapter = 152
 
 <p>Shiwoo subtly moved his hips back and forth, pressing down on Sehee-nuna's head, which was turned sideways.</p>
 
-<p>「Ha-woob Hoob Chureuk! Churu-oob!」</p>
+<p>"Ha-woob Hoob Chureuk! Churu-oob!"</p>
 
 <p>Sehee-nuna, with unfocused eyes, held Shiwoo's slowly moving penis full in her mouth.</p>
 
@@ -84,7 +84,7 @@ chapter = 152
 
 <p>Shiwoo thrust his hips forward, pushing the tip of his enormous shaft deep into Sehee-nuna's throat.</p>
 
-<p>「Woob! Wooh-eop! Gu-eok!」</p>
+<p>"Woob! Wooh-eop! Gu-eok!"</p>
 
 <p>Sehee-nuna's head, turned sideways and slumped, was held down and pressed by Shiwoo's hand.</p>
 
@@ -140,7 +140,7 @@ chapter = 152
 
 <p>Sehee-nuna's tongue moved, creating soft, light frictional heat as if savoring the taste of the spread chicken porridge and semen.</p>
 
-<p>「Kkul-kkeok! Kkul-kkeok! Kkul-kkeok!」</p>
+<p>"Kkul-kkeok! Kkul-kkeok! Kkul-kkeok!"</p>
 
 <p>Sehee-nuna eventually, not long after, swallowed the chicken porridge and semen that had been coated on Shiwoo's penis.</p>
 
@@ -156,7 +156,7 @@ chapter = 152
 
 <p>Shiwoo's penis once again displayed its magnificent grandeur, standing tall and gleaming under the cool white LED lights of the kitchen.</p>
 
-<p>「I'll bring Seonju Imo out, so just wait a little! Understood?」</p>
+<p>"I'll bring Seonju Imo out, so just wait a little! Understood?"</p>
 
 <p>Shiwoo said to Sehee-nuna, then, holding Seonju Imo's red micro bikini swimsuit and his smartphone in his hand, headed to the dressing room.</p>
 
@@ -170,7 +170,7 @@ chapter = 152
 
 <p>Seonju Imo seemed to be kneeling there as Shiwoo had instructed, waiting for him to return.</p>
 
-<p>「Open your mouth! Fucking bitch!!」</p>
+<p>"Open your mouth! Fucking bitch!!"</p>
 
 <p>Shiwoo abruptly approached Seonju Imo, positioning his penis, coated with semen and chicken porridge, in front of her face, and spoke.</p>
 
@@ -184,11 +184,11 @@ chapter = 152
 
 <p>Seonju Imo's lips curled into a faint smile as she held Shiwoo's penis in her mouth.</p>
 
-<p>「Suck!」</p>
+<p>"Suck!"</p>
 
 <p>Shiwoo looked down at Seonju Imo and commanded her forcefully.</p>
 
-<p>「Chureup Churoop Chu-waap」</p>
+<p>"Chureup Churoop Chu-waap"</p>
 
 <p>Seonju Imo, holding Shiwoo's penis in her mouth, extended her tongue and licked clean the filth clinging to his penis, sweeping it along the shaft.</p>
 
@@ -196,10 +196,10 @@ chapter = 152
 
 <p>Then, Shiwoo grabbed Seonju Imo's head with both hands and gently pushed his penis further in.</p>
 
-<p>「Ha-ak! Ha-ap! Hoo-ap!」</p>
+<p>"Ha-ak! Ha-ap! Hoo-ap!"</p>
 
 <p>Shiwoo's penis entered Seonju Imo's throat.</p>
 
-<p>「Cheu-oob! Cheu-ap Cheu-eup! Eu-eup...」</p>
+<p>"Cheu-oob! Cheu-ap Cheu-eup! Eu-eup..."</p>
 
 <p>With the penis lodged in her throat, Seonju Imo licked at the base of Shiwoo's shaft and his testicles, as if stimulating them with her tongue.</p>

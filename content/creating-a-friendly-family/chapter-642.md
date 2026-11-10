@@ -14,7 +14,7 @@ chapter = 642
 
 <p>Shiwoo realized that this wasn't just simple restraint, but a form technically and meticulously woven. It was likely the geobuk-mukgi —the turtle tie—a bondage method he had seen in the SM pornography Cheoljin had introduced him to. As the ropes coiled along her body, the form appeared to be completed like a work of art, unified with Mom's beautiful physique.</p>
 
-<p>「We're at a motel near the department store right now, you know?」</p>
+<p>"We're at a motel near the department store right now, you know?"</p>
 
 <p>Sehee-nuna sent the text, conveying the situation calmly as if it were nothing out of the ordinary.</p>
 
@@ -28,11 +28,11 @@ chapter = 642
 
 <p>Her presence quietly overwhelmed the space, leaving an impression that even a single glance or breath would leave a thick, lingering afterimage. The tattoos etched here and there on her body allowed him to easily guess her identity.</p>
 
-<p>「The tattoo shop owner-nim said she'd personally demonstrate the items we bought today...」</p>
+<p>"The tattoo shop owner-nim said she'd personally demonstrate the items we bought today..."</p>
 
 <p>Sehee-nuna continued the conversation, as if to resolve and settle Shiwoo's guesses and vague agitation. As expected, she seemed to be the tattoo shop owner Shiwoo had anticipated.</p>
 
-<p>「And Shiwoo, didn't you say before that it was okay to cheat if it was with another woman?」</p>
+<p>"And Shiwoo, didn't you say before that it was okay to cheat if it was with another woman?"</p>
 
 <p>She followed up by boldly stating her position on the act she was performing, emphasizing the words she had heard from Shiwoo last time.</p>
 
@@ -40,31 +40,31 @@ chapter = 642
 
 <p>Had Sehee-nuna gone to the motel with Mom feeling as though they were cheating with that female tattoo shop owner?</p>
 
-<p>「Is Sunmi okay?」</p>
+<p>"Is Sunmi okay?"</p>
 
 <p>Shiwoo asked, as if worried about his bound mother's condition.</p>
 
-<p>「Yeah, I think Sunmi is fine... actually, it seems like their compatibility is quite good...」</p>
+<p>"Yeah, I think Sunmi is fine... actually, it seems like their compatibility is quite good..."</p>
 
 <p>Sehee-nuna spoke as if the situation with Mom was interesting, subtly provoking Shiwoo. Shiwoo felt a simultaneous sense of subtle jealousy and embarrassment at Sehee-nuna's words.</p>
 
-<p>「But what did she say her name was?」</p>
+<p>"But what did she say her name was?"</p>
 
 <p>Shiwoo asked Sehee-nuna to find out more about her, suppressing his jealousy and arousal as much as possible. After a moment, Sehee-nuna's reply came back.</p>
 
-<p>「I just asked, and she said she'll tell you herself when you come tomorrow, Shiwoo...」</p>
+<p>"I just asked, and she said she'll tell you herself when you come tomorrow, Shiwoo..."</p>
 
 <p>Sehee-nuna spoke to Shiwoo as if she didn't know the woman's name well herself. Did this mean Mom and Sehee-nuna had entered a motel with a woman whose name they didn't even know? And while even thinking about mixing their bodies using obscene items?</p>
 
-<p>「Tomorrow?」</p>
+<p>"Tomorrow?"</p>
 
 <p>Shiwoo asked back briefly, swallowing his suppressed emotions at the unfamiliar answer and the dizzyingly tangled situation.</p>
 
-<p>「Yeah, didn't we agree to visit the tattoo shop with Mom tomorrow? To take the mold for that...」</p>
+<p>"Yeah, didn't we agree to visit the tattoo shop with Mom tomorrow? To take the mold for that..."</p>
 
 <p>Sehee-nuna replied nonchalantly, mentioning the fact that they were scheduled to visit to take a mold for a dildo. Within that nonchalant answer, a secretly hidden expectation or a lewd curiosity seemed to peek through.</p>
 
-<p>「Ah... that's right...」</p>
+<p>"Ah... that's right..."</p>
 
 <p>Shiwoo replied to Sehee-nuna's words as if he had just remembered. As soon as Shiwoo replied, a photo was sent from Sehee-nuna as if she had been waiting.</p>
 
@@ -72,7 +72,7 @@ chapter = 642
 
 <p>A bitter jealousy seemed to surge in his heart, but Shiwoo couldn't think of anything more to argue or reply with. A moment later, another message arrived through Sehee-nuna's chat window. This time, it wasn't a video or a photo, but a voice message...</p>
 
-<p>「Listen to this alone so no one else hears...」</p>
+<p>"Listen to this alone so no one else hears..."</p>
 
 <p>Sehee-nuna told Shiwoo, as if giving him a warning.</p>
 
@@ -98,7 +98,7 @@ chapter = 642
 
 <p>Shiwoo held his breath, focusing on the sounds from the earphones as if carefully savoring the unfamiliar emotions surging in a corner of his chest.</p>
 
-<p>「I won't be able to answer for a while now... because it's my turn this time... I'll text you when it's over...」</p>
+<p>"I won't be able to answer for a while now... because it's my turn this time... I'll text you when it's over..."</p>
 
 <p>Another text from Sehee-nuna arrived immediately after...</p>
 
@@ -114,7 +114,7 @@ chapter = 642
 
 <p>As he imagined exposing his erect penis before her for the first time, Shiwoo's penis throbbed as if it were about to burst. The moment he imagined what kind of price and retribution would follow for the bitch who touched his slaves, a twisted dominance desire and a deep sadistic instinct quietly bloomed.</p>
 
-<p>「Okay, have fun and be careful!」</p>
+<p>"Okay, have fun and be careful!"</p>
 
 <p>Shiwoo sent the text as if granting permission for Mom and Sehee-nuna's deviant behavior. The number next to the sent text disappeared immediately, but there was no reply. Shiwoo could no longer tell if the one who checked the text was Sehee-nuna or the tattoo shop owner-nim.</p>
 

@@ -20,7 +20,7 @@ chapter = 16
 
 <p>A myriad of thoughts flooded Shiwoo's mind.</p>
 
-<p>「Will you sit there for a moment?」</p>
+<p>"Will you sit there for a moment?"</p>
 
 <p>Mom pointed to the stool in front of the dressing table and spoke in a tone that was hard to read.</p>
 
@@ -36,23 +36,23 @@ chapter = 16
 
 <p>Mom opened her mouth.</p>
 
-<p>「About Seyoung, as you know, her childish clinginess seems to have gotten a bit worse lately...」</p>
+<p>"About Seyoung, as you know, her childish clinginess seems to have gotten a bit worse lately..."</p>
 
 <p>Mom brought up Seyoung.</p>
 
-<p>「Yesterday, I went to the hospital and had her examined. It seems Seyoung might have developed an anxiety disorder. They said acting like a baby is one of the symptoms...」</p>
+<p>"Yesterday, I went to the hospital and had her examined. It seems Seyoung might have developed an anxiety disorder. They said acting like a baby is one of the symptoms..."</p>
 
 <p>Mom told him about going to the hospital with Seyoung yesterday.</p>
 
-<p>「The doctor-nim said that if we scold her or prevent such behavior, the symptoms could worsen, you know? I should have told you beforehand... So, you see, Mom just fell asleep yesterday.」</p>
+<p>"The doctor-nim said that if we scold her or prevent such behavior, the symptoms could worsen, you know? I should have told you beforehand... So, you see, Mom just fell asleep yesterday."</p>
 
 <p>After saying this much, Mom hesitated for a moment, seemingly embarrassed.</p>
 
-<p>「Shiwoo, last night when you moved Seyoung, you saw Mom letting Seyoung suckle at her breast, didn't you?」</p>
+<p>"Shiwoo, last night when you moved Seyoung, you saw Mom letting Seyoung suckle at her breast, didn't you?"</p>
 
 <p>At Mom's direct question, Shiwoo recalled Mom's wide-open breasts, -his face flushing slightly- and nodded instead of answering.</p>
 
-<p>「Seyoung has been pestering Mom lately to let her suckle at her breast, you see. After going to the hospital, we decided to let her suckle for a short while before bed, but if I didn't tell you, I was worried you, Shiwoo, might think it strange in the future.」</p>
+<p>"Seyoung has been pestering Mom lately to let her suckle at her breast, you see. After going to the hospital, we decided to let her suckle for a short while before bed, but if I didn't tell you, I was worried you, Shiwoo, might think it strange in the future."</p>
 
 <p>Mom seemed intent on not saying anything more, cautiously watching Shiwoo's reaction.</p>
 
@@ -62,27 +62,27 @@ chapter = 16
 
 <p>This time, Shiwoo answered, trying to reassure Mom instead.</p>
 
-<p>「It's fine, what's so strange about it? It looked good, that's all... Don't mind me, Mom, do whatever's comfortable for you. If you lose sleep worrying about that, both you and I lose out.」</p>
+<p>"It's fine, what's so strange about it? It looked good, that's all... Don't mind me, Mom, do whatever's comfortable for you. If you lose sleep worrying about that, both you and I lose out."</p>
 
 <p>And then, he tried to subtly convey that he knew Mom had been awake.</p>
 
-<p>「But the blindfold seems to work really well. I tried to wake Mom a few times, but she didn't seem to stir. Normally, she would have woken up easily.」</p>
+<p>"But the blindfold seems to work really well. I tried to wake Mom a few times, but she didn't seem to stir. Normally, she would have woken up easily."</p>
 
-<p>「Oh?...Oh...yes, yesterday, thanks to the blindfold, Mom really seemed to sleep soundly.」</p>
+<p>"Oh?...Oh...yes, yesterday, thanks to the blindfold, Mom really seemed to sleep soundly."</p>
 
 <p>Mom replied, sounding slightly flustered.</p>
 
 <p>A reaction as if admitting she remembered Shiwoo's molestation.</p>
 
-<p>「You'll wear it tonight too, right?」</p>
+<p>"You'll wear it tonight too, right?"</p>
 
-<p>「Yes, I'll wear it tonight too.」</p>
+<p>"Yes, I'll wear it tonight too."</p>
 
-<p>「Then, it'll be the same as yesterday, right?」</p>
+<p>"Then, it'll be the same as yesterday, right?"</p>
 
 <p>Shiwoo pressed persistently.</p>
 
-<p>「Yes...yes... If Mom wears the blindfold, she'll probably fall into a deep sleep again tonight and won't wake up.」</p>
+<p>"Yes...yes... If Mom wears the blindfold, she'll probably fall into a deep sleep again tonight and won't wake up."</p>
 
 <p>-Finally-</p>
 
@@ -108,7 +108,7 @@ chapter = 16
 
 <p>Shiwoo softly called out to Mom in a low voice.</p>
 
-<p>「Mom...are you asleep?」</p>
+<p>"Mom...are you asleep?"</p>
 
 <p>Mom didn't react, but he couldn't tell if she was awake or asleep.</p>
 
@@ -132,13 +132,13 @@ chapter = 16
 
 <p>Then, he softly called out to Mom again.</p>
 
-<p>「Mom?」</p>
+<p>"Mom?"</p>
 
 <p>Again, there was no answer.</p>
 
 <p>But Shiwoo was certain Mom was awake.</p>
 
-<p>「I'll move Seyoung and come back to turn off the light.」</p>
+<p>"I'll move Seyoung and come back to turn off the light."</p>
 
 <p>Leaving Mom, who still lay motionless, Shiwoo headed to Seyoung's room.</p>
 
@@ -184,17 +184,17 @@ chapter = 16
 
 <p>He slightly lifted his hand from her buttocks and slowly began to write letters on Mom's wide, voluptuous buttocks with his index finger.</p>
 
-<p>「Mom」</p>
+<p>"Mom"</p>
 
-<p>「, I」</p>
+<p>", I"</p>
 
-<p>「saw」</p>
+<p>"saw"</p>
 
-<p>「you」</p>
+<p>"you"</p>
 
-<p>「mas」</p>
+<p>"mas"</p>
 
-<p>「turbate.」</p>
+<p>"turbate."</p>
 
 <p>Mom's large buttocks suddenly twitched, as if startled.</p>
 
@@ -226,17 +226,17 @@ chapter = 16
 
 <p>Shiwoo began to write letters on her buttocks with his finger again.</p>
 
-<p>「Nuna」</p>
+<p>"Nuna"</p>
 
-<p>「, be」</p>
+<p>", be"</p>
 
-<p>「lenient」</p>
+<p>"lenient"</p>
 
-<p>「with」</p>
+<p>"with"</p>
 
-<p>「my」</p>
+<p>"my"</p>
 
-<p>「allowance.」</p>
+<p>"allowance."</p>
 
 <p>Perhaps because he was writing on her buttocks, which had become sensitive from the spanking, Mom's buttocks twitched and tensed with every line drawn by his finger.</p>
 
@@ -264,17 +264,17 @@ chapter = 16
 
 <p>After that, Shiwoo left Mom as she was.</p>
 
-<p>「Mom, then I'll turn off the light and go.」</p>
+<p>"Mom, then I'll turn off the light and go."</p>
 
 <p>As he was about to leave the room after bidding Mom farewell, Shiwoo seemed to remember something.</p>
 
-<p>「Oh, right, I almost forgot one thing.」</p>
+<p>"Oh, right, I almost forgot one thing."</p>
 
 <p>he said, approaching Mom again.</p>
 
 <p>Shiwoo quietly whispered into Mom's ear.</p>
 
-<p>「This is punishment for hitting Sehee Nuna's head so carelessly.」</p>
+<p>"This is punishment for hitting Sehee Nuna's head so carelessly."</p>
 
 <p>Shiwoo bent his middle finger, pressed it with his thumb, and then mercilessly flicked Mom's nipple, the one he had just suckled, as if delivering a 'ttakbam' (a flick to the forehead).</p>
 

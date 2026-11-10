@@ -70,7 +70,7 @@ chapter = 398
 
 <p>Shiwoo brings the cross-body bag he's carrying right in front of his penis and approaches Mom with quick steps.</p>
 
-<p>「Mom, I'm here!」</p>
+<p>"Mom, I'm here!"</p>
 
 <p>Shiwoo goes close to where Mom is standing and acts like he knows her.</p>
 
@@ -78,7 +78,7 @@ chapter = 398
 
 <p>Mom makes a sulky expression and turns her gaze away.</p>
 
-<p>「Mom?」</p>
+<p>"Mom?"</p>
 
 <p>Shiwoo calls Mom once again.</p>
 
@@ -90,17 +90,17 @@ chapter = 398
 
 <p>Mom, still avoiding Shiwoo's gaze, hands Shiwoo the shopping basket she was holding.</p>
 
-<p>「Shiwoo, you! Hold this!」</p>
+<p>"Shiwoo, you! Hold this!"</p>
 
 <p>Mom doesn't look Shiwoo straight in the eye, but stretches out her arm and hands Shiwoo the shopping basket she was holding.</p>
 
 <p>The shopping basket she handed over contained alcoholic beverages and greasy-looking instant foods.</p>
 
-<p>「Huh? What's this? There's Cigarettes and a lighter in here too?」</p>
+<p>"Huh? What's this? There's Cigarettes and a lighter in here too?"</p>
 
 <p>Shiwoo receives the shopping basket Mom handed him, looks inside, and asks as if he's puzzled.</p>
 
-<p>「Follow me!」</p>
+<p>"Follow me!"</p>
 
 <p>Mom doesn't answer Shiwoo's question, but abruptly tells him to follow her and turns around.</p>
 
@@ -112,7 +112,7 @@ chapter = 398
 
 <p>Mom's Breasts and Buttocks, and the Flesh of her Thighs, swaying abundantly inside the t-shirt...</p>
 
-<p>「Mom, but where are we really going now? It doesn't seem like it's towards the house?」</p>
+<p>"Mom, but where are we really going now? It doesn't seem like it's towards the house?"</p>
 
 <p>Shiwoo asks Mom, who isn't telling him where they're going, as if he's worried.</p>
 
@@ -122,11 +122,11 @@ chapter = 398
 
 <p>Shiwoo decides to take it easy and follows behind Mom.</p>
 
-<p>「I was a little worried because you didn't reply I thought something had happened to Mom...」</p>
+<p>"I was a little worried because you didn't reply I thought something had happened to Mom..."</p>
 
-<p>「Or that you might have run away somewhere again without saying anything You did that before, didn't you?」</p>
+<p>"Or that you might have run away somewhere again without saying anything You did that before, didn't you?"</p>
 
-<p>「It's not even because of me this time Right?」</p>
+<p>"It's not even because of me this time Right?"</p>
 
 <p>Shiwoo continues to talk in a nonchalant and provocative way, keeping a step or two away from Mom.</p>
 
@@ -160,11 +160,11 @@ chapter = 398
 
 <p>What business does Mom have here that she brought Shiwoo along?</p>
 
-<p>「Mom, weren't you going to talk to me about something?」</p>
+<p>"Mom, weren't you going to talk to me about something?"</p>
 
 <p>Shiwoo looks at Mom and says as if he's puzzled.</p>
 
-<p>「I came to talk, then! Where else is there for me to have such a conversation with you now but a place like this?」</p>
+<p>"I came to talk, then! Where else is there for me to have such a conversation with you now but a place like this?"</p>
 
 <p>Mom was answering Shiwoo's words as if she was getting angry.</p>
 
@@ -198,12 +198,12 @@ chapter = 398
 
 <p>Shiwoo was a little surprised at Mom's surprisingly skilled hand movements.</p>
 
-<p>「Mom, have you been to a place like this before?」</p>
+<p>"Mom, have you been to a place like this before?"</p>
 
 <p>Shiwoo said, looking at Mom who was paying at the kiosk.</p>
 
 <p>Mom hesitates for a moment, then answers Shiwoo as if she's getting angry.</p>
 
-<p>「Why do you keep asking questions? Just go in quickly! Room 17!」</p>
+<p>"Why do you keep asking questions? Just go in quickly! Room 17!"</p>
 
 <p>Mom says as if she's annoyed by Shiwoo, who is talking to her in a friendly way, and goes ahead into the coin room located quite far inside, turning the corner.</p>

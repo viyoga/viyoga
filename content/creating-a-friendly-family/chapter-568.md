@@ -6,57 +6,57 @@ chapter = 568
 +++
 <p>But barely suppressing that intensely surging impulse, Shiwoo speaks to Mom again.</p>
 
-<p>「Yeah. It seems you drank just the right amount as I thought Hehe. How is it now? Is it worth swirling around your tongue to taste?」</p>
+<p>"Yeah. It seems you drank just the right amount as I thought Hehe. How is it now? Is it worth swirling around your tongue to taste?"</p>
 
 <p>Shiwoo texted Mom, as if repeatedly confirming and asking for her impressions of the taste of his semen that she was holding in her mouth.</p>
 
-<p>「Why do you keep asking about that?! Mom is dying of embarrassment! You seriously don't know what 'moderately' means! What 'moderately' means!」</p>
+<p>"Why do you keep asking about that?! Mom is dying of embarrassment! You seriously don't know what 'moderately' means! What 'moderately' means!"</p>
 
 <p>Mom says, flaring up as if grumbling to herself.</p>
 
-<p>「I can't even ask! I'm curious about what it tastes like! You received my semen in your mouth from Seyoung, and you're even having this conversation with me via text, and you can't even tell me that much?」</p>
+<p>"I can't even ask! I'm curious about what it tastes like! You received my semen in your mouth from Seyoung, and you're even having this conversation with me via text, and you can't even tell me that much?"</p>
 
 <p>Shiwoo, rather brazenly, retorted to Mom as if he was feeling hurt.</p>
 
 <p>Mom, stopping her reply for a moment after seeing Shiwoo's text...</p>
 
-<p>「It's thick... viscous... it sticks all around my tongue, so it feels really strange... on my palate and cheeks too.... I think I can taste some saltiness too... because of the smell of your semen, Shiwoo, my head is foggy, and my body feels languid all over... Is that enough?」</p>
+<p>"It's thick... viscous... it sticks all around my tongue, so it feels really strange... on my palate and cheeks too.... I think I can taste some saltiness too... because of the smell of your semen, Shiwoo, my head is foggy, and my body feels languid all over... Is that enough?"</p>
 
 <p>Mom sends her carefully written impressions of the taste of Shiwoo's semen, asking as if she's displeased.</p>
 
 <p>Seeing Mom's text, which described her impressions of the taste of his semen, blood rushes to Shiwoo's penis.</p>
 
-<p>「Cute, our Mom! Just because I asked, you're answering everything like that I'll have to give you lots of love when I get home today when the other family members aren't watching Hehehe」</p>
+<p>"Cute, our Mom! Just because I asked, you're answering everything like that I'll have to give you lots of love when I get home today when the other family members aren't watching Hehehe"</p>
 
 <p>Shiwoo said, teasing Mom in a nonchalant manner.</p>
 
-<p>「-_-^^^」</p>
+<p>"-_-^^^"</p>
 
 <p>Mom's angry emoticon returns immediately, as if trying to hide her awkwardness and shame...</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>「Did you clean the second floor? You need to change the sheets, right? You'll need to ventilate the room too, right?」</p>
+<p>"Did you clean the second floor? You need to change the sheets, right? You'll need to ventilate the room too, right?"</p>
 
 <p>Shiwoo changed the subject and asked Mom.</p>
 
-<p>「I'm going to do it now...」</p>
+<p>"I'm going to do it now..."</p>
 
 <p>Mom answers Shiwoo's question as if she's indifferent.</p>
 
-<p>「You have to go up there naked, right? Leaving your panties and necklace behind...」</p>
+<p>"You have to go up there naked, right? Leaving your panties and necklace behind..."</p>
 
 <p>Shiwoo isn't giving a one-sided order, but simply asking as if confirming the newly established rule.</p>
 
-<p>「Yeah... I know...」</p>
+<p>"Yeah... I know..."</p>
 
 <p>Mom answers Shiwoo as if she remembers the rule.</p>
 
-<p>「You can take a picture and send it to me before you go up to the second floor, right? A full-body picture... reflected in the mirror!」</p>
+<p>"You can take a picture and send it to me before you go up to the second floor, right? A full-body picture... reflected in the mirror!"</p>
 
 <p>Shiwoo spoke to Mom in a casual tone, as if demanding something obvious.</p>
 
-<p>「Okay... wait for me...」</p>
+<p>"Okay... wait for me..."</p>
 
 <p>A short reply came back from Mom after a while.</p>
 
@@ -78,17 +78,17 @@ chapter = 568
 
 <p>Her entire body flowed with natural curves, as if each one contained different stories.</p>
 
-<p>「I can go up to the second floor now, right?」</p>
+<p>"I can go up to the second floor now, right?"</p>
 
 <p>A text message arrived from Mom again, as if seeking permission from Shiwoo.</p>
 
-<p>「You have to get permission from Sehee too! That's what we decided. Sehee's room is on the second floor too! Send the picture you sent me to Sehee, and then talk to her!」</p>
+<p>"You have to get permission from Sehee too! That's what we decided. Sehee's room is on the second floor too! Send the picture you sent me to Sehee, and then talk to her!"</p>
 
 <p>Shiwoo said, as if reminding Mom of the rule that she had to get permission from Sehee Nuna to go up to the second floor.</p>
 
 <p>And he adds the command to send the full-body picture of Mom that she sent to him to Sehee Nuna as well.</p>
 
-<p>「Okay... I'll talk to Sehee too... and send the picture... but can I ask Sehee to stop the vibrator for me?」</p>
+<p>"Okay... I'll talk to Sehee too... and send the picture... but can I ask Sehee to stop the vibrator for me?"</p>
 
 <p>Mom replies to Shiwoo with a soft and gentle tone.</p>
 
@@ -100,7 +100,7 @@ chapter = 568
 
 <p>Thanks to what she experienced in one night, have those psychological barriers been broken down now?</p>
 
-<p>「Yeah Try asking her! But know that if Sehee says no, you have to keep doing it!」</p>
+<p>"Yeah Try asking her! But know that if Sehee says no, you have to keep doing it!"</p>
 
 <p>Shiwoo answers as if doing her a favor and granting Mom's request.</p>
 
@@ -132,37 +132,37 @@ chapter = 568
 
 <p>Shiwoo opened the 1:1 chat window with Cheoljin on his smartphone and seemed to be contemplating for a moment.</p>
 
-<p>「Where are you? Aren't you coming to school?」</p>
+<p>"Where are you? Aren't you coming to school?"</p>
 
 <p>Shiwoo couldn't overcome his impatience and sent a text to Cheoljin.</p>
 
 <p>Cheoljin checked the text Shiwoo sent after a while.</p>
 
-<p>「Shiwoo, what's wrong with you? Texting me in the morning? What did the homeroom teacher say? Or did you miss your hyung that much over the weekend? Kkk」</p>
+<p>"Shiwoo, what's wrong with you? Texting me in the morning? What did the homeroom teacher say? Or did you miss your hyung that much over the weekend? Kkk"</p>
 
 <p>Cheoljin was puzzled by Shiwoo's text, but also answered with a mix of jokes, as if Shiwoo's unexpected interest was burdensome.</p>
 
-<p>「Crazy...! The homeroom teacher hasn't come in yet. I came to the academy and didn't see you, so I thought maybe you were dragged away by your hyungs and getting beaten up, so I sent you a text. It's okay if nothing's wrong.」</p>
+<p>"Crazy...! The homeroom teacher hasn't come in yet. I came to the academy and didn't see you, so I thought maybe you were dragged away by your hyungs and getting beaten up, so I sent you a text. It's okay if nothing's wrong."</p>
 
 <p>Shiwoo sends a text to Cheoljin, as if joking with him, with a nonchalant tone mixed with concern and playfulness.</p>
 
-<p>「Ah It's not that nothing's wrong Hehe. I think I'll be a bit late today. Something big came up...」</p>
+<p>"Ah It's not that nothing's wrong Hehe. I think I'll be a bit late today. Something big came up..."</p>
 
 <p>Cheoljin replies to Shiwoo, putting his unique swaggering tone in the text.</p>
 
-<p>「What's wrong? Are you doing that with your mom and that thing again?」</p>
+<p>"What's wrong? Are you doing that with your mom and that thing again?"</p>
 
 <p>Shiwoo sends a text, as if trying to figure out what Cheoljin is up to, with a feeling of subtly probing about the bondage play of Gyuri Ajumma that he saw last time.</p>
 
-<p>「Well... is it similar?... I'll tell you when we meet later」</p>
+<p>"Well... is it similar?... I'll tell you when we meet later"</p>
 
-<p>「I think I can somehow arrive before lunchtime, so let's meet then!」</p>
+<p>"I think I can somehow arrive before lunchtime, so let's meet then!"</p>
 
 <p>Cheoljin sends a reply, stimulating Shiwoo's curiosity and teasing him with a slow tempo.</p>
 
 <p>Cheoljin is saving his words, acting leisurely, as if he is unraveling the clues of the story he will tell next time.</p>
 
-<p>「Okay」</p>
+<p>"Okay"</p>
 
 <p>Curiosity and annoyance filled his heart, but Shiwoo already realized that he couldn't easily get an answer from Cheoljin even if he tried harder.</p>
 
@@ -172,7 +172,7 @@ chapter = 568
 
 <p>Cheoljin sent another text.</p>
 
-<p>「Didn't anything happen to you over the weekend?」</p>
+<p>"Didn't anything happen to you over the weekend?"</p>
 
 <p>Cheoljin asks Shiwoo, as if asking about his well-being over the weekend...</p>
 
@@ -182,10 +182,10 @@ chapter = 568
 
 <p>And the faces of Sinbi Nuna and Sora Nuna, who had come to his house yesterday...</p>
 
-<p>「What could have happened?」</p>
+<p>"What could have happened?"</p>
 
 <p>Shiwoo retorts, as if denying that anything happened.</p>
 
-<p>「Well, it's okay if nothing happened But if you're ever in trouble alone or something strange happens, tell hyung right away! Especially be careful because you shouldn't just sign things carelessly... Kkkk」</p>
+<p>"Well, it's okay if nothing happened But if you're ever in trouble alone or something strange happens, tell hyung right away! Especially be careful because you shouldn't just sign things carelessly... Kkkk"</p>
 
 <p>Cheoljin says to Shiwoo with an attitude that seems to be swaggering to the end.</p>

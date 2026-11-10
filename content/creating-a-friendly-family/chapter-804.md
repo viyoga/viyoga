@@ -26,23 +26,23 @@ chapter = 804
 
 <p>Every time that precarious sense of balance and trembling sensation seeped into his mind through his palm, Siu's eyes sank deeper and darker. Mother's short, thin breaths, mixing into the peaceful noise of the cafe, sounded to Siu like a victory song sweeter than anything else.</p>
 
-<p>「But you seem quite confident?」</p>
+<p>"But you seem quite confident?"</p>
 
 <p>Siu spoke to Mother with a smile mixed with mockery.</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>Mother reacted as if slightly flustered by Siu's sudden question.</p>
 
-<p>「The emoticon... You clearly know what will happen later if you send it like that... Are you doing it on purpose?」</p>
+<p>"The emoticon... You clearly know what will happen later if you send it like that... Are you doing it on purpose?"</p>
 
 <p>Siu released the downward-pulled panties as if snapping them, letting the piece of fabric lightly strike her smooth skin. Along with the low-pitched words, a thin vibration was created as it hit her thigh. Mother bowed her head, her face dyed red with shame, and her shoulders flinched as if he had hit the mark.</p>
 
-<p>「Please be gentle... anyway...」</p>
+<p>"Please be gentle... anyway..."</p>
 
 <p>Mother spoke cautiously while watching Siu's reaction, as if she anticipated the harsh price her brief rebellion would bring.</p>
 
-<p>「It's almost time to meet the tattoo shop owner, right? Shall we go now?」</p>
+<p>"It's almost time to meet the tattoo shop owner, right? Shall we go now?"</p>
 
 <p>Siu spoke while pulling her into his embrace, as if ignoring Mother's words. Mother nodded while held in Siu's arms. While leaving the cafe, a few customers and the clerk sent strange looks mixed with suspicion and curiosity, as if they had read the peculiar atmosphere between the two. Siu walked toward the cafe entrance as if he were completely unaware of those people's gazes. Soon, the sound of the tinkling door bell broke the silence, pushing the two out into the late afternoon air.</p>
 
@@ -52,42 +52,42 @@ chapter = 804
 
 <p class="scene-break">· · ·</p>
 
-<p>「When you were trying to quit... what was in your heart?」</p>
+<p>"When you were trying to quit... what was in your heart?"</p>
 
 <p>Siu asked her as he walked toward the tattoo shop while holding Mother in his arms.</p>
 
-<p>「W-what?」</p>
+<p>"W-what?"</p>
 
 <p>Mother reacted to Siu's question as if trying to grab onto the fading thread of her thoughts.</p>
 
-<p>「Being a slave, I mean... You said you tried to quit because of us? What was in your heart back then?」</p>
+<p>"Being a slave, I mean... You said you tried to quit because of us? What was in your heart back then?"</p>
 
 <p>Siu whispered in a low voice, bringing his lips right up to Mother's ear. As the word 'slave' flowed from Siu's lips, Mother hesitated slightly and flinched her shoulders as if faltering. Was it because she realized anew how futile all the resolutions and determinations she had struggled with alone to protect the boundaries of her crumbling reality were, now that she was dragged out onto the street while held in her son's hand? Or was it because of a belated guilt for the past arrogance and insolence of daring to try and escape that path, now that she had fully accepted her fate as her son's slave?</p>
 
-<p>「What else could it be... I just wanted to keep it from you kids... because I didn't want to pass down the things we were going through...」</p>
+<p>"What else could it be... I just wanted to keep it from you kids... because I didn't want to pass down the things we were going through..."</p>
 
 <p>Mother spoke with her head hanging low, slumped helplessly in her son's arms. As if admitting that her impossible wish from the past had ultimately returned as a betrayal of her new master and a miserable result that was hard to bear... Siu moved the hand he had placed on Mother's pelvis downward, hooking his fingers onto the outline of the panty band caught between her thighs.</p>
 
-<p>「The things mothers go through... are you talking about stuff like this?」</p>
+<p>"The things mothers go through... are you talking about stuff like this?"</p>
 
 <p>Siu spoke mischievously while lightly pulling down on the outline of the panty band hooked in his hand.</p>
 
-<p>「 Ha-eut! 」</p>
+<p>" Ha-eut! "</p>
 
 <p>He felt Mother's pelvis and thigh muscles instantly tighten and um-jjil twitch as if snapping back. Siu released the strength in the hand he was pulling down and gently stroked up Mother's thighs and buttocks. Then, he firmly fixed his hand's position on her pelvis again, gathering the heavy flesh of her body into his hand through the thin fabric.</p>
 
-<p>「Haah If you think about it, we were raised from a young age to serve masters, so Seon-ju and I have never not been slaves since our days as trainee slaves...」</p>
+<p>"Haah If you think about it, we were raised from a young age to serve masters, so Seon-ju and I have never not been slaves since our days as trainee slaves..."</p>
 
 <p>Mother let out a long sigh and spoke as if confessing, emphasizing that their lives were by no means ordinary. Siu was listening intently to Mother's story while stroking the hand he had placed on her pelvis.</p>
 
-<p>「So I thought it wouldn't matter. Even after I met your father... no matter what things I would face in the future...」</p>
+<p>"So I thought it wouldn't matter. Even after I met your father... no matter what things I would face in the future..."</p>
 
-<p>「I thought we had to accept our fate... because back then, I didn't know what it meant to become a mother or what it was like to give birth and raise children...」</p>
+<p>"I thought we had to accept our fate... because back then, I didn't know what it meant to become a mother or what it was like to give birth and raise children..."</p>
 
 <p>Her shoulders slumped powerlessly in Siu's arms, and her exhaled breath was steeped in the deep resignation of the past.</p>
 
-<p>「But those thoughts started to change little by little from the time I was pregnant with Se-jin. As the due date approached, that anxiety became clearer...」</p>
+<p>"But those thoughts started to change little by little from the time I was pregnant with Se-jin. As the due date approached, that anxiety became clearer..."</p>
 
-<p>「When I thought that my child, and the little ones that child would eventually give birth to, would have to live as someone's property... it really felt like a corner of my heart was burning up.」</p>
+<p>"When I thought that my child, and the little ones that child would eventually give birth to, would have to live as someone's property... it really felt like a corner of my heart was burning up."</p>
 
 <p>Mother's voice as she continued was trembling thinly, moist with emotion. The desperation of a mother who wanted to break the shackles of heredity and let her children live a perfectly ordinary life was transmitted directly to Siu's chest.</p>

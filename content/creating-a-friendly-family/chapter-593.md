@@ -118,89 +118,89 @@ chapter = 593
 
 <p>A short, sharp jolt pierced Shiwoo's spine.</p>
 
-<p>「Is this Sejin's officetel?」</p>
+<p>"Is this Sejin's officetel?"</p>
 
 <p>Mom, even after checking the video, was surprisingly asking Shiwoo in a calm manner.</p>
 
 <p>Just by looking at the thumbnail of the video Shiwoo sent, she should have been able to fully tell what kind of video it was...</p>
 
-<p>「Yeah, I just arrived I'm texting you right now from Sejin's officetel bathroom.」</p>
+<p>"Yeah, I just arrived I'm texting you right now from Sejin's officetel bathroom."</p>
 
 <p>At Mom's calm reaction, Shiwoo also stopped masturbating and replied casually via text.</p>
 
 <p>Then, while waiting for Mom's reply, Shiwoo vigorously stroked his penis again.</p>
 
-<p>「You're doing this secretly, right? Is Sejin outside? The sound is too loud!」</p>
+<p>"You're doing this secretly, right? Is Sejin outside? The sound is too loud!"</p>
 
 <p>Mom spoke to Shiwoo as if giving a warning, checking on his situation and seemingly worried.</p>
 
 <p>At Mom's uniquely nuanced advice to her son, who was masturbating in her daughter's officetel bathroom, Shiwoo felt an indescribable sense of liberation and a bewildering arousal simultaneously.</p>
 
-<p>「Sejin went to the supermarket to buy groceries and hasn't come back yet.」</p>
+<p>"Sejin went to the supermarket to buy groceries and hasn't come back yet."</p>
 
-<p>「I arrived a bit early and called Sejin Nuna, and she told me to just come into her officetel first.」</p>
+<p>"I arrived a bit early and called Sejin Nuna, and she told me to just come into her officetel first."</p>
 
-<p>「So I came in first. I'm alone in the officetel where Sejin Nuna lives right now.」</p>
+<p>"So I came in first. I'm alone in the officetel where Sejin Nuna lives right now."</p>
 
 <p>Shiwoo replied to Mom, explaining the current situation in detail.</p>
 
-<p>「Sejin Nuna even told you the officetel password?」</p>
+<p>"Sejin Nuna even told you the officetel password?"</p>
 
 <p>Mom was asking Shiwoo as if she found it curious.</p>
 
-<p>「Yeah When I told her I was almost at the officetel over the phone, she told me right away?」</p>
+<p>"Yeah When I told her I was almost at the officetel over the phone, she told me right away?"</p>
 
 <p>Shiwoo, feeling a little smug, spoke to Mom as if boasting.</p>
 
-<p>「But where are you right now, Mom?」</p>
+<p>"But where are you right now, Mom?"</p>
 
 <p>Then, Shiwoo, draping the panties over his penis shaft, asked Mom.</p>
 
-<p>「Mom just left the house. I'm on my way to Sehee's elite academy.」</p>
+<p>"Mom just left the house. I'm on my way to Sehee's elite academy."</p>
 
 <p>Mom was dutifully answering Shiwoo's question.</p>
 
-<p>「What about the vibrator and underwear?」</p>
+<p>"What about the vibrator and underwear?"</p>
 
 <p>Seeing Mom's text that she had left the house, Shiwoo asked again as if checking.</p>
 
-<p>「I'm wearing it...the vibrator...」</p>
+<p>"I'm wearing it...the vibrator..."</p>
 
-<p>「And my underwear is pulled down, hanging on my thighs...」</p>
+<p>"And my underwear is pulled down, hanging on my thighs..."</p>
 
 <p>Mom texted Shiwoo with a slight pause, as if a little shy.</p>
 
-<p>「Isn't it uncomfortable to walk?」</p>
+<p>"Isn't it uncomfortable to walk?"</p>
 
 <p>Shiwoo asked, seemingly trying to gauge Mom's feelings.</p>
 
-<p>「Of course it's uncomfortable! Why would you ask something so obvious?」</p>
+<p>"Of course it's uncomfortable! Why would you ask something so obvious?"</p>
 
 <p>Mom spoke as if Shiwoo's question was annoying.</p>
 
-<p>「Just curious about what state you're in right now hehehe」</p>
+<p>"Just curious about what state you're in right now hehehe"</p>
 
 <p>Shiwoo chuckled awkwardly, reacting to Mom's curt tone.</p>
 
-<p>「But Shiwoo, shouldn't you finish that before Sejin Nuna comes? You're doing it without Sejin Nuna knowing, right?」</p>
+<p>"But Shiwoo, shouldn't you finish that before Sejin Nuna comes? You're doing it without Sejin Nuna knowing, right?"</p>
 
 <p>Mom spoke about Shiwoo's masturbation as if she were worried.</p>
 
 <p>Shiwoo found Mom's attitude, sending a text telling him to be gentle, convinced that he and Sejin Nuna would have sex, yet fretting that her son's masturbation might be discovered by her daughter, somehow both cute and amusing.</p>
 
-<p>「Ah I'm going to cum on Sejin Nuna's discarded panties! I thought I could cum faster if I talked to Mom, so I was checking what you were doing right now Talking about these things with Mom makes me feel so strangely good hehe」</p>
+<p>"Ah I'm going to cum on Sejin Nuna's discarded panties! I thought I could cum faster if I talked to Mom, so I was checking what you were doing right now Talking about these things with Mom makes me feel so strangely good hehe"</p>
 
 <p>Shiwoo, pleased that he could naturally discuss his masturbation with Mom, spoke as if conveying his heartfelt feelings.</p>
 
-<p>「Alright, just cum quickly! After you cum, wash it and hide it well!」</p>
+<p>"Alright, just cum quickly! After you cum, wash it and hide it well!"</p>
 
 <p>Mom spoke to Shiwoo as if she was worried until the very end that his masturbation might be discovered.</p>
 
-<p>「Mom! I can't hold it! I'm going to turn on the vibrator until I cum semen! Is that okay?」</p>
+<p>"Mom! I can't hold it! I'm going to turn on the vibrator until I cum semen! Is that okay?"</p>
 
 <p>Shiwoo, as if suddenly greatly aroused, asked Mom if he could turn on the vibrator.</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
 <p>Mom reacted as if flustered by Shiwoo's sudden question.</p>
 
@@ -210,6 +210,6 @@ chapter = 593
 
 <p>After pressing the activate button and holding it at maximum vibration, Shiwoo returned to the chat window with Mom.</p>
 
-<p>「Is the vibrator properly buzzing right now?」</p>
+<p>"Is the vibrator properly buzzing right now?"</p>
 
 <p>Shiwoo asked Mom as if confirming whether the vibrator was working correctly.</p>

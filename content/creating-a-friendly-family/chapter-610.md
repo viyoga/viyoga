@@ -46,13 +46,13 @@ chapter = 610
 
 <p>The tip of Shiwoo's penis was aimed as if it would pierce her mouth.</p>
 
-<p>「But are you really okay with it? Me marrying the daughter Nuna gives birth to...?」</p>
+<p>"But are you really okay with it? Me marrying the daughter Nuna gives birth to...?"</p>
 
 <p>Shiwoo asked her, as if reconfirming before defiling Sejin Nuna's mouth.</p>
 
 <p>Sejin Nuna, with her eyes closed, seemed to think for a moment, then soon nodded her head.</p>
 
-<p>「Open!」</p>
+<p>"Open!"</p>
 
 <p>Shiwoo's firm command was given to her in a commanding tone.</p>
 
@@ -66,7 +66,7 @@ chapter = 610
 
 <p>Her mouth was drenched with breast milk along with Shiwoo's glans.</p>
 
-<p>「Ha-um!」</p>
+<p>"Ha-um!"</p>
 
 <p>As the breast milk, along with Shiwoo's glans, tried to fill the space in her mouth, Sejin Nuna pursed her lips, taking Shiwoo's glans fully into her mouth.</p>
 
@@ -86,7 +86,7 @@ chapter = 610
 
 <p>The ecstatic sensation of rubbing against the breast milk-drenched mucous membranes inside Sejin Nuna's mouth spread through Shiwoo's penis and throughout his entire body.</p>
 
-<p>「Chup chyu-am su-up!」</p>
+<p>"Chup chyu-am su-up!"</p>
 
 <p>Sejin Nuna's tongue was circling Shiwoo's penis shaft as it moved back and forth, trying to appease Shiwoo's lust.</p>
 
@@ -94,7 +94,7 @@ chapter = 610
 
 <p>Chul-geo-eok!</p>
 
-<p>「Ha-woo-up...」</p>
+<p>"Ha-woo-up..."</p>
 
 <p>Sejin Nuna let out a moaning sound, as if overwhelmed by Shiwoo's glans pressing and crushing her closed throat.</p>
 
@@ -112,7 +112,7 @@ chapter = 610
 
 <p>Shiwoo's massive penis struck Sejin Nuna's throat and pushed into her mouth.</p>
 
-<p>「Ha-woo-up!」</p>
+<p>"Ha-woo-up!"</p>
 
 <p>Sejin Nuna flinched, startled by Shiwoo's penis suddenly jabbing into her throat.</p>
 
@@ -132,7 +132,7 @@ chapter = 610
 
 <p>Shiwoo placed Sejin Nuna's outstretched hand onto his waist, making her arm wrap around his pelvis.</p>
 
-<p>「Shall I show you how I do it to Mom?」</p>
+<p>"Shall I show you how I do it to Mom?"</p>
 
 <p>Shiwoo spoke in a low voice, as if warning Sejin Nuna.</p>
 
@@ -146,7 +146,7 @@ chapter = 610
 
 <p>Shiwoo's smartphone was recording only sound, without video.</p>
 
-<p>「Tonight, when I have sex with Seonmi, I'm going to play this sound for her...」</p>
+<p>"Tonight, when I have sex with Seonmi, I'm going to play this sound for her..."</p>
 
 <p>Shiwoo told her, as if playfully declaring the beginning of her defilement.</p>
 
@@ -166,7 +166,7 @@ chapter = 610
 
 <p>Sejin Nuna's arms, wrapped around Shiwoo's pelvis and waist, began to tremble violently.</p>
 
-<p>「Ul-keok u-uk u-gu-uk! O-go-ok!」</p>
+<p>"Ul-keok u-uk u-gu-uk! O-go-ok!"</p>
 
 <p>Along with the convulsive tightening of her throat, Sejin Nuna's gagging sounds could be heard.</p>
 
@@ -176,7 +176,7 @@ chapter = 610
 
 <p>Shiwoo wiggled his hips back and forth, pushing the remaining slab of flesh into her throat.</p>
 
-<p>「Ha-woo geuk... kul-leok o-eok.... ok o-gok o-go-gok! U-eok uk... geu geu-geuk... geuk...」</p>
+<p>"Ha-woo geuk... kul-leok o-eok.... ok o-gok o-go-gok! U-eok uk... geu geu-geuk... geuk..."</p>
 
 <p>Sejin Nuna squeezed out agonizing coughs and gagging sounds from deep within her body, as if she were truly dying.</p>
 
@@ -214,6 +214,6 @@ chapter = 610
 
 <p>After counting the number zero in his mind, Shiwoo pulled out his penis.</p>
 
-<p>「Huo-eok! Kul-leok! Ha-ak... ku-hak keok! Kul-leok keu-a keo-heok pu-ha ha-a... kul-leok... ha-ak ha-a-a...」</p>
+<p>"Huo-eok! Kul-leok! Ha-ak... ku-hak keok! Kul-leok keu-a keo-heok pu-ha ha-a... kul-leok... ha-ak ha-a-a..."</p>
 
 <p>Violent breathing and coughing sounds burst from Sejin Nuna's mouth.</p>

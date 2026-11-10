@@ -8,15 +8,15 @@ chapter = 721
 
 <p>Mom seemed to have checked the photos, but perhaps she was agonizing over how to respond, as there was no immediate reply for Shiwoo.</p>
 
-<p>『Pick one of the two and set it as your smartphone background! Tell me which one you chose later!』</p>
+<p>"Pick one of the two and set it as your smartphone background! Tell me which one you chose later!"</p>
 
 <p>Shiwoo commanded her, as if giving her a choice.</p>
 
-<p>『I get it! Now just go, for real! Hurry!』</p>
+<p>"I get it! Now just go, for real! Hurry!"</p>
 
 <p>Mom seemed to hesitate before giving a short, dismissive reply, as if she were trying to usher him away.</p>
 
-<p>『Hahaha, okay! I'm really going... See you later, Mom』</p>
+<p>"Hahaha, okay! I'm really going... See you later, Mom"</p>
 
 <p>Shiwoo sent his final greeting to Mom and ended the chat.</p>
 

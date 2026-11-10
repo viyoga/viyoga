@@ -16,37 +16,37 @@ chapter = 573
 
 <p>Shiwoo closes the vibrator operation app and opens the 1:1 chat window with Mom again.</p>
 
-<p>「Mom?」</p>
+<p>"Mom?"</p>
 
 <p>Shiwoo affectionately calls her by the title Mom.</p>
 
-<p>「Why?!」</p>
+<p>"Why?!"</p>
 
 <p>Mom replied to Shiwoo's call with a slightly irritable attitude.</p>
 
-<p>「Is the vibrator still stuck there?」</p>
+<p>"Is the vibrator still stuck there?"</p>
 
 <p>Shiwoo asks Mom again, as if reconfirming whether she is wearing the vibrator.</p>
 
-<p>「I'm wearing it... But why are you making it ring again? Mom already finished!」</p>
+<p>"I'm wearing it... But why are you making it ring again? Mom already finished!"</p>
 
 <p>Mom answers Shiwoo's question as if annoyed.</p>
 
-<p>「I was just talking to Mom and suddenly had a horny thought...」</p>
+<p>"I was just talking to Mom and suddenly had a horny thought..."</p>
 
-<p>「But I can turn it on, right? It's mine anyway...」</p>
+<p>"But I can turn it on, right? It's mine anyway..."</p>
 
 <p>Shiwoo talks as if turning the vibrator on and off that is attached to Mom is no longer a special thing.</p>
 
 <p>As if he can openly reveal and assert his ownership of the vibrator or her body in everyday life without any hesitation or reservation...</p>
 
-<p>「Mom, if you really do this, I won't be able to do anything in the morning... I'm already exhausted... I have to charge this before I go pick up Sehee, too! If I can't charge it and Sehee scolds me later, will you, Shiwoo, take responsibility?」</p>
+<p>"Mom, if you really do this, I won't be able to do anything in the morning... I'm already exhausted... I have to charge this before I go pick up Sehee, too! If I can't charge it and Sehee scolds me later, will you, Shiwoo, take responsibility?"</p>
 
 <p>Mom did not refute or argue with Shiwoo's words that seemed to assert ownership over her, but rather seemed more concerned and worried about being scolded by Sehee Nuna.</p>
 
 <p>It seems that the hierarchy between Mom and Sehee Nuna is almost established.</p>
 
-<p>「Well Sehee also has her own position, so I can't say anything about her scolding Mom now, but if I tell her that I made you do it, won't you get scolded less? Hehehe」</p>
+<p>"Well Sehee also has her own position, so I can't say anything about her scolding Mom now, but if I tell her that I made you do it, won't you get scolded less? Hehehe"</p>
 
 <p>Shiwoo speaks playfully in front of Mom, as if acknowledging Sehee Nuna's authority and the newly formed relationship between the two mothers and daughters.</p>
 
@@ -82,13 +82,13 @@ chapter = 573
 
 <p>Shiwoo reopens the 1:1 chat window with Mom, where the conversation has stopped, and uploads his penis photo that he just took, following Sehee Nuna's video.</p>
 
-<p>「I'm like this right now! I want to rape you until Mom begs me to save her...」</p>
+<p>"I'm like this right now! I want to rape you until Mom begs me to save her..."</p>
 
 <p>Then, he immediately writes down and sends his honest feelings and state to Mom in a text message.</p>
 
 <p>Shiwoo seems to be showing off his boiling lust and erection to her, using Mom as an excuse.</p>
 
-<p>「......」</p>
+<p>"......"</p>
 
 <p>Mom uses ellipsis again to let him know that she is watching Shiwoo's text.</p>
 
@@ -96,13 +96,13 @@ chapter = 573
 
 <p>But paradoxically, that ambiguous expression seemed to reveal her inner confusion and agitation most clearly to the outside.</p>
 
-<p>「I'm going to turn on the vibrator like this while I'm checking the video Mom sent Is that okay?」</p>
+<p>"I'm going to turn on the vibrator like this while I'm checking the video Mom sent Is that okay?"</p>
 
 <p>Shiwoo was carefully asking as if reconfirming Mom's reaction.</p>
 
 <p>Mom seemed to hesitate for a moment, then sent a proper text message instead of an ellipsis this time.</p>
 
-<p>「I don't care! Hurry up and check the video and tell me if I can drink water! I'm going to go to my room and lie down for a while with a cup of water...!」</p>
+<p>"I don't care! Hurry up and check the video and tell me if I can drink water! I'm going to go to my room and lie down for a while with a cup of water...!"</p>
 
 <p>Mom seemed to be slightly annoyed about the situation of feeling thirsty, but did not seem to care much about Shiwoo's rudeness or mischievous tone shown in the 1:1 chat window.</p>
 

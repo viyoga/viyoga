@@ -4,15 +4,15 @@ weight = 102
 [extra]
 chapter = 102
 +++
-<p>「Thanks Shiwoo, I'll eat well!!」</p>
+<p>"Thanks Shiwoo, I'll eat well!!"</p>
 
 <p>Sinbi Nuna and Sora Nuna offered their thanks as if in unison to Shiwoo, who was sitting next to Sehee Nuna.</p>
 
-<p>「Ah... uh... yes」</p>
+<p>"Ah... uh... yes"</p>
 
 <p>Shiwoo awkwardly blinked his head, receiving the greetings in a daze.</p>
 
-<p>「But you two seem to have gotten really close Your younger brother comes to pick you up from the academy every time」</p>
+<p>"But you two seem to have gotten really close Your younger brother comes to pick you up from the academy every time"</p>
 
 <p>Sora Nuna spoke to the awkward Shiwoo, as if envious.</p>
 
@@ -22,21 +22,21 @@ chapter = 102
 
 <p>Shiwoo's 'thing' began to react slightly.</p>
 
-<p>「Ah... yes... there were... some circumstances.」</p>
+<p>"Ah... yes... there were... some circumstances."</p>
 
 <p>Shiwoo's eyes briefly flickered to Sora Nuna's cleavage, then he quickly shifted his gaze elsewhere as he replied.</p>
 
-<p>「It's good for siblings to be close, you know! Shiwoo, you eat too Should we order more tteokbokki or sundae? If you're hungry, do you want some ramen?」</p>
+<p>"It's good for siblings to be close, you know! Shiwoo, you eat too Should we order more tteokbokki or sundae? If you're hungry, do you want some ramen?"</p>
 
 <p>Sinbi Nuna spoke kindly, with a gentle voice and expression, as if taking care of the troubled Shiwoo.</p>
 
 <p>At Sinbi Nuna's words, Shiwoo felt a slight chill, knowing she was aware of all the situations with Sehee Nuna.</p>
 
-<p>「Ah I-I'm fine It seems like there's still a lot left, if you Nunas run out while eating, we can order more」</p>
+<p>"Ah I-I'm fine It seems like there's still a lot left, if you Nunas run out while eating, we can order more"</p>
 
 <p>Shiwoo replied, unable to look Sinbi Nuna directly in the face, as if embarrassed.</p>
 
-<p>「Here chopsticks! Shiwoo, you eat a lot too」</p>
+<p>"Here chopsticks! Shiwoo, you eat a lot too"</p>
 
 <p>Sora Nuna leaned forward slightly, handing new chopsticks to Shiwoo.</p>
 
@@ -48,17 +48,17 @@ chapter = 102
 
 <p>Shiwoo's 'thing' began to tingle and swell with power.</p>
 
-<p>「Ah... yes, thank you.」</p>
+<p>"Ah... yes, thank you."</p>
 
 <p>Shiwoo adjusted his posture, avoided eye contact, and politely accepted the chopsticks with both hands, offering his thanks.</p>
 
-<p>「But you can speak informally to me now」</p>
+<p>"But you can speak informally to me now"</p>
 
 <p>Sora Nuna said, holding onto the chopsticks she was handing to Shiwoo, preventing him from taking them.</p>
 
 <p>Sora Nuna and Shiwoo ended up in a tug-of-war over the chopsticks.</p>
 
-<p>「...What?!」</p>
+<p>"...What?!"</p>
 
 <p>Shiwoo's gaze, which had been directed downwards, rose towards Sora Nuna's body.</p>
 
@@ -66,21 +66,21 @@ chapter = 102
 
 <p>Shiwoo's gaze was momentarily captivated by Sora Nuna's pure white flesh, which looked as if it would feel good to the touch.</p>
 
-<p>「Shiwoo, this is the third time you've seen me, right?」</p>
+<p>"Shiwoo, this is the third time you've seen me, right?"</p>
 
 <p>Sora Nuna looked down at Shiwoo, speaking as if pleased.</p>
 
-<p>「No!... Ah... yes... yes... that's right.」</p>
+<p>"No!... Ah... yes... yes... that's right."</p>
 
 <p>Shiwoo replied, startled, avoiding eye contact and blushing.</p>
 
-<p>「So you can speak informally to me now too」</p>
+<p>"So you can speak informally to me now too"</p>
 
 <p>Sora Nuna said, relaxing her grip on the chopsticks.</p>
 
 <p>The chopsticks slowly slid towards Shiwoo.</p>
 
-<p>「Ah...」</p>
+<p>"Ah..."</p>
 
 <p>Shiwoo's 'thing' had somehow become fully erect.</p>
 
@@ -88,19 +88,19 @@ chapter = 102
 
 <p>Sehee Nuna was looking away from Shiwoo, gazing outside the snack bar.</p>
 
-<p>「Do as you please!」</p>
+<p>"Do as you please!"</p>
 
 <p>Sehee Nuna spoke in a dry, unenthusiastic tone.</p>
 
-<p>「You speak informally to Sehee and Sinbi, but formally to me, it makes me feel left out」</p>
+<p>"You speak informally to Sehee and Sinbi, but formally to me, it makes me feel left out"</p>
 
 <p>Sora Nuna leaned forward, speaking to Shiwoo as if to charm him.</p>
 
-<p>「Uh... huh...」</p>
+<p>"Uh... huh..."</p>
 
 <p>Shiwoo replied, looking at Sora Nuna's cleavage again.</p>
 
-<p>「Anyway, at the blind date, you're going to say you're a first-year at a prestigious academy, aren't you? You should practice speaking informally beforehand！」</p>
+<p>"Anyway, at the blind date, you're going to say you're a first-year at a prestigious academy, aren't you? You should practice speaking informally beforehand！"</p>
 
 <p>Sora Nuna mentioned the group blind date scheduled for Friday.</p>
 
@@ -112,21 +112,21 @@ chapter = 102
 
 <p>Though he knew, discussing the specific details of the blind date with his Nunas' friends made Shiwoo feel something strange and bittersweet.</p>
 
-<p>「O-okay... I understand Sora Nuna.」</p>
+<p>"O-okay... I understand Sora Nuna."</p>
 
 <p>With complex emotions, Shiwoo glanced at Sora Nuna's breasts again and tried speaking informally, awkwardly.</p>
 
-<p>「But if you're going to practice like that, shouldn't you drop the 'Nuna' and just call them by their names?」</p>
+<p>"But if you're going to practice like that, shouldn't you drop the 'Nuna' and just call them by their names?"</p>
 
 <p>Sinbi Nuna added, playfully egging on Sora Nuna's words from the side.</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>To just call his own Nuna's friends by their names...</p>
 
 <p>Shiwoo was flustered once again by Sinbi Nuna's words.</p>
 
-<p>「Exactly We're the same age, what's with 'Nuna'?」</p>
+<p>"Exactly We're the same age, what's with 'Nuna'?"</p>
 
 <p>Sora Nuna spoke once more, as if charming him.</p>
 
@@ -136,7 +136,7 @@ chapter = 102
 
 <p>Shiwoo quietly watched his Nuna.</p>
 
-<p>「Do as you please!」</p>
+<p>"Do as you please!"</p>
 
 <p>Finally, Sehee Nuna's acceptance came, as if she was annoyed.</p>
 
@@ -144,15 +144,15 @@ chapter = 102
 
 <p>Sora Nuna's expectant gaze.</p>
 
-<p>「O-okay then... I can call you by your name, right? Sora-ya...」</p>
+<p>"O-okay then... I can call you by your name, right? Sora-ya..."</p>
 
 <p>After calling Sora Nuna by her name informally, Shiwoo's penis felt stiff, as if blood had rushed to it to the point of aching.</p>
 
-<p>「Kkareureu Calling me by my name makes it feel like we're closer than before Call me by my name too, Shiwoo」</p>
+<p>"Kkareureu Calling me by my name makes it feel like we're closer than before Call me by my name too, Shiwoo"</p>
 
 <p>Sinbi Nuna said to Shiwoo, laughing as if amused.</p>
 
-<p>「Uh... Si... Sinbi-ya...」</p>
+<p>"Uh... Si... Sinbi-ya..."</p>
 
 <p>Just by calling his Nunas' names...</p>
 
@@ -164,15 +164,15 @@ chapter = 102
 
 <p class="scene-break">· · ·</p>
 
-<p>「But Shiwoo, you ended up agreeing to go on the blind date with us, didn't you? You said you wouldn't at first?」</p>
+<p>"But Shiwoo, you ended up agreeing to go on the blind date with us, didn't you? You said you wouldn't at first?"</p>
 
 <p>Sora Nuna continued the conversation about the blind date.</p>
 
-<p>「Huh? What are you talking about, Sora-ya?」</p>
+<p>"Huh? What are you talking about, Sora-ya?"</p>
 
 <p>Shiwoo asked again, wondering what Sora Nuna's words meant.</p>
 
-<p>「At first, you kept saying you wouldn't go on the blind date, but then you said you wouldn't go unless it was with Sinbi, right?」</p>
+<p>"At first, you kept saying you wouldn't go on the blind date, but then you said you wouldn't go unless it was with Sinbi, right?"</p>
 
 <p>Sora Nuna was telling Shiwoo something he had never heard before.</p>
 
@@ -182,13 +182,13 @@ chapter = 102
 
 <p>Sehee Nuna was nonchalantly picking up and eating a piece of fried food, pretending not to know.</p>
 
-<p>「What?!」</p>
+<p>"What?!"</p>
 
 <p>Sehee Nuna snapped at Shiwoo as if scolding him when he turned to look at her.</p>
 
 <p>Shiwoo flinched and cowered.</p>
 
-<p>「Originally, I was supposed to be your partner but because you're so shy, Shiwoo, we decided it would be with Sinbi, right?! Isn't that so?」</p>
+<p>"Originally, I was supposed to be your partner but because you're so shy, Shiwoo, we decided it would be with Sinbi, right?! Isn't that so?"</p>
 
 <p>Sora Nuna continued to speak.</p>
 
@@ -196,19 +196,19 @@ chapter = 102
 
 <p>Sehee Nuna had probably lied to Sora Nuna and changed Shiwoo's partner from Sora Nuna to Sinbi Nuna.</p>
 
-<p>「Ah... uh... yes... that's right」</p>
+<p>"Ah... uh... yes... that's right"</p>
 
 <p>Shiwoo replied, as if trying to match his words to Sehee Nuna's lie.</p>
 
-<p>「Back then, Shiwoo wasn't close to me, so he probably only looked for Sinbi, right? Now that he's close to me too, can't you switch Sinbi and me even now?」</p>
+<p>"Back then, Shiwoo wasn't close to me, so he probably only looked for Sinbi, right? Now that he's close to me too, can't you switch Sinbi and me even now?"</p>
 
 <p>Sora Nuna spoke in a charming, coquettish tone.</p>
 
-<p>「No way! It's already decided Shiwoo is mine now, heehee And because I'm sorry, Sehee is buying all of this, aren't you? How can you say such things now after eating everything」</p>
+<p>"No way! It's already decided Shiwoo is mine now, heehee And because I'm sorry, Sehee is buying all of this, aren't you? How can you say such things now after eating everything"</p>
 
 <p>Sinbi Nuna smiled brightly, firmly dismissing Sora Nuna's charm.</p>
 
-<p>「Hee-ing」</p>
+<p>"Hee-ing"</p>
 
 <p>Sora Nuna, pouting cutely.</p>
 
@@ -232,53 +232,53 @@ chapter = 102
 
 <p>It seemed an awkward atmosphere still lingered between them, due to Shiwoo's erection and the events of the morning.</p>
 
-<p>「Mom called! She told me to buy some groceries and cook you some meat!」</p>
+<p>"Mom called! She told me to buy some groceries and cook you some meat!"</p>
 
 <p>Sehee Nuna stopped walking in front of a supermarket near their house and said.</p>
 
-<p>「Huh? Mom called you?」</p>
+<p>"Huh? Mom called you?"</p>
 
 <p>Shiwoo spoke with a slight tension, hearing that Mom had called Sehee Nuna.</p>
 
-<p>「You said you had something to do this morning and would be late for the academy, didn't you?」</p>
+<p>"You said you had something to do this morning and would be late for the academy, didn't you?"</p>
 
 <p>Sehee Nuna spoke to Shiwoo in an interrogative tone.</p>
 
-<p>「Ah uh...」</p>
+<p>"Ah uh..."</p>
 
 <p>Shiwoo replied, recalling the text messages he had exchanged with Mom that morning.</p>
 
-<p>「You didn't tell Mom everything, did you?」</p>
+<p>"You didn't tell Mom everything, did you?"</p>
 
 <p>Sehee Nuna asked worriedly.</p>
 
 <p>-The rape he had committed against Sehee Nuna that morning-</p>
 
-<p>「W-why would I tell Mom that?」</p>
+<p>"W-why would I tell Mom that?"</p>
 
 <p>Shiwoo asserted his innocence, flustered.</p>
 
-<p>「Why would you text Mom while going to the academy at that hour? Mom called me to check if you were lying, didn't she!!」</p>
+<p>"Why would you text Mom while going to the academy at that hour? Mom called me to check if you were lying, didn't she!!"</p>
 
 <p>Sehee Nuna spoke, displeased and as if in a fit of anger.</p>
 
-<p>「W-what did you tell Mom?」</p>
+<p>"W-what did you tell Mom?"</p>
 
 <p>Shiwoo cautiously asked Sehee Nuna.</p>
 
-<p>「I told Mom that you sprained your ankle while jogging with me, so we need to get our story straight later! Got it?!」</p>
+<p>"I told Mom that you sprained your ankle while jogging with me, so we need to get our story straight later! Got it?!"</p>
 
 <p>Sehee Nuna seemed to have come up with a plausible excuse and told Mom.</p>
 
-<p>「Uh... okay.」</p>
+<p>"Uh... okay."</p>
 
 <p>Shiwoo replied, deliberately feigning a limp.</p>
 
-<p>「You didn't tell Mom anything else, did you?」</p>
+<p>"You didn't tell Mom anything else, did you?"</p>
 
 <p>Sehee Nuna asked Shiwoo, just in case.</p>
 
-<p>「Yeah, I just said I had something to do and didn't say anything else.」</p>
+<p>"Yeah, I just said I had something to do and didn't say anything else."</p>
 
 <p>Shiwoo was speaking to Sehee Nuna as if reporting the situation.</p>
 

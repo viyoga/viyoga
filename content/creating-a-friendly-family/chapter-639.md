@@ -28,17 +28,17 @@ chapter = 639
 
 <p>The tingling electric current of pleasure, which had been like a mere itch, now transforms into a violent, crashing wave, slamming into Shiwoo's body and wrapping around him in a shattering embrace.</p>
 
-<p>「The price of that deal... it could be money or objects, but... it could be something much more important.」</p>
+<p>"The price of that deal... it could be money or objects, but... it could be something much more important."</p>
 
 <p>She continues to speak, her fingers moving as if scratching the surface of the card.</p>
 
-<p>「Things like time, emotions, or the trust and bond felt for each other within a relationship...」</p>
+<p>"Things like time, emotions, or the trust and bond felt for each other within a relationship..."</p>
 
 <p>She is speaking to Shiwoo as if giving a warning, using vocabulary that seems far too mature for a young girl.</p>
 
 <p>As she notices the silhouette of the penis shaking back and forth under the blanket, he can feel her breathing grow slightly ragged.</p>
 
-<p>「Perhaps the targets of that contract and deal have already been decided and carried out without Oppa even knowing...」</p>
+<p>"Perhaps the targets of that contract and deal have already been decided and carried out without Oppa even knowing..."</p>
 
 <p>She speaks while barely managing to control the intonation and volume of her voice...</p>
 
@@ -52,25 +52,25 @@ chapter = 639
 
 <p>Looking at Shiwoo, she wears a satisfied expression, and after appearing to think for a moment, she continues.</p>
 
-<p>「I mentioned that the Tower card signifies unavoidable change and awakening, right?」</p>
+<p>"I mentioned that the Tower card signifies unavoidable change and awakening, right?"</p>
 
 <p>Placing her hand on the final Tower card, she continues her explanation while moving her fingers again...</p>
 
 <p>As if intoxicated by her voice, Shiwoo silently begins to move his hand, which is still gripping his penis.</p>
 
-<p>「When interpreted alongside the previous cards, the change and awakening mentioned here probably don't just refer to a change in rules resulting from inheriting the authority of succession...」</p>
+<p>"When interpreted alongside the previous cards, the change and awakening mentioned here probably don't just refer to a change in rules resulting from inheriting the authority of succession..."</p>
 
 <p>She stops mid-sentence and steals a glance at the teacher, who is currently guiding a trainee.</p>
 
 <p>After confirming that the teacher's gaze is turned elsewhere, she turns her head back and covers her mouth.</p>
 
-<p>「So, what Yu Yena-seonsaengnim wants from Shiwoo-oppa is...」</p>
+<p>"So, what Yu Yena-seonsaengnim wants from Shiwoo-oppa is..."</p>
 
-<p>「Probably a new order...」</p>
+<p>"Probably a new order..."</p>
 
 <p>She speaks in a tiny voice, barely audible, as if summarizing her own thoughts for Shiwoo.</p>
 
-<p>「And one... powerful enough to overturn and collapse all the existing world's orders, sins, and contracts...」</p>
+<p>"And one... powerful enough to overturn and collapse all the existing world's orders, sins, and contracts..."</p>
 
 <p>The final sentence from her mouth scatters into the air above the table where the cards are spread.</p>
 
@@ -102,27 +102,27 @@ chapter = 639
 
 <p>The pre-cum flowing from the tip of his penis soaks the hard, rising pillar of flesh and the hand gripping it.</p>
 
-<p>「Finally, I'm going to pick one Advice Card for you.」</p>
+<p>"Finally, I'm going to pick one Advice Card for you."</p>
 
 <p>As if unbothered by Shiwoo's actions, she speaks while reaching out her hand with an innocent smile.</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>Seeing her hand extended across the table with the palm facing upward, Shiwoo reflexively stops his hand, which had been shaking in an umjjil motion.</p>
 
-<p>「Hoot... the Advice Card is... like the final clue that pierces through all the previous cards as one.」</p>
+<p>"Hoot... the Advice Card is... like the final clue that pierces through all the previous cards as one."</p>
 
 <p>As if finding Shiwoo's reaction amusing, she continues her explanation with a meaningful smile.</p>
 
-<p>「A final piece of advice that gives a slight hint about emotions or possibilities that Oppa couldn't see for himself.」</p>
+<p>"A final piece of advice that gives a slight hint about emotions or possibilities that Oppa couldn't see for himself."</p>
 
-<p>「Or it might contain stories that Oppa absolutely needs to hear right now.」</p>
+<p>"Or it might contain stories that Oppa absolutely needs to hear right now."</p>
 
 <p>She continues her explanation carefully, in a tone that is natural yet somehow feels scripted, like a line being recited on a theater stage.</p>
 
 <p>Shiwoo stares down at her open palm with a dazed expression, hesitating.</p>
 
-<p>「Come on! Hand!」</p>
+<p>"Come on! Hand!"</p>
 
 <p>Her tone is short and concise, yet carries a playful edge, like giving a command to a pet dog.</p>
 
@@ -176,16 +176,16 @@ chapter = 639
 
 <p>In a space where only the starlight lingers on a clear, blue night without a single gust of wind, the woman exists silently as if in prayer.</p>
 
-<p>「The final Advice Card was the upright Star card, wasn't it?」</p>
+<p>"The final Advice Card was the upright Star card, wasn't it?"</p>
 
 <p>She slowly pushes the card toward Shiwoo, smiling as if pleased.</p>
 
 <p>As if she hadn't even expected it herself...</p>
 
-<p>「The Star card is a symbolic card that emits a bright and clean light.」</p>
+<p>"The Star card is a symbolic card that emits a bright and clean light."</p>
 
-<p>「It represents hope, inspiration, recovery, healing, and connection with oneself.」</p>
+<p>"It represents hope, inspiration, recovery, healing, and connection with oneself."</p>
 
-<p>「The Star card contains the journey of finding inner truth and peace, and the hopeful possibility of moving toward a bright future after passing through dark times.」</p>
+<p>"The Star card contains the journey of finding inner truth and peace, and the hopeful possibility of moving toward a bright future after passing through dark times."</p>
 
 <p>She continues to explain the meaning of the card in a low, soft voice, as if reciting a poem.</p>

@@ -10,9 +10,9 @@ chapter = 218
 
 <p>Shiwoo briefly withdrew the hand holding the panties from in front of Mom's face. Then, Shiwoo immediately unfastened the hook of the red leather dog collar with both hands. Shiwoo brought the widely opened red leather dog collar to Mom's neck.</p>
 
-<p>「Haa-eueuueu....」 As the leather texture of the semen-smeared dog collar touched Mom's neck, Mom squeezed her eyes shut and trembled as if sobbing.</p>
+<p>"Haa-eueuueu...." As the leather texture of the semen-smeared dog collar touched Mom's neck, Mom squeezed her eyes shut and trembled as if sobbing.</p>
 
-<p>「It's okay From now on, I'll take full responsibility for everything Mom doesn't have to worry」 Shiwoo whispered into Mom's ear, tightening the red dog collar around her neck.</p>
+<p>"It's okay From now on, I'll take full responsibility for everything Mom doesn't have to worry" Shiwoo whispered into Mom's ear, tightening the red dog collar around her neck.</p>
 
 <p>The leather dog collar was fastened around Mom's neck, tightened just enough not to be too snug. Shiwoo had finally equipped his own birth mother, Seonmi, with the symbol of a slave.</p>
 
@@ -64,15 +64,15 @@ chapter = 218
 
 <p>Beneath the flare skirt, Mom's secret cave entrance, gaping with his glans already poised... Shiwoo now only needed to mercilessly thrust his massive club into Mom's vagina.</p>
 
-<p>Just as he was about to forcefully violate Mom, 「Sh-Shiwoo!」</p>
+<p>Just as he was about to forcefully violate Mom, "Sh-Shiwoo!"</p>
 
-<p>Mom, trembling and preparing to be impaled by Shiwoo, urgently called out to him in a quivering voice. 「Why?!」</p>
+<p>Mom, trembling and preparing to be impaled by Shiwoo, urgently called out to him in a quivering voice. "Why?!"</p>
 
-<p>Shiwoo asked Mom in a calm tone, as if momentarily suppressing his rising excitement. 「Th-the kids...」</p>
+<p>Shiwoo asked Mom in a calm tone, as if momentarily suppressing his rising excitement. "Th-the kids..."</p>
 
-<p>Mom seemed concerned about Seyoung and Sua in the living room. 「Mmm...」</p>
+<p>Mom seemed concerned about Seyoung and Sua in the living room. "Mmm..."</p>
 
-<p>Shiwoo replied to her as if he knew what Mom was worried about. 「P-please be gentle... I-I beg you...」</p>
+<p>Shiwoo replied to her as if he knew what Mom was worried about. "P-please be gentle... I-I beg you..."</p>
 
 <p>Perhaps lacking confidence to endure Shiwoo's violent pounding without moaning, Mom pleaded with Shiwoo in a pitiful voice, as if she had completely abandoned all maternal authority. At that moment, Shiwoo's sadistic instincts surged at Mom's voice...</p>
 
@@ -80,7 +80,7 @@ chapter = 218
 
 <p>-Challssak!- A sticky, resonant smack echoed softly in the kitchen.</p>
 
-<p>「Haa-eueut!」 Mom flinched, her hips arching up.</p>
+<p>"Haa-eueut!" Mom flinched, her hips arching up.</p>
 
 <p>Mom squeezed her crotch, transforming the escaping moans into strained breaths. Shiwoo glanced at Seonju Imo, who was sitting at the dining table with a clear view of both the kitchen and the living room.</p>
 
@@ -88,21 +88,21 @@ chapter = 218
 
 <p>Judging by Seonju Imo's expression, the younger sisters didn't seem to have noticed the situation in the kitchen yet. Shiwoo silently pushed his 'thing' slowly into Mom's vagina hole.</p>
 
-<p>Jjilgeok-georineun sori accompanied Shiwoo's thick penis as it seeped into her wet inner flesh. 「Hauuuu」</p>
+<p>Jjilgeok-georineun sori accompanied Shiwoo's thick penis as it seeped into her wet inner flesh. "Hauuuu"</p>
 
 <p>Mom, with her buttocks thrust out and her body sprawled over the sink, let out a faint groan. When Shiwoo's penis was halfway in, he felt the tip of his glans touch her cervix.</p>
 
 <p>Mom, as if rigid, curled her body and trembled, signaling to Shiwoo that her limit for enduring his penetration was at that depth. Shiwoo pulled his hips back, trying to ease Mom's rigidity.</p>
 
-<p>Mom's slick vaginal flesh clung to Shiwoo's penis as he pulled his hips back. 「Heueueu」</p>
+<p>Mom's slick vaginal flesh clung to Shiwoo's penis as he pulled his hips back. "Heueueu"</p>
 
 <p>With just one stroke, Mom's body went limp, as if all strength had drained from her. Mom's legs were trembling uncontrollably, as if she would collapse at any moment.</p>
 
 <p>Shiwoo once again lifted Mom's gray flare skirt. And he raised his hand, bringing it down hard on Mom's buttocks.</p>
 
-<p>-Challssak!- 「Haa-eueuk」</p>
+<p>-Challssak!- "Haa-eueuk"</p>
 
-<p>A louder smack and moan than before. 「Balance yourself! Seonmi-ya!」</p>
+<p>A louder smack and moan than before. "Balance yourself! Seonmi-ya!"</p>
 
 <p>Shiwoo was commanding Mom informally, calling her by her name as he pleased. At Shiwoo's command, strength returned to Mom's legs.</p>
 

@@ -12,7 +12,7 @@ chapter = 151
 
 <p>With his outstretched fingertips, Shiwoo gently rotated and rolled over the sensitive inner flesh and protuberances of their joined parts, as if washing them.</p>
 
-<p>「Haa-eueuhaa-eu.. Heueut!」</p>
+<p>"Haa-eueuhaa-eu.. Heueut!"</p>
 
 <p>Seonju Imo was letting out moans with irregular breaths, her expression slightly distorted.</p>
 
@@ -50,7 +50,7 @@ chapter = 151
 
 <p>A cozy sense of security and intense stimulation simultaneously made Seonju Imo's body burn with heat.</p>
 
-<p>「Haaaa-aah」</p>
+<p>"Haaaa-aah"</p>
 
 <p>Perhaps feeling unnecessarily embarrassed, Seonju Imo sighed and blushed.</p>
 
@@ -108,7 +108,7 @@ chapter = 151
 
 <p>Shiwoo gently moved his inserted cock for a while as he stroked Seonju Imo's head.</p>
 
-<p>「Haa...haa-eueu...haa-heut...」</p>
+<p>"Haa...haa-eueu...haa-heut..."</p>
 
 <p>Seonju Imo, her eyes tightly closed and face flushed, was letting out ragged breaths.</p>
 
@@ -140,7 +140,7 @@ chapter = 151
 
 <p>Shiwoo's enormous cock slid out of her cavern.</p>
 
-<p>「Ha-at!」</p>
+<p>"Ha-at!"</p>
 
 <p>A gasp burst from Seonju Imo's lips.</p>
 
@@ -164,7 +164,7 @@ chapter = 151
 
 <p>Shiwoo held the vibrator he had picked up, aligning its narrow part with Seonju Imo's horizontal line, and slowly pushed it into the crevice below the center.</p>
 
-<p>「Heueueut!」</p>
+<p>"Heueueut!"</p>
 
 <p>Seonju Imo's pussy flesh, generously coated with vaginal fluid, was accepting the provocative toy as if cradling an egg within her body.</p>
 
@@ -200,7 +200,7 @@ chapter = 151
 
 <p>A sweet pleasure spread through Shiwoo's entire body as if racing.</p>
 
-<p>「Now, we're going to do this in front of Sehee, so really be prepared!」</p>
+<p>"Now, we're going to do this in front of Sehee, so really be prepared!"</p>
 
 <p>Shiwoo placed his hand on Seonju Imo's head and spoke in a firm, warning tone.</p>
 
@@ -210,7 +210,7 @@ chapter = 151
 
 <p>Looking down at Seonju Imo like that, something suddenly seemed to occur to Shiwoo.</p>
 
-<p>「Seonju! Wait!」</p>
+<p>"Seonju! Wait!"</p>
 
 <p>Shiwoo commanded Seonju Imo as if training a pet dog.</p>
 

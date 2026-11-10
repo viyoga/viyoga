@@ -4,11 +4,11 @@ weight = 438
 [extra]
 chapter = 438
 +++
-<p>「Coming near home, you seem a bit more relaxed? It's dinner time, so there aren't many people passing by. You've got your mask on too, right?」</p>
+<p>"Coming near home, you seem a bit more relaxed? It's dinner time, so there aren't many people passing by. You've got your mask on too, right?"</p>
 
 <p>Shiwoo speaks, slowly raising the hem of Mom's cardigan as if mocking her.</p>
 
-<p>「Should I have stopped by the glasses store and bought some sunglasses or something?」</p>
+<p>"Should I have stopped by the glasses store and bought some sunglasses or something?"</p>
 
 <p>Shiwoo continues with mocking words and questions as if talking to himself.</p>
 
@@ -24,19 +24,19 @@ chapter = 438
 
 <p>Mom stopped walking as if startled and pulled down the front part of the cardigan's hem in the opposite direction that Shiwoo lifted it.</p>
 
-<p>「You need to move your hand, Seonmi-ya,」</p>
+<p>"You need to move your hand, Seonmi-ya,"</p>
 
 <p>Shiwoo speaks to Mom, who stopped walking while holding onto the cardigan, in a low and gentle tone.</p>
 
-<p>「B-But I'm not wearing anything underneath right now...」</p>
+<p>"B-But I'm not wearing anything underneath right now..."</p>
 
 <p>Mom speaks in a desperate voice, as if trying to remind Shiwoo of the obvious fact that he already knows.</p>
 
-<p>「Fucking bitch! Who doesn't know that?! Are you not moving that hand?!」</p>
+<p>"Fucking bitch! Who doesn't know that?! Are you not moving that hand?!"</p>
 
 <p>Shiwoo spits out curses at Mom, speaking as if threatening her fiercely.</p>
 
-<p>「I'm... I'm sorry...」</p>
+<p>"I'm... I'm sorry..."</p>
 
 <p>Mom offers words of apology to Shiwoo in a now familiar, groveling manner.</p>
 
@@ -50,7 +50,7 @@ chapter = 438
 
 <p>Shiwoo gathers the lifted hem of the cardigan and wraps it around Mom's waist, tying it in front.</p>
 
-<p>「You hold onto this, Seonmi!」</p>
+<p>"You hold onto this, Seonmi!"</p>
 
 <p>Shiwoo says to Mom, as if telling her to hold the hem of the cardigan wrapped around her waist.</p>
 
@@ -76,11 +76,11 @@ chapter = 438
 
 <p>Kwak, kwak, kwak! Kwak!</p>
 
-<p>「Huuu... Haaah... Haa-eut... Heuuu...」</p>
+<p>"Huuu... Haaah... Haa-eut... Heuuu..."</p>
 
 <p>Every time the smartphone's shutter sound rang out, Mom breathed roughly and trembled like a wet puppy.</p>
 
-<p>「Now, you hold this too, Seonmi!」</p>
+<p>"Now, you hold this too, Seonmi!"</p>
 
 <p>After taking all the pictures, Shiwoo hands the shopping bag to Mom's hand covering her crotch.</p>
 
@@ -104,11 +104,11 @@ chapter = 438
 
 <p>As Shiwoo's cold palm touched Mom's swollen buttocks, she flinched and was startled.</p>
 
-<p>「Who told you to stop walking and stand still? Want to get hit? Or should I strip you naked right here?」</p>
+<p>"Who told you to stop walking and stand still? Want to get hit? Or should I strip you naked right here?"</p>
 
 <p>Shiwoo spoke, gripping his hand on Mom's swollen buttocks as if pressing down.</p>
 
-<p>「Haa-eut... Ah... No... No more...」</p>
+<p>"Haa-eut... Ah... No... No more..."</p>
 
 <p>Mom, seemingly nervous, straightened her back and took cautious steps.</p>
 

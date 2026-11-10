@@ -28,7 +28,7 @@ chapter = 154
 
 <p>The chicken porridge in front of Sehee-nuna remained untouched. -Just as it was, with Shiwoo's semen covering the chicken porridge, stirred with his penis...-</p>
 
-<p>「Sehee-nuna! You've waited a long time, haven't you? You must be so hungry. Why didn't you just keep eating?」</p>
+<p>"Sehee-nuna! You've waited a long time, haven't you? You must be so hungry. Why didn't you just keep eating?"</p>
 
 <p>Shiwoo approached Sehee-nuna, brazenly extending his stiffly erect cock as if to flaunt it, and spoke to her.</p>
 
@@ -54,7 +54,7 @@ chapter = 154
 
 <p>Sehee-nuna's rough breaths exhaled over the shaft of Shiwoo's cock, which couldn't be fully contained in her mouth.</p>
 
-<p>「It seems like we'll have to feed Seonju. Can nuna help a bit?」</p>
+<p>"It seems like we'll have to feed Seonju. Can nuna help a bit?"</p>
 
 <p>Shiwoo, in front of Sehee-nuna, called Seonju Imo by her first name, speaking as if referring to a subordinate.</p>
 
@@ -80,13 +80,13 @@ chapter = 154
 
 <p>Sehee-nuna received Shiwoo's blatant and aggressive breast fondling in front of the blindfolded Seonju Imo.</p>
 
-<p>「Ha-eup!」</p>
+<p>"Ha-eup!"</p>
 
 <p>Sehee-nuna's moan, which she had been suppressing, mindful of Seonju Imo during Shiwoo's blatant fondling, momentarily escaped from her mouth.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>「Haaa」</p>
+<p>"Haaa"</p>
 
 <p>Sehee-nuna cautiously observed Seonju Imo's facial expression, hidden by the blindfold, as she exhaled.</p>
 
@@ -100,7 +100,7 @@ chapter = 154
 
 <p>Shiwoo rubbed the damp liquid on his hand over Sehee-nuna's entire breast, as if spreading it.</p>
 
-<p>「Haa...heu-eu...ha-woop」</p>
+<p>"Haa...heu-eu...ha-woop"</p>
 
 <p>Sehee-nuna, with her lips still pressed against Shiwoo's, was exhaling with difficulty, as if suppressing heated breaths.</p>
 
@@ -116,7 +116,7 @@ chapter = 154
 
 <p>Between her parted legs, the viscous fluid leaking from inside Seonju Imo's body was profusely running down her thighs, soaking the floor.</p>
 
-<p>「Seonju, you fucking bitch! I'll be there soon, so don't spread your legs like a whore, sit up straight and wait!」</p>
+<p>"Seonju, you fucking bitch! I'll be there soon, so don't spread your legs like a whore, sit up straight and wait!"</p>
 
 <p>Shiwoo looked down at Seonju Imo, cursing at her with a cold tone and commanding her dismissively.</p>
 
@@ -126,7 +126,7 @@ chapter = 154
 
 <p>And brought his face close to Sehee-nuna's ear.</p>
 
-<p>「Don't swallow, just hold it in your mouth! Seonju will eat it!」</p>
+<p>"Don't swallow, just hold it in your mouth! Seonju will eat it!"</p>
 
 <p>Shiwoo whispered to Sehee-nuna in a voice low enough that Seonju Imo couldn't hear.</p>
 
@@ -156,7 +156,7 @@ chapter = 154
 
 <p>Seonju Imo, as if responding to Shiwoo's kiss, immediately extended her tongue to meet Shiwoo.</p>
 
-<p>「Chyureup chyureup!」</p>
+<p>"Chyureup chyureup!"</p>
 
 <p>Shiwoo and Seonju Imo's tongues intertwined, their saliva mixing intensely.</p>
 
@@ -168,7 +168,7 @@ chapter = 154
 
 <p>Shiwoo pulled away from Seonju Imo, as if shaking off her legs that were trying to wrap around him.</p>
 
-<p>「Haa-eung」</p>
+<p>"Haa-eung"</p>
 
 <p>Seonju Imo, leaning her head forward, made a petulant sound as if regretting the loss of Shiwoo's lips.</p>
 
@@ -176,19 +176,19 @@ chapter = 154
 
 <p>Shiwoo flicked Seonju Imo's ample breast, hidden by her bikini top, with his fingertips.</p>
 
-<p>「Ha-eut!」</p>
+<p>"Ha-eut!"</p>
 
 <p>A gasp of surprise instantly burst from Seonju Imo's mouth.</p>
 
 <p>Along with the gasp, Seonju Imo's large breasts swayed like waves.</p>
 
-<p>「Seonju, you dog-like bitch! Who told you to wrap your legs around your master so carelessly!?」</p>
+<p>"Seonju, you dog-like bitch! Who told you to wrap your legs around your master so carelessly!?"</p>
 
 <p>Shiwoo shouted as if enraged, scolding Seonju Imo.</p>
 
 <p>Seonju Imo flinched, shrinking her body.</p>
 
-<p>「It's time to eat now! Behave yourself!」</p>
+<p>"It's time to eat now! Behave yourself!"</p>
 
 <p>Shiwoo commanded Seonju Imo imperiously, as if training a dog.</p>
 
@@ -208,7 +208,7 @@ chapter = 154
 
 <p>If she lowered her head, Sehee-nuna's mouth would be in a direct line with Seonju Imo's mouth.</p>
 
-<p>「Seonju! Tilt your head back and open your mouth!」</p>
+<p>"Seonju! Tilt your head back and open your mouth!"</p>
 
 <p>Shiwoo stepped aside and commanded Seonju Imo.</p>
 

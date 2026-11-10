@@ -12,95 +12,95 @@ chapter = 588
 
 <p>Even though they were in such a relationship, did Mom have no intention of refusing or protesting Shiwoo's somewhat unreasonable orders?</p>
 
-<p>「Mom, you're going to the city with Sehee today, right?」</p>
+<p>"Mom, you're going to the city with Sehee today, right?"</p>
 
 <p>It was a matter he had already confirmed several times, but Shiwoo asked again, as if testing Mom's true feelings, just in case.</p>
 
 <p>After a strange silence that would normally go unnoticed...</p>
 
-<p>「Yeah... I'm going to get ready and go out in a bit...」</p>
+<p>"Yeah... I'm going to get ready and go out in a bit..."</p>
 
 <p>Mom replied to Shiwoo in a text, still pretending to be calm.</p>
 
-<p>「But will you have enough time? Getting a tattoo doesn't take that long, does it? Seyoung will be late because of her academy, and you have to prepare dinner too, right?」</p>
+<p>"But will you have enough time? Getting a tattoo doesn't take that long, does it? Seyoung will be late because of her academy, and you have to prepare dinner too, right?"</p>
 
 <p>Shiwoo was asking about the detailed specifics, as if checking them.</p>
 
-<p>「It doesn't take that long... for initial tattoos like that...」</p>
+<p>"It doesn't take that long... for initial tattoos like that..."</p>
 
-<p>「And since there's a department store nearby after that, I think it'll be enough time to shop for Sehee's clothes and buy what you guys need before going back.」</p>
+<p>"And since there's a department store nearby after that, I think it'll be enough time to shop for Sehee's clothes and buy what you guys need before going back."</p>
 
 <p>Mom answered Shiwoo as if she had already organized the entire route and plan for the outing.</p>
 
-<p>「Did you fully charge the vibrator? Are you wearing it now?」</p>
+<p>"Did you fully charge the vibrator? Are you wearing it now?"</p>
 
 <p>Shiwoo started asking questions that Mom might find difficult.</p>
 
-<p>「Not yet... I'm charging it. It takes quite a while, surprisingly!」</p>
+<p>"Not yet... I'm charging it. It takes quite a while, surprisingly!"</p>
 
 <p>Mom hesitated for a moment, giving a complaint-mixed answer as if feeling awkward.</p>
 
-<p>「Really? What about the panties? Are you wearing them lowered as you did this morning?」</p>
+<p>"Really? What about the panties? Are you wearing them lowered as you did this morning?"</p>
 
 <p>Shiwoo asked mischievously, as if enjoying Mom's embarrassment.</p>
 
-<p>「Yeah...」</p>
+<p>"Yeah..."</p>
 
 <p>Mom answered hesitantly and briefly.</p>
 
-<p>「From when you leave the house until you're walking around the department store, you're keeping the vibrator on, right?」</p>
+<p>"From when you leave the house until you're walking around the department store, you're keeping the vibrator on, right?"</p>
 
 <p>Shiwoo spoke to her as if he were the person in charge of checking Mom's attire and management status.</p>
 
-<p>「I'll take it off for a bit at the tattoo shop. And I'll pull my panties up properly...」</p>
+<p>"I'll take it off for a bit at the tattoo shop. And I'll pull my panties up properly..."</p>
 
 <p>Mom answered Shiwoo's difficult questions with as calm a feeling as possible.</p>
 
-<p>「And if you keep it on all the time, the battery won't last that long! Do you know how much of a hassle it is to charge it every time?!」</p>
+<p>"And if you keep it on all the time, the battery won't last that long! Do you know how much of a hassle it is to charge it every time?!"</p>
 
 <p>Then, she expressed the tension and frustration that had been building up, adding it like a review of her experience.</p>
 
-<p>「Really? Then should I talk to Seonju about getting several vibrators this time? So you can use them all day while rotating them during charging... hehehe」</p>
+<p>"Really? Then should I talk to Seonju about getting several vibrators this time? So you can use them all day while rotating them during charging... hehehe"</p>
 
 <p>Shiwoo brushed off Mom's complaints lightly, continuing the mischievous joke.</p>
 
-<p>「......」</p>
+<p>"......"</p>
 
 <p>Mom didn't know how to answer Shiwoo's words, which she couldn't tell if they were serious or a joke, so she replied with ellipses again.</p>
 
 <p>Was Mom fantasizing about her own image of being tormented all day while switching out vibrators?</p>
 
-<p>「Well, Sehee will take care of adjusting it today Since I've left it to Sehee...」</p>
+<p>"Well, Sehee will take care of adjusting it today Since I've left it to Sehee..."</p>
 
-<p>「Ah, but isn't it a bit much if you're going out with Sehee and only Mom is wearing her panties lowered? Should I tell Sehee to wear hers lowered while walking around the department store too?」</p>
+<p>"Ah, but isn't it a bit much if you're going out with Sehee and only Mom is wearing her panties lowered? Should I tell Sehee to wear hers lowered while walking around the department store too?"</p>
 
 <p>Shiwoo was watching Mom's reaction with enjoyment, speaking to her as if trying to create another embarrassing situation.</p>
 
-<p>「Mom doesn't know about that kind of thing, so do whatever you want! You're going to do whatever you want anyway, so why are you asking Mom?」</p>
+<p>"Mom doesn't know about that kind of thing, so do whatever you want! You're going to do whatever you want anyway, so why are you asking Mom?"</p>
 
 <p>Mom answered Shiwoo's words curtly, as if annoyed.</p>
 
 <p>Shiwoo felt a slight irritation at her curt reaction.</p>
 
-<p>「Then would you rather Mom tell Sehee directly? That I told Mom to wear her panties hanging on her thighs...」</p>
+<p>"Then would you rather Mom tell Sehee directly? That I told Mom to wear her panties hanging on her thighs..."</p>
 
 <p>Shiwoo mischievously ordered, as if deliberately pushing Mom into an even more difficult situation.</p>
 
 <p>Mom hesitated for a long time to answer Shiwoo's words, telling her to convey his orders to Sehee Nuna.</p>
 
-<p>「Mom?」</p>
+<p>"Mom?"</p>
 
 <p>Shiwoo called out to Mom, as if urging her to answer.</p>
 
-<p>「Okay... I just have to convey it as is, right?」</p>
+<p>"Okay... I just have to convey it as is, right?"</p>
 
 <p>Mom was answering Shiwoo's words as if she couldn't help it.</p>
 
-<p>「Okay, then get ready and have a safe trip I'll have a good time meeting Sejin Nuna too...」</p>
+<p>"Okay, then get ready and have a safe trip I'll have a good time meeting Sejin Nuna too..."</p>
 
 <p>After confirming Mom's plan, determination, and submissive attitude in her annoyed tone, Shiwoo spoke to Mom as if urging her to have a safe trip.</p>
 
-<p>「Yeah... I'll be back...」</p>
+<p>"Yeah... I'll be back..."</p>
 
 <p>Despite Shiwoo's unreasonable orders and mischievous jokes, Mom answered politely, as if reporting to her husband or superior.</p>
 
@@ -110,7 +110,7 @@ chapter = 588
 
 <p>A faintly trembling excitement seemed to spread hotly in Shiwoo's chest.</p>
 
-<p>「Yeah...」</p>
+<p>"Yeah..."</p>
 
 <p>Shiwoo replied simply, as if confirming Mom's answer, and put his smartphone on standby and put it in his pocket.</p>
 
@@ -120,17 +120,17 @@ chapter = 588
 
 <p>Shiwoo stopped again, took the smartphone from his pocket again, and immediately checked the screen.</p>
 
-<p>「Shiwoo」</p>
+<p>"Shiwoo"</p>
 
 <p>Mom's text calling Shiwoo was printed at the bottom of the conversation window.</p>
 
-<p>「Yeah?」</p>
+<p>"Yeah?"</p>
 
 <p>Shiwoo wondered what was going on and quickly wrote a reply to Mom as if reacting quickly.</p>
 
 <p>After a silence that seemed a bit awkward...</p>
 
-<p>「Be gentle...」</p>
+<p>"Be gentle..."</p>
 
 <p>Mom's text asking Shiwoo for a favor arrived.</p>
 
@@ -144,23 +144,23 @@ chapter = 588
 
 <p>Mom seemed to naturally think that today's meeting would lead directly to sex with Sejin Nuna.</p>
 
-<p>「I don't even know if I'm going to have sex with Sejin yet?」</p>
+<p>"I don't even know if I'm going to have sex with Sejin yet?"</p>
 
 <p>Shiwoo said mischievously, mixing in explicit words as if rebelling against Mom's thinking.</p>
 
 <p>The way he referred to Sejin Nuna had changed to calling her by her name only, without the Nuna honorific.</p>
 
-<p>「Just in case...!!」</p>
+<p>"Just in case...!!"</p>
 
 <p>Mom quickly wrote a text as if embarrassed, speaking as if trying to fix her slip of the tongue.</p>
 
-<p>「Okay, if I have sex with Sejin today, I'll try to be as gentle as possible... I'll also tell her that Mom told me to be gentle I don't know if it'll work though hehe」</p>
+<p>"Okay, if I have sex with Sejin today, I'll try to be as gentle as possible... I'll also tell her that Mom told me to be gentle I don't know if it'll work though hehe"</p>
 
 <p>Shiwoo was still joking and teasing Mom.</p>
 
 <p>Mom was speechless and didn't react for a long time.</p>
 
-<p>「Do whatever you want!」</p>
+<p>"Do whatever you want!"</p>
 
 <p>Then Mom's message arrived, sounding sulky and blunt.</p>
 

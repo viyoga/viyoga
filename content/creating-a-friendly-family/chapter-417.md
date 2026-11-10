@@ -4,35 +4,35 @@ weight = 417
 [extra]
 chapter = 417
 +++
-<p>「Look Even though it was too big and difficult at first, after tasting it a few times and getting used to it, now it feels like you can't live without our Master-nim's cock, right?」</p>
+<p>"Look Even though it was too big and difficult at first, after tasting it a few times and getting used to it, now it feels like you can't live without our Master-nim's cock, right?"</p>
 
-<p>「Since I've always known Older Sister's pretense I didn't think Master-nim would subjugate her so quickly As expected, our Master-nim is truly amazing!」</p>
+<p>"Since I've always known Older Sister's pretense I didn't think Master-nim would subjugate her so quickly As expected, our Master-nim is truly amazing!"</p>
 
-<p>「Master-nim, please take good care of our Older Sister from now on But don't neglect me too much. You know I'm Slave No. 1, right?」</p>
+<p>"Master-nim, please take good care of our Older Sister from now on But don't neglect me too much. You know I'm Slave No. 1, right?"</p>
 
 <p>Seonju Imo speaks to Shiwoo as if joking with him.</p>
 
-<p>「Since Older Sister likes positions where she gets her buttocks spanked from behind, please do it often! lolol」</p>
+<p>"Since Older Sister likes positions where she gets her buttocks spanked from behind, please do it often! lolol"</p>
 
-<p>「She also likes being sucked on the nipples, anus, and clitoris simultaneously while being fucked, enough to scream, so please try it if you get the chance later!」</p>
+<p>"She also likes being sucked on the nipples, anus, and clitoris simultaneously while being fucked, enough to scream, so please try it if you get the chance later!"</p>
 
 <p>Seonju Imo continuously poured out lewd and provocative words, using Mom as a topic.</p>
 
-<p>「I'll take care of the anus, Seyoung and Sua can suck one nipple each, and Sehee can lick the clitoris. Older Sister also likes having her breasts sucked while being fucked, so maybe we can ask Sejin to suck her breasts?」</p>
+<p>"I'll take care of the anus, Seyoung and Sua can suck one nipple each, and Sehee can lick the clitoris. Older Sister also likes having her breasts sucked while being fucked, so maybe we can ask Sejin to suck her breasts?"</p>
 
 <p>Seonju Imo, as if she found it fun to tease Mom, continued her provocative dirty talk, listing each family member's name.</p>
 
-<p>「Seonju, you're noisy! That's enough, so stop it now!」</p>
+<p>"Seonju, you're noisy! That's enough, so stop it now!"</p>
 
 <p>Seonju Imo's message, teasing her as if exposing her preferences in front of the family, seemed to embarrass Mom greatly, so Mom, in a sharp tone, interrupted Seonju Imo's words.</p>
 
-<p>「Oh my! Older Sister, are you even talking here now? I thought you had decided not to speak, only barely answering when Master-nim forced you to」</p>
+<p>"Oh my! Older Sister, are you even talking here now? I thought you had decided not to speak, only barely answering when Master-nim forced you to"</p>
 
-<p>「Now that Older Sister has also started talking, we can just have family meetings here too See you often Older Sister! lolol」</p>
+<p>"Now that Older Sister has also started talking, we can just have family meetings here too See you often Older Sister! lolol"</p>
 
 <p>Seonju Imo, while still maintaining her teasing attitude towards Mom, spoke as if Mom's change was welcome and admirable.</p>
 
-<p>「What do you mean</p>
+<p>"What do you mean</p>
 
 <p>"see you often"</p>
 
@@ -40,65 +40,65 @@ chapter = 417
 
 <p>"enough"</p>
 
-<p>means!」</p>
+<p>means!"</p>
 
-<p>「If you think about it, this all happened because of you! You and Gyuri planned this from the beginning, didn't you?!」</p>
+<p>"If you think about it, this all happened because of you! You and Gyuri planned this from the beginning, didn't you?!"</p>
 
 <p>Mom, as if she had fallen for Seonju Imo's continuous teasing and provocation, spoke with a sudden burst of anger.</p>
 
-<p>「Oh my? Do you think we're like Older Sister? It just happened naturally, what did Gyuri Unnie and I do? Anyone who hears this will really misunderstand!」</p>
+<p>"Oh my? Do you think we're like Older Sister? It just happened naturally, what did Gyuri Unnie and I do? Anyone who hears this will really misunderstand!"</p>
 
-<p>「Master-nim! Older Sister just did everything she wanted because she liked it, and now she's embarrassed, so look at her trying to pick a fight with us! Since she just made her slave declaration today, this time, to completely fix our Older Sister's bad habits, please punish her until tears stream down her face, Master-nim! lolol」</p>
+<p>"Master-nim! Older Sister just did everything she wanted because she liked it, and now she's embarrassed, so look at her trying to pick a fight with us! Since she just made her slave declaration today, this time, to completely fix our Older Sister's bad habits, please punish her until tears stream down her face, Master-nim! lolol"</p>
 
 <p>Seonju Imo reported to Shiwoo, just like young siblings who squabble over trivial matters, tattling on each other's flaws or mistakes to their parents.</p>
 
-<p>「Are you going to keep doing this here? Seonju, I'll see your face soon! Because I have a lot to tell you!」</p>
+<p>"Are you going to keep doing this here? Seonju, I'll see your face soon! Because I have a lot to tell you!"</p>
 
 <p>Mom was speaking to Seonju Imo with a nuance of warning about a real-life confrontation, as if strongly expressing her dissatisfaction.</p>
 
-<p>「Hiiing Master-nim Older Sister is scary, telling me she wants to see my face Please protect me so Older Sister can't harm me!」</p>
+<p>"Hiiing Master-nim Older Sister is scary, telling me she wants to see my face Please protect me so Older Sister can't harm me!"</p>
 
 <p>Seonju Imo was speaking to Shiwoo, pretending to be pitiful, whining and fawning.</p>
 
-<p>「Alright, alright! Both of you, stop it there! Seonju, you stop teasing Seonmi now!」</p>
+<p>"Alright, alright! Both of you, stop it there! Seonju, you stop teasing Seonmi now!"</p>
 
 <p>Perhaps feeling sorry for Mom who was continuously being teased, Shiwoo intervened and stopped Seonju Imo.</p>
 
-<p>「Yes! Master-nim! Since Master-nim said so, I'll stop teasing Older Sister now! lolol」</p>
+<p>"Yes! Master-nim! Since Master-nim said so, I'll stop teasing Older Sister now! lolol"</p>
 
 <p>As soon as Shiwoo spoke, Seonju Imo's cutesy answer returned immediately.</p>
 
-<p>「...」</p>
+<p>"..."</p>
 
 <p>Next to arrive was Mom's message.</p>
 
 <p>Mom, perhaps feeling awkward and embarrassed to answer Shiwoo directly, tried to replace her answer with ellipses, as if indicating she understood.</p>
 
-<p>「Seonmi, you fucking bitch, is that how you answer when your Master is speaking? Aren't you going to answer properly?」</p>
+<p>"Seonmi, you fucking bitch, is that how you answer when your Master is speaking? Aren't you going to answer properly?"</p>
 
 <p>Shiwoo immediately cursed at Mom, who was trying to gloss over the situation with ellipses, and demanded an answer.</p>
 
-<p>「I'm sorry, Master-nim. I'll stop now too.」</p>
+<p>"I'm sorry, Master-nim. I'll stop now too."</p>
 
 <p>Mom, after seeming to conflict for a brief moment, answered Shiwoo in the capacity of a slave.</p>
 
-<p>「lolol」</p>
+<p>"lolol"</p>
 
 <p>Seonju Imo's laughter, as if gloating and teasing Mom.</p>
 
-<p>「Sehee, Seyoung, and Sua too, if you've all checked the video content, answer here now that you've checked it!」</p>
+<p>"Sehee, Seyoung, and Sua too, if you've all checked the video content, answer here now that you've checked it!"</p>
 
 <p>Shiwoo demanded an answer from Sehee Nuna and Seyoung, who must have witnessed Mom's slave declaration, the photos and videos, and all the subsequent conversation in the group chat.</p>
 
-<p>「I've checked it now, Master-nim. When I'm with Mom, I just do as Master-nim said in the video, right? And on the second floor, I should always be completely naked, even without underwear...」</p>
+<p>"I've checked it now, Master-nim. When I'm with Mom, I just do as Master-nim said in the video, right? And on the second floor, I should always be completely naked, even without underwear..."</p>
 
 <p>Having checked the video first, Sehee Nuna's answer returned.</p>
 
-<p>「I saw the video, Master-nim. I'll keep that in mind for now too.」</p>
+<p>"I saw the video, Master-nim. I'll keep that in mind for now too."</p>
 
 <p>Next to arrive was Sua's message.</p>
 
-<p>「I've checked it too! Hehehe Master-nim!」</p>
+<p>"I've checked it too! Hehehe Master-nim!"</p>
 
 <p>And Seyoung's still awkward and shy-looking message was written on the screen, following Sehee Nuna's message.</p>
 
@@ -112,11 +112,11 @@ chapter = 417
 
 <p>While exchanging messages, the call with Mom remained connected.</p>
 
-<p>「I'm coming now! Wait for me!」</p>
+<p>"I'm coming now! Wait for me!"</p>
 
 <p>Shiwoo spoke to Mom in a low voice, speaking into the smartphone's microphone.</p>
 
-<p>「Yes? Yes...! Master-nim... I'll... I'll be waiting.」</p>
+<p>"Yes? Yes...! Master-nim... I'll... I'll be waiting."</p>
 
 <p>Mom, after hesitating for a moment, soon answered as if reacting to Shiwoo's words.</p>
 
@@ -184,10 +184,10 @@ chapter = 417
 
 <p>Mom's body flinched and recoiled, and a rough breath escaped her lips.</p>
 
-<p>「Mom?」</p>
+<p>"Mom?"</p>
 
 <p>Stroking the side of her protruding breast, Shiwoo cautiously called out to Mom in a low voice.</p>
 
-<p>「Uh, euh... hmm?」</p>
+<p>"Uh, euh... hmm?"</p>
 
 <p>Mom, seeing him as soon as he entered the room, reacted with a slight look of surprise when Shiwoo, whom she had expected to immediately treat her as a slave and speak informally, called her 'Mom.'</p>

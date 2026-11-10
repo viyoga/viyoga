@@ -4,11 +4,11 @@ weight = 765
 [extra]
 chapter = 765
 +++
-<p>Normally, it wouldn't have been strange for her to get smacked on the back while being scolded, 「What a waste of money!」 but now, she was instead reading her son's countenance, holding out the screen showing the completed call.</p>
+<p>Normally, it wouldn't have been strange for her to get smacked on the back while being scolded, "What a waste of money!" but now, she was instead reading her son's countenance, holding out the screen showing the completed call.</p>
 
 <p>Shiwoo meticulously examined the smartphone screen Mom held out without answering for a moment.</p>
 
-<p>「Well done, our Mom」</p>
+<p>"Well done, our Mom"</p>
 
 <p>After confirming the dispatch information, Shiwoo spoke while softly stroking Mom's hair.</p>
 
@@ -34,11 +34,11 @@ chapter = 765
 
 <p>The vibration breaking the silence was a salvation from this strange confrontation for Mom, but at the same time, it was a signal dragging her into a deeper abyss.</p>
 
-<p>「I-it seems it's here... Should we head over there...? So the driver can find us easily...」</p>
+<p>"I-it seems it's here... Should we head over there...? So the driver can find us easily..."</p>
 
 <p>Mom spoke cautiously, as if seeking Shiwoo's permission.</p>
 
-<p>「Shall we?」</p>
+<p>"Shall we?"</p>
 
 <p>As if Mom were cute and lovely, Shiwoo slid the hand that had been stroking her hair down, slowly tracing her cheek. The tips of Shiwoo's fingers sliding down Mom's cheek then secretly grazed past the soft ridge of her precariously swollen breasts .</p>
 
@@ -60,39 +60,39 @@ chapter = 765
 
 <p>The taxi driver would know that the two people who boarded the taxi holding hands were heading to an unmanned motel. Shiwoo squeezed Mom's joined hand even tighter, trying to contain her anxious, wild trembling and heartbeat within his palm.</p>
 
-<p>「Seonmi, have you ever been to a place like this with Dad?」</p>
+<p>"Seonmi, have you ever been to a place like this with Dad?"</p>
 
-<p>Shiwoo asked Mom in the taxi, as if intentionally drawing her attention. The combination of her name cutting through the narrow silence of the taxi and the explicit phrase 『a place like this』 caused Mom's thoughts to pause momentarily.</p>
+<p>Shiwoo asked Mom in the taxi, as if intentionally drawing her attention. The combination of her name cutting through the narrow silence of the taxi and the explicit phrase "a place like this" caused Mom's thoughts to pause momentarily.</p>
 
-<p>「Huh? Wh-where?」</p>
+<p>"Huh? Wh-where?"</p>
 
 <p>Mom asked Shiwoo back, keeping her voice as low as possible, looking at the taxi driver's reaction in the rearview mirror as if extremely flustered.</p>
 
-<p>「The place we're going right now...」</p>
+<p>"The place we're going right now..."</p>
 
 <p>Shiwoo spoke as if testing her, stimulating her shame without specifically mentioning the destination.</p>
 
-<p>「Why would I... go to such a place... with Dad?」</p>
+<p>"Why would I... go to such a place... with Dad?"</p>
 
 <p>Mom bit her lips , turning her face, heated with shame , toward the window.</p>
 
-<p>「Considering all the women Dad has been with, it wouldn't be strange if he took you, Seonmi, once or twice... but I guess he didn't come to places like this?」</p>
+<p>"Considering all the women Dad has been with, it wouldn't be strange if he took you, Seonmi, once or twice... but I guess he didn't come to places like this?"</p>
 
-<p>「I wonder if he took Sejin or Seonju, like when he went to that restaurant behind your back? Then again, since he's the kind of person who rents an officetel for his daughter to live in, maybe he didn't need to seek out a place like this?」</p>
+<p>"I wonder if he took Sejin or Seonju, like when he went to that restaurant behind your back? Then again, since he's the kind of person who rents an officetel for his daughter to live in, maybe he didn't need to seek out a place like this?"</p>
 
 <p>Shiwoo held the truth of the murky past in his hand like a carving knife, speaking as if exquisitely shaving away Mom's shame and dignity. As if flaunting that the woman sitting beside him was Dad's woman and now his own new partner, Shiwoo roughly pulled her joined hand toward his crotch.</p>
 
 <p>Shiwoo's firmly swollen item pressed against the back of her hand, flaunting its explicit presence.</p>
 
-<p>「I'll make sure you don't think of Dad anymore... I'll even make you forget for a moment that you had a son...」</p>
+<p>"I'll make sure you don't think of Dad anymore... I'll even make you forget for a moment that you had a son..."</p>
 
 <p>Shiwoo spoke as if vowing to thoroughly force her into submission , crushing her will to hold out until the end, as if trying to clearly reveal his relationship with Mom even in front of others.</p>
 
-<p>「Hng... Ha-ahhh...」</p>
+<p>"Hng... Ha-ahhh..."</p>
 
 <p>Mom was reacting as if suppressing a surging moan . Then, turning her heated, red face toward the window, she spoke in a self-deprecating voice.</p>
 
-<p>「When was it ever not like that... and is that something to say here right now?!」</p>
+<p>"When was it ever not like that... and is that something to say here right now?!"</p>
 
 <p>Her cracked voice, sounding as if squeezed out, distorted with resentment like a swallowed sob. Mom tried to nonchalantly avoid the taxi driver's gaze reflected in the rearview mirror. However, her eyes were already burning red, filled with resentful sorrow toward Shiwoo.</p>
 
@@ -102,15 +102,15 @@ chapter = 765
 
 <p>By leaving the gap between the relationship and the space filled with shame empty with silence, Shiwoo isolated Mom within thorough self-hatred and guilt. The tension, sharpened in the silence, was amplified to its peak, and the misery and self-pity Mom felt, having fallen into an unmanageable abyss of shame , seemed to have already reached its zenith.</p>
 
-<p>「We're here」</p>
+<p>"We're here"</p>
 
 <p>The driver's dry voice broke the silence like glass shards. Mom flinched for a moment and lowered her head deeply, which had been facing the window, but Shiwoo got out of the taxi with a nonchalant bow.</p>
 
-<p>「We have to get out, Seonmi! Since we've arrived at the motel!」</p>
+<p>"We have to get out, Seonmi! Since we've arrived at the motel!"</p>
 
 <p>Shiwoo spoke while pulling her from outside the taxi, not letting go of the hand he held.</p>
 
-<p>「Huh? Ah... yes...」</p>
+<p>"Huh? Ah... yes..."</p>
 
 <p>Mom was pulled weakly by Shiwoo, following him out of the taxi with her head hung low like a criminal. After closing the taxi door, Shiwoo released the hand that had been stickily intertwined with Mom's until sweat had formed.</p>
 

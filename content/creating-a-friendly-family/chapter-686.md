@@ -22,7 +22,7 @@ chapter = 686
 
 <p>Equipped with their outfits and props, they exuded a somewhat surreal atmosphere, like actors who had just stepped into a scene.</p>
 
-<p>「Shiwoo Oppa! Where's Seonju? Is she still in Sejin Nuna's room?」</p>
+<p>"Shiwoo Oppa! Where's Seonju? Is she still in Sejin Nuna's room?"</p>
 
 <p>Seyoung, who came out hugging Sua's arm for support, asked as she looked at Shiwoo, who was sitting half-reclined on the sofa with his cock standing tall.</p>
 
@@ -30,15 +30,15 @@ chapter = 686
 
 <p>The outlines of their flesh, swaying softly with every movement, held Shiwoo's gaze captive.</p>
 
-<p>「Ah Seonju is sleeping on the bed in Sejin Nuna's room right now」</p>
+<p>"Ah Seonju is sleeping on the bed in Sejin Nuna's room right now"</p>
 
 <p>Shiwoo informed his younger sisters of Aunt Seonju's whereabouts and condition.</p>
 
-<p>「Hmm... are you going to do that with Seonju again later?」</p>
+<p>"Hmm... are you going to do that with Seonju again later?"</p>
 
 <p>Seyoung asked Shiwoo explicitly, her eyes fixed on his stiffly erect cock.</p>
 
-<p>「Am I going to do it with Seonju again? No, I'm going to let Seonju rest well tonight...」</p>
+<p>"Am I going to do it with Seonju again? No, I'm going to let Seonju rest well tonight..."</p>
 
 <p>Shiwoo answered while scanning Sua and Seyoung's provocative bodies with a lecherous gaze.</p>
 
@@ -46,31 +46,31 @@ chapter = 686
 
 <p>For some reason, when facing his younger sisters, the awkwardness or sense of foreignness he felt in front of Mom or his Aunt seemed lesser.</p>
 
-<p>「Then, can I let Sua sleep with Seonju in Sejin Nuna's room today? I think Sua is a bit exhausted too」</p>
+<p>"Then, can I let Sua sleep with Seonju in Sejin Nuna's room today? I think Sua is a bit exhausted too"</p>
 
 <p>Seyoung spoke cautiously, as if seeking Shiwoo's permission.</p>
 
-<p>「Sleep with Seonju? The bed is only a super-single or double size, so it might be a bit cramped. Will that be okay? Well, I guess with Sua and Seyoung's builds, it might be fine? There should be plenty of other rooms though...?」</p>
+<p>"Sleep with Seonju? The bed is only a super-single or double size, so it might be a bit cramped. Will that be okay? Well, I guess with Sua and Seyoung's builds, it might be fine? There should be plenty of other rooms though...?"</p>
 
 <p>Shiwoo asked out of consideration, worried that Sua might be uncomfortable.</p>
 
-<p>「Yeah, it's fine I think Sua wants to sleep with Mom today」</p>
+<p>"Yeah, it's fine I think Sua wants to sleep with Mom today"</p>
 
 <p>Seyoung looked back at Sua with an affectionate expression and conveyed Sua's inner thoughts to Shiwoo.</p>
 
-<p>「Sure... well do as Sua likes!」</p>
+<p>"Sure... well do as Sua likes!"</p>
 
 <p>Shiwoo nodded lightly, signaling his permission.</p>
 
-<p>「Yeah! Thanks, Shiwoo Oppa」</p>
+<p>"Yeah! Thanks, Shiwoo Oppa"</p>
 
 <p>After thanking Shiwoo on Sua's behalf, Seyoung gently supported Sua and moved toward Sejin Nuna's room.</p>
 
-<p>「Ah! Seyoung, are you going to sleep next to Seonju with Sua too?」</p>
+<p>"Ah! Seyoung, are you going to sleep next to Seonju with Sua too?"</p>
 
 <p>Shiwoo asked, stopping Seyoung just as she was about to enter Sejin Nuna's room with Sua.</p>
 
-<p>「No I'm just going to lay Sua down and come right back out... I'm not sleepy yet, I'm still full of energy Hehe」</p>
+<p>"No I'm just going to lay Sua down and come right back out... I'm not sleepy yet, I'm still full of energy Hehe"</p>
 
 <p>Seyoung answered with a pure, innocent smile plastered across her face, her gaze fixed on Shiwoo's cock.</p>
 
@@ -92,15 +92,15 @@ chapter = 686
 
 <p>Watching them, Shiwoo's heart began to pound.</p>
 
-<p>「Are you done now?」</p>
+<p>"Are you done now?"</p>
 
 <p>Once the photos were taken and Shiwoo lowered his smartphone, Seyoung asked as if seeking his leave.</p>
 
-<p>「Yeah!」</p>
+<p>"Yeah!"</p>
 
 <p>Shiwoo replied with satisfaction after checking the photos on his phone.</p>
 
-<p>「Hehehe Then I'm going in」</p>
+<p>"Hehehe Then I'm going in"</p>
 
 <p>Seyoung laughed as if she were in a good mood too, and took Sua into Sejin Nuna's room.</p>
 
@@ -142,17 +142,17 @@ chapter = 686
 
 <p>The warmth of Seyoung's lips and cheeks touching him softly wrapped around the flesh of Shiwoo's cock like a ripple.</p>
 
-<p>「Just until Seonmi and Sehee Unni get here It's okay, right? Hehe」</p>
+<p>"Just until Seonmi and Sehee Unni get here It's okay, right? Hehe"</p>
 
 <p>Seyoung spoke while pressing her lips against the shaft of Shiwoo's cock, her voice creating a cozy vibration of tension.</p>
 
 <p>It felt as if her breath was seeping beneath the skin of his penis, as if every hidden capillary of sensation was being brought back to life.</p>
 
-<p>「Yeah...!」</p>
+<p>"Yeah...!"</p>
 
 <p>Shiwoo gave Seyoung his approval, tightening his breath and voice to sound indifferent, as if hiding his trembling.</p>
 
-<p>「Chyu-up, su-up, ha-am su-u-up, chyu-rup, chyu-up!」</p>
+<p>"Chyu-up, su-up, ha-am su-u-up, chyu-rup, chyu-up!"</p>
 
 <p>Seyoung began to lick Shiwoo's shaft, working her lips and tongue.</p>
 
@@ -164,7 +164,7 @@ chapter = 686
 
 <p>Screens changed one after another, familiar commercial BGMs passed by, and highlight scenes of repetitive dramas flickered past.</p>
 
-<p>「Ha-a-am, ha-um, ham.. Chyu-up!」</p>
+<p>"Ha-a-am, ha-um, ham.. Chyu-up!"</p>
 
 <p>Around the time Seyoung took his cock fully into her mouth,</p>
 
@@ -196,6 +196,6 @@ chapter = 686
 
 <p>Shiwoo briefly placed his hand on Seyoung's head.</p>
 
-<p>「When Seonmi and Sehee arrive... stop sucking, go to Seonmi and Sehee's room... and bring the leashes we bought before... one for each of you...!」</p>
+<p>"When Seonmi and Sehee arrive... stop sucking, go to Seonmi and Sehee's room... and bring the leashes we bought before... one for each of you...!"</p>
 
 <p>Shiwoo commanded with ragged breath, staring into Seyoung's eyes.</p>

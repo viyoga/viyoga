@@ -30,11 +30,11 @@ chapter = 495
 
 <p>As soon as the empty space appeared, Seyoung's lips and tongue quickly covered Mom's clitoris.</p>
 
-<p>「Chuu-oop chu-u-up ha-oop suu-u-up!」</p>
+<p>"Chuu-oop chu-u-up ha-oop suu-u-up!"</p>
 
 <p>Seyoung sucked on Mom's clitoris as if sucking on a breast.</p>
 
-<p>「Hau-uu-uu.... Ha-eu-eu-eu...Ha-eu-eu-eung...heu-heu...heu-eu-eu...Hau-uu..」</p>
+<p>"Hau-uu-uu.... Ha-eu-eu-eu...Ha-eu-eu-eung...heu-heu...heu-eu-eu...Hau-uu.."</p>
 
 <p>Mom, making moaning sounds like the howling of a beast, shook her body violently.</p>
 
@@ -78,7 +78,7 @@ chapter = 495
 
 <p>Then, she finally embraced Mom's fruit as if tasting it with her tongue.</p>
 
-<p>「Ha-eu-eu-eueut!」</p>
+<p>"Ha-eu-eu-eueut!"</p>
 
 <p>Mom reacted as if she was out of breath from Seyoung's cunnilingus that had climbed up Shiwoo's shaft.</p>
 
@@ -128,7 +128,7 @@ chapter = 495
 
 <p>Mom trembled, but soon relaxed her twisted body as if accepting the situation she was in.</p>
 
-<p>「Ha-eu-eu-eu-eu....Heu-eu-eu...Hi-eu-eu-eung...」</p>
+<p>"Ha-eu-eu-eu-eu....Heu-eu-eu...Hi-eu-eu-eung..."</p>
 
 <p>Mom moaned as if letting out the strong stimulation of the vibrator vibrating violently inside her pussy hole.</p>
 
@@ -156,7 +156,7 @@ chapter = 495
 
 <p>Shiwoo's swollen glans was wrapped in Seyoung's moist oral mucosa and soft, flexible tongue.</p>
 
-<p>「Chuu-u-up chu-u-u-up chu-a-ap!」</p>
+<p>"Chuu-u-up chu-u-u-up chu-a-ap!"</p>
 
 <p>Seyoung sucked on Shiwoo's glans as if sucking on a breast, just like she had done on Mom's clitoris.</p>
 
@@ -172,10 +172,10 @@ chapter = 495
 
 <p>Several waves crashed down like a storm, then scattered like spray.</p>
 
-<p>「Shibal shibal shibal!」</p>
+<p>"Shibal shibal shibal!"</p>
 
 <p>Shiwoo cursed behind Mom's back, enduring such climaxes over and over again.</p>
 
-<p>「Chu-ap chu-ap chu-a-ap! Hu-a-a...」</p>
+<p>"Chu-ap chu-ap chu-a-ap! Hu-a-a..."</p>
 
 <p>Seyoung was licking Shiwoo's penis as if trying to see the end.</p>

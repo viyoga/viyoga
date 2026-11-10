@@ -4,51 +4,51 @@ weight = 460
 [extra]
 chapter = 460
 +++
-<p>「Sejin Nuna! Are you free tomorrow? Can we meet up?」</p>
+<p>"Sejin Nuna! Are you free tomorrow? Can we meet up?"</p>
 
 <p>Shiwoo, feeling impatient, abruptly asks Sejin Nuna if they can meet tomorrow.</p>
 
-<p>「Tomorrow?」</p>
+<p>"Tomorrow?"</p>
 
 <p>Sejin Nuna echoes, reacting to Shiwoo's sudden text.</p>
 
-<p>「Yeah! Tomorrow! After my academy, around 5 PM!」</p>
+<p>"Yeah! Tomorrow! After my academy, around 5 PM!"</p>
 
 <p>Shiwoo dictates the time, as if notifying Sejin Nuna.</p>
 
-<p>「Okay, sure Do you want to come to my officetel? You know where it is, right? You came to help move my stuff when I moved in, didn't you?」</p>
+<p>"Okay, sure Do you want to come to my officetel? You know where it is, right? You came to help move my stuff when I moved in, didn't you?"</p>
 
 <p>Sejin Nuna, despite Shiwoo's seemingly unreasonable demand, readily agrees without any scolding or criticism.</p>
 
-<p>「Yeah. I went there before. I know where it is.」</p>
+<p>"Yeah. I went there before. I know where it is."</p>
 
 <p>Shiwoo, seeing that Sejin Nuna isn't showing any particular reaction even after seeing the picture he sent, answers with slightly subdued energy.</p>
 
-<p>「I'll send you the address just in case」</p>
+<p>"I'll send you the address just in case"</p>
 
 <p>Sejin Nuna even shows consideration for Shiwoo, displaying a sense of composure.</p>
 
 <p>Even after seeing the signed marriage contract and Shiwoo's penis picture, is Sejin Nuna not bothered at all?</p>
 
-<p>「Yeah...send it.」</p>
+<p>"Yeah...send it."</p>
 
 <p>The vigor he had when signing the documents and sending the picture is nowhere to be found; Shiwoo now sends a text to Sejin Nuna as if he's feeling rather intimidated.</p>
 
 <p>He's also feeling a slight regret about sending the penis picture.</p>
 
-<p>「So, tomorrow at 5 PM. We're meeting at my officetel, right?」</p>
+<p>"So, tomorrow at 5 PM. We're meeting at my officetel, right?"</p>
 
 <p>Sejin Nuna asks Shiwoo, confirming as she organizes the time and place.</p>
 
-<p>「Yeah, that's right.」</p>
+<p>"Yeah, that's right."</p>
 
 <p>Shiwoo answers as if being led by Sejin Nuna's pace.</p>
 
-<p>「Okay. Shiwoo, then I'll see you tomorrow! Come carefully!」</p>
+<p>"Okay. Shiwoo, then I'll see you tomorrow! Come carefully!"</p>
 
 <p>In the meantime, Sejin Nuna is saying goodbye to Shiwoo as if she's about to end the conversation.</p>
 
-<p>「Okay, yeah. Sejin Nuna. See you tomorrow.」</p>
+<p>"Okay, yeah. Sejin Nuna. See you tomorrow."</p>
 
 <p>Shiwoo also sends a farewell, promising to meet tomorrow, following Sejin Nuna's lead.</p>
 

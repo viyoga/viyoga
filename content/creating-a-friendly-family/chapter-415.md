@@ -4,33 +4,33 @@ weight = 415
 [extra]
 chapter = 415
 +++
-<p>「I went to all the trouble of stripping you, why'd you leave your clothes there? Since you're already naked, I'm thinking of letting you go home like that Hehehe」</p>
+<p>"I went to all the trouble of stripping you, why'd you leave your clothes there? Since you're already naked, I'm thinking of letting you go home like that Hehehe"</p>
 
 <p>Shiwoo was teasing Mom with words that were hard to tell if they were serious or a joke, leaving her flustered.</p>
 
-<p>「Don't joke around! I'm already about to lose my mind, so stop saying weird things and bring my clothes here right now!」</p>
+<p>"Don't joke around! I'm already about to lose my mind, so stop saying weird things and bring my clothes here right now!"</p>
 
 <p>Mom spoke as if she was about to burst out in anger at Shiwoo's words.</p>
 
-<p>「I'm not joking? Who said I was joking? Hehehe. I already finished preparing to go home and left that room, you know? Mom saw me grabbing my bag, right?</p>
+<p>"I'm not joking? Who said I was joking? Hehehe. I already finished preparing to go home and left that room, you know? Mom saw me grabbing my bag, right?</p>
 
-<p>I was just thinking about it, but seeing Mom like this, I guess I should just go home right away! I'm going home now, so Mom can stay there for a bit and come slowly when you've calmed down」</p>
+<p>I was just thinking about it, but seeing Mom like this, I guess I should just go home right away! I'm going home now, so Mom can stay there for a bit and come slowly when you've calmed down"</p>
 
 <p>Shiwoo spoke to Mom as if he was really about to head home, bluffing.</p>
 
-<p>「What? How can you just leave halfway through like that?」</p>
+<p>"What? How can you just leave halfway through like that?"</p>
 
-<p>「How am I supposed to go home in this state?! If I run into someone I know on the street, it'll be a real disaster!」</p>
+<p>"How am I supposed to go home in this state?! If I run into someone I know on the street, it'll be a real disaster!"</p>
 
 <p>Mom frantically texted Shiwoo.</p>
 
-<p>「That's for Mom to figure out! I can't solve everything for you, can I? Anyway, I'm going home first, so be careful on your way back It's gonna be a bit cold walking around like that」</p>
+<p>"That's for Mom to figure out! I can't solve everything for you, can I? Anyway, I'm going home first, so be careful on your way back It's gonna be a bit cold walking around like that"</p>
 
 <p>Shiwoo was talking to Mom as if he was really going to go back home.</p>
 
 <p>Of course, Shiwoo had no intention of leaving Mom alone in the karaoke room and going home, but he was planning to psychologically corner Mom by even lying that he was going home first.</p>
 
-<p>「Shiwoo, what the fuck are you saying right now? Are you trying to see Mom go completely crazy?!」</p>
+<p>"Shiwoo, what the fuck are you saying right now? Are you trying to see Mom go completely crazy?!"</p>
 
 <p>Mom sent Shiwoo a text full of typos, as if she was really frantic and confused.</p>
 
@@ -132,7 +132,7 @@ chapter = 415
 
 <p>It seemed that Mom was checking the photos and videos that her son had sent.</p>
 
-<p>「Look! Seyoung and Sua don't make crying sounds like Mom does while doing things like that!」</p>
+<p>"Look! Seyoung and Sua don't make crying sounds like Mom does while doing things like that!"</p>
 
 <p>Shiwoo was speaking to Mom again in a text.</p>
 

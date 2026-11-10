@@ -56,11 +56,11 @@ chapter = 641
 
 <p>A text from Seyoung arrived just then...</p>
 
-<p>『Our class just ended! You're inside the cafe, right? Sua and I are coming down now』</p>
+<p>"Our class just ended! You're inside the cafe, right? Sua and I are coming down now"</p>
 
 <p>It was a text from Seyoung saying she was coming down to the cafe after finishing class. Her energetic tone was vividly conveyed even through the screen.</p>
 
-<p>『Yeah! I'm in the corner seat next to the stage. Take your time.』</p>
+<p>"Yeah! I'm in the corner seat next to the stage. Take your time."</p>
 
 <p>Shiwoo raised his smartphone and sent a short reply to her. Then, he tucked his penis, which he had taken out under the blanket, back into his clothes.</p>
 
@@ -78,17 +78,17 @@ chapter = 641
 
 <p>Mom's declaration, which seemed to reveal her resolve and determination to cross the line. Chewing on those words, amidst the strange excitement heated by his imagination, Shiwoo cautiously sent a text to Mom.</p>
 
-<p>『Did you and Sehee shop well? What about food? Are you eating??』</p>
+<p>"Did you and Sehee shop well? What about food? Are you eating??"</p>
 
 <p>Shiwoo sent the text to Mom as if asking a normal greeting. After a moment, the number next to the text Shiwoo sent disappeared. However, a reply did not come immediately. Shiwoo stared at the screen, waiting for a moment in wonder.</p>
 
 <p>Then, a new message arrived. But contrary to his expectations, it was a message from Sehee-nuna, not Mom.</p>
 
-<p>『Sunmi can't reply right now... because she's tied up...』</p>
+<p>"Sunmi can't reply right now... because she's tied up..."</p>
 
 <p>Sehee-nuna left those meaningful words without any further detailed explanation.</p>
 
-<p>『What?』</p>
+<p>"What?"</p>
 
 <p>Shiwoo asked, slightly flustered by Sehee-nuna's words. She didn't answer for a long while. While engulfed in anxiety, the words</p>
 

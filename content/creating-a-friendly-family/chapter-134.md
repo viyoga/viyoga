@@ -68,7 +68,7 @@ chapter = 134
 
 <p>Shiwoo spoke as if confirming to Gyuri Ajumma that she no longer had any reason to refuse.</p>
 
-<p>「Y-you will?」 Gyuri Ajumma gave an affirmative answer, sounding shy.</p>
+<p>"Y-you will?" Gyuri Ajumma gave an affirmative answer, sounding shy.</p>
 
 <p>Yet, when she was blindfolded and tied up, she had been so seductive and bold... The thought of entering Gyuri Ajumma's body once more made Shiwoo's penis swell as if it would burst at any moment.</p>
 

@@ -96,7 +96,7 @@ chapter = 165
 
 <p>Shiwoo's penis was shoved ruthlessly into Sehee-nuna's hole.</p>
 
-<p>「Heu-eung Haa-euk!!」</p>
+<p>"Heu-eung Haa-euk!!"</p>
 
 <p>Sehee-nuna seemed somewhat accustomed to the intermittent lovemaking that had taken place last night.</p>
 
@@ -104,13 +104,13 @@ chapter = 165
 
 <p>Even with Shiwoo's sudden insertion, Sehee-nuna's body now seemed to instinctively comply.</p>
 
-<p>「Chyup Chu-up!」</p>
+<p>"Chyup Chu-up!"</p>
 
 <p>-Pu-eok! Peok! Peok! Pu-eok!</p>
 
 <p>Shiwoo roughly kissed Sehee-nuna and continued his fierce piston thrusts.</p>
 
-<p>「Haa-eut! Haa-aak! Haa-aat! Haa-eung! Master-nim!」</p>
+<p>"Haa-eut! Haa-aak! Haa-aat! Haa-eung! Master-nim!"</p>
 
 <p>The honorific of submission, which she had cried out countless times in her dazed state throughout the night, burst from Sehee-nuna's still half-asleep mouth.</p>
 
@@ -124,7 +124,7 @@ chapter = 165
 
 <p>Shiwoo gradually increased the speed of his piston thrusts.</p>
 
-<p>「Haa-eung! Master-nim!! Haa-aang! Haa-eut!!」</p>
+<p>"Haa-eung! Master-nim!! Haa-aang! Haa-eut!!"</p>
 
 <p>Sehee-nuna, with her mouth half-open and eyes closed, arched her body backward, trembling violently as if reaching climax.</p>
 
@@ -134,11 +134,11 @@ chapter = 165
 
 <p>-Pu-eok! Peok! Peok! Pu-eok!! Peok!</p>
 
-<p>「Sehee, you fucking bitch! Why are you sleeping without even telling me the password?! Huh?!」</p>
+<p>"Sehee, you fucking bitch! Why are you sleeping without even telling me the password?! Huh?!"</p>
 
 <p>Shiwoo hurled profanity at Sehee-nuna, thrusting with all his might as if delivering punishment.</p>
 
-<p>「Haa-aak! P-please! Heu-kkeuk! Haa-geu-euk!」</p>
+<p>"Haa-aak! P-please! Heu-kkeuk! Haa-geu-euk!"</p>
 
 <p>Sehee-nuna's pained scream, hypersensitive beyond climax.</p>
 
@@ -174,37 +174,37 @@ chapter = 165
 
 <p>Before they knew it, Shiwoo and Sehee-nuna arrived at the main gate of the elite academy Sehee-nuna attended.</p>
 
-<p>「After academy today, I'm going straight to Shinbi's house, so you don't need to come pick me up, Shiwoo!」</p>
+<p>"After academy today, I'm going straight to Shinbi's house, so you don't need to come pick me up, Shiwoo!"</p>
 
 <p>Sehee-nuna said this as Shiwoo was about to turn around after dropping her off at the academy gate and saying goodbye.</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>Shiwoo reacted with a hint of disappointment at Sehee-nuna's words that he didn't need to pick her up.</p>
 
-<p>「I might even sleep over, so don't wait up! Got it?」</p>
+<p>"I might even sleep over, so don't wait up! Got it?"</p>
 
 <p>Sehee-nuna continued with words that were likely to make Shiwoo feel even more disappointed.</p>
 
-<p>「We didn't talk about that! Why suddenly?」</p>
+<p>"We didn't talk about that! Why suddenly?"</p>
 
 <p>Shiwoo, feeling disappointed and displeased by Sehee-nuna's unilateral announcement, raised his voice slightly.</p>
 
-<p>「It's my business, you dummy! Do I have to ask your permission for something like that?!」</p>
+<p>"It's my business, you dummy! Do I have to ask your permission for something like that?!"</p>
 
 <p>Sehee-nuna also spoke as if vexed by Shiwoo's reaction.</p>
 
-<p>「That's not it, but... still...」</p>
+<p>"That's not it, but... still..."</p>
 
 <p>Shiwoo's voice trailed off as he replied.</p>
 
-<p>「I just want to rest! I can't rest at home when I'm with you! And you need a day to rest too if you're going to prepare for your meeting with Shinbi tomorrow, don't you?!」</p>
+<p>"I just want to rest! I can't rest at home when I'm with you! And you need a day to rest too if you're going to prepare for your meeting with Shinbi tomorrow, don't you?!"</p>
 
 <p>Sehee-nuna was talking about wanting to rest, keeping the Friday meeting in mind.</p>
 
 <p>A subtle, sharp pain resonated in Shiwoo's chest.</p>
 
-<p>「I'll stop by home before the meeting! You also get ready to go out as soon as you get home that day! You saw the clothes I bought yesterday, right?!」</p>
+<p>"I'll stop by home before the meeting! You also get ready to go out as soon as you get home that day! You saw the clothes I bought yesterday, right?!"</p>
 
 <p>Sehee-nuna seemed to be referring to the suit that had been placed on the dining table this morning.</p>
 
@@ -218,11 +218,11 @@ chapter = 165
 
 <p>Then, Sehee-nuna leaned her head on Shiwoo's shoulder.</p>
 
-<p>「Uh... uh-oh? Se... Sehee-nuna. This is your academy entrance, you know?...」</p>
+<p>"Uh... uh-oh? Se... Sehee-nuna. This is your academy entrance, you know?..."</p>
 
 <p>Shiwoo stammered, looking around in embarrassment at Sehee-nuna's sudden, unexpected action.</p>
 
-<p>「But why did you ask for my smartphone password yesterday?! You should have known it right away! You blockhead!」</p>
+<p>"But why did you ask for my smartphone password yesterday?! You should have known it right away! You blockhead!"</p>
 
 <p>Sehee-nuna spoke, her head still resting on Shiwoo's shoulder, seemingly oblivious to his embarrassment.</p>
 
@@ -230,11 +230,11 @@ chapter = 165
 
 <p>Sehee-nuna suddenly flared up, pulled her hand from Shiwoo's pocket, and forcefully struck Shiwoo's solar plexus.</p>
 
-<p>「Huk!」</p>
+<p>"Huk!"</p>
 
 <p>Shiwoo clutched his stomach in pain, his breath momentarily caught.</p>
 
-<p>「Let go! I'm leaving!」</p>
+<p>"Let go! I'm leaving!"</p>
 
 <p>Sehee-nuna said something incomprehensible and ran straight into the academy gate.</p>
 

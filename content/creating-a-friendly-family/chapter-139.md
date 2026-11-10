@@ -58,7 +58,7 @@ chapter = 139
 
 <p>Shiwoo stiffens his tongue and provocatively pokes at the shameful hole located at Gyuri Ajumma's lower rear.</p>
 
-<p>「Uh...Heeueueup...」</p>
+<p>"Uh...Heeueueup..."</p>
 
 <p>Gyuri Ajumma, holding semen in her mouth, lets out a moaning sound through her nose.</p>
 
@@ -74,7 +74,7 @@ chapter = 139
 
 <p>Shiwoo puts strength into the tip of his tongue, pushing away the clitoral knob as if flicking it upwards.</p>
 
-<p>「Heu! Heup! Heup!」</p>
+<p>"Heu! Heup! Heup!"</p>
 
 <p>Gyuri Ajumma's body trembles violently.</p>
 
@@ -94,13 +94,13 @@ chapter = 139
 
 <p>The sensitive knob, pulled in, was ravaged inside Shiwoo's mouth.</p>
 
-<p>「Heeueueup! Heeueup!」</p>
+<p>"Heeueueup! Heeueup!"</p>
 
 <p>With her clitoris mercilessly rubbed by Shiwoo's lips and tongue in her defenseless state, Gyuri Ajumma twisted and vibrated her body.</p>
 
 <p>Intending to stimulate Gyuri Ajumma even more, Shiwoo began to gnaw and roll her clitoris between his upper and lower teeth, as if chewing it.</p>
 
-<p>「Heeueup! Heeueung!」</p>
+<p>"Heeueup! Heeueung!"</p>
 
 <p>Gyuri Ajumma, clutching Shiwoo's head with both hands, was trembling violently as if in agony, strongly clenching her thighs.</p>
 
@@ -120,7 +120,7 @@ chapter = 139
 
 <p>After fixing Gyuri Ajumma's body in that position, Shiwoo briefly released her clitoris from his mouth.</p>
 
-<p>「Anyway, Ajusshi knew, didn't he? About us doing this too!」</p>
+<p>"Anyway, Ajusshi knew, didn't he? About us doing this too!"</p>
 
 <p>Shiwoo spoke to Gyuri Ajumma, adjusting the position of his knees supporting her inverted body.</p>
 
@@ -130,15 +130,15 @@ chapter = 139
 
 <p>Shiwoo was merely speaking aloud, as if to himself, in a way that Gyuri Ajumma could hear, as if organizing the situation in his mind.</p>
 
-<p>「Our Mom isn't in a position to say anything even if you, Gyuri, and I have sex, so she just left us alone, right?」</p>
+<p>"Our Mom isn't in a position to say anything even if you, Gyuri, and I have sex, so she just left us alone, right?"</p>
 
 <p>Gyuri Ajumma's breathing grew ragged, as if reacting to Shiwoo's words organizing the situation.</p>
 
-<p>「Mom wrote one too? A marriage vow? Since they exchanged rings. That's it, right? Then Mom also married the baby you were carrying, Gyuri? Cheoljin? These bitches are really crazy?!」</p>
+<p>"Mom wrote one too? A marriage vow? Since they exchanged rings. That's it, right? Then Mom also married the baby you were carrying, Gyuri? Cheoljin? These bitches are really crazy?!"</p>
 
 <p>-Challssak!</p>
 
-<p>「Heeueup!」</p>
+<p>"Heeueup!"</p>
 
 <p>Shiwoo continued to ramble to himself, organizing his thoughts, then, as if finding her outrageous, he forcefully slapped Gyuri Ajumma's lifted buttocks.</p>
 
@@ -198,7 +198,7 @@ chapter = 139
 
 <p>Shiwoo positioned Gyuri Ajumma's clitoris, which he had in his mouth, between his molars and mercilessly chewed it, as if grinding it.</p>
 
-<p>「Heup! Heeueup! Heup! Heeueup!」</p>
+<p>"Heup! Heeueup! Heup! Heeueup!"</p>
 
 <p>Gyuri Ajumma's body twisted and writhed as if convulsing.</p>
 

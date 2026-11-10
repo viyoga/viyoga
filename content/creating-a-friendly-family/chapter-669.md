@@ -4,11 +4,11 @@ weight = 669
 [extra]
 chapter = 669
 +++
-<p>「I'll open the door for you now. Just wait a little bit!」</p>
+<p>"I'll open the door for you now. Just wait a little bit!"</p>
 
 <p>Shiwoo sent the text with a nonchalant air, as if half-ignoring her words.</p>
 
-<p>「Yeah ^ ^」</p>
+<p>"Yeah ^ ^"</p>
 
 <p>To Shiwoo's text, which read almost like a command, Seonju Imo replied with a smiling emoticon.</p>
 

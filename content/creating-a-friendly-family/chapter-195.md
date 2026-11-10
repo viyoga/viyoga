@@ -26,39 +26,39 @@ chapter = 195
 
 <p>Soon, the phone signal, which felt as if it had stretched on forever, was cut off.</p>
 
-<p>「What is it?」</p>
+<p>"What is it?"</p>
 
 <p>Cheoljin-i answered Shiwoo's call, saying.</p>
 
-<p>「I'm behind the room cafe building right now, I have something to talk about for a moment, so come out to the back of the building right now! Don't say anything to anyone else!」</p>
+<p>"I'm behind the room cafe building right now, I have something to talk about for a moment, so come out to the back of the building right now! Don't say anything to anyone else!"</p>
 
 <p>Shiwoo abruptly told Cheoljin-i to come out to the back of the building without any further explanation.</p>
 
-<p>「What What's going on?」</p>
+<p>"What What's going on?"</p>
 
 <p>Cheoljin-i seemed to be speaking as if slightly wary of Shiwoo.</p>
 
 <p>Shiwoo inwardly worried if he had spoken too hastily to Cheoljin-i, who had decided to side with the Hyeong-s.</p>
 
-<p>「Just come out! It's important」</p>
+<p>"Just come out! It's important"</p>
 
 <p>Shiwoo spoke to Cheoljin-i in a tone suppressing his annoyance.</p>
 
-<p>「What? Is it more important than what I'm doing now? Usually, there wouldn't be such a thing? Right? Puh-hee-hit!」</p>
+<p>"What? Is it more important than what I'm doing now? Usually, there wouldn't be such a thing? Right? Puh-hee-hit!"</p>
 
 <p>Cheoljin-i, as if finding Shiwoo's reaction amusing, spoke with a swaggering, teasing tone.</p>
 
-<p>「Co... come out! You said earlier you wanted to touch Sinbi's breasts, didn't you? I'll let you touch them now! Just come out!」</p>
+<p>"Co... come out! You said earlier you wanted to touch Sinbi's breasts, didn't you? I'll let you touch them now! Just come out!"</p>
 
 <p>To lure Cheoljin-i out, Shiwoo was recklessly throwing out tempting proposals as they came to mind.</p>
 
-<p>「What? What sudden wind blew you here? If it's something like that, it's always welcome, but it's suspicious somehow, don't you have some strange ulterior motive, you?」</p>
+<p>"What? What sudden wind blew you here? If it's something like that, it's always welcome, but it's suspicious somehow, don't you have some strange ulterior motive, you?"</p>
 
 <p>Cheoljin-i was speaking in a teasing tone, as if suspecting Shiwoo.</p>
 
 <p>Shiwoo's heart seemed to sink with a thud.</p>
 
-<p>「Wh... what are you talking about? What ulterior motive?! If not now, you won't get an opportunity like this again! If you're not interested, hang up right now!」</p>
+<p>"Wh... what are you talking about? What ulterior motive?! If not now, you won't get an opportunity like this again! If you're not interested, hang up right now!"</p>
 
 <p>Shiwoo spoke to Cheoljin-i as if cornering him.</p>
 
@@ -66,7 +66,7 @@ chapter = 195
 
 <p>Cold sweat was soaking Shiwoo's back.</p>
 
-<p>「Hehe You better keep your promise later! I'm coming down now.」</p>
+<p>"Hehe You better keep your promise later! I'm coming down now."</p>
 
 <p>Cheoljin-i answered and then immediately hung up the phone.</p>
 
@@ -134,7 +134,7 @@ chapter = 195
 
 <p class="scene-break">· · ·</p>
 
-<p>「Where did you go? You didn't come back for so long, I thought you'd left with Sinbi Where's Sinbi?」</p>
+<p>"Where did you go? You didn't come back for so long, I thought you'd left with Sinbi Where's Sinbi?"</p>
 
 <p>Sora Nuna approached Shiwoo from the direction of the bed and spoke.</p>
 
@@ -154,7 +154,7 @@ chapter = 195
 
 <p>It seemed that Sora Nuna and Saerom Nuna were probably violating the drugged Semi Nuna together.</p>
 
-<p>「Uh... uh... I... I went out for some fresh air. It seems like it'll take a while.」</p>
+<p>"Uh... uh... I... I went out for some fresh air. It seems like it'll take a while."</p>
 
 <p>Shiwoo, his mind dazed, answered Sora Nuna's question without even knowing what he was saying.</p>
 
@@ -178,7 +178,7 @@ chapter = 195
 
 <p class="scene-break">· · ·</p>
 
-<p>「Sehee's incredibly lewd, isn't she? Look!」</p>
+<p>"Sehee's incredibly lewd, isn't she? Look!"</p>
 
 <p>Sora Nuna, sitting next to him, took Shiwoo's hand, placed it on her own breast, and spoke.</p>
 
@@ -186,11 +186,11 @@ chapter = 195
 
 <p>Even though she was like that because of the drug's effects, why wasn't Sehee Nuna crying out for help, even with Shiwoo right in front of her?</p>
 
-<p>「D... don't look! Shiwoo Hngh!」</p>
+<p>"D... don't look! Shiwoo Hngh!"</p>
 
 <p>Words that came from Sehee Nuna's mouth as she was being violated by the Hyeong-s.</p>
 
-<p>「Hngh I hate this Please... hngh」</p>
+<p>"Hngh I hate this Please... hngh"</p>
 
 <p>Sehee Nuna was speaking in a trembling voice.</p>
 
@@ -206,7 +206,7 @@ chapter = 195
 
 <p>Shiwoo would forever lose the Sehee Nuna he had known until now.</p>
 
-<p>「Sh... Shiwoo... don't look... hngh...」</p>
+<p>"Sh... Shiwoo... don't look... hngh..."</p>
 
 <p>Words that came from Sehee Nuna's mouth once again.</p>
 
@@ -222,17 +222,17 @@ chapter = 195
 
 <p>It was then.</p>
 
-<p>「P... please save me!!」</p>
+<p>"P... please save me!!"</p>
 
 <p>Familiar wording heard from Sehee Nuna's mouth.</p>
 
-<p>「......!!!」</p>
+<p>"......!!!"</p>
 
 <p>At that moment, Shiwoo felt as if his eyes rolled back and adrenaline surged through him.</p>
 
 <p>Shiwoo immediately picked up the red fire extinguisher near the door.</p>
 
-<p>「Uwaaaah!」</p>
+<p>"Uwaaaah!"</p>
 
 <p>Shiwoo, without hesitation, leaped out with a shout, swinging the fire extinguisher and smashing it into the head of the beast trying to thrust in its hideous thing.</p>
 

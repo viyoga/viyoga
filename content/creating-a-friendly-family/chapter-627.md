@@ -24,13 +24,13 @@ chapter = 627
 
 <p>Then, after a while, Sehee sent back a reply.</p>
 
-<p>「Alright. I'll try to do that...」</p>
+<p>"Alright. I'll try to do that..."</p>
 
 <p>Sehee sent the text with a resigned, almost indifferent feeling.</p>
 
 <p>Instantly, the hard pillar of flesh hidden inside Shiwoo's clothes writhes as if to break through the waistline of his pants, stretching them out.</p>
 
-<p>「Did you take all the pictures after getting the tattoo?」</p>
+<p>"Did you take all the pictures after getting the tattoo?"</p>
 
 <p>Shiwoo's question was cautious yet tinged with subtle anticipation and curiosity.</p>
 
@@ -40,13 +40,13 @@ chapter = 627
 
 <p>But at this moment, it was being boldly demanded by Shiwoo as if it were an obvious right.</p>
 
-<p>「No. I haven't taken any pictures yet. I contacted you right after leaving the shop, in a daze...」</p>
+<p>"No. I haven't taken any pictures yet. I contacted you right after leaving the shop, in a daze..."</p>
 
-<p>「And I can't take them right now because I'm outside the shop. There are a lot of people coming and going.」</p>
+<p>"And I can't take them right now because I'm outside the shop. There are a lot of people coming and going."</p>
 
 <p>Sehee replied to Shiwoo cautiously, almost apologetically.</p>
 
-<p>「Take off your panties right now, take the pictures, and send them. First, take full-body shots, then take pictures of the inside too! Tell Seonmi the same thing!」</p>
+<p>"Take off your panties right now, take the pictures, and send them. First, take full-body shots, then take pictures of the inside too! Tell Seonmi the same thing!"</p>
 
 <p>Shiwoo ignored Sehee's words and instructed her as if not wanting to leave even a shred of room for refusal.</p>
 
@@ -56,7 +56,7 @@ chapter = 627
 
 <p>Sehee seemed quite taken aback by Shiwoo's text, sent without hesitation, resolutely and coldly.</p>
 
-<p>「I'll take them and send them... I'll tell Seonmi too...」</p>
+<p>"I'll take them and send them... I'll tell Seonmi too..."</p>
 
 <p>After a moment of silence, Sehee sent a reply to Shiwoo.</p>
 
@@ -148,23 +148,23 @@ chapter = 627
 
 <p>The initials, glistening with lubricant, were clearly revealed on Sehee's thigh as well.</p>
 
-<p>「Sehee took a good picture so that the initials on her thigh are immediately visible, right? It seems like the spread of her crotch is also well visible.」</p>
+<p>"Sehee took a good picture so that the initials on her thigh are immediately visible, right? It seems like the spread of her crotch is also well visible."</p>
 
 <p>Shiwoo speaks to Mom in her 1:1 chat window, as if praising her.</p>
 
-<p>「......」</p>
+<p>"......"</p>
 
 <p>Perhaps such a conversation with her son is still awkward, as Mom's reply returns with an ellipsis.</p>
 
-<p>「Did Mom take them directly? Putting the smartphone inside Sehee's skirt?」</p>
+<p>"Did Mom take them directly? Putting the smartphone inside Sehee's skirt?"</p>
 
 <p>Shiwoo asks Mom, as if checking the filming process, unnecessarily speaking to her further.</p>
 
-<p>「Then who else would take them but Mom? Who else would take pictures like this? Should I grab someone passing by and ask them to take the pictures?!」</p>
+<p>"Then who else would take them but Mom? Who else would take pictures like this? Should I grab someone passing by and ask them to take the pictures?!"</p>
 
 <p>Mom replies as if Shiwoo's question is annoying, with a grumbling tone.</p>
 
-<p>「Well I wouldn't mind that, but would you be okay with it? Should I tell Sehee to grab someone passing by and have them retake the pictures inside Mom's skirt?」</p>
+<p>"Well I wouldn't mind that, but would you be okay with it? Should I tell Sehee to grab someone passing by and have them retake the pictures inside Mom's skirt?"</p>
 
 <p>Shiwoo responds nonchalantly, as if parrying Mom's grumbling text.</p>
 
@@ -182,16 +182,16 @@ chapter = 627
 
 <p>After confirming her reaction, Shiwoo writes an expression of awkward laughter in the chat window and sends it.</p>
 
-<p>「By the way, it seems like it came out pretty well, but how did it really end up happening? Kekeke」</p>
+<p>"By the way, it seems like it came out pretty well, but how did it really end up happening? Kekeke"</p>
 
 <p>Shiwoo was now teasing Mom playfully, as if it had nothing to do with him, about her following his words to the letter.</p>
 
-<p>「I did it for real because you told me to! To someone who has never even put on heavy color makeup on her face, you made her engrave her initials on her thigh in your name!」</p>
+<p>"I did it for real because you told me to! To someone who has never even put on heavy color makeup on her face, you made her engrave her initials on her thigh in your name!"</p>
 
-<p>「Now you're saying how did it really end up happening?! Is that something you should say?! Are you even human, Shiwoo?!」</p>
+<p>"Now you're saying how did it really end up happening?! Is that something you should say?! Are you even human, Shiwoo?!"</p>
 
 <p>Unlike before, Mom seemed truly furious at Shiwoo's words, even mixing in harsh words and pouring out her emotions directly into the text.</p>
 
-<p>「I'm kidding, I'm kidding I'm just saying it came out pretty well Our Seonmi is very prickly today Hehehe. Did it hurt a lot when you got the tattoo?」</p>
+<p>"I'm kidding, I'm kidding I'm just saying it came out pretty well Our Seonmi is very prickly today Hehehe. Did it hurt a lot when you got the tattoo?"</p>
 
 <p>Shiwoo writes a text again, awkwardly trying to soothe Mom.</p>

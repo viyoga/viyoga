@@ -82,7 +82,7 @@ chapter = 377
 
 <p>Seyoung took a photo in such an explicit pose as if she was trying to show it to Mom and Sehee Nuna.</p>
 
-<p>「Sehee Unni's breasts are so pretty Hehe, I want to see our Seonmi's breasts soon too」</p>
+<p>"Sehee Unni's breasts are so pretty Hehe, I want to see our Seonmi's breasts soon too"</p>
 
 <p>Seyoung's message, sent after sending a photo of her breasts and genitals to the chat room that Mom and Sehee Nuna were watching.</p>
 

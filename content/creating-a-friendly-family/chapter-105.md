@@ -42,35 +42,35 @@ chapter = 105
 
 <p>Sehee Nuna, who had been walking silently.</p>
 
-<p>「Shiwoo...」</p>
+<p>"Shiwoo..."</p>
 
 <p>Sehee Nuna called Shiwoo's name as she continued to walk.</p>
 
 <p>-Her gaze fixed downwards, straight ahead-</p>
 
-<p>「Eung!?」</p>
+<p>"Eung!?"</p>
 
 <p>Shiwoo replied in a subtle voice, looking at Sehee Nuna.</p>
 
-<p>「Earlier, Seyoung...」</p>
+<p>"Earlier, Seyoung..."</p>
 
 <p>Sehee Nuna's voice trailed off.</p>
 
-<p>「Seyoung... why?」</p>
+<p>"Seyoung... why?"</p>
 
 <p>Shiwoo asked, hoping Sehee Nuna would continue.</p>
 
-<p>「You and Shiwoo...」</p>
+<p>"You and Shiwoo..."</p>
 
 <p>Sehee Nuna paused, as if pondering something deeply again after uttering the words.</p>
 
 <p>Sehee Nuna seemed to be deliberating whether to speak the words she held in her mouth.</p>
 
-<p>「Me?」</p>
+<p>"Me?"</p>
 
 <p>Shiwoo urged her for an answer.</p>
 
-<p>「No nothing at all...!」</p>
+<p>"No nothing at all...!"</p>
 
 <p>Sehee Nuna ultimately couldn't continue her words.</p>
 
@@ -112,11 +112,11 @@ chapter = 105
 
 <p>Sehee Nuna came down the second-floor stairs, carrying a change of clothes.</p>
 
-<p>「I'm going to shower first, so Shiwoo, you wash the lettuce and vegetables well! And there'll be a meat grill and a gas burner inside, so find them and take them out! Got it?」</p>
+<p>"I'm going to shower first, so Shiwoo, you wash the lettuce and vegetables well! And there'll be a meat grill and a gas burner inside, so find them and take them out! Got it?"</p>
 
 <p>Sehee Nuna rattled off her prepared words, then quickly slipped into the dressing room as if fleeing.</p>
 
-<p>「Alright」</p>
+<p>"Alright"</p>
 
 <p>Shiwoo found such a Sehee Nuna incredibly cute.</p>
 
@@ -146,63 +146,63 @@ chapter = 105
 
 <p>And he sent a text message to another object of his sadistic desire: Mom.</p>
 
-<p>「Mom, what are you doing?」</p>
+<p>"Mom, what are you doing?"</p>
 
 <p>Shiwoo was using the honorific 'Mom' in his text.</p>
 
-<p>「Preparing dinner What are you doing?」</p>
+<p>"Preparing dinner What are you doing?"</p>
 
-<p>「I'm also getting ready to eat.」</p>
+<p>"I'm also getting ready to eat."</p>
 
-<p>「Where's Sehee?」</p>
+<p>"Where's Sehee?"</p>
 
-<p>「She's showering right now」</p>
+<p>"She's showering right now"</p>
 
-<p>「Did you and Sehee do the grocery shopping well? Didn't forget anything?」</p>
+<p>"Did you and Sehee do the grocery shopping well? Didn't forget anything?"</p>
 
-<p>「Yeah I bought everything, going around the supermarket based on the ingredient list Mom sent.」</p>
+<p>"Yeah I bought everything, going around the supermarket based on the ingredient list Mom sent."</p>
 
-<p>「Good, you did well But Shiwoo, is your leg okay?」</p>
+<p>"Good, you did well But Shiwoo, is your leg okay?"</p>
 
 <p>Mom asked about Shiwoo's injured leg.</p>
 
-<p>「My leg?」</p>
+<p>"My leg?"</p>
 
-<p>「You said you hurt it jogging this morning?」</p>
+<p>"You said you hurt it jogging this morning?"</p>
 
-<p>「Oh that? Haha.」</p>
+<p>"Oh that? Haha."</p>
 
-<p>「Mom was so surprised when Sehee told me about it」</p>
+<p>"Mom was so surprised when Sehee told me about it"</p>
 
 <p>Mom seemed to completely believe Sehee Nuna's improvised excuse.</p>
 
-<p>「It's fine I just twisted it a little, but after a day, it's perfectly normal again!」</p>
+<p>"It's fine I just twisted it a little, but after a day, it's perfectly normal again!"</p>
 
 <p>Shiwoo lied, matching Sehee Nuna's words.</p>
 
-<p>「Be more careful!!」</p>
+<p>"Be more careful!!"</p>
 
 <p>Mom's chat seemed somehow more flustered than usual.</p>
 
-<p>「Yeah, got it But Mom, are you worrying about me?」</p>
+<p>"Yeah, got it But Mom, are you worrying about me?"</p>
 
-<p>「Of course! My son got hurt, so why wouldn't I worry?」</p>
+<p>"Of course! My son got hurt, so why wouldn't I worry?"</p>
 
-<p>「You weren't suspicious, were you?」</p>
+<p>"You weren't suspicious, were you?"</p>
 
 <p>Shiwoo spoke as if teasing Mom.</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
-<p>「Mom, you didn't believe me and checked with Sehee Nuna, didn't you? Hahaha.」</p>
+<p>"Mom, you didn't believe me and checked with Sehee Nuna, didn't you? Hahaha."</p>
 
 <p>Shiwoo spoke mischievously, recalling their morning conversation.</p>
 
-<p>「It's not that I didn't believe you, I just checked with Sehee」</p>
+<p>"It's not that I didn't believe you, I just checked with Sehee"</p>
 
 <p>Mom, knowing it was an unavoidable sequence of events, still drew out her words as if making an excuse.</p>
 
-<p>「Anyway!! I told you to check, and if it wasn't true, you'd know what to do, right?! Mom, are you ready for your punishment?」</p>
+<p>"Anyway!! I told you to check, and if it wasn't true, you'd know what to do, right?! Mom, are you ready for your punishment?"</p>
 
 <p>Shiwoo proposed the game that had been scheduled with Mom since morning.</p>
 
@@ -210,41 +210,41 @@ chapter = 105
 
 <p>Mom paused for a moment before replying.</p>
 
-<p>「What kind of preparation? What are you going to make me do this time?」</p>
+<p>"What kind of preparation? What are you going to make me do this time?"</p>
 
 <p>Mom spoke to Shiwoo as if slightly complaining and giving up.</p>
 
-<p>「Today, on the way home with Sehee Nuna, I met Seyoung and Sua.」</p>
+<p>"Today, on the way home with Sehee Nuna, I met Seyoung and Sua."</p>
 
 <p>Shiwoo suddenly brought up Seyoung.</p>
 
-<p>「You must have met them while walking the puppies?」</p>
+<p>"You must have met them while walking the puppies?"</p>
 
-<p>「Yeah, the puppies were really cute」</p>
+<p>"Yeah, the puppies were really cute"</p>
 
-<p>「All puppies are cute when they're young.」</p>
+<p>"All puppies are cute when they're young."</p>
 
-<p>「Seyoung seemed like she wanted to adopt one and raise it?」</p>
+<p>"Seyoung seemed like she wanted to adopt one and raise it?"</p>
 
-<p>「Lately, Seyoung tells me that every chance she gets.」</p>
+<p>"Lately, Seyoung tells me that every chance she gets."</p>
 
 <p>Mom spoke as if she already knew.</p>
 
-<p>「Then why don't you just let her raise one? Seonju Imo said she'd give one away for just the vaccination fee, didn't she?」</p>
+<p>"Then why don't you just let her raise one? Seonju Imo said she'd give one away for just the vaccination fee, didn't she?"</p>
 
 <p>Shiwoo spoke as if persuading Mom.</p>
 
-<p>「Is that the punishment, by any chance?」</p>
+<p>"Is that the punishment, by any chance?"</p>
 
 <p>Mom asked, suddenly sounding puzzled.</p>
 
-<p>「Huh? Why is this a punishment? I'm just asking a favor?」</p>
+<p>"Huh? Why is this a punishment? I'm just asking a favor?"</p>
 
 <p>Shiwoo spoke slyly.</p>
 
-<p>「No, it's just that you suddenly brought up puppies while talking about punishment.」</p>
+<p>"No, it's just that you suddenly brought up puppies while talking about punishment."</p>
 
-<p>「Don't worry, I'll give you the punishment separately!! So, are you going to grant my favor or not?」</p>
+<p>"Don't worry, I'll give you the punishment separately!! So, are you going to grant my favor or not?"</p>
 
 <p>Shiwoo asked Mom, as if intimidating her.</p>
 
@@ -252,37 +252,37 @@ chapter = 105
 
 <p>-Whether in chat or in reality-</p>
 
-<p>「Shiwoo, how can you ask for things like this? You know Mom can't refuse, don't you?」</p>
+<p>"Shiwoo, how can you ask for things like this? You know Mom can't refuse, don't you?"</p>
 
-<p>「Hahaha.」</p>
+<p>"Hahaha."</p>
 
 <p>Shiwoo's awkward laugh.</p>
 
-<p>「Sigh Alright!! How did I ever end up agreeing to something like this!」</p>
+<p>"Sigh Alright!! How did I ever end up agreeing to something like this!"</p>
 
 <p>Mom spoke as if lamenting her fate.</p>
 
 <p>Shiwoo felt a secret sense of satisfaction, as if a hierarchy with Mom had been established since their chat last night.</p>
 
-<p>「Thanks Seyoung will be happy But Mom, I also want to adopt and raise one this time, is that okay?」</p>
+<p>"Thanks Seyoung will be happy But Mom, I also want to adopt and raise one this time, is that okay?"</p>
 
 <p>Shiwoo was bringing up the topic to formally give Mom her punishment.</p>
 
-<p>「What? You want to raise two?」</p>
+<p>"What? You want to raise two?"</p>
 
 <p>Mom spoke as if dumbfounded.</p>
 
-<p>「No I want to raise a different kind, not a puppy...」</p>
+<p>"No I want to raise a different kind, not a puppy..."</p>
 
-<p>「A different kind?」</p>
+<p>"A different kind?"</p>
 
-<p>「Yeah...」</p>
+<p>"Yeah..."</p>
 
-<p>「...What kind?」</p>
+<p>"...What kind?"</p>
 
 <p>Mom asked cautiously, as if she had caught on to something.</p>
 
-<p>「Wait a minute!!」</p>
+<p>"Wait a minute!!"</p>
 
 <p>To answer Mom's question, Shiwoo went into his smartphone's address book and found Mom's saved number.</p>
 
@@ -292,13 +292,13 @@ chapter = 105
 
 <p>That name he had deeply and desperately wished for ever since he had awakened to dominant incestuous relationships...</p>
 
-<p>「Female Slave (ㅅㅁ)」</p>
+<p>"Female Slave (ㅅㅁ)"</p>
 
 <p>After changing the name like that, Shiwoo captured a screenshot of Mom's phone number in the address book.</p>
 
 <p>Shiwoo sent Mom the screenshot of the phone number in the address book, along with the photo of Mom's dog collar in the drawer, which had semen sprayed on it.</p>
 
-<p>「This is your punishment, Mom, so you figure out what to do with it!」</p>
+<p>"This is your punishment, Mom, so you figure out what to do with it!"</p>
 
 <p>Shiwoo sent that last text message.</p>
 

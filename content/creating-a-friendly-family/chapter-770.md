@@ -4,15 +4,15 @@ weight = 770
 [extra]
 chapter = 770
 +++
-<p>「With Mom, just the two of you? Shiwoo, what about your academy?」</p>
+<p>"With Mom, just the two of you? Shiwoo, what about your academy?"</p>
 
 <p>Sejin Nuna, seemingly puzzled by the fact that Shiwoo was with Mom at an aquarium instead of the academy at this hour, continued to pepper him with questions.</p>
 
-<p>「I just ditched the academy and came out... I had some business with Seonmi in the evening, so we came out early to look around the department store! Sejin, what are you doing right now?」</p>
+<p>"I just ditched the academy and came out... I had some business with Seonmi in the evening, so we came out early to look around the department store! Sejin, what are you doing right now?"</p>
 
 <p>Shiwoo spoke as if he were offering a casual greeting, carelessly calling both her and Mom by their names without any regard for propriety.</p>
 
-<p>「I went out for a walk, and now I'm just at home...」</p>
+<p>"I went out for a walk, and now I'm just at home..."</p>
 
 <p>Sejin Nuna replied, seemingly unbothered by the way he addressed her.</p>
 
@@ -24,11 +24,11 @@ chapter = 770
 
 <p>Watching Mom like that, Shiwoo let out a slightly triumphant, fishy smirk.</p>
 
-<p>「Sejin, is it okay to talk on the phone right now?」</p>
+<p>"Sejin, is it okay to talk on the phone right now?"</p>
 
 <p>Shiwoo asked Sejin Nuna, as if confirming her availability.</p>
 
-<p>「A call? Yeah. It's fine...」</p>
+<p>"A call? Yeah. It's fine..."</p>
 
 <p>Sejin Nuna hesitated for a moment before sending back a short confirmation.</p>
 

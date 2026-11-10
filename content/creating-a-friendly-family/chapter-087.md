@@ -62,7 +62,7 @@ chapter = 87
 
 <p>Even as Shiwoo approached, touched her body, and took pictures, Seonju Imo showed no particular reaction.</p>
 
-<p>「Seonju-ya?」</p>
+<p>"Seonju-ya?"</p>
 
 <p>Shiwoo cautiously called Seonju Imo's name.</p>
 
@@ -120,35 +120,35 @@ chapter = 87
 
 <p>The caller ID on the screen displayed 'Seonmi Eonni'.</p>
 
-<p>「It seems like Mom?」</p>
+<p>"It seems like Mom?"</p>
 
 <p>Shiwoo said this loud enough for Seonju Imo to hear, then arbitrarily pressed the call button on the smartphone screen and answered the phone.</p>
 
-<p>「Hello Mom?」</p>
+<p>"Hello Mom?"</p>
 
-<p>「Huh? Wh-what? Is that Shiwoo?」</p>
+<p>"Huh? Wh-what? Is that Shiwoo?"</p>
 
 <p>When Mom heard Shiwoo's voice from Seonju Imo's smartphone, she seemed a little flustered.</p>
 
-<p>「Yeah it's me Seonju Imo is a bit busy right now, so I answered for her」</p>
+<p>"Yeah it's me Seonju Imo is a bit busy right now, so I answered for her"</p>
 
 <p>Shiwoo answered naturally.</p>
 
-<p>「Really? What's Seonju doing right now?」</p>
+<p>"Really? What's Seonju doing right now?"</p>
 
-<p>「She's just doing this and that, seems like she needs more hands She's right next to me, want me to pass it over?」</p>
+<p>"She's just doing this and that, seems like she needs more hands She's right next to me, want me to pass it over?"</p>
 
 <p>Shiwoo said this, strongly grasping Seonju Imo's breast as if sending her a signal.</p>
 
 <p>Seonju Imo reacted by flinching and trembling once as if in a spasm.</p>
 
-<p>「Yeah... if she's next to you, can you pass it over?」</p>
+<p>"Yeah... if she's next to you, can you pass it over?"</p>
 
-<p>「Alright, I'll pass it over Seonju Imo? Mom wants to talk to you!!」</p>
+<p>"Alright, I'll pass it over Seonju Imo? Mom wants to talk to you!!"</p>
 
 <p>Hearing Mom's words, Shiwoo brought the smartphone, connected to Mom's call, to Seonju Imo's ear.</p>
 
-<p>「Uh... Eonni? Why?」</p>
+<p>"Uh... Eonni? Why?"</p>
 
 <p>Seonju Imo, flustered, took the smartphone from Shiwoo and began talking to Mom.</p>
 
@@ -164,7 +164,7 @@ chapter = 87
 
 <p>The aggressive sound of his dick-pumping, loud enough to echo in the living room, was threateningly audible to Seonju Imo's ears.</p>
 
-<p>「Haaah」</p>
+<p>"Haaah"</p>
 
 <p>At the sounds she heard, Seonju Imo let out a deep, hot breath, as if feeling regretful.</p>
 
@@ -174,7 +174,7 @@ chapter = 87
 
 <p>Shiwoo bent down and bit Seonju Imo's nipple into his mouth.</p>
 
-<p>「Mmm... I have to take care of the kids... Ugh... Mmm I'll go quickly... Uh...」</p>
+<p>"Mmm... I have to take care of the kids... Ugh... Mmm I'll go quickly... Uh..."</p>
 
 <p>Seonju Imo groaned as if in pain intermittently while talking to Mom.</p>
 
@@ -194,43 +194,43 @@ chapter = 87
 
 <p>Shiwoo began to provocatively lick around Seonju Imo's nipple with his tongue, rolling it around.</p>
 
-<p>「Th-then Eonni should take care of it herself!! Fine! Mmm... I'll go quickly then!! Hmph...」</p>
+<p>"Th-then Eonni should take care of it herself!! Fine! Mmm... I'll go quickly then!! Hmph..."</p>
 
 <p>Seonju Imo's words quickened as she became slightly impatient and irritable.</p>
 
-<p>「I said fine... You don't have to worry Hmph... Hang up!!」</p>
+<p>"I said fine... You don't have to worry Hmph... Hang up!!"</p>
 
 <p>Her voice rose slightly at the end, and the call ended.</p>
 
 <p>After ending the short call with Mom, Seonju Imo lay there again as if fallen asleep.</p>
 
-<p>「What did Mom say?」</p>
+<p>"What did Mom say?"</p>
 
 <p>Shiwoo deliberately asked, still holding Seonju Imo's breast in his mouth.</p>
 
-<p>「Huh? Oh... she said to come home quickly because the kids are waiting...」</p>
+<p>"Huh? Oh... she said to come home quickly because the kids are waiting..."</p>
 
 <p>No longer able to pretend to be asleep, Seonju Imo answered Shiwoo's question.</p>
 
-<p>「She should just come home quickly herself! Why bother Seonju Imo for no reason?」</p>
+<p>"She should just come home quickly herself! Why bother Seonju Imo for no reason?"</p>
 
 <p>Shiwoo sided with Seonju Imo, expressing his dissatisfaction with Mom.</p>
 
-<p>「Kikik, I know Your Mom is really funny if you pick apart every little thing like that right?」</p>
+<p>"Kikik, I know Your Mom is really funny if you pick apart every little thing like that right?"</p>
 
 <p>Seonju Imo responded to Shiwoo's words, playfully badmouthing her older sister.</p>
 
-<p>「But Imo, you're not angry, are you?」</p>
+<p>"But Imo, you're not angry, are you?"</p>
 
 <p>Shiwoo said this, tightly gripping the breast opposite the one he was biting with his hand.</p>
 
-<p>「Huh?... Oh... no... Eonni kept nagging so much... it's just... I'm not angry at you...」</p>
+<p>"Huh?... Oh... no... Eonni kept nagging so much... it's just... I'm not angry at you..."</p>
 
 <p>Seonju Imo's voice was trembling as she spoke in a submissive tone...</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>「I still need to massage the front too... Should I do it next time?」</p>
+<p>"I still need to massage the front too... Should I do it next time?"</p>
 
 <p>Shiwoo said this, subtly probing Seonju Imo.</p>
 
@@ -238,19 +238,19 @@ chapter = 87
 
 <p>The clock hands pointed to around 7:30.</p>
 
-<p>「When is Sehee Nuna coming home?」</p>
+<p>"When is Sehee Nuna coming home?"</p>
 
 <p>Seonju Imo asked, seemingly concerned about Sehee Nuna's arrival time.</p>
 
-<p>「I don't know!! She's eating and playing with friends, so she'll probably come home a bit late today.」</p>
+<p>"I don't know!! She's eating and playing with friends, so she'll probably come home a bit late today."</p>
 
 <p>Shiwoo answered, recalling Sehee Nuna's cold text message from earlier.</p>
 
-<p>「Then... I guess I can get a bit more massage before I go?」</p>
+<p>"Then... I guess I can get a bit more massage before I go?"</p>
 
 <p>Clearly, Seonju Imo also seemed to be anticipating a second sexual encounter with Shiwoo.</p>
 
-<p>「Alright But this time, don't fall asleep!! I'm going to do it while looking straight into Seonju Imo's face! Understand?!」</p>
+<p>"Alright But this time, don't fall asleep!! I'm going to do it while looking straight into Seonju Imo's face! Understand?!"</p>
 
 <p>Before she knew it, Shiwoo was climbing onto Seonju Imo's body, speaking in a coercive tone.</p>
 

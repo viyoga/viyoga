@@ -14,7 +14,7 @@ chapter = 157
 
 <p>Shiwoo's penis thrust in and out of Sehee-nuna's vagina hole as if digging deep.</p>
 
-<p>「Haa-euk! Haa-aak! Haa-aat! Haa-eung!」</p>
+<p>"Haa-euk! Haa-aak! Haa-aat! Haa-eung!"</p>
 
 <p>Sehee-nuna's cries of pleasure were as if she was convulsing.</p>
 
@@ -36,7 +36,7 @@ chapter = 157
 
 <p>Maintaining a consistent speed in his hip movements, Shiwoo gathered Sehee-nuna's breasts inward over her clothes and strongly gripped them several times.</p>
 
-<p>「Haa-eu...Haa-eut Haa-a...Haat」</p>
+<p>"Haa-eu...Haa-eut Haa-a...Haat"</p>
 
 <p>Unlike during the intense piston movements, a sobbing moaning sound leaked from Sehee-nuna's mouth.</p>
 
@@ -66,7 +66,7 @@ chapter = 157
 
 <p>Shiwoo repeated this erotic act, as if milking a cow.</p>
 
-<p>「Haa-eut...Heu-eung...Haa-aa...」</p>
+<p>"Haa-eut...Heu-eung...Haa-aa..."</p>
 
 <p>Sehee-nuna's excited moaning sound could be heard.</p>
 
@@ -94,7 +94,7 @@ chapter = 157
 
 <p>The clenching, pressure, and trembling of the mucous membranes deep within that cavern created a surging thrill for Shiwoo, as if he was about to erupt.</p>
 
-<p>「Haa-a...Aa-a」</p>
+<p>"Haa-a...Aa-a"</p>
 
 <p>Sehee-nuna's hand slowly lifted into the air, accompanied by her struggling, broken gasps.</p>
 
@@ -104,7 +104,7 @@ chapter = 157
 
 <p>Sehee-nuna's open palm fell sharply and repeatedly onto Seonju Imo's buttocks, creating a crisp slapping sound.</p>
 
-<p>「Haa-euk! Haa-aat! Haa-eueueu...」</p>
+<p>"Haa-euk! Haa-aat! Haa-eueueu..."</p>
 
 <p>Seonju Imo's moaning sound, having been spanked on the buttocks by Sehee-nuna, burst out audibly.</p>
 
@@ -114,7 +114,7 @@ chapter = 157
 
 <p>Shiwoo's massive penis ruthlessly plunged into Sehee-nuna's body.</p>
 
-<p>「Haa-euk! Haa-eut! Haa-aak! Haa-aa! Heu-euk!」</p>
+<p>"Haa-euk! Haa-eut! Haa-aak! Haa-aa! Heu-euk!"</p>
 
 <p>Seonju Imo's pained moaning and Shiwoo's rough thrusting sounds were mixed with Sehee-nuna's impatient cries of pleasure.</p>
 
@@ -142,7 +142,7 @@ chapter = 157
 
 <p>As convulsions and rigidity repeated, Sehee-nuna's handprints accumulated and spread across Seonju Imo's buttocks.</p>
 
-<p>「Haa-aang! Heu-eut! Haa-eut!」</p>
+<p>"Haa-aang! Heu-eut! Haa-eut!"</p>
 
 <p>Seonju Imo's moaning sound was like a painful wail, enduring Sehee-nuna's corporal punishment.</p>
 
@@ -154,7 +154,7 @@ chapter = 157
 
 <p>Shiwoo wrapped his arms tightly around Sehee-nuna's pelvis and breasts, thrusting his hips violently as if storming her.</p>
 
-<p>「Haa-eut! Haa-eut! Haa-aak! Haa-aat! Shi...Shiwoo!」</p>
+<p>"Haa-eut! Haa-eut! Haa-aak! Haa-aat! Shi...Shiwoo!"</p>
 
 <p>Sehee-nuna moaned as if reaching climax after Shiwoo's prolonged thrusting, calling out Shiwoo's name.</p>
 
@@ -168,7 +168,7 @@ chapter = 157
 
 <p>Shiwoo plunged his massive penis deep into Sehee-nuna's cavern, then tightly embraced her body with both arms as if to hold her still.</p>
 
-<p>「Haa-aak!」</p>
+<p>"Haa-aak!"</p>
 
 <p>Sehee-nuna writhed in Shiwoo's embrace as if convulsing.</p>
 
@@ -176,7 +176,7 @@ chapter = 157
 
 <p>A brief lull.</p>
 
-<p>「Haa-a...Haa-aa Haa-eut...」</p>
+<p>"Haa-a...Haa-aa Haa-eut..."</p>
 
 <p>Breaths and residual tremors, as if releasing the afterglow of climax, emanated from Sehee-nuna.</p>
 
@@ -184,13 +184,13 @@ chapter = 157
 
 <p>Sehee-nuna's hands had fallen from Seonju Imo's bruised buttocks and hung limply towards the floor.</p>
 
-<p>「Haa-eueu...I don't think I can take it anymore! Master-nim! P-please...please do something for me now! Please!」</p>
+<p>"Haa-eueu...I don't think I can take it anymore! Master-nim! P-please...please do something for me now! Please!"</p>
 
 <p>Seonju Imo spoke as if begging, twisting her thighs and calves together while holding her buttocks raised.</p>
 
 <p>Shiwoo seemed to be thinking something, then picked up his smartphone from beside him and gently placed it on Seonju Imo's raised buttocks.</p>
 
-<p>「Sehee-nuna shouldn't be the only one to go like that! Seeing Sehee-nuna go, even Seonju is begging so impudently!? You're just a pet dog!」</p>
+<p>"Sehee-nuna shouldn't be the only one to go like that! Seeing Sehee-nuna go, even Seonju is begging so impudently!? You're just a pet dog!"</p>
 
 <p>Shiwoo was speaking into Sehee-nuna's ear, who was leaning slightly back with her head resting on his shoulder.</p>
 
@@ -200,7 +200,7 @@ chapter = 157
 
 <p>Shiwoo's smartphone, placed horizontally on Seonju Imo's buttock cleavage, was also precariously shaking with Seonju Imo's humiliating tremors.</p>
 
-<p>「Just you dare drop that! You won't get a damn thing today!! You filthy bitch!」</p>
+<p>"Just you dare drop that! You won't get a damn thing today!! You filthy bitch!"</p>
 
 <p>Shiwoo warned and cursed at Seonju Imo with a tone mixed with contempt.</p>
 
@@ -208,7 +208,7 @@ chapter = 157
 
 <p>However, at Shiwoo's words, Seonju Imo didn't even dare to ask again, and was desperately trying to stop her trembling, conscious of both objects clinging to her body.</p>
 
-<p>「Heu-eueu...Heu-eueueu....」</p>
+<p>"Heu-eueu...Heu-eueueu...."</p>
 
 <p>Seonju Imo was moaning, regretfully rubbing the overflowing vaginal fluid on her thighs.</p>
 

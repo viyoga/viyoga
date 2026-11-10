@@ -6,85 +6,85 @@ chapter = 17
 +++
 <p>It was dawn the next day.</p>
 
-<p>「Shiwoo, wake up, Shiwoo!!!」</p>
+<p>"Shiwoo, wake up, Shiwoo!!!"</p>
 
 <p>Sehee Nuna urgently shook Shiwoo awake.</p>
 
-<p>「Uh? What's wrong? Nuna, what's the matter?」</p>
+<p>"Uh? What's wrong? Nuna, what's the matter?"</p>
 
 <p>Shiwoo woke up in a daze, looking at Sehee Nuna, who was unlike her usual self, and spoke.</p>
 
-<p>「Someone seems to be following me and watching me!!」</p>
+<p>"Someone seems to be following me and watching me!!"</p>
 
 <p>Nuna said to Shiwoo with a very frightened expression.</p>
 
-<p>「No, you just woke up, what are you suddenly talking about? Nuna, did you perhaps have a dream?」</p>
+<p>"No, you just woke up, what are you suddenly talking about? Nuna, did you perhaps have a dream?"</p>
 
 <p>At first, Shiwoo thought that Sehee Nuna might have had a nightmare due to the shock of being scolded by Mom yesterday, and was now fussing over him.</p>
 
-<p>「No, I didn't!!」</p>
+<p>"No, I didn't!!"</p>
 
 <p>Peok!</p>
 
-<p>「Get up quickly, I said!!」</p>
+<p>"Get up quickly, I said!!"</p>
 
 <p>Peok!</p>
 
 <p>Nuna said, hitting Shiwoo's chest hard as he lay there.</p>
 
-<p>「Ah, Nuna, I told you it hurts.」</p>
+<p>"Ah, Nuna, I told you it hurts."</p>
 
 <p>Shiwoo grabbed Nuna's wrist with his hand, blocking her, and stood up.</p>
 
-<p>「Since yesterday, I've had a strong feeling!! I think I've even been photographed!」</p>
+<p>"Since yesterday, I've had a strong feeling!! I think I've even been photographed!"</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
 <p>At Nuna's attitude, which seemed far from a joke, Shiwoo took a serious stance and began to listen.</p>
 
-<p>「Normally, I'd get photographed a lot by strangers, so I just brushed it off... but yesterday, that person seemed to follow me all the way to my house!」</p>
+<p>"Normally, I'd get photographed a lot by strangers, so I just brushed it off... but yesterday, that person seemed to follow me all the way to my house!"</p>
 
-<p>「They came all the way to the house?」</p>
+<p>"They came all the way to the house?"</p>
 
-<p>「Just now, when I went out for a jog, some suspicious person saw me, immediately flustered, and hid in an alley!」</p>
+<p>"Just now, when I went out for a jog, some suspicious person saw me, immediately flustered, and hid in an alley!"</p>
 
 <p>At Nuna's words, Shiwoo began to worry.</p>
 
 <p>If they actually came all the way to the house, the problem becomes serious.</p>
 
-<p>「Did you see their face?」</p>
+<p>"Did you see their face?"</p>
 
-<p>「No, they were wearing sunglasses and a mask, so I couldn't see.」</p>
+<p>"No, they were wearing sunglasses and a mask, so I couldn't see."</p>
 
-<p>「Hmm...」</p>
+<p>"Hmm..."</p>
 
 <p>Shiwoo, who had been thinking deeply for a moment, spoke.</p>
 
-<p>「Reporting it to the police might be a bit much, huh?」</p>
+<p>"Reporting it to the police might be a bit much, huh?"</p>
 
-<p>「How can I report something like this?!!」</p>
+<p>"How can I report something like this?!!"</p>
 
 <p>Nuna said to Shiwoo, annoyed as if frustrated.</p>
 
-<p>「Then what should we do?」</p>
+<p>"Then what should we do?"</p>
 
 <p>Shiwoo scratched his head as if he truly didn't know, and looked at Sehee Nuna.</p>
 
 <p>Sehee Nuna looked at Shiwoo with blurry eyes, as if finding him pathetic.</p>
 
-<p>「Anyway, because of you, I'm only getting half my allowance for two weeks!!」</p>
+<p>"Anyway, because of you, I'm only getting half my allowance for two weeks!!"</p>
 
 <p>-Half of Shiwoo's allowance-</p>
 
-<p>「Yeah...」</p>
+<p>"Yeah..."</p>
 
-<p>「Think about repaying that!!」</p>
+<p>"Think about repaying that!!"</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
 <p>Shiwoo, sensing something was going wrong.</p>
 
-<p>「Be my bodyguard for two weeks!!」</p>
+<p>"Be my bodyguard for two weeks!!"</p>
 
 <p>In that turn of events, Shiwoo ultimately couldn't win against Sehee Nuna's stubbornness and ended up following her on her morning jogs and to and from school.</p>
 
@@ -128,7 +128,7 @@ chapter = 17
 
 <p>And his eyes met Mom's.</p>
 
-<p>「Oh? Our Shiwoo woke up early again today? Is Sehee using the shower room now?」</p>
+<p>"Oh? Our Shiwoo woke up early again today? Is Sehee using the shower room now?"</p>
 
 <p>Mom smiled and greeted him with an attitude no different from usual.</p>
 
@@ -158,43 +158,43 @@ chapter = 17
 
 <p>But as they exchanged everyday conversation, that awkwardness was slowly breaking down.</p>
 
-<p>「Did you take Shiwoo jogging today?」</p>
+<p>"Did you take Shiwoo jogging today?"</p>
 
 <p>Mom said, looking at Sehee Nuna.</p>
 
-<p>「Yeah, I woke him up at dawn and we went together.」</p>
+<p>"Yeah, I woke him up at dawn and we went together."</p>
 
 <p>Sehee Nuna also answered cautiously, looking at Mom.</p>
 
-<p>「Yes, well done How nice to see? Sehee, you should teach Shiwoo some exercises Shiwoo, you too, take this chance to exercise with your Nuna!」</p>
+<p>"Yes, well done How nice to see? Sehee, you should teach Shiwoo some exercises Shiwoo, you too, take this chance to exercise with your Nuna!"</p>
 
 <p>Mom seemed more talkative than usual, with a somewhat higher tone, but Shiwoo thought she was probably doing so to break the awkwardness with Nuna.</p>
 
 <p>Then, Mom naturally continued speaking.</p>
 
-<p>「Sehee, is the spot where you were hit yesterday okay? Won't it leave a big scar?」</p>
+<p>"Sehee, is the spot where you were hit yesterday okay? Won't it leave a big scar?"</p>
 
 <p>Mom, who was sitting next to Sehee Nuna, gently placed a hand on Sehee Nuna's shoulder and spoke intimately.</p>
 
-<p>「Yeah, I'm fine. Just a little bruised.」</p>
+<p>"Yeah, I'm fine. Just a little bruised."</p>
 
 <p>Sehee Nuna also answered with a slight smile, as if she understood Mom's feelings.</p>
 
-<p>「Yes, Mom seemed a bit too excited yesterday. Sehee, you must have been very upset, right?」</p>
+<p>"Yes, Mom seemed a bit too excited yesterday. Sehee, you must have been very upset, right?"</p>
 
 <p>Mom's hand was stroking Sehee Nuna's back, just as it had when she soothed Sehee Nuna yesterday.</p>
 
-<p>「No, it's okay. In the end, Mom understood how I felt, so all my upset feelings are gone」</p>
+<p>"No, it's okay. In the end, Mom understood how I felt, so all my upset feelings are gone"</p>
 
 <p>Sehee Nuna also spoke intimately, feeling Mom's hand stroking her back.</p>
 
-<p>「So, speaking of which, thinking about it, Mom's decision not to give Sehee allowance for two weeks seemed a bit harsh... so I'm going to give it back, okay?」</p>
+<p>"So, speaking of which, thinking about it, Mom's decision not to give Sehee allowance for two weeks seemed a bit harsh... so I'm going to give it back, okay?"</p>
 
 <p>Mom gently told Sehee Nuna that she would give her allowance back.</p>
 
 <p>Then</p>
 
-<p>「!!!Mom, thank youI'll really listen to you now!!」</p>
+<p>"!!!Mom, thank youI'll really listen to you now!!"</p>
 
 <p>Sehee Nuna, surprised and joyful, suddenly hugged Mom.</p>
 
@@ -258,6 +258,6 @@ chapter = 17
 
 <p>Then, she quietly said to Shiwoo.</p>
 
-<p>「I'll wait outside, so hurry up and take care of it and come!!」</p>
+<p>"I'll wait outside, so hurry up and take care of it and come!!"</p>
 
 <p>Shiwoo, feeling embarrassed, went up to his room.</p>

@@ -16,7 +16,7 @@ chapter = 40
 
 <p>Mom's story was not entirely unfamiliar to Shiwoo.</p>
 
-<p>「You said you don't dislike it, so why are you running away?」</p>
+<p>"You said you don't dislike it, so why are you running away?"</p>
 
 <p>Shiwoo waited for Mom's next words.</p>
 
@@ -24,53 +24,53 @@ chapter = 40
 
 <p>After a moment, Mom replied.</p>
 
-<p>「Mom was really scared yesterday.」</p>
+<p>"Mom was really scared yesterday."</p>
 
-<p>「Because I made Mom faint??」</p>
+<p>"Because I made Mom faint??"</p>
 
-<p>「No」</p>
+<p>"No"</p>
 
-<p>「Because I did terrible things to Mom and swore at her?」</p>
+<p>"Because I did terrible things to Mom and swore at her?"</p>
 
-<p>「No, Mom said she doesn't dislike that kind of thing, remember?」</p>
+<p>"No, Mom said she doesn't dislike that kind of thing, remember?"</p>
 
-<p>「Then what are you scared of?」</p>
+<p>"Then what are you scared of?"</p>
 
-<p>「Because Mom is afraid she won't be able to go back to being a Mom to Shiwoo.」</p>
+<p>"Because Mom is afraid she won't be able to go back to being a Mom to Shiwoo."</p>
 
 <p>Mom's words were not readily understandable.</p>
 
-<p>「What does that mean? Not being able to go back to being a Mom?」</p>
+<p>"What does that mean? Not being able to go back to being a Mom?"</p>
 
-<p>「Do you know how many years apart Shiwoo and Mom are?」</p>
+<p>"Do you know how many years apart Shiwoo and Mom are?"</p>
 
-<p>「250 years?」</p>
+<p>"250 years?"</p>
 
-<p>「Shiwoo, you keep stroking Mom's head in front of Seyoung, don't you?</p>
+<p>"Shiwoo, you keep stroking Mom's head in front of Seyoung, don't you?"</p>
 
-<p>「And trying to put strange necklaces on Mom.」</p>
+<p>"And trying to put strange necklaces on Mom."</p>
 
-<p>「Now you're even trying to call Mom by her name, aren't you?」</p>
+<p>"Now you're even trying to call Mom by her name, aren't you?"</p>
 
-<p>「Every time, Mom's pride is really hurt, and she feels like dying from embarrassment.」</p>
+<p>"Every time, Mom's pride is really hurt, and she feels like dying from embarrassment."</p>
 
-<p>「But Mom isn't someone who dislikes that kind of thing!」</p>
+<p>"But Mom isn't someone who dislikes that kind of thing!"</p>
 
-<p>「Even now, as your Mom, I don't think I can look you straight in the face.」</p>
+<p>"Even now, as your Mom, I don't think I can look you straight in the face."</p>
 
-<p>「If this keeps up and I really say I don't want to be your Mom, what will you do then?」</p>
+<p>"If this keeps up and I really say I don't want to be your Mom, what will you do then?"</p>
 
-<p>「Ah, damn it, what the hell are you talking about?」</p>
+<p>"Ah, damn it, what the hell are you talking about?"</p>
 
 <p>Shiwoo couldn't understand Mom's words.</p>
 
 <p>-Because Shiwoo believed that the parent-child relationship would never change, no matter what happened-</p>
 
-<p>「Mom can't properly explain it to Shiwoo right now! Anyway, Mom also needs time to sort things out...」</p>
+<p>"Mom can't properly explain it to Shiwoo right now! Anyway, Mom also needs time to sort things out..."</p>
 
-<p>「That's why I came to Seonju's, so don't think anything strange, okay?」</p>
+<p>"That's why I came to Seonju's, so don't think anything strange, okay?"</p>
 
-<p>「Yeah, I understand.」</p>
+<p>"Yeah, I understand."</p>
 
 <p>Shiwoo was frustrated by Mom's words, which he couldn't understand at all, but he still replied to Mom's statement that she needed time.</p>
 
@@ -78,7 +78,7 @@ chapter = 40
 
 <p class="scene-break">· · ·</p>
 
-<p>「Mom, but why did you take Seyoung?」</p>
+<p>"Mom, but why did you take Seyoung?"</p>
 
 <p>Shiwoo asked with a cautious feeling.</p>
 
@@ -86,27 +86,27 @@ chapter = 40
 
 <p>Mom, who had checked the photo, didn't immediately rush to Shiwoo to stop his actions, but Shiwoo had been worried all along that Mom might have belatedly taken Seyoung to Seonju Imo's house to protect her from Shiwoo.</p>
 
-<p>「Seyoung would worry a lot if Mom wasn't there, wouldn't she She can't even sleep well alone.」</p>
+<p>"Seyoung would worry a lot if Mom wasn't there, wouldn't she She can't even sleep well alone."</p>
 
 <p>Mom gave an easy-to-understand answer, as if it was nothing.</p>
 
 <p>However, that wasn't a definitive answer that would reassure Shiwoo.</p>
 
-<p>「Is Seyoung okay?」</p>
+<p>"Is Seyoung okay?"</p>
 
 <p>Shiwoo asked Mom once more.</p>
 
 <p>He was asking what Mom thought of the terrible thing Shiwoo had done to Seyoung yesterday.</p>
 
-<p>「She's sleeping next to me.」</p>
+<p>"She's sleeping next to me."</p>
 
 <p>Mom's simple reply came back.</p>
 
-<p>「Is she really okay?」</p>
+<p>"Is she really okay?"</p>
 
 <p>Shiwoo was persistently asking again.</p>
 
-<p>「Just a moment」</p>
+<p>"Just a moment"</p>
 
 <p>Mom's message, sent as if she understood something.</p>
 
@@ -124,31 +124,31 @@ chapter = 40
 
 <p>His thing was rapidly expanding as if it would burst through his pants.</p>
 
-<p>「Our youngest daughter is pretty, isn't she? When she's like this, she really looks like a baby, you know?」</p>
+<p>"Our youngest daughter is pretty, isn't she? When she's like this, she really looks like a baby, you know?"</p>
 
 <p>And then another message came, as if confirming Mom's tacit approval.</p>
 
-<p>「Yeah, she's pretty like Mom. Did you just take that?」</p>
+<p>"Yeah, she's pretty like Mom. Did you just take that?"</p>
 
-<p>「Yeah, just now.」</p>
+<p>"Yeah, just now."</p>
 
-<p>「But Mom's breasts are really pretty too Even though no milk comes out, Seyoung is sucking them well while she sleeps?」</p>
+<p>"But Mom's breasts are really pretty too Even though no milk comes out, Seyoung is sucking them well while she sleeps?"</p>
 
-<p>「Exactly, when she sucks like this, it makes me feel really strange」</p>
+<p>"Exactly, when she sucks like this, it makes me feel really strange"</p>
 
-<p>「I think I know how that feels now haha. I wish I could suck Mom's breasts like Seyoung when I sleep too.」</p>
+<p>"I think I know how that feels now haha. I wish I could suck Mom's breasts like Seyoung when I sleep too."</p>
 
 <p>Before they knew it, the mother and son were naturally engaging in lewd talk, using Seyoung as the subject.</p>
 
-<p>「Seyoung started her period a while ago.」</p>
+<p>"Seyoung started her period a while ago."</p>
 
 <p>Mom suddenly brought up Seyoung's period.</p>
 
-<p>「Huh?」</p>
+<p>"Huh?"</p>
 
 <p>Shiwoo replied, a little flustered.</p>
 
-<p>「Seyoung has also finished preparing to become an adult...」</p>
+<p>"Seyoung has also finished preparing to become an adult..."</p>
 
 <p>The mother and son were silent for a moment.</p>
 
@@ -166,17 +166,17 @@ chapter = 40
 
 <p>Sehee Nuna's body, where more flesh was visible than covered by clothes.</p>
 
-<p>「Look, Mom, your second daughter!! Sehee also seems really pretty, like Mom.」</p>
+<p>"Look, Mom, your second daughter!! Sehee also seems really pretty, like Mom."</p>
 
 <p>Shiwoo deliberately omitted the honorific Nuna from Sehee Nuna's name when speaking.</p>
 
-<p>「Mom isn't here, so Sehee's been like that since morning?」</p>
+<p>"Mom isn't here, so Sehee's been like that since morning?"</p>
 
 <p>Mom seemed to ignore the change in the honorific for Nuna, but still seemed dissatisfied with Sehee Nuna's attire.</p>
 
-<p>「Sehee and I are going to the department store today for a refund, and she wanted to try it on one last time, so I took the picture. Don't scold her too much, okay?」</p>
+<p>"Sehee and I are going to the department store today for a refund, and she wanted to try it on one last time, so I took the picture. Don't scold her too much, okay?"</p>
 
-<p>「Now, how can Mom say such a thing to Sehee?」</p>
+<p>"Now, how can Mom say such a thing to Sehee?"</p>
 
 <p>Mom obediently listened to Shiwoo's words.</p>
 
@@ -184,35 +184,35 @@ chapter = 40
 
 <p class="scene-break">· · ·</p>
 
-<p>「Mom, can I ask one more thing?」</p>
+<p>"Mom, can I ask one more thing?"</p>
 
 <p>Shiwoo asked Mom as if something had just occurred to him.</p>
 
-<p>「What?」</p>
+<p>"What?"</p>
 
-<p>「Are you perhaps wearing panties right now?」</p>
+<p>"Are you perhaps wearing panties right now?"</p>
 
 <p>Perhaps because the recent conversation with Mom about Seyoung and Sehee Nuna had given him a sense of ease and confidence, Shiwoo tried a playful question that might embarrass Mom.</p>
 
-<p>「Mom was so busy cleaning up the dirty things in the early morning that she didn't even have time to get dressed.」</p>
+<p>"Mom was so busy cleaning up the dirty things in the early morning that she didn't even have time to get dressed."</p>
 
 <p>Mom was diligently answering Shiwoo's playful question.</p>
 
-<p>「And you said I couldn't wear panties only at home, right?」</p>
+<p>"And you said I couldn't wear panties only at home, right?"</p>
 
-<p>「Was that it? Then I guess I don't have to wear them at Seonju Imo's house either, haha.」</p>
+<p>"Was that it? Then I guess I don't have to wear them at Seonju Imo's house either, haha."</p>
 
 <p>Shiwoo teased Mom, as if making a joke.</p>
 
-<p>「Ugh!! You keep making Mom do these kinds of things!! What are you going to do if Mom really becomes strange because of you?」</p>
+<p>"Ugh!! You keep making Mom do these kinds of things!! What are you going to do if Mom really becomes strange because of you?"</p>
 
 <p>Mom, embarrassed, flared up easily as usual.</p>
 
-<p>「How will you become strange? I'd like to see that」</p>
+<p>"How will you become strange? I'd like to see that"</p>
 
-<p>「I don't know!! Shiwoo, you go take the laundry out of the washing machine and hang it up!!! It'll smell if you leave it too long!」</p>
+<p>"I don't know!! Shiwoo, you go take the laundry out of the washing machine and hang it up!!! It'll smell if you leave it too long!"</p>
 
-<p>「Haha, okay, I'll do it now」</p>
+<p>"Haha, okay, I'll do it now"</p>
 
 <p>With Mom's flustered complaints and cute resistance, the long conversation with Mom was finally coming to an end.</p>
 
@@ -236,25 +236,25 @@ chapter = 40
 
 <p>-Sehee Nuna had clearly showered after jogging in the early morning-</p>
 
-<p>「Sehee Nuna, are you showering again?」</p>
+<p>"Sehee Nuna, are you showering again?"</p>
 
 <p>Shiwoo approached the washing machine and,</p>
 
 <p>as he took out the master bedroom bed sheets and blanket from inside, asked Nuna.</p>
 
-<p>「Uh... yeah, the weather got a bit hotter, didn't it? I moved around in my room, so I got a little sweaty.」</p>
+<p>"Uh... yeah, the weather got a bit hotter, didn't it? I moved around in my room, so I got a little sweaty."</p>
 
 <p>Sehee Nuna's words, as she washed inside the bathroom shower booth, sounded a little awkward to Shiwoo.</p>
 
 <p>It wasn't hot enough to sweat just from moving a little.</p>
 
-<p>「Mom just contacted me It seems she'll be staying at Seonju Imo's house for a few days before coming back.」</p>
+<p>"Mom just contacted me It seems she'll be staying at Seonju Imo's house for a few days before coming back."</p>
 
 <p>Shiwoo said, staring at Sehee Nuna's flesh-toned outline visible through the glass door.</p>
 
-<p>「Oh, really? That's good! Seyoung too?」</p>
+<p>"Oh, really? That's good! Seyoung too?"</p>
 
-<p>「Yeah, Seyoung too...」</p>
+<p>"Yeah, Seyoung too..."</p>
 
 <p>After hanging the sheets and blanket on the drying rack, Shiwoo turned his gaze to the laundry basket that he had messed up earlier.</p>
 

@@ -134,35 +134,35 @@ chapter = 130
 
 <p>As soon as the bell rang, signaling the end of class, Cheoljin-i called Shiwoo to the rooftop.</p>
 
-<p>Cheoljin-i went up to the rooftop, confirmed no one was around, and asked Shiwoo, 「How was it? Is my Mom holding up well, do you think?」</p>
+<p>Cheoljin-i went up to the rooftop, confirmed no one was around, and asked Shiwoo, "How was it? Is my Mom holding up well, do you think?"</p>
 
-<p>「You crazy bastard! Leaving the front door wide open like that, are you really in your right mind? What if someone came and saw?」 Shiwoo blurted out a rough curse, as if trying to gloss over things.</p>
+<p>"You crazy bastard! Leaving the front door wide open like that, are you really in your right mind? What if someone came and saw?" Shiwoo blurted out a rough curse, as if trying to gloss over things.</p>
 
-<p>「Puhaha You bastard! For that bitch, that'd be even better, so what does it matter?」 Cheoljin-i's line, as if he truly wasn't in his right mind.</p>
+<p>"Puhaha You bastard! For that bitch, that'd be even better, so what does it matter?" Cheoljin-i's line, as if he truly wasn't in his right mind.</p>
 
 <p>Shiwoo shook his head, as if utterly disgusted.</p>
 
-<p>「But did you have a good time? Why are you so late?」 Cheoljin-i asked Shiwoo with a sly expression.</p>
+<p>"But did you have a good time? Why are you so late?" Cheoljin-i asked Shiwoo with a sly expression.</p>
 
-<p>「What good time?! You idiot! I... I just bought bread and milk from the convenience store and was late feeding Ajumma... She hadn't even eaten breakfast, you know...」 Shiwoo spoke to Cheoljin-i with a serious expression, as if making an excuse.</p>
+<p>"What good time?! You idiot! I... I just bought bread and milk from the convenience store and was late feeding Ajumma... She hadn't even eaten breakfast, you know..." Shiwoo spoke to Cheoljin-i with a serious expression, as if making an excuse.</p>
 
 <p>Shiwoo couldn't bring himself to tell Cheoljin-i that he was late because he had sex with Gyuri Ajumma until she fainted.</p>
 
-<p>「Should I have ordered some delivery food, then? So, nothing special happened?」 Cheoljin-i persistently asked, as if trying to elicit the answer he wanted.</p>
+<p>"Should I have ordered some delivery food, then? So, nothing special happened?" Cheoljin-i persistently asked, as if trying to elicit the answer he wanted.</p>
 
 <p>Shiwoo imagined a delivery person entering through the open front door and raping Gyuri Ajumma, who was naked and bound with her eyes covered.</p>
 
 <p>His own actions overlapped with the thought, making his face flush.</p>
 
-<p>「What do you mean, 'nothing special'?! It's just like what you checked! Anyway, how do you use this?」 Shiwoo changed the subject, pulling out the teardrop-shaped pink rotor he had put in his pocket and showing it to Cheoljin-i.</p>
+<p>"What do you mean, 'nothing special'?! It's just like what you checked! Anyway, how do you use this?" Shiwoo changed the subject, pulling out the teardrop-shaped pink rotor he had put in his pocket and showing it to Cheoljin-i.</p>
 
-<p>「Oh? Did you bring it from home? Are you going to take it and try it too?」 Cheoljin-i asked Shiwoo as if it were the most natural thing.</p>
+<p>"Oh? Did you bring it from home? Are you going to take it and try it too?" Cheoljin-i asked Shiwoo as if it were the most natural thing.</p>
 
-<p>「Tr-try what?! I just brought it because I was curious how it works!」 Shiwoo felt a pang, as if his affairs with his family had been exposed, but he feigned nonchalance.</p>
+<p>"Tr-try what?! I just brought it because I was curious how it works!" Shiwoo felt a pang, as if his affairs with his family had been exposed, but he feigned nonchalance.</p>
 
 <p>Cheoljin-i, as if delighted, began to kindly explain how to use the rotor to Shiwoo.</p>
 
-<p>「You can use it remotely from anywhere with an internet connection, you know? Just install the app on your smartphone and register it, and you're done... You can use it with multiple people simultaneously... You can also connect it to ambient noise, phone voices, or music files... As for additional features, you can figure them out slowly as you use it. If you don't know, just ask me... Hehe.」</p>
+<p>"You can use it remotely from anywhere with an internet connection, you know? Just install the app on your smartphone and register it, and you're done... You can use it with multiple people simultaneously... You can also connect it to ambient noise, phone voices, or music files... As for additional features, you can figure them out slowly as you use it. If you don't know, just ask me... Hehe."</p>
 
 <p>Cheoljin-i's explanation was almost overwhelmingly kind.</p>
 
@@ -172,7 +172,7 @@ chapter = 130
 
 <p>After confirming it worked properly, Cheoljin-i handed the rotor and smartphone to Shiwoo.</p>
 
-<p>「Use it as much as you want, then give it back. I have plenty at home. If you need more, just say so.」 Cheoljin-i said, handing the rotor to Shiwoo as if it had been his intention all along.</p>
+<p>"Use it as much as you want, then give it back. I have plenty at home. If you need more, just say so." Cheoljin-i said, handing the rotor to Shiwoo as if it had been his intention all along.</p>
 
 <p>"Uh... th-thank you..."</p>
 
@@ -182,7 +182,7 @@ chapter = 130
 
 <p class="scene-break">· · ·</p>
 
-<p>「Oh, right! While you're at it, want to take this too? Just a moment.」 Cheoljin-i, as if remembering something, pulled out his smartphone and fiddled with it.</p>
+<p>"Oh, right! While you're at it, want to take this too? Just a moment." Cheoljin-i, as if remembering something, pulled out his smartphone and fiddled with it.</p>
 
 <p>Shiwoo waited, wondering what else he was going to send.</p>
 
@@ -192,7 +192,7 @@ chapter = 130
 
 <p>The video file had no specific name, and today's date was recorded as the title.</p>
 
-<p>「What is this?」 Shiwoo asked Cheoljin-i, downloading the video with a slightly uneasy feeling.</p>
+<p>"What is this?" Shiwoo asked Cheoljin-i, downloading the video with a slightly uneasy feeling.</p>
 
 <p>Cheoljin-i merely smiled, without answering.</p>
 

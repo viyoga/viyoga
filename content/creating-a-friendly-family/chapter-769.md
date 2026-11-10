@@ -186,7 +186,7 @@ chapter = 769
 
 <p>The '1' disappeared, indicating that Sejin Nuna had checked Shiwoo's photo.</p>
 
-<p>『Are you with Mom?』</p>
+<p>"Are you with Mom?"</p>
 
 <p>Not long after checking the text, Sejin Nuna's reply came back immediately...</p>
 
@@ -198,6 +198,6 @@ chapter = 769
 
 <p>Shiwoo spoke as he turned the smartphone screen back to himself and continued the conversation with Sejin Nuna.</p>
 
-<p>『Yeah, I'm with Seonmi...』</p>
+<p>"Yeah, I'm with Seonmi..."</p>
 
 <p>Without revealing the details of the situation, Shiwoo replied to Sejin Nuna with a simple text.</p>

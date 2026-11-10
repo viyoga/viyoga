@@ -12,7 +12,7 @@ chapter = 408
 
 <p>Perhaps she liked Mom's compromise, squeezed out as if from a desperate situation, having judged that it was already irreversible, as Shiwoo's penis throbbed and hardened once again.</p>
 
-<p>「I'm rinsing my mouth now! Wait just a little longer. I'll be there soon, so you pick a song and sing it too!」</p>
+<p>"I'm rinsing my mouth now! Wait just a little longer. I'll be there soon, so you pick a song and sing it too!"</p>
 
 <p>A reply came from Mom in the chat window.</p>
 
@@ -20,7 +20,7 @@ chapter = 408
 
 <p>Since Mom's true feelings were already known, it might be a meaningless act in front of Shiwoo, who was planning to make Mom live her life covered in semen all day long...</p>
 
-<p>「Okay, I'll wait, so come quickly!」</p>
+<p>"Okay, I'll wait, so come quickly!"</p>
 
 <p>Shiwoo sends a reply to Mom.</p>
 

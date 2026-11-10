@@ -40,23 +40,23 @@ chapter = 572
 
 <p>Then, he opened the 1:1 chat window with Mom and spoke to her.</p>
 
-<p>「Did the masturbation go well?」</p>
+<p>"Did the masturbation go well?"</p>
 
 <p>Shiwoo asks, as if checking whether the masturbation he had ordered Mom to do had ended properly.</p>
 
-<p>「It ended a while ago! But this thing keeps vibrating, so I can't even take it off or charge it!」</p>
+<p>"It ended a while ago! But this thing keeps vibrating, so I can't even take it off or charge it!"</p>
 
 <p>Mom replies to Shiwoo, sounding slightly annoyed.</p>
 
-<p>「Ah You've been wearing it the whole time? I was just wondering, but you really were doing that? Hehehe」</p>
+<p>"Ah You've been wearing it the whole time? I was just wondering, but you really were doing that? Hehehe"</p>
 
 <p>Shiwoo answers nonchalantly, as if glossing over his mistake of forgetting about Mom's situation.</p>
 
-<p>「What else could I do when I knew you were pressing it the whole class?」</p>
+<p>"What else could I do when I knew you were pressing it the whole class?"</p>
 
-<p>「Was it you, Shiwoo, who kept controlling this thing?!」</p>
+<p>"Was it you, Shiwoo, who kept controlling this thing?!"</p>
 
-<p>「Now that I think about it, Shiwoo, weren't you supposed to be listening to the class instead of playing with your smartphone the whole time? What if you got caught?!」</p>
+<p>"Now that I think about it, Shiwoo, weren't you supposed to be listening to the class instead of playing with your smartphone the whole time? What if you got caught?!"</p>
 
 <p>Mom's grumbling complaints threaten to turn into a long lecture scolding Shiwoo.</p>
 
@@ -64,7 +64,7 @@ chapter = 572
 
 <p>As the sound of the lunchtime bell rings in the classroom, students are slowly leaving their seats, and there, Cheoljin is approaching Shiwoo as if feigning disinterest.</p>
 
-<p>「Mom! Wait a minute!」</p>
+<p>"Mom! Wait a minute!"</p>
 
 <p>Shiwoo briefly orders Mom to wait with a text message, then puts his smartphone in his pocket.</p>
 

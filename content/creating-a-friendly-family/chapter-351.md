@@ -4,7 +4,7 @@ weight = 351
 [extra]
 chapter = 351
 +++
-<p>「I'll send you the video! I have something to give you too, Seonju, so check it out first!」</p>
+<p>"I'll send you the video! I have something to give you too, Seonju, so check it out first!"</p>
 
 <p>Shiwoo, omitting a detailed explanation to his puzzled Aunt Seonju, sends the video he just filmed as is.</p>
 
@@ -70,7 +70,7 @@ chapter = 351
 
 <p>A message from Aunt Seonju, seemingly having watched the entire video, has arrived.</p>
 
-<p>「Okay. I'll prepare and wait. Master! Tell Sua and Seyoung not to spill a single drop and bring it all here!」</p>
+<p>"Okay. I'll prepare and wait. Master! Tell Sua and Seyoung not to spill a single drop and bring it all here!"</p>
 
 <p>Even without a specific explanation, Aunt Seonju responded proactively, as if she had anticipated the next destination of the semen in his sisters' mouths in the video.</p>
 
@@ -86,7 +86,7 @@ chapter = 351
 
 <p>Shiwoo unlocks his smartphone, puzzled, and checks Aunt Seonju's messages.</p>
 
-<p>「I ordered it as soon as Master left earlier Scheduled to arrive tomorrow at dawn lol」</p>
+<p>"I ordered it as soon as Master left earlier Scheduled to arrive tomorrow at dawn lol"</p>
 
 <p>Aunt Seonju's message is visible in the last line, along with several photos.</p>
 
@@ -118,7 +118,7 @@ chapter = 351
 
 <p>And animal ear-shaped headbands that seem to have been purchased separately to match them.</p>
 
-<p>「But why two of each?」</p>
+<p>"But why two of each?"</p>
 
 <p>Shiwoo asks Aunt Seonju, wondering why there are two of each item in the order details.</p>
 
@@ -128,11 +128,11 @@ chapter = 351
 
 <p>Then, before Aunt Seonju can even answer, Shiwoo immediately writes and sends a message.</p>
 
-<p>「You fucking bitch, you never listen!」</p>
+<p>"You fucking bitch, you never listen!"</p>
 
 <p>Shiwoo's message, filled with curses, is sent as if scolding Aunt Seonju's arbitrary actions.</p>
 
-<p>「Heeing- I'm doing it all for Master's sake-! Hing!」</p>
+<p>"Heeing- I'm doing it all for Master's sake-! Hing!"</p>
 
 <p>Aunt Seonju says, making a crying sound, as if asking for forgiveness.</p>
 
