@@ -4,11 +4,11 @@ weight = 171
 [extra]
 chapter = 171
 +++
-<p>Does Sua not have any aversion to the play that Seonju Imo has planned?</p>
+<p>Does Soa not have any aversion to the play that Seonju Imo has planned?</p>
 
-<p>Sua, who seems to have been trained for a long time, showed almost no signs of resistance or disobedience.</p>
+<p>Soa, who seems to have been trained for a long time, showed almost no signs of resistance or disobedience.</p>
 
-<p>To what extent has Sua accepted Seonju Imo's lewd education?</p>
+<p>To what extent has Soa accepted Seonju Imo's lewd education?</p>
 
 <p>The thought that these training acts have been taking place in places Shiwoo doesn't know makes Shiwoo feel a strong sense of humiliation and shame.</p>
 
@@ -34,33 +34,33 @@ chapter = 171
 
 <p>Shiwoo endures his precarious impulsive desires and carefully observes Seyoung's condition.</p>
 
-<p>"Sua-ya, what's wrong? Are you sick somewhere?"</p>
+<p>"Soa-ya, what's wrong? Are you sick somewhere?"</p>
 
-<p>Seyoung asked with a worried expression as she got up from her seat and approached Sua, who was sitting across the table.</p>
+<p>Seyoung asked with a worried expression as she got up from her seat and approached Soa, who was sitting across the table.</p>
 
 <p>"Ugh...uh...I'm...I'm okay Haa..."</p>
 
-<p>Sua shuddered once and answered while looking at Seyoung.</p>
+<p>Soa shuddered once and answered while looking at Seyoung.</p>
 
-<p>"Sua-ya! Why are you shivering like this? Are you cold right now?"</p>
+<p>"Soa-ya! Why are you shivering like this? Are you cold right now?"</p>
 
-<p>Seyoung's expression seemed to genuinely worry as she stroked Sua's back.</p>
+<p>Seyoung's expression seemed to genuinely worry as she stroked Soa's back.</p>
 
 <p>"I think the ice cream we ate earlier was too cold...It's nothing"</p>
 
-<p>Sua smiles and answers, as if trying to reassure Seyoung.</p>
+<p>Soa smiles and answers, as if trying to reassure Seyoung.</p>
 
 <p>"Really? It's not too painful? You don't need to go to the bathroom right now?"</p>
 
-<p>Seyoung speaks while holding the puppy that had been placed near Sua's feet.</p>
+<p>Seyoung speaks while holding the puppy that had been placed near Soa's feet.</p>
 
-<p>It seemed that Seyoung didn't accurately know the situation Sua was in yet.</p>
+<p>It seemed that Seyoung didn't accurately know the situation Soa was in yet.</p>
 
 <p>In an instant, Shiwoo is seized by a sudden fantasy.</p>
 
-<p>Seyoung and Sua caressing each other's bodies, their jelly-like soft lips meeting and exchanging saliva in their mouths.</p>
+<p>Seyoung and Soa caressing each other's bodies, their jelly-like soft lips meeting and exchanging saliva in their mouths.</p>
 
-<p>Mint chocolate ice cream was passing between Seyoung and Sua's lips and tongues.</p>
+<p>Mint chocolate ice cream was passing between Seyoung and Soa's lips and tongues.</p>
 
 <p>A lascivious imagination of the two younger sisters' mouths surrounded by mint chocolate ice cream melting and flowing down like a baby drooling breast milk, their tongues intricately intertwined.</p>
 
@@ -78,11 +78,11 @@ chapter = 171
 
 <p>"Haaeeeuuueuk! Shi...Shiwoo Oppa!"</p>
 
-<p>Sua, startled by the sudden vibration of the vibrator, lets out a rough moaning sound and desperately calls out to Shiwoo.</p>
+<p>Soa, startled by the sudden vibration of the vibrator, lets out a rough moaning sound and desperately calls out to Shiwoo.</p>
 
-<p>Sua puts both arms on the table, lowers her head forward, and collapses as if drooping.</p>
+<p>Soa puts both arms on the table, lowers her head forward, and collapses as if drooping.</p>
 
-<p>Shiwoo hears Sua's surprised voice and becomes aware of his actions and regains his senses.</p>
+<p>Shiwoo hears Soa's surprised voice and becomes aware of his actions and regains his senses.</p>
 
 <p>Shiwoo quickly takes his finger off the smartphone screen.</p>
 
@@ -94,7 +94,7 @@ chapter = 171
 
 <p>Flustered, Shiwoo stutters and moves his lips with a voice that doesn't come out properly, trying to make excuses to Seyoung.</p>
 
-<p>Seyoung silently alternates between looking at Shiwoo, who is trying to make excuses, and Sua, who is collapsed on the arms she has gathered on the table.</p>
+<p>Seyoung silently alternates between looking at Shiwoo, who is trying to make excuses, and Soa, who is collapsed on the arms she has gathered on the table.</p>
 
 <p>A moment as if time has stopped.</p>
 
@@ -134,39 +134,39 @@ chapter = 171
 
 <p>Seonju Imo glances at Seyoung, who is sitting on the living room sofa holding the puppy and watching TV.</p>
 
-<p>Then, she looks down at Sua, who is lying face down, and then looks at Shiwoo's face with a suggestive expression, as if she has roughly grasped the situation.</p>
+<p>Then, she looks down at Soa, who is lying face down, and then looks at Shiwoo's face with a suggestive expression, as if she has roughly grasped the situation.</p>
 
 <p>"Mom...I need to go to the bathroom..."</p>
 
-<p>Sua raises her head, looks at Seonju Imo, who has returned from the bathroom, and speaks as if asking for help.</p>
+<p>Soa raises her head, looks at Seonju Imo, who has returned from the bathroom, and speaks as if asking for help.</p>
 
-<p>Seonju Imo doesn't answer Sua's words and just smiles sweetly while looking at Shiwoo.</p>
+<p>Seonju Imo doesn't answer Soa's words and just smiles sweetly while looking at Shiwoo.</p>
 
-<p>"Oh?...oh...hurry up and go! Sua-ya!"</p>
+<p>"Oh?...oh...hurry up and go! Soa-ya!"</p>
 
-<p>Shiwoo, as if worried about Sua's condition, quickly answers on behalf of Seonju Imo.</p>
+<p>Shiwoo, as if worried about Soa's condition, quickly answers on behalf of Seonju Imo.</p>
 
 <p>"It's a rare opportunity, wouldn't it be a shame?"</p>
 
-<p>Seonju Imo throws a joke at Shiwoo that is hard to understand as Sua tries to leave her seat.</p>
+<p>Seonju Imo throws a joke at Shiwoo that is hard to understand as Soa tries to leave her seat.</p>
 
 <p>"Wh...what is?"</p>
 
-<p>Shiwoo asks back, checking Sua's condition.</p>
+<p>Shiwoo asks back, checking Soa's condition.</p>
 
 <p>"She didn't even let me rest all night! Kikik"</p>
 
 <p>Seonju Imo was saying things to Shiwoo that Seyoung in the living room shouldn't hear.</p>
 
-<p>Seonju Imo lowers her waist and brings her face close to Sua's ear.</p>
+<p>Seonju Imo lowers her waist and brings her face close to Soa's ear.</p>
 
-<p>Seonju Imo whispers something to Sua.</p>
+<p>Seonju Imo whispers something to Soa.</p>
 
-<p>Sua gets up as if exhausted, looks at Shiwoo's complexion, smiles shyly, turns around, and heads straight to the bathroom.</p>
+<p>Soa gets up as if exhausted, looks at Shiwoo's complexion, smiles shyly, turns around, and heads straight to the bathroom.</p>
 
-<p>Sua was about to confirm the semen that Shiwoo had left on Sehee's panties.</p>
+<p>Soa was about to confirm the semen that Shiwoo had left on Sehee's panties.</p>
 
-<p>What did Seonju Imo whisper to Sua?</p>
+<p>What did Seonju Imo whisper to Soa?</p>
 
 <p>Curiosity added to the lewd feeling made Shiwoo's heart beat faster.</p>
 
@@ -176,7 +176,7 @@ chapter = 171
 
 <p>But when such a situation actually came to pass, an unidentifiable embarrassment, guilt, and depraved feeling seemed to rush into Shiwoo's chest all at once.</p>
 
-<p>"But shouldn't Seonju Imo take care of Sua?"</p>
+<p>"But shouldn't Seonju Imo take care of Soa?"</p>
 
 <p>Shiwoo says to Seonju Imo as if scolding her, worrying about his young cousin.</p>
 
@@ -188,7 +188,7 @@ chapter = 171
 
 <p>Shiwoo raises his voice slightly, as if telling Seonju Imo to resolve this situation.</p>
 
-<p>"If you're really worried, why don't Master-nim go to Sua right now? I'm okay! I can take Seyoung and the puppy for a walk Kikik"</p>
+<p>"If you're really worried, why don't Master-nim go to Soa right now? I'm okay! I can take Seyoung and the puppy for a walk Kikik"</p>
 
 <p>Seonju Imo brings one hand to her mouth and covers it, and whispers to Shiwoo in a voice that Seyoung can't hear.</p>
 

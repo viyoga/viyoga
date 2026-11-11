@@ -38,7 +38,7 @@ chapter = 32
 
 <p>Seyoung reveals her opinion on cooking, and then continues to talk about dogs until the food comes out.</p>
 
-<p>,Sua's dog had puppies before, right?</p>
+<p>,Soa's dog had puppies before, right?</p>
 
 <p>It's been 4 months, and they're looking for a home to adopt them this time, and they've decided to adopt them out for just the vaccination costhehe,</p>
 
@@ -54,7 +54,7 @@ chapter = 32
 
 <p>Seyoung was happily chattering away until the food came out.</p>
 
-<p>Just as she was saying that Sua had a hard time walking the big dogs, but she was getting used to it and there was no need to worry anymore, the dishes they had ordered came out.</p>
+<p>Just as she was saying that Soa had a hard time walking the big dogs, but she was getting used to it and there was no need to worry anymore, the dishes they had ordered came out.</p>
 
 <p>While eating, they talk about Mom's work, which starts on Monday, and Dad's upcoming birthday, and then they start talking about Sejin Nuna.</p>
 

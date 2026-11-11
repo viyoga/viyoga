@@ -1,30 +1,30 @@
 +++
-title = "Chapter 686: [Incest] Making a Friendly Family 686 (Se-young, Mom, Su-ah) (Living Room Sofa)"
+title = "Chapter 686: [Incest] Making a Friendly Family 686 (Se-young, Mom, Soa) (Living Room Sofa)"
 weight = 686
 [extra]
 chapter = 686
 +++
 <p>Perhaps the reason Shiwoo's cock stood so turgidly from just a brief conversation with Mom was because those discordant emotional echoes were working faithfully within him.</p>
 
-<p>A moment later, the sound of Sua and Seyoung finishing their shower and stepping out into the dressing area echoed from inside the bathroom.</p>
+<p>A moment later, the sound of Soa and Seyoung finishing their shower and stepping out into the dressing area echoed from inside the bathroom.</p>
 
 <p>Shiwoo continued to flip through the TV channels as if he didn't particularly care, searching for a lively program to drown out the awkwardness with images and sound.</p>
 
 <p>However, no matter how many times he cycled through, no channel caught his fancy.</p>
 
-<p>Soon, along with the sound of Seyoung's chattering, he felt the presence of Seyoung and Sua emerging from the dressing room.</p>
+<p>Soon, along with the sound of Seyoung's chattering, he felt the presence of Seyoung and Soa emerging from the dressing room.</p>
 
 <p>They were still entirely naked, wearing their collars and anal plug tails.</p>
 
 <p>Atop Seyoung's head, just as he'd seen before, was a brown cat-ear headband.</p>
 
-<p>And Sua, having grabbed one from somewhere, wore a white rabbit-ear headband.</p>
+<p>And Soa, having grabbed one from somewhere, wore a white rabbit-ear headband.</p>
 
 <p>Equipped with their outfits and props, they exuded a somewhat surreal atmosphere, like actors who had just stepped into a scene.</p>
 
 <p>"Shiwoo Oppa! Where's Seonju? Is she still in Sejin Nuna's room?"</p>
 
-<p>Seyoung, who came out hugging Sua's arm for support, asked as she looked at Shiwoo, who was sitting half-reclined on the sofa with his cock standing tall.</p>
+<p>Seyoung, who came out hugging Soa's arm for support, asked as she looked at Shiwoo, who was sitting half-reclined on the sofa with his cock standing tall.</p>
 
 <p>Their plump breasts and the lines of their bodies, connecting waist to hips and thighs, were laid bare against the backdrop of the living room.</p>
 
@@ -40,37 +40,37 @@ chapter = 686
 
 <p>"Am I going to do it with Seonju again? No, I'm going to let Seonju rest well tonight..."</p>
 
-<p>Shiwoo answered while scanning Sua and Seyoung's provocative bodies with a lecherous gaze.</p>
+<p>Shiwoo answered while scanning Soa and Seyoung's provocative bodies with a lecherous gaze.</p>
 
-<p>Shiwoo had become able to talk about sexual intercourse without hesitation even in front of Seyoung and Sua...</p>
+<p>Shiwoo had become able to talk about sexual intercourse without hesitation even in front of Seyoung and Soa...</p>
 
 <p>For some reason, when facing his younger sisters, the awkwardness or sense of foreignness he felt in front of Mom or his Aunt seemed lesser.</p>
 
-<p>"Then, can I let Sua sleep with Seonju in Sejin Nuna's room today? I think Sua is a bit exhausted too"</p>
+<p>"Then, can I let Soa sleep with Seonju in Sejin Nuna's room today? I think Soa is a bit exhausted too"</p>
 
 <p>Seyoung spoke cautiously, as if seeking Shiwoo's permission.</p>
 
-<p>"Sleep with Seonju? The bed is only a super-single or double size, so it might be a bit cramped. Will that be okay? Well, I guess with Sua and Seyoung's builds, it might be fine? There should be plenty of other rooms though...?"</p>
+<p>"Sleep with Seonju? The bed is only a super-single or double size, so it might be a bit cramped. Will that be okay? Well, I guess with Soa and Seyoung's builds, it might be fine? There should be plenty of other rooms though...?"</p>
 
-<p>Shiwoo asked out of consideration, worried that Sua might be uncomfortable.</p>
+<p>Shiwoo asked out of consideration, worried that Soa might be uncomfortable.</p>
 
-<p>"Yeah, it's fine I think Sua wants to sleep with Mom today"</p>
+<p>"Yeah, it's fine I think Soa wants to sleep with Mom today"</p>
 
-<p>Seyoung looked back at Sua with an affectionate expression and conveyed Sua's inner thoughts to Shiwoo.</p>
+<p>Seyoung looked back at Soa with an affectionate expression and conveyed Soa's inner thoughts to Shiwoo.</p>
 
-<p>"Sure... well do as Sua likes!"</p>
+<p>"Sure... well do as Soa likes!"</p>
 
 <p>Shiwoo nodded lightly, signaling his permission.</p>
 
 <p>"Yeah! Thanks, Shiwoo Oppa"</p>
 
-<p>After thanking Shiwoo on Sua's behalf, Seyoung gently supported Sua and moved toward Sejin Nuna's room.</p>
+<p>After thanking Shiwoo on Soa's behalf, Seyoung gently supported Soa and moved toward Sejin Nuna's room.</p>
 
-<p>"Ah! Seyoung, are you going to sleep next to Seonju with Sua too?"</p>
+<p>"Ah! Seyoung, are you going to sleep next to Seonju with Soa too?"</p>
 
-<p>Shiwoo asked, stopping Seyoung just as she was about to enter Sejin Nuna's room with Sua.</p>
+<p>Shiwoo asked, stopping Seyoung just as she was about to enter Sejin Nuna's room with Soa.</p>
 
-<p>"No I'm just going to lay Sua down and come right back out... I'm not sleepy yet, I'm still full of energy Hehe"</p>
+<p>"No I'm just going to lay Soa down and come right back out... I'm not sleepy yet, I'm still full of energy Hehe"</p>
 
 <p>Seyoung answered with a pure, innocent smile plastered across her face, her gaze fixed on Shiwoo's cock.</p>
 
@@ -78,15 +78,15 @@ chapter = 686
 
 <p>His cock, which her gaze was fixed upon, was throbbing and jerking so violently it was hard to tell if he had even ejaculated recently.</p>
 
-<p>Shiwoo picked up his smartphone and aimed it at Seyoung and Sua.</p>
+<p>Shiwoo picked up his smartphone and aimed it at Seyoung and Soa.</p>
 
 <p>Chalk-kak, chalk-kak, chalk-kak!</p>
 
 <p>Shiwoo began taking photos of their obscene figures with his smartphone camera.</p>
 
-<p>Seyoung looked back at Shiwoo for a moment and then struck various cute poses while holding Sua.</p>
+<p>Seyoung looked back at Shiwoo for a moment and then struck various cute poses while holding Soa.</p>
 
-<p>Then, she grabbed Sua's arms and struck a pose that looked like something out of a magical girl anime.</p>
+<p>Then, she grabbed Soa's arms and struck a pose that looked like something out of a magical girl anime.</p>
 
 <p>A pose that emphasized their dainty breasts, slender waists, fleshy hips, and plump thigh lines.</p>
 
@@ -102,11 +102,11 @@ chapter = 686
 
 <p>"Hehehe Then I'm going in"</p>
 
-<p>Seyoung laughed as if she were in a good mood too, and took Sua into Sejin Nuna's room.</p>
+<p>Seyoung laughed as if she were in a good mood too, and took Soa into Sejin Nuna's room.</p>
 
-<p>Through the gap in the open door of Sejin Nuna's room, the quiet sound of Seyoung laying Sua on the bed drifted out.</p>
+<p>Through the gap in the open door of Sejin Nuna's room, the quiet sound of Seyoung laying Soa on the bed drifted out.</p>
 
-<p>Shiwoo sent the photos of Seyoung and Sua he had just taken to the 1:1 chatroom with Mom.</p>
+<p>Shiwoo sent the photos of Seyoung and Soa he had just taken to the 1:1 chatroom with Mom.</p>
 
 <p>He sent the naked photos of his sisters to Mom so she wouldn't be flustered or awkward seeing their outfits as soon as she got home.</p>
 

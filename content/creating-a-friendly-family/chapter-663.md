@@ -1,5 +1,5 @@
 +++
-title = "Chapter 663: [Incest] Making a Friendly Family 663 (Se-young, Sex, Su-ah) (Kitchen)"
+title = "Chapter 663: [Incest] Making a Friendly Family 663 (Se-young, Sex, Soa) (Kitchen)"
 weight = 663
 [extra]
 chapter = 663
@@ -58,19 +58,19 @@ chapter = 663
 
 <p>"Before I go in to dry my hair, can I try eating one of these first?"</p>
 
-<p>After finishing the cleaning fellatio, Seyoung approached the table where Sua was lying and asked Shiwoo.</p>
+<p>After finishing the cleaning fellatio, Seyoung approached the table where Soa was lying and asked Shiwoo.</p>
 
 <p>"Huh?... Uh... Yeah, you can eat it..."</p>
 
 <p>Shiwoo, still submerged in a dazed ecstasy from his younger sister's fellatio, answered her question with a bewildered expression.</p>
 
-<p>Seyoung approached the table and, without hesitation, picked up a piece of salmon sushi he had placed on Sua's belly.</p>
+<p>Seyoung approached the table and, without hesitation, picked up a piece of salmon sushi he had placed on Soa's belly.</p>
 
 <p>The glossy liquid spread evenly over the salmon flesh and grains of rice shimmered faintly under the kitchen lights.</p>
 
 <p>It was salmon sushi that one could tell at a single glance was smeared with semen, just by the smell and the luster...</p>
 
-<p>Seyoung took the salmon sushi she had picked up, lightly dipped it into the soy sauce and wasabi mixture poured into Sua's navel, and brought it to her mouth.</p>
+<p>Seyoung took the salmon sushi she had picked up, lightly dipped it into the soy sauce and wasabi mixture poured into Soa's navel, and brought it to her mouth.</p>
 
 <p>"Ha-am!"</p>
 
@@ -78,7 +78,7 @@ chapter = 663
 
 <p>"Aum am nyam aum um"</p>
 
-<p>The salmon sushi that had been placed on Sua's body...</p>
+<p>The salmon sushi that had been placed on Soa's body...</p>
 
 <p>Moreover, the sushi smeared with Shiwoo's semen—Seyoung put it in her mouth without any hesitation, savoring it deliciously.</p>
 
@@ -116,11 +116,11 @@ chapter = 663
 
 <p>"Ah I wondered what you meant You want me to eat another piece of sushi, right? Okay, Shiwoo-oppa! No... Juin-nim!"</p>
 
-<p>Seyoung smiled brightly as if she understood Shiwoo's words and picked up another piece of sushi from Sua's belly with her hand.</p>
+<p>Seyoung smiled brightly as if she understood Shiwoo's words and picked up another piece of sushi from Soa's belly with her hand.</p>
 
 <p>It was as if she were moving and speaking to show someone beyond the screen, following Shiwoo's lead.</p>
 
-<p>After dipping the sushi in the soy sauce and wasabi pooled in Sua's navel, Seyoung looked back at Shiwoo, who was filming, and popped the sushi into her mouth.</p>
+<p>After dipping the sushi in the soy sauce and wasabi pooled in Soa's navel, Seyoung looked back at Shiwoo, who was filming, and popped the sushi into her mouth.</p>
 
 <p>The sight of her closing her mouth and crushing the sushi with her teeth as she chewed was captured on camera.</p>
 

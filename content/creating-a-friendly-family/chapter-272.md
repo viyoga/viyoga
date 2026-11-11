@@ -152,7 +152,7 @@ chapter = 272
 
 <p>Again, it was a childhood appearance that looked only around the age of Shiwoo and Sehee Nuna.</p>
 
-<p>Sua's face seemed to be glimpsed from Seonju Imo's face.</p>
+<p>Soa's face seemed to be glimpsed from Seonju Imo's face.</p>
 
 <p>The owner's name was also 'Yu Jinseong,' as expected.</p>
 

@@ -28,7 +28,7 @@ chapter = 130
 
 <p>Mom, Sejin Nuna, Sehee Nuna, Seyoung...</p>
 
-<p>And now, even Seonju Imo and Sua.</p>
+<p>And now, even Seonju Imo and Soa.</p>
 
 <p>Precious beings that he, a male, must protect and possess.</p>
 

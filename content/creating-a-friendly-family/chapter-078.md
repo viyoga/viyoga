@@ -198,7 +198,7 @@ chapter = 78
 
 <p>And Shiwoo began to pat Seyoung's buttocks with his palm.</p>
 
-<p>-Just like Seulgi had done to Seyoung and Sua earlier...-</p>
+<p>-Just like Seulgi had done to Seyoung and Soa earlier...-</p>
 
 <p>The burgeoning elasticity of Seyoung's buttocks seemed to be transmitted directly to Shiwoo's hand.</p>
 
@@ -210,7 +210,7 @@ chapter = 78
 
 <p>Shiwoo tried to speak to Seyoung as if nothing was happening.</p>
 
-<p>"Yeah I'll be with Sua, so it should be fine, hehe"</p>
+<p>"Yeah I'll be with Soa, so it should be fine, hehe"</p>
 
 <p>Seyoung, still embraced by Shiwoo, looked up at him with her usual expression and spoke.</p>
 
@@ -226,7 +226,7 @@ chapter = 78
 
 <p>Seyoung spoke naturally, as if she had no aversion to Shiwoo's action of patting her buttocks.</p>
 
-<p>"Okay with Sua!!"</p>
+<p>"Okay with Soa!!"</p>
 
 <p>Shiwoo gently placed his patting hand on Seyoung's buttocks, as if resting it there, and answered cautiously.</p>
 

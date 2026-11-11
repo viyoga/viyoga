@@ -150,13 +150,13 @@ chapter = 114
 
 <p>Shiwoo maintained his hip movements and sent the picture he had taken in the shower earlier to Seonju Imo.</p>
 
-<p>Sua might be next to Seonju Imo, but he didn't care much about that now.</p>
+<p>Soa might be next to Seonju Imo, but he didn't care much about that now.</p>
 
 <p>Sehee Nuna's humiliating nude photo, covered in urine.</p>
 
 <p>The pose of putting her hands behind her neck, kneeling on the shower floor, spreading her legs—</p>
 
-<p>It was the exact same pose as Sua in the shocking photo Seonju Imo had sent him the day before.</p>
+<p>It was the exact same pose as Soa in the shocking photo Seonju Imo had sent him the day before.</p>
 
 <p>The number next to the photo disappeared, and a reply came from Seonju Imo immediately.</p>
 
@@ -176,7 +176,7 @@ chapter = 114
 
 <p>Shiwoo's heart was pounding at Seonju Imo's words, but he tried to answer calmly.</p>
 
-<p>'That's great Then all that's left is to fuck Sua and Seyoung and tell Unnie about our relationship? There's no need to be conscious of anyone at home now?ㅋㅋㅋ'</p>
+<p>'That's great Then all that's left is to fuck Soa and Seyoung and tell Unnie about our relationship? There's no need to be conscious of anyone at home now?ㅋㅋㅋ'</p>
 
 <p>Seonju Imo was saying something huge, like telling Mom, as if it were nothing.</p>
 
@@ -238,7 +238,7 @@ chapter = 114
 
 <p>Seonju Imo was asking as if confirming the detailed conditions of the task Shiwoo had given her.</p>
 
-<p>'Until 5 AM!! Take a picture of yourself with your clothes off so I can see it well and report to me every day!! I'm going to ask Seyoung and Sua separately too, so don't even think about lying!!!'</p>
+<p>'Until 5 AM!! Take a picture of yourself with your clothes off so I can see it well and report to me every day!! I'm going to ask Seyoung and Soa separately too, so don't even think about lying!!!'</p>
 
 <p>Shiwoo said as if driving a stake.</p>
 

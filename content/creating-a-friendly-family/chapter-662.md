@@ -1,5 +1,5 @@
 +++
-title = "Chapter 662: [Incest] Making a Friendly Family 662 (Se-young, Su-ah) (Kitchen)"
+title = "Chapter 662: [Incest] Making a Friendly Family 662 (Se-young, Soa) (Kitchen)"
 weight = 662
 [extra]
 chapter = 662
@@ -12,7 +12,7 @@ chapter = 662
 
 <p class="scene-break">· · ·</p>
 
-<p>"Did you talk to Sua much while I was washing? Did you ask her the things you were curious about?"</p>
+<p>"Did you talk to Soa much while I was washing? Did you ask her the things you were curious about?"</p>
 
 <p>Exposing her body without any hesitation, Seyoung asked as she approached the spot where Shiwoo stood...</p>
 
@@ -20,7 +20,7 @@ chapter = 662
 
 <p>The pelvis leading down from her slender waist spread out in a soft curve, and the crevice between her thighs was naturally exposed.</p>
 
-<p>"Uh... I talked with Sua for a bit about this and that... Just a few things that came to mind..."</p>
+<p>"Uh... I talked with Soa for a bit about this and that... Just a few things that came to mind..."</p>
 
 <p>Shiwoo answered as if feeling awkward at Seyoung's sudden and direct question.</p>
 
@@ -54,11 +54,11 @@ chapter = 662
 
 <p>Then, she continued speaking with eyes full of mischief as she looked down at Shiwoo's penis.</p>
 
-<p>In that moment, Shiwoo looked down at his erect penis, which Seyoung's gaze was directed toward. From the tip of his penis, which was heavily coated in Sua's lubricant and semen, pre-cum was falling to the floor in thick streaks. Shiwoo flinched, covering his penis with the hand holding his smartphone, as if embarrassed by Seyoung's words.</p>
+<p>In that moment, Shiwoo looked down at his erect penis, which Seyoung's gaze was directed toward. From the tip of his penis, which was heavily coated in Soa's lubricant and semen, pre-cum was falling to the floor in thick streaks. Shiwoo flinched, covering his penis with the hand holding his smartphone, as if embarrassed by Seyoung's words.</p>
 
 <p>"It looks like it'll take a while for Sunju to get here anyway, and I have to finish drying my hair in the room, so I think you could go into the shower room and wash up in the meantime, Shiwoo Oppa."</p>
 
-<p>Seyoung spoke as she approached Shiwoo, her eyes fixed on his clumsily hidden penis. She spoke as if Sua, who was lying on the dining table, didn't even exist.</p>
+<p>Seyoung spoke as she approached Shiwoo, her eyes fixed on his clumsily hidden penis. She spoke as if Soa, who was lying on the dining table, didn't even exist.</p>
 
 <p>"Or, since it won't take long to wash, should I do it for you before I go?"</p>
 

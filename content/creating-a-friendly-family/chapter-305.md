@@ -152,7 +152,7 @@ chapter = 305
 
 <p>Shiwoo raised his voice and commanded Seonju Imo, who was looking up at him with a flushed face while kneeling.</p>
 
-<p>Shiwoo's voice was echoing loudly enough to be heard by Seyoung and Sua, beyond the iron gate and walls of Seonju Imo's house.</p>
+<p>Shiwoo's voice was echoing loudly enough to be heard by Seyoung and Soa, beyond the iron gate and walls of Seonju Imo's house.</p>
 
 <p>,Yes Master-nim!,</p>
 

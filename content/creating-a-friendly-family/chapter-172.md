@@ -16,11 +16,11 @@ chapter = 172
 
 <p>Shiwoo suppressed his voice as much as possible, but he couldn't be sure that his angry voice hadn't reached Seyoung's ears.</p>
 
-<p>,Seyoung-a?! Imo has something to talk about with Shiwoo Oppa, so I'm going up to Oppa's room on the second floor for a bit? It might take a while, so can you two play on the first floor when Sua comes out?"</p>
+<p>,Seyoung-a?! Imo has something to talk about with Shiwoo Oppa, so I'm going up to Oppa's room on the second floor for a bit? It might take a while, so can you two play on the first floor when Soa comes out?"</p>
 
 <p>Seonju Imo, as if trying to obey Shiwoo's command, calmly gets up and speaks to Seyoung in the living room.</p>
 
-<p>"Okay! I understand, Seonju Imo When Sua comes out of the bathroom, I'll tell her that Oppa and Seonju Imo went up together."</p>
+<p>"Okay! I understand, Seonju Imo When Soa comes out of the bathroom, I'll tell her that Oppa and Seonju Imo went up together."</p>
 
 <p>Seyoung glances at the dining table and answers Seonju Imo before turning her gaze back to the TV.</p>
 
@@ -28,7 +28,7 @@ chapter = 172
 
 <p>Various thoughts flash through Shiwoo's mind.</p>
 
-<p>Did Seyoung avoid the situation to prevent interfering with Shiwoo's molestation of Seonju Imo and Sua just now?</p>
+<p>Did Seyoung avoid the situation to prevent interfering with Shiwoo's molestation of Seonju Imo and Soa just now?</p>
 
 <p>And is she pretending to watch TV in front of her Oppa, putting on an act that is so obvious?</p>
 
@@ -56,7 +56,7 @@ chapter = 172
 
 <p>Shiwoo stares at Seyoung, who is innocently sitting on the living room sofa.</p>
 
-<p>And he imagines Sua, who might be inside the dressing room, tidying up her underwear.</p>
+<p>And he imagines Soa, who might be inside the dressing room, tidying up her underwear.</p>
 
 <p>Following that, he imagines Seonju Imo, who is taking off her clothes and waiting in Shiwoo's room on the second floor, expecting to be impaled by Shiwoo's penis.</p>
 
@@ -64,11 +64,11 @@ chapter = 172
 
 <p>Shiwoo now lifts his top up, regardless of whether Seyoung sees it or not, exposing the glans and upper part of his penis that are hanging on the waistline of his pants to the outside.</p>
 
-<p>Shiwoo's irreversible deviation, which will be immediately visible if Seyoung turns towards the kitchen or if Sua comes out of the dressing room.</p>
+<p>Shiwoo's irreversible deviation, which will be immediately visible if Seyoung turns towards the kitchen or if Soa comes out of the dressing room.</p>
 
 <p>It was Shiwoo's lewd act of exposure, being done in the house with his younger sisters and Seonju Imo, with the thought that he no longer cared if he got caught.</p>
 
-<p>Shiwoo heads towards the stairs to the second floor with the thought of overpowering them if he gets caught by Seyoung and Sua, with his genitals exposed.</p>
+<p>Shiwoo heads towards the stairs to the second floor with the thought of overpowering them if he gets caught by Seyoung and Soa, with his genitals exposed.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -112,11 +112,11 @@ chapter = 172
 
 <p>'If such a sleeping arrangement with Sehee Nuna is possible, wouldn't it be easy to move on to skinship such as kissing or light foreplay?'</p>
 
-<p>Shiwoo continues to display the nude photo of Sua that Seonju Imo had sent him earlier on the smartphone screen.</p>
+<p>Shiwoo continues to display the nude photo of Soa that Seonju Imo had sent him earlier on the smartphone screen.</p>
 
-<p>Sua is blindfolded and wearing a placard with provocative phrases around her neck, taking a public humiliation pose.</p>
+<p>Soa is blindfolded and wearing a placard with provocative phrases around her neck, taking a public humiliation pose.</p>
 
-<p>Shiwoo imagines Seyoung lying on her back on the floor under Sua's crotch, in a shameful pose, sucking Sua's crotch with her mouth while masturbating.</p>
+<p>Shiwoo imagines Seyoung lying on her back on the floor under Soa's crotch, in a shameful pose, sucking Soa's crotch with her mouth while masturbating.</p>
 
 <p>Gradually, Shiwoo's fantasy is spreading in a bizarre direction, and a tingling climax is rushing to the tip of Shiwoo's cock.</p>
 
@@ -164,7 +164,7 @@ chapter = 172
 
 <p>Seonju Imo says, giving an awkward, admiring smile at the fact that Shiwoo had been taking off his clothes since before entering the room.</p>
 
-<p>"I took them off after coming up to the second floor! After taking them off, I also masturbated while looking at Seyoung and Sua's photos..."</p>
+<p>"I took them off after coming up to the second floor! After taking them off, I also masturbated while looking at Seyoung and Soa's photos..."</p>
 
 <p>Shiwoo answers, explaining the situation calmly as if he doesn't care about Seonju Imo's teasing words anymore.</p>
 

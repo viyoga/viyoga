@@ -10,7 +10,7 @@ chapter = 707
 
 <p>Following Seyoung's words, Shiwoo momentarily imagined the sight of Sejin Nuna and Yu Yena Teacher-nim bound and struggling in the darkness. The penis buried inside Seyoung's hole seemed to swell and pulse even harder.</p>
 
-<p>"Haat... haaaa... and as for the other sacrifice, Master will choose them personally... from among Seonmi, Sehee Nuna, Sunju, or Sua..."</p>
+<p>"Haat... haaaa... and as for the other sacrifice, Master will choose them personally... from among Seonmi, Sehee Nuna, Sunju, or Soa..."</p>
 
 <p>"Haa... o-or... hnggg... it's okay if it's me... haeeut..."</p>
 

@@ -4,9 +4,9 @@ weight = 213
 [extra]
 chapter = 213
 +++
-<p>"They named her 'Sae-a' after Seyoung and Sua Aren't the kids so cute?"</p>
+<p>"They named her 'Sae-a' after Seyoung and Soa Aren't the kids so cute?"</p>
 
-<p>Seonju Imo said, as if helping Sua, who was shyly avoiding eye contact.</p>
+<p>Seonju Imo said, as if helping Soa, who was shyly avoiding eye contact.</p>
 
 <p>"Oh... th-that's right... Sae-a, you said?" Shiwoo answered, feeling somewhat bewildered by Seonju Imo's explanation.</p>
 
@@ -38,7 +38,7 @@ chapter = 213
 
 <p>Mom, shyly casting her eyes downwards. Seonju Imo, smiling playfully and making eye contact with Shiwoo. Just imagining Mom and Seonju Imo pregnant with his semen, Shiwoo's penis became completely hard and erect once again.</p>
 
-<p>Shiwoo slowly looked at Sua and Seyoung... and Sehee Nuna in turn.</p>
+<p>Shiwoo slowly looked at Soa and Seyoung... and Sehee Nuna in turn.</p>
 
 <p>"If you give birth like that... who's going to raise them?! C-can you even take responsibility?!"</p>
 
@@ -58,7 +58,7 @@ chapter = 213
 
 <p>Shiwoo's 'thing' was now swelling up as if it would burst.</p>
 
-<p>"Se-Seonju, you! Are you going to keep saying strange things from earlier?! If so, I'll just talk by myself, so take Sua and go home!"</p>
+<p>"Se-Seonju, you! Are you going to keep saying strange things from earlier?! If so, I'll just talk by myself, so take Soa and go home!"</p>
 
 <p>Mom, genuinely pissed off again, spoke to Seonju Imo as if snapping at her fiercely.</p>
 

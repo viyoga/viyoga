@@ -1,12 +1,12 @@
 +++
-title = "Chapter 343: [Incest] Creating a Close Family 343 (Se-young, Su-a [Explicit])"
+title = "Chapter 343: [Incest] Creating a Close Family 343 (Se-young, Soa [Explicit])"
 weight = 343
 [extra]
 chapter = 343
 +++
 <p>,Haa-eueuk! Ha-ub uueok!,</p>
 
-<p>As Shiwoo's penis was pushed into Seyoung's mouth, just like with Sua, Seyoung was making sounds as if she was gagging.</p>
+<p>As Shiwoo's penis was pushed into Seyoung's mouth, just like with Soa, Seyoung was making sounds as if she was gagging.</p>
 
 <p>Shiwoo thrust his penis deep into Seyoung's mouth, right to the root.</p>
 
@@ -20,7 +20,7 @@ chapter = 343
 
 <p>Her face was flushed, and tears were welling up and flowing in her eyes.</p>
 
-<p>Even after time passed with Shiwoo's penis in her mouth, Seyoung didn't push him away or resist like Sua had.</p>
+<p>Even after time passed with Shiwoo's penis in her mouth, Seyoung didn't push him away or resist like Soa had.</p>
 
 <p>Shiwoo, with his penis shoved into Seyoung's mouth, strongly pressed down on the back of her head.</p>
 
@@ -70,13 +70,13 @@ chapter = 343
 
 <p>As she gradually stopped her rough breathing and coughing, Shiwoo pulled the dog collars of his two sisters, making them kneel side by side in front of his penis.</p>
 
-<p>Shiwoo groped Sua and Seyoung's soft, bare breasts with his hands, roughly grasping the positions where they were currently kneeling.</p>
+<p>Shiwoo groped Soa and Seyoung's soft, bare breasts with his hands, roughly grasping the positions where they were currently kneeling.</p>
 
-<p>Then, after pointing the tip of his penis downwards, he brought Sua and Seyoung's hands and made them wrap around his penis.</p>
+<p>Then, after pointing the tip of his penis downwards, he brought Soa and Seyoung's hands and made them wrap around his penis.</p>
 
 <p>-Tak tak tak tak tak!-</p>
 
-<p>With Sua and Seyoung's hands wrapped around his penis, Shiwoo was moving his arms back and forth, wildly pumping.</p>
+<p>With Soa and Seyoung's hands wrapped around his penis, Shiwoo was moving his arms back and forth, wildly pumping.</p>
 
 <p>The tip of his huge penis was shaking towards his sisters' soft breasts.</p>
 
@@ -94,13 +94,13 @@ chapter = 343
 
 <p>Shiwoo's thick semen exploded and poured over Seyoung's chest.</p>
 
-<p>,Shin Sua, you goddamn bitch!,</p>
+<p>,Shin Soa, you goddamn bitch!,</p>
 
-<p>Next, Shiwoo moved the tip of his penis over Sua's chest, uttering curses.</p>
+<p>Next, Shiwoo moved the tip of his penis over Soa's chest, uttering curses.</p>
 
 <p>-Pusyuk pyut pyuut pusyuk!-</p>
 
-<p>Shiwoo was shaking out all the semen remaining in his penis over Sua's chest.</p>
+<p>Shiwoo was shaking out all the semen remaining in his penis over Soa's chest.</p>
 
 <p>-Click! Click! Click!-</p>
 
@@ -108,9 +108,9 @@ chapter = 343
 
 <p>His sisters were kneeling in an almost naked state, receiving Shiwoo's ejaculation with their breasts.</p>
 
-<p>Shiwoo didn't stop there, grabbing Seyoung's hair and forcefully pressing her face onto Sua's chest, as if crushing it.</p>
+<p>Shiwoo didn't stop there, grabbing Seyoung's hair and forcefully pressing her face onto Soa's chest, as if crushing it.</p>
 
-<p>Shiwoo pressed down with all his might, so that Seyoung's face was rubbed against Sua's chest, which was covered in semen.</p>
+<p>Shiwoo pressed down with all his might, so that Seyoung's face was rubbed against Soa's chest, which was covered in semen.</p>
 
 <p>,Suck!,</p>
 
@@ -118,31 +118,31 @@ chapter = 343
 
 <p>,Chyu-ub! Chyu-ab! Chwap! Chyu-ab!,</p>
 
-<p>The sound of Seyoung sucking Sua's chest in the darkness was heard stimulatingly.</p>
+<p>The sound of Seyoung sucking Soa's chest in the darkness was heard stimulatingly.</p>
 
 <p>,Haa-euuu-eut...haaaa...,</p>
 
-<p>Sua's moaning sound, as if thinly splitting,</p>
+<p>Soa's moaning sound, as if thinly splitting,</p>
 
 <p>-Click click click!-</p>
 
 <p>Shiwoo took photos of his sisters' figures, as if trying to record all the important scenes of this moment.</p>
 
-<p>Seyoung seemed to be gathering Shiwoo's semen, which was widely spread over Sua's breast, and sucking it towards Sua's nipple.</p>
+<p>Seyoung seemed to be gathering Shiwoo's semen, which was widely spread over Soa's breast, and sucking it towards Soa's nipple.</p>
 
-<p>Sua was tilting her head back, opening her mouth, and having her chest sucked by Seyoung.</p>
+<p>Soa was tilting her head back, opening her mouth, and having her chest sucked by Seyoung.</p>
 
 <p>Even right after ejaculating, Shiwoo's penis could be felt twitching with strength.</p>
 
-<p>Shiwoo, with his penis still not completely flaccid, thrust it into Sua's mouth.</p>
+<p>Shiwoo, with his penis still not completely flaccid, thrust it into Soa's mouth.</p>
 
 <p>,Awoo-uuu-ub!,</p>
 
-<p>Sua, with her mouth slightly open, took Shiwoo's large thing, which still had strength in it, into her mouth.</p>
+<p>Soa, with her mouth slightly open, took Shiwoo's large thing, which still had strength in it, into her mouth.</p>
 
-<p>Sua was having her chest sucked by Seyoung while having Shiwoo's thing in her mouth.</p>
+<p>Soa was having her chest sucked by Seyoung while having Shiwoo's thing in her mouth.</p>
 
-<p>After leaving his penis in Sua's mouth for a moment, Sua, like Seyoung who was sucking her chest, moved her tongue as if wiping away the filth on Shiwoo's penis.</p>
+<p>After leaving his penis in Soa's mouth for a moment, Soa, like Seyoung who was sucking her chest, moved her tongue as if wiping away the filth on Shiwoo's penis.</p>
 
 <p>-Click click click!-</p>
 
@@ -156,23 +156,23 @@ chapter = 343
 
 <p>Finally, the sound of Seyoung swallowing, as if she had finished her work below, was heard.</p>
 
-<p>Shiwoo pulled his penis out of Sua's mouth, then pulled Seyoung's face away from Sua's chest and returned her to her original position.</p>
+<p>Shiwoo pulled his penis out of Soa's mouth, then pulled Seyoung's face away from Soa's chest and returned her to her original position.</p>
 
 <p>-A posture of kneeling respectfully in front of Shiwoo-</p>
 
-<p>And this time, Shiwoo grabbed Sua's hair and made her face bury into Seyoung's chest.</p>
+<p>And this time, Shiwoo grabbed Soa's hair and made her face bury into Seyoung's chest.</p>
 
-<p>Sua's face was crushed and pressed against Seyoung's chest, which was covered in semen.</p>
+<p>Soa's face was crushed and pressed against Seyoung's chest, which was covered in semen.</p>
 
 <p>,Chyu-ub chyu-uub shyu-ub chyu-wab,</p>
 
-<p>The sound of Sua sucking Seyoung's chest automatically was heard.</p>
+<p>The sound of Soa sucking Seyoung's chest automatically was heard.</p>
 
-<p>-Shiwoo didn't give Sua a separate command, but it seemed that the command he had given to Seyoung was still valid for Sua herself-</p>
+<p>-Shiwoo didn't give Soa a separate command, but it seemed that the command he had given to Seyoung was still valid for Soa herself-</p>
 
 <p>,Haaaaang! Ha-eu-eut! Ha-at! Heueuk ha-eu-eut,</p>
 
-<p>Seyoung was moaning, making rough breathing and panting sounds, while having her chest sucked by Sua.</p>
+<p>Seyoung was moaning, making rough breathing and panting sounds, while having her chest sucked by Soa.</p>
 
 <p>Shiwoo held up his smartphone camera.</p>
 
@@ -184,9 +184,9 @@ chapter = 343
 
 <p>In an instant, Shiwoo's chest seemed to swell greatly as if it would burst.</p>
 
-<p>Shiwoo felt Seyoung and Sua, who were in the photos, were even more lovely.</p>
+<p>Shiwoo felt Seyoung and Soa, who were in the photos, were even more lovely.</p>
 
-<p>Shiwoo suddenly brought his lips to Seyoung's lips, who was being sucked on her chest by Sua, as if she had lost her mind.</p>
+<p>Shiwoo suddenly brought his lips to Seyoung's lips, who was being sucked on her chest by Soa, as if she had lost her mind.</p>
 
 <p>He tilted back the head of Seyoung, who was moaning lowly as if she had lost her mind, and covered Seyoung's open lips from above.</p>
 
@@ -198,23 +198,23 @@ chapter = 343
 
 <p>,Kkul-geok kkul-geok kkul-geok,</p>
 
-<p>The sound of Sua swallowing was heard from Seyoung's chest.</p>
+<p>The sound of Soa swallowing was heard from Seyoung's chest.</p>
 
-<p>Sua also seemed to have roughly finished the work of sucking Seyoung's chest.</p>
+<p>Soa also seemed to have roughly finished the work of sucking Seyoung's chest.</p>
 
 <p>Shiwoo dropped the lips he had been obscenely mixing with Seyoung.</p>
 
-<p>Then, grabbing Sua's hair, he also made her face fall away from Seyoung's chest.</p>
+<p>Then, grabbing Soa's hair, he also made her face fall away from Seyoung's chest.</p>
 
-<p>Shiwoo brought his lips to Sua's lips, who had been sucking Seyoung's chest until just now.</p>
+<p>Shiwoo brought his lips to Soa's lips, who had been sucking Seyoung's chest until just now.</p>
 
 <p>Shiwoo's facial expression seemed to be heightened, feeling as if everything was connected.</p>
 
 <p>,U-rup chyu-ub chyu-uub ha-eup,</p>
 
-<p>Shiwoo shared a deep kiss with Sua, mixing tongues.</p>
+<p>Shiwoo shared a deep kiss with Soa, mixing tongues.</p>
 
-<p>After mixing tongues with Sua sufficiently, Shiwoo took his lips away from Sua's mouth, and this time he made Sua and Seyoung's faces touch each other.</p>
+<p>After mixing tongues with Soa sufficiently, Shiwoo took his lips away from Soa's mouth, and this time he made Soa and Seyoung's faces touch each other.</p>
 
 <p>,Chu-ap chwap chwap chuppa chu-uub shyu-ub,</p>
 

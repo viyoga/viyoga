@@ -1,5 +1,5 @@
 +++
-title = "Chapter 315: [Incest] Creating a Close Family 315 (Se-young, Su-a)"
+title = "Chapter 315: [Incest] Creating a Close Family 315 (Se-young, Soa)"
 weight = 315
 [extra]
 chapter = 315
@@ -14,13 +14,13 @@ chapter = 315
 
 <p>"......"</p>
 
-<p>Sua's face is flushed, and she's carefully exhaling her breath, which is heightened and heated with excitement.</p>
+<p>Soa's face is flushed, and she's carefully exhaling her breath, which is heightened and heated with excitement.</p>
 
-<p>Although she has been trained by Seonju Imo since she was young, it seems Sua has never experienced direct sexual intercourse with a man.</p>
+<p>Although she has been trained by Seonju Imo since she was young, it seems Soa has never experienced direct sexual intercourse with a man.</p>
 
-<p>As if understanding Shiwoo and Seyoung's depraved conversation, Sua's face is bright red as she looks down at the floor.</p>
+<p>As if understanding Shiwoo and Seyoung's depraved conversation, Soa's face is bright red as she looks down at the floor.</p>
 
-<p>Unlike Sua, Seyoung is still wearing a nonchalant expression, preparing to continue her secret conversation with Shiwoo.</p>
+<p>Unlike Soa, Seyoung is still wearing a nonchalant expression, preparing to continue her secret conversation with Shiwoo.</p>
 
 <p>Even though she shares Shiwoo and other family members' lewd secrets, isn't Seyoung awkward with this kind of conversation targeting her own brother and family?</p>
 
@@ -30,7 +30,7 @@ chapter = 315
 
 <p>A slight fever and Seyoung's small trembling are transmitted to Shiwoo's fingertips.</p>
 
-<p>Seyoung was acting as if nothing was wrong, but she, like Sua, was still a beginner student with no experience in sexual intercourse.</p>
+<p>Seyoung was acting as if nothing was wrong, but she, like Soa, was still a beginner student with no experience in sexual intercourse.</p>
 
 <p>Shiwoo reminds himself of that fact once again.</p>
 
@@ -42,9 +42,9 @@ chapter = 315
 
 <p>As the anxiety subsides, Shiwoo once again feels as if a layer of pretense that had been covering his and his sisters' faces has been peeled off.</p>
 
-<p>In front of the family members who are playing the role of slaves, Shiwoo imagines alternately inserting his penis into Seyoung and Sua's pussy.</p>
+<p>In front of the family members who are playing the role of slaves, Shiwoo imagines alternately inserting his penis into Seyoung and Soa's pussy.</p>
 
-<p>When his penis penetrates Seyoung and Sua's vagina holes at high speed, what kind of moaning sounds will his sisters let out for Shiwoo?</p>
+<p>When his penis penetrates Seyoung and Soa's vagina holes at high speed, what kind of moaning sounds will his sisters let out for Shiwoo?</p>
 
 <p>Just imagining his sisters' moaning sounds makes Shiwoo's penis throb as if it will burst.</p>
 
@@ -96,7 +96,7 @@ chapter = 315
 
 <p>At that moment, Shiwoo imagines one crazy scene in his head.</p>
 
-<p>A scene where Seyoung or Sua grab his erected penis inside the train and shake it until he's about to ejaculate.</p>
+<p>A scene where Seyoung or Soa grab his erected penis inside the train and shake it until he's about to ejaculate.</p>
 
 <p>Looking around at the surroundings, which are obscured by the wall of people, Shiwoo thinks that it might not be impossible.</p>
 
@@ -148,21 +148,21 @@ chapter = 315
 
 <p>Seyoung says, looking down at the bag that's pushing against her stomach.</p>
 
-<p>"Sua, is that okay with you too?"</p>
+<p>"Soa, is that okay with you too?"</p>
 
-<p>Shiwoo asks Sua, demanding an answer as if seeking her opinion.</p>
+<p>Shiwoo asks Soa, demanding an answer as if seeking her opinion.</p>
 
 <p>"...Yeah... I'm okay too..."</p>
 
-<p>Sua answers Shiwoo's question shyly.</p>
+<p>Soa answers Shiwoo's question shyly.</p>
 
 <p>What Shiwoo said wasn't just about bringing forward the order of shopping.</p>
 
 <p>It was a statement revealing his desire and wish to put dog collars, the mark of a slave, on his sisters and spend the whole day at the amusement park in a master-slave relationship.</p>
 
-<p>There's no way that Seyoung and Sua couldn't have understood what Shiwoo was saying.</p>
+<p>There's no way that Seyoung and Soa couldn't have understood what Shiwoo was saying.</p>
 
-<p>Shiwoo confirms that there's no reason to hesitate any longer after hearing Seyoung and Sua's answers.</p>
+<p>Shiwoo confirms that there's no reason to hesitate any longer after hearing Seyoung and Soa's answers.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -174,28 +174,28 @@ chapter = 315
 
 <p>-Jiiiiik!</p>
 
-<p>The zipper is opening, and the bag's pocket is opening towards Sua.</p>
+<p>The zipper is opening, and the bag's pocket is opening towards Soa.</p>
 
 <p>His sisters are just watching Shiwoo's actions, as if they haven't realized what he's trying to do yet.</p>
 
-<p>With the hand that he used to open the zipper, Shiwoo grabs Sua's hand that's holding one side of the bag.</p>
+<p>With the hand that he used to open the zipper, Shiwoo grabs Soa's hand that's holding one side of the bag.</p>
 
-<p>And he takes Sua's hand away from the bag and puts it straight into the open pocket.</p>
+<p>And he takes Soa's hand away from the bag and puts it straight into the open pocket.</p>
 
-<p>Sua's hand sensation is transmitted to Shiwoo's penis through the cloth of the clothes and bag.</p>
+<p>Soa's hand sensation is transmitted to Shiwoo's penis through the cloth of the clothes and bag.</p>
 
-<p>Shiwoo has made Sua's hand touch his penis for the first time.</p>
+<p>Shiwoo has made Soa's hand touch his penis for the first time.</p>
 
 <p>-Although it's covered by the cloth of the clothes and bag...-</p>
 
-<p>Sua is momentarily startled and tries to pull her hand out of Shiwoo's crossbody bag's front pocket unconsciously.</p>
+<p>Soa is momentarily startled and tries to pull her hand out of Shiwoo's crossbody bag's front pocket unconsciously.</p>
 
-<p>But Shiwoo, who is grabbing Sua's hand, doesn't let Sua's hand come out of the bag.</p>
+<p>But Shiwoo, who is grabbing Soa's hand, doesn't let Soa's hand come out of the bag.</p>
 
-<p>Sua is momentarily flustered, not knowing what to do, but soon she releases the strength in her arm as Shiwoo wants and puts her hand on the penis shaft.</p>
+<p>Soa is momentarily flustered, not knowing what to do, but soon she releases the strength in her arm as Shiwoo wants and puts her hand on the penis shaft.</p>
 
-<p>Shiwoo wraps his hand around Sua's hand, making her firmly grip his penis.</p>
+<p>Shiwoo wraps his hand around Soa's hand, making her firmly grip his penis.</p>
 
-<p>The sensation of Sua's wiggling fingers and palm is felt on his penis.</p>
+<p>The sensation of Soa's wiggling fingers and palm is felt on his penis.</p>
 
 <p>That pleasure that melts softly seems to spread throughout his entire body through Shiwoo's penis.</p>

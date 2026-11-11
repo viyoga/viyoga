@@ -50,11 +50,11 @@ chapter = 55
 
 <p>"Which leash would be good?" Shiwoo asked Sehee Nuna without any explanation.</p>
 
-<p>"Are you going to buy that? Did Mom say it's okay to bring Sua's dog home and raise it?"</p>
+<p>"Are you going to buy that? Did Mom say it's okay to bring Soa's dog home and raise it?"</p>
 
-<p>Sehee Nuna asked Shiwoo, recalling the conversation about Sua's dog that Seyoung had brought up during their family dinner yesterday.</p>
+<p>Sehee Nuna asked Shiwoo, recalling the conversation about Soa's dog that Seyoung had brought up during their family dinner yesterday.</p>
 
-<p>"Not Sua's dog... if Mom says it's okay, I think we can raise one at home..."</p>
+<p>"Not Soa's dog... if Mom says it's okay, I think we can raise one at home..."</p>
 
 <p>Shiwoo answered Sehee Nuna's question, imagining putting the dog collar and leash on Mom, who would be kneeling and prostrate with her hands forward.</p>
 

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 360: [Incest] Creating a Close Family 360 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 360: [Incest] Creating a Close Family 360 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 360
 [extra]
 chapter = 360
@@ -12,7 +12,7 @@ chapter = 360
 
 <p>However, contrary to such tension or trembling, a composure and an unreal sense of ease seemed to be contained within her expression.</p>
 
-<p>As if she already knew what Shiwoo wanted, Seyoung approached, fixing the camera on Shiwoo, Seonju Imo-nim, and Sua.</p>
+<p>As if she already knew what Shiwoo wanted, Seyoung approached, fixing the camera on Shiwoo, Seonju Imo-nim, and Soa.</p>
 
 <p>Seeing Seyoung's confident appearance, Shiwoo's spine began to tingle.</p>
 
@@ -28,15 +28,15 @@ chapter = 360
 
 <p>They were acting as Shiwoo said, even acting as if trying to fulfill Shiwoo's desires without him even having to say it.</p>
 
-<p>Were Seonju Imo-nim and Sua, who were currently sucking Shiwoo's penis, truly accepting Shiwoo as their master?</p>
+<p>Were Seonju Imo-nim and Soa, who were currently sucking Shiwoo's penis, truly accepting Shiwoo as their master?</p>
 
 <p>Until just a few days ago, they had been living harmoniously and peacefully as aunt and nephew, cousin and cousin, without any problems...</p>
 
-<p>Were Seyoung, Seonju Imo-nim, and Sua perhaps just swept up in a dreamlike scene created by Shiwoo, briefly indulging Shiwoo?</p>
+<p>Were Seyoung, Seonju Imo-nim, and Soa perhaps just swept up in a dreamlike scene created by Shiwoo, briefly indulging Shiwoo?</p>
 
 <p>Shiwoo felt like he wouldn't even be able to properly distinguish whether his actions and words to Seonju Imo-nim and his sisters today were real or not.</p>
 
-<p>Almost stripping his younger sister Seyoung naked and making her walk on a residential street, slapping Seonju Imo-nim, who was much older than him, across the cheek, or the sadistic act of mercilessly slapping Sua's buttocks in front of that Seonju Imo-nim.</p>
+<p>Almost stripping his younger sister Seyoung naked and making her walk on a residential street, slapping Seonju Imo-nim, who was much older than him, across the cheek, or the sadistic act of mercilessly slapping Soa's buttocks in front of that Seonju Imo-nim.</p>
 
 <p>In the chaotic situation where all relationships seemed to have crumbled, and within the abyss of hastily thrown sadistic pleasure, only the feeling that he was the ultimate ruler of this kingdom seemed to justify all of Shiwoo's actions.</p>
 
@@ -46,7 +46,7 @@ chapter = 360
 
 <p>Was it even possible to wake up from this dreamlike fantasy and return to the same past as before?</p>
 
-<p>Shiwoo's penis was being mercilessly rubbed against in Seonju Imo-nim's and Sua's mouths.</p>
+<p>Shiwoo's penis was being mercilessly rubbed against in Seonju Imo-nim's and Soa's mouths.</p>
 
 <p>Shiwoo waited expectantly, as if longing for the touch of Seyoung's luscious lips and the inside of her mouth to be added to his penis.</p>
 
@@ -68,7 +68,7 @@ chapter = 360
 
 <p>Shiwoo blankly opened his eyes, blurred with moisture, and felt Seyoung's presence approaching him.</p>
 
-<p>Shiwoo thought that Seyoung would stop in front of Seonju Imo-nim and Sua, who were facing each other, and kneel down to suck his penis.</p>
+<p>Shiwoo thought that Seyoung would stop in front of Seonju Imo-nim and Soa, who were facing each other, and kneel down to suck his penis.</p>
 
 <p>Shiwoo continued to jerk his massive penis, which was being sucked by the two women, imagining the soft and moist sensation of Seyoung's mouth.</p>
 
@@ -76,13 +76,13 @@ chapter = 360
 
 <p>Shiwoo, slightly flustered, blinked his blurred eyes and tried to find Seyoung's presence.</p>
 
-<p>Seyoung had passed Seonju Imo-nim and Sua and reached his side.</p>
+<p>Seyoung had passed Seonju Imo-nim and Soa and reached his side.</p>
 
 <p>Seyoung, standing next to Shiwoo, raised herself on tiptoes and brought her lips to Shiwoo's ear.</p>
 
 <p>Seyoung slightly parted her lips that she had brought to Shiwoo's ear and said as if whispering.</p>
 
-<p>"Take it easy, Shiwoo Oppa! Sua must be surprised!"</p>
+<p>"Take it easy, Shiwoo Oppa! Soa must be surprised!"</p>
 
 <p>Seyoung's playful voice reached Shiwoo's ear along with her hot breath.</p>
 
@@ -116,15 +116,15 @@ chapter = 360
 
 <p>Seyoung was filming all the scenes without filtering them with Shiwoo's smartphone.</p>
 
-<p>Seonju Imo-nim and Sua licked Shiwoo's penis shaft from both sides, panting roughly.</p>
+<p>Seonju Imo-nim and Soa licked Shiwoo's penis shaft from both sides, panting roughly.</p>
 
 <p>Shiwoo, with his penis being sucked by his aunt and cousin, trembled as if he was mindlessly absorbed in pleasure.</p>
 
 <p>Seyoung, as if reminding Shiwoo of what he had to do now, held out her orange collar to Shiwoo.</p>
 
-<p>Seyoung added her collar to Shiwoo's hand, which already held the collars of Seonju Imo-nim and Sua.</p>
+<p>Seyoung added her collar to Shiwoo's hand, which already held the collars of Seonju Imo-nim and Soa.</p>
 
-<p>As if visually summarizing the reality Shiwoo was facing, the collars of Seyoung, Seonju Imo-nim, and Sua were held in Shiwoo's hand.</p>
+<p>As if visually summarizing the reality Shiwoo was facing, the collars of Seyoung, Seonju Imo-nim, and Soa were held in Shiwoo's hand.</p>
 
 <p>Seyoung handed the smartphone she was filming with to Shiwoo's other hand.</p>
 
@@ -132,7 +132,7 @@ chapter = 360
 
 <p>Seyoung, holding onto the collar, turned back to Shiwoo.</p>
 
-<p>Seyoung stood between Seonju Imo-nim and Sua, who were facing each other while licking Shiwoo's penis shaft from both sides.</p>
+<p>Seyoung stood between Seonju Imo-nim and Soa, who were facing each other while licking Shiwoo's penis shaft from both sides.</p>
 
 <p>Facing Shiwoo head-on, Seyoung lowered her body as if bringing her face to where the tip of Shiwoo's penis was pointing.</p>
 
@@ -158,43 +158,43 @@ chapter = 360
 
 <p>Seyoung's tongue was slowly swept upwards from the base to the tip of the shaft.</p>
 
-<p>The sensation of Seyoung's tongue sweeping up Shiwoo's shaft was felt on the skin of the underside of his penis shaft, overlapping with the tongues of Seonju Imo-nim and Sua, which had been touching and rubbing against it on both sides.</p>
+<p>The sensation of Seyoung's tongue sweeping up Shiwoo's shaft was felt on the skin of the underside of his penis shaft, overlapping with the tongues of Seonju Imo-nim and Soa, which had been touching and rubbing against it on both sides.</p>
 
 <p>The ecstatic sensation of the three slaves, whose collars were held, simultaneously stroking his penis shaft.</p>
 
 <p>The sensation of the tongues sticking hotly and the breath blowing over the wet skin.</p>
 
-<p>Shiwoo, who was already receiving caresses from Seonju Imo-nim and Sua on both sides, trembled as if writhing in the pleasure that was being transmitted to his penis.</p>
+<p>Shiwoo, who was already receiving caresses from Seonju Imo-nim and Soa on both sides, trembled as if writhing in the pleasure that was being transmitted to his penis.</p>
 
 <p>"Seonju, you fucking bitch! Because of you, your fucking daughter is sucking my cock like this right now, so what are you doing?!"</p>
 
-<p>Shiwoo, as Sua sucked his cock, spoke as if chiding Seonju Imo-nim.</p>
+<p>Shiwoo, as Soa sucked his cock, spoke as if chiding Seonju Imo-nim.</p>
 
 <p>"Haa... Yes... Heut... I'm sorry, Juinin-nim I'll suck it right now!"</p>
 
 <p>Seonju Imo-nim, unable to properly open her eyes, groped Shiwoo's thigh with her hand and spoke guiltily.</p>
 
-<p>Seonju Imo-nim also soon brought her tongue to Shiwoo's penis and began sweeping up Shiwoo's penis from Sua's opposite side.</p>
+<p>Seonju Imo-nim also soon brought her tongue to Shiwoo's penis and began sweeping up Shiwoo's penis from Soa's opposite side.</p>
 
 <p>With the fellatio received simultaneously from mother and daughter, Shiwoo's mind seemed to grow distant.</p>
 
-<p>Seonju Imo-nim's and Sua's tongue play, sweeping across the skin on both sides of the shaft, facing each other.</p>
+<p>Seonju Imo-nim's and Soa's tongue play, sweeping across the skin on both sides of the shaft, facing each other.</p>
 
 <p>The sensation of pleasure was ecstatically filling Shiwoo's body and mind.</p>
 
-<p>Shiwoo looked down at Seonju Imo-nim's and Sua's faces, who were sucking his penis.</p>
+<p>Shiwoo looked down at Seonju Imo-nim's and Soa's faces, who were sucking his penis.</p>
 
-<p>Placing a hand on each of Sua's and Seonju Imo-nim's heads, Shiwoo fully savored the feeling of conquest.</p>
+<p>Placing a hand on each of Soa's and Seonju Imo-nim's heads, Shiwoo fully savored the feeling of conquest.</p>
 
 <p>Shiwoo's lips were curved upwards as if very satisfied.</p>
 
 <p>He moved the hands that had been placed on the two women's heads downwards, to the vicinity of their fastened leashes.</p>
 
-<p>Then, grabbing Sua's and Seonju Imo-nim's leashes, Shiwoo pulled them upwards.</p>
+<p>Then, grabbing Soa's and Seonju Imo-nim's leashes, Shiwoo pulled them upwards.</p>
 
-<p>Seonju Imo-nim's dog collar leash handle, held in Sua's hand, slipped weakly from Sua's hand.</p>
+<p>Seonju Imo-nim's dog collar leash handle, held in Soa's hand, slipped weakly from Soa's hand.</p>
 
-<p>Sua's leash handle, which had been hanging downwards, also came into Shiwoo's hand.</p>
+<p>Soa's leash handle, which had been hanging downwards, also came into Shiwoo's hand.</p>
 
 <p>Shiwoo coiled the two women's leash handles in one hand and snapped them hard, inducing the two women to lick his penis even more fiercely.</p>
 
@@ -204,7 +204,7 @@ chapter = 360
 
 <p>'If only Seyoung's mouth were added here...'</p>
 
-<p>Shiwoo suddenly recalled a scene of Seyoung, Sua, and Seonju Imo-nim simultaneously sucking his penis.</p>
+<p>Shiwoo suddenly recalled a scene of Seyoung, Soa, and Seonju Imo-nim simultaneously sucking his penis.</p>
 
 <p>As he imagined that scene, pre-semen gushed, seeming to pour from the slit at the tip of his glans.</p>
 

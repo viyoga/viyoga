@@ -150,7 +150,7 @@ chapter = 687
 
 <p>Gripping his smartphone, Shiwoo stood up and approached the front door.</p>
 
-<p>In Sejin Nuna's room, the mother and daughter, Seonju Imo and Sua, were asleep.</p>
+<p>In Sejin Nuna's room, the mother and daughter, Seonju Imo and Soa, were asleep.</p>
 
 <p>Seyoung had gone up to the second floor to get the collar for Sehee Nuna.</p>
 
@@ -198,10 +198,10 @@ chapter = 687
 
 <p>Shiwoo smiled quietly, finding it cute how Mom was acting tough to hide her embarrassment.</p>
 
-<p>[What about Seonju? Is she still in Sejin's room with Sua?]</p>
+<p>[What about Seonju? Is she still in Sejin's room with Soa?]</p>
 
-<p>Mom asked as if checking on Seonju Imo and Sua's situation as well.</p>
+<p>Mom asked as if checking on Seonju Imo and Soa's situation as well.</p>
 
-<p>[Yeah Seonju and Sua are both in Sejin's room. They'll probably sleep there until morning.]</p>
+<p>[Yeah Seonju and Soa are both in Sejin's room. They'll probably sleep there until morning.]</p>
 
 <p>Shiwoo replied casually, tossing the text out as if it were no big deal.</p>

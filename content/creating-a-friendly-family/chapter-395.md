@@ -144,7 +144,7 @@ chapter = 395
 
 <p>Sehee Nuna replied, her eyes unfocused, gazing at her purple dog collar that Shiwoo had taken out.</p>
 
-<p>"I put them on Seonju and Sua earlier, so if I put one on you now, Sehee, will all our family members be wearing them?"</p>
+<p>"I put them on Seonju and Soa earlier, so if I put one on you now, Sehee, will all our family members be wearing them?"</p>
 
 <p>Shiwoo spoke to Sehee Nuna as if thrilled by the fact that he was about to put collars on all the family members.</p>
 

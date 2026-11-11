@@ -44,11 +44,11 @@ chapter = 175
 
 <p>Shiwoo looks down at the living room floor below the stairs.</p>
 
-<p>The voices of Seyoung and Sua are still occasionally heard from the living room on the first floor.</p>
+<p>The voices of Seyoung and Soa are still occasionally heard from the living room on the first floor.</p>
 
 <p>And the laughter of the panelists on the TV entertainment program.</p>
 
-<p>It seems that Seyoung and Sua have not yet noticed the act on the second floor.</p>
+<p>It seems that Seyoung and Soa have not yet noticed the act on the second floor.</p>
 
 <p>-Or they are pretending not to know-</p>
 
@@ -102,7 +102,7 @@ chapter = 175
 
 <p>Shiwoo whispers quietly into Seonju Imo's ear.</p>
 
-<p>"Press it now! Sua's vibrator!"</p>
+<p>"Press it now! Soa's vibrator!"</p>
 
 <p>Shiwoo commands her, turning Seonju Imo's face towards the side where the smartphone is placed.</p>
 
@@ -134,7 +134,7 @@ chapter = 175
 
 <p>Seonju Imo seemed to have understood Shiwoo's impromptu game at once.</p>
 
-<p>Shiwoo's smartphone, which can operate the wireless vibrator that is attached to Sua.</p>
+<p>Shiwoo's smartphone, which can operate the wireless vibrator that is attached to Soa.</p>
 
 <p>Seonju Imo slowly places her hand back on the smartphone screen.</p>
 
@@ -156,7 +156,7 @@ chapter = 175
 
 <p>At that time,</p>
 
-<p>The voices of Sua and Seyoung that had been heard from the living room on the first floor suddenly disappear.</p>
+<p>The voices of Soa and Seyoung that had been heard from the living room on the first floor suddenly disappear.</p>
 
 <p>Shiwoo tightens his arm even more strongly, giving strength to his arm to suppress the moaning sound that Seonju Imo is making.</p>
 
@@ -200,11 +200,11 @@ chapter = 175
 
 <p>Time seemed to have frozen coldly and stopped.</p>
 
-<p>Seonju Imo's words that she had not done slave training with Seyoung like she had with Sua.</p>
+<p>Seonju Imo's words that she had not done slave training with Seyoung like she had with Soa.</p>
 
 <p>Those words of Seonju Imo were driving Shiwoo's mind and senses into a bizarre and confusing state.</p>
 
-<p>Even though she had not received separate training from Seonju Imo, Seyoung seemed to know to some extent about the existence of the vibrator that was attached to Sua.</p>
+<p>Even though she had not received separate training from Seonju Imo, Seyoung seemed to know to some extent about the existence of the vibrator that was attached to Soa.</p>
 
 <p>Even the fact that Shiwoo, her own brother, was the one adjusting that device...</p>
 
@@ -218,15 +218,15 @@ chapter = 175
 
 <p>Shiwoo is about to send a text message.</p>
 
-<p>The recipient of the text message was Sua.</p>
+<p>The recipient of the text message was Soa.</p>
 
-<p>He is about to send Sua the nude photo of Seonju Imo that Shiwoo had just taken.</p>
+<p>He is about to send Soa the nude photo of Seonju Imo that Shiwoo had just taken.</p>
 
 <p>A lewd photo of Seonju Imo's body, naked and kneeling on the second-floor hallway with her hands on the floor.</p>
 
-<p>Soon, Sua, the daughter, would see the humiliating nude photo of her own mother.</p>
+<p>Soon, Soa, the daughter, would see the humiliating nude photo of her own mother.</p>
 
-<p>Perhaps Sua, who was checking the text message, might not have been able to cover the screen in time and showed that figure to Seyoung, who was returning to the living room.</p>
+<p>Perhaps Soa, who was checking the text message, might not have been able to cover the screen in time and showed that figure to Seyoung, who was returning to the living room.</p>
 
 <p>Shiwoo puts the photo of the naked Seonju Imo on the text message window.</p>
 

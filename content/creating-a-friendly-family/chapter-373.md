@@ -1,5 +1,5 @@
 +++
-title = "Chapter 373: [Incest] Creating a Close Family 373 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 373: [Incest] Creating a Close Family 373 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 373
 [extra]
 chapter = 373
@@ -30,25 +30,25 @@ chapter = 373
 
 <p>After swallowing all the piss in her mouth, Seonju Imo-nim trembles violently, letting out a moan that seems humiliating.</p>
 
-<p>Sua, with a flushed face, watches the scene with her mouth half-open, with a blank expression as if she's lost her soul.</p>
+<p>Soa, with a flushed face, watches the scene with her mouth half-open, with a blank expression as if she's lost her soul.</p>
 
 <p>Shiwoo's urine completely soaks Seonju Imo-nim's face and body, and the bed.</p>
 
 <p>Shiwoo's piss, which had been pouring like a waterfall, had already turned into a thin stream.</p>
 
-<p>Shiwoo aimed that thin stream at Sua's face and half-open mouth and started spraying it for the last time.</p>
+<p>Shiwoo aimed that thin stream at Soa's face and half-open mouth and started spraying it for the last time.</p>
 
-<p>Sua's body twitches as if startled by Shiwoo's piss that wets her face and is sprayed into her mouth.</p>
+<p>Soa's body twitches as if startled by Shiwoo's piss that wets her face and is sprayed into her mouth.</p>
 
-<p>Although she shrinks her body as if embarrassed, Sua, like Seonju Imo-nim had been doing, accepts Shiwoo's piss into her mouth without avoiding her face.</p>
+<p>Although she shrinks her body as if embarrassed, Soa, like Seonju Imo-nim had been doing, accepts Shiwoo's piss into her mouth without avoiding her face.</p>
 
-<p>Shiwoo's warm, golden piss is entering Sua's open mouth.</p>
+<p>Shiwoo's warm, golden piss is entering Soa's open mouth.</p>
 
 <p>,Uul-geok uul-geok uul-geok."</p>
 
-<p>Soon, the sound of Sua swallowing Shiwoo's piss can be heard from her throat as well.</p>
+<p>Soon, the sound of Soa swallowing Shiwoo's piss can be heard from her throat as well.</p>
 
-<p>Sua's body, receiving and drinking Shiwoo's urine, trembles violently.</p>
+<p>Soa's body, receiving and drinking Shiwoo's urine, trembles violently.</p>
 
 <p>A drop of piss hangs from the end of Shiwoo's penis, which has poured out all the piss that was in his bladder.</p>
 
@@ -58,9 +58,9 @@ chapter = 373
 
 <p>Then, Shiwoo glances at the smartphone camera placed on the side table.</p>
 
-<p>The scene of him pissing on Seonju Imo-nim and Sua just now is stored in his smartphone and will probably remain as an unforgettable record until he dies.</p>
+<p>The scene of him pissing on Seonju Imo-nim and Soa just now is stored in his smartphone and will probably remain as an unforgettable record until he dies.</p>
 
-<p>At this moment, a sense of fulfillment and satisfaction for having completely violated and taken possession of Seonju Imo-nim and Sua, mother and daughter, as a true master, was filling Shiwoo's chest to the brim.</p>
+<p>At this moment, a sense of fulfillment and satisfaction for having completely violated and taken possession of Seonju Imo-nim and Soa, mother and daughter, as a true master, was filling Shiwoo's chest to the brim.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -86,7 +86,7 @@ chapter = 373
 
 <p>,Is it all over now?"</p>
 
-<p>Seyoung looks at Seonju Imo-nim and Sua, who are covered in piss, and the soaked bed sheets, and asks Shiwoo as if confirming.</p>
+<p>Seyoung looks at Seonju Imo-nim and Soa, who are covered in piss, and the soaked bed sheets, and asks Shiwoo as if confirming.</p>
 
 <p>,Huh? Yeah...more or less..."</p>
 
@@ -94,7 +94,7 @@ chapter = 373
 
 <p>Seyoung is curiously looking around at what happened in the room while he was out for a moment.</p>
 
-<p>,It's going to be quite a big deal to clean up. Seonju Imo-nim and Sua too Hehe"</p>
+<p>,It's going to be quite a big deal to clean up. Seonju Imo-nim and Soa too Hehe"</p>
 
 <p>Seyoung said, as if giving a short review of what Shiwoo had done in Seonju Imo-nim's room.</p>
 
@@ -120,9 +120,9 @@ chapter = 373
 
 <p>Shiwoo says, holding out the water cup to Seyoung.</p>
 
-<p>,What about Seonju Imo-nim and Sua?"</p>
+<p>,What about Seonju Imo-nim and Soa?"</p>
 
-<p>Seyoung looks worriedly at Seonju Imo-nim and Sua, who are covered in piss and gasping for breath, and asks Shiwoo as if wondering.</p>
+<p>Seyoung looks worriedly at Seonju Imo-nim and Soa, who are covered in piss and gasping for breath, and asks Shiwoo as if wondering.</p>
 
 <p>-No matter how you look at it, it was Seonju Imo-nim who seemed to need hydration, as she was lying down in an almost exhausted state...-</p>
 
@@ -130,7 +130,7 @@ chapter = 373
 
 <p>Shiwoo is speaking as if confessing his bizarre behavior to Seyoung.</p>
 
-<p>Seyoung looks back and forth at Seonju Imo-nim and Sua's appearance and condition again for a moment, as if checking.</p>
+<p>Seyoung looks back and forth at Seonju Imo-nim and Soa's appearance and condition again for a moment, as if checking.</p>
 
 <p>,Okay, I understand, since Shiwoo Oppa says so Then I'll drink Hehe."</p>
 
@@ -146,7 +146,7 @@ chapter = 373
 
 <p>Seyoung said, touching the semen that was stuck to her face and hair with her fingers.</p>
 
-<p>Seyoung is asking Shiwoo for permission as if Seonju Imo-nim and Sua are no longer in her mind.</p>
+<p>Seyoung is asking Shiwoo for permission as if Seonju Imo-nim and Soa are no longer in her mind.</p>
 
 <p>,Yeah, go take a shower quickly! But don't pee!"</p>
 
@@ -164,13 +164,13 @@ chapter = 373
 
 <p>Seyoung hesitated for a moment and answered with a blushing face.</p>
 
-<p>Perhaps Seyoung is vaguely anticipating what Shiwoo is trying to make her do, after seeing Shiwoo's piss play on Seonju Imo-nim and Sua's bodies.</p>
+<p>Perhaps Seyoung is vaguely anticipating what Shiwoo is trying to make her do, after seeing Shiwoo's piss play on Seonju Imo-nim and Soa's bodies.</p>
 
 <p>Seyoung, with a thoughtful expression, heads to the living room to take a shower.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo, Seonju Imo-nim, and Sua are left in the room again.</p>
+<p>Shiwoo, Seonju Imo-nim, and Soa are left in the room again.</p>
 
 <p>Shiwoo retrieved the camera that had been placed on the side table.</p>
 
@@ -180,33 +180,33 @@ chapter = 373
 
 <p>The recorded video is saved as a file with a clear and cheerful signal sound.</p>
 
-<p>Shiwoo briefly checks whether the filmed video was properly recorded and turns to the bed where Seonju Imo-nim and Sua are with a proud feeling.</p>
+<p>Shiwoo briefly checks whether the filmed video was properly recorded and turns to the bed where Seonju Imo-nim and Soa are with a proud feeling.</p>
 
-<p>On the bed were Seonju Imo-nim, lying down with her face covered, and Sua, kneeling next to her.</p>
+<p>On the bed were Seonju Imo-nim, lying down with her face covered, and Soa, kneeling next to her.</p>
 
 <p>The two mother and daughter, with their faces and bodies covered in sweat and filth, are waiting for Shiwoo's next actions and orders in a humiliating state.</p>
 
 <p>Shiwoo's semen, which has not yet cooled down, is flowing down Seonju Imo-nim's crotch, where the skirt part of her apricot-colored slip is precariously covering.</p>
 
-<p>,Seonju and Sua! You guys have to wash too! Seonju worked hard today, so we should wash Seonju first!"</p>
+<p>,Seonju and Soa! You guys have to wash too! Seonju worked hard today, so we should wash Seonju first!"</p>
 
-<p>Shiwoo sends Seyoung to the shower room and tells Seonju Imo-nim and Sua to wash, as if urging them anew.</p>
+<p>Shiwoo sends Seyoung to the shower room and tells Seonju Imo-nim and Soa to wash, as if urging them anew.</p>
 
 <p>Shiwoo points his finger at the semen flowing down Seonju Imo-nim's petals under her slip skirt.</p>
 
-<p>A silent order for Sua to lick his semen flowing out of Seonju Imo-nim's hole.</p>
+<p>A silent order for Soa to lick his semen flowing out of Seonju Imo-nim's hole.</p>
 
-<p>Sua makes eye contact with Shiwoo, twitches her body once, and then moves as if complying with Shiwoo's order.</p>
+<p>Soa makes eye contact with Shiwoo, twitches her body once, and then moves as if complying with Shiwoo's order.</p>
 
-<p>Sua goes between Seonju Imo-nim's legs, which Shiwoo is pointing at with his finger.</p>
+<p>Soa goes between Seonju Imo-nim's legs, which Shiwoo is pointing at with his finger.</p>
 
-<p>Sua kneels down and brings her face to the lower part of Seonju Imo-nim's crotch.</p>
+<p>Soa kneels down and brings her face to the lower part of Seonju Imo-nim's crotch.</p>
 
-<p>Sua's tongue is extended to Seonju Imo-nim's sensitive flesh.</p>
+<p>Soa's tongue is extended to Seonju Imo-nim's sensitive flesh.</p>
 
 <p>,Churu-uup churu-uup churyu-uuup."</p>
 
-<p>Sua sticks out her tongue and starts licking up Shiwoo's flowing semen.</p>
+<p>Soa sticks out her tongue and starts licking up Shiwoo's flowing semen.</p>
 
 <p>,Hau-euu-euuu... ha-euu-euuu..."</p>
 
@@ -214,12 +214,12 @@ chapter = 373
 
 <p>-Click click click!-</p>
 
-<p>Shiwoo is taking pictures of Sua sucking Seonju Imo-nim's pussy with his smartphone camera.</p>
+<p>Shiwoo is taking pictures of Soa sucking Seonju Imo-nim's pussy with his smartphone camera.</p>
 
-<p>Shiwoo changed the angle here and there to take pictures so that Seonju Imo-nim and Sua's facial expressions were well captured on the screen.</p>
+<p>Shiwoo changed the angle here and there to take pictures so that Seonju Imo-nim and Soa's facial expressions were well captured on the screen.</p>
 
 <p>Shiwoo sends the picture he just took to Mom as is.</p>
 
-<p>A picture of Seonju Imo-nim being given cunnilingus by her daughter, Sua, is uploaded to the chat room between Shiwoo and Mom.</p>
+<p>A picture of Seonju Imo-nim being given cunnilingus by her daughter, Soa, is uploaded to the chat room between Shiwoo and Mom.</p>
 
 <p>Mom still didn't answer Shiwoo even after checking the picture.</p>

@@ -1,22 +1,22 @@
 +++
-title = "Chapter 338: [Incest] Creating a Close Family 338 (Se-young, Su-a)"
+title = "Chapter 338: [Incest] Creating a Close Family 338 (Se-young, Soa)"
 weight = 338
 [extra]
 chapter = 338
 +++
 <p>Shiwoo received a wet wipe from Seyoung.</p>
 
-<p>Shiwoo used the received wet wipe to wipe away the liquid flowing down Sua's crotch and thighs.</p>
+<p>Shiwoo used the received wet wipe to wipe away the liquid flowing down Soa's crotch and thighs.</p>
 
-<p>Shiwoo carefully pulled up Sua's panties that had been pulled down.</p>
+<p>Shiwoo carefully pulled up Soa's panties that had been pulled down.</p>
 
 <p>And he cleaned up the mess that had fallen on the chair and the floor.</p>
 
-<p>This time, Shiwoo properly sat Sua on his lap and wrapped his arms around her body.</p>
+<p>This time, Shiwoo properly sat Soa on his lap and wrapped his arms around her body.</p>
 
-<p>His erect penis, stuck in the waistline of his pants, touched Sua's back as if it were being crushed.</p>
+<p>His erect penis, stuck in the waistline of his pants, touched Soa's back as if it were being crushed.</p>
 
-<p>Sua leaned her body against Shiwoo's cock without any resistance or surprise, as if that state was natural now.</p>
+<p>Soa leaned her body against Shiwoo's cock without any resistance or surprise, as if that state was natural now.</p>
 
 <p>Seyoung, sitting across from them, was staring blankly into space with dazed eyes, as if she had barely regained her senses.</p>
 
@@ -26,9 +26,9 @@ chapter = 338
 
 <p>Seeing that, a desire to humiliate Seyoung seemed to surge in Shiwoo's chest.</p>
 
-<p>The penis touching Sua's back pushed Sua's upper body forward, expanding even more.</p>
+<p>The penis touching Soa's back pushed Soa's upper body forward, expanding even more.</p>
 
-<p>Sua leaned back, correcting her posture as if resisting Shiwoo's penis pushing against her back.</p>
+<p>Soa leaned back, correcting her posture as if resisting Shiwoo's penis pushing against her back.</p>
 
 <p>Shiwoo and his younger sisters rested, confirming each other's lust until they returned to their initial destination.</p>
 
@@ -36,7 +36,7 @@ chapter = 338
 
 <p>The contraption arrived at the starting point before they knew it.</p>
 
-<p>Shiwoo let Sua and Seyoung get off first, covered his crotch with his bag, and then got off the contraption.</p>
+<p>Shiwoo let Soa and Seyoung get off first, covered his crotch with his bag, and then got off the contraption.</p>
 
 <p>Seyoung's legs were still trembling, as if she hadn't completely escaped the afterglow of pleasure...</p>
 
@@ -50,11 +50,11 @@ chapter = 338
 
 <p>The people around them probably thought Seyoung was afraid of heights.</p>
 
-<p>Sua, who was standing next to her, was also staggering as she walked.</p>
+<p>Soa, who was standing next to her, was also staggering as she walked.</p>
 
 <p>Was it because it was her first time with a man, and she had forcefully accepted Shiwoo's large cock?</p>
 
-<p>Shiwoo grabbed Sua's arm and pulled her towards him, letting her lean on him.</p>
+<p>Shiwoo grabbed Soa's arm and pulled her towards him, letting her lean on him.</p>
 
 <p>The sisters each linked arms with Shiwoo on either side.</p>
 
@@ -66,7 +66,7 @@ chapter = 338
 
 <p>Shiwoo and his younger sisters headed to the pet shop in the basement of the department store.</p>
 
-<p>The original reason for coming to the department store was to buy supplies for the puppy that Seyoung had adopted from Sua's house.</p>
+<p>The original reason for coming to the department store was to buy supplies for the puppy that Seyoung had adopted from Soa's house.</p>
 
 <p>Shiwoo and his younger sisters were planning to buy pet supplies and then visit the outdoor amusement park and the underground aquarium.</p>
 
@@ -78,11 +78,11 @@ chapter = 338
 
 <p>While going to the pet shop, Shiwoo sent the video he received from Seyoung to the group chat with Mom, Seonju Imo-nim, and Sehee noona.</p>
 
-<p>A video of Seyoung licking Sua's genitals in the hamburger restaurant bathroom.</p>
+<p>A video of Seyoung licking Soa's genitals in the hamburger restaurant bathroom.</p>
 
-<p>And a video of Shiwoo and Sua having their first time inside the basket-shaped contraption.</p>
+<p>And a video of Shiwoo and Soa having their first time inside the basket-shaped contraption.</p>
 
-<p>Finally, a video of Seyoung giving Shiwoo and Sua oral sex under Sua's skirt.</p>
+<p>Finally, a video of Seyoung giving Shiwoo and Soa oral sex under Soa's skirt.</p>
 
 <p>All the videos Seyoung sent were uploaded to the chat room where Mom, Seonju Imo, and Sehee noona were gathered.</p>
 
@@ -90,7 +90,7 @@ chapter = 338
 
 <p>Mom, Sehee noona, and Seonju Imo all checked the video Shiwoo sent right away.</p>
 
-<p>'So, you already did it with Sua? Even ejaculated inside? Congratulations Master! Please take good care of our Sua in the future too! Please come visit me at my house often too! Hehe'</p>
+<p>'So, you already did it with Soa? Even ejaculated inside? Congratulations Master! Please take good care of our Soa in the future too! Please come visit me at my house often too! Hehe'</p>
 
 <p>Seonju Imo sent a congratulatory message with a playful tone.</p>
 
@@ -98,9 +98,9 @@ chapter = 338
 
 <p>Or were they still busy doing something?</p>
 
-<p>In any case, Shiwoo announced the fact that he had his first sexual relationship with Sua to his sex slaves as if he were making a public announcement.</p>
+<p>In any case, Shiwoo announced the fact that he had his first sexual relationship with Soa to his sex slaves as if he were making a public announcement.</p>
 
-<p>The fact that he ejaculated inside Sua's vagina, and the fact that he ejaculated on Seyoung's face and in her mouth, were all captured in the video.</p>
+<p>The fact that he ejaculated inside Soa's vagina, and the fact that he ejaculated on Seyoung's face and in her mouth, were all captured in the video.</p>
 
 <p>Mom, who had strictly forbidden Shiwoo from ejaculating inside even if he had sexual relations with other family members, how would she react after watching all the videos Shiwoo sent?</p>
 
@@ -116,7 +116,7 @@ chapter = 338
 
 <p>Puppies were visible through the display window next to the entrance.</p>
 
-<p>Seyoung and Sua, who had recovered their energy while walking, ran forward and looked at the puppies.</p>
+<p>Seyoung and Soa, who had recovered their energy while walking, ran forward and looked at the puppies.</p>
 
 <p>The innocent expressions on their faces were nowhere to be seen, the expressions they had when they were putting Shiwoo's thing in their vagina holes or throats and making moaning sounds as if they were about to faint...</p>
 
@@ -182,21 +182,21 @@ chapter = 338
 
 <p>Shiwoo took out the orange collar hanging on the hook on the display shelf, along with the orange leather leash that was a set with the collar Seyoung had chosen, and put it in the basket.</p>
 
-<p>"Sua, should we match it with the color of the clothes you're wearing now?</p>
+<p>"Soa, should we match it with the color of the clothes you're wearing now?</p>
 
-<p>This time, Shiwoo turned to look at Sua and asked.</p>
+<p>This time, Shiwoo turned to look at Soa and asked.</p>
 
 <p>"Yeah..."</p>
 
-<p>Sua didn't make eye contact with Shiwoo and answered shyly.</p>
+<p>Soa didn't make eye contact with Shiwoo and answered shyly.</p>
 
 <p>"Do you want to get one with studs like Seyoung?"</p>
 
-<p>Shiwoo said, picking up a collar of the same model as the one Seyoung had chosen and offering it to Sua.</p>
+<p>Shiwoo said, picking up a collar of the same model as the one Seyoung had chosen and offering it to Soa.</p>
 
 <p>"Yeah... I like it..."</p>
 
-<p>Sua glanced at the dog collar Shiwoo had picked up and nodded in response.</p>
+<p>Soa glanced at the dog collar Shiwoo had picked up and nodded in response.</p>
 
 <p>Shiwoo put the reddish-brown dog collar he had picked up into the basket along with the leash.</p>
 
@@ -204,7 +204,7 @@ chapter = 338
 
 <p>Shiwoo said, looking around the display as if talking to himself.</p>
 
-<p>Sua's face turned red again when Mom's name came up.</p>
+<p>Soa's face turned red again when Mom's name came up.</p>
 
 <p>"We have to buy one for Sae-a too! She's our family! Hehe"</p>
 

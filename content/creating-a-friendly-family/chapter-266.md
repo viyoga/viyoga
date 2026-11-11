@@ -174,7 +174,7 @@ chapter = 266
 
 <p>Shiwoo continued masturbating, speaking as if foreshadowing to Mom that he would establish master-slave relationships with other family members as well.</p>
 
-<p>"Seonju's, and Sua's... Sehee's and Seyoung's... and even Sejin's..."</p>
+<p>"Seonju's, and Soa's... Sehee's and Seyoung's... and even Sejin's..."</p>
 
 <p>Shiwoo recited the names of the family members he intended to enslave, as if listing them.</p>
 

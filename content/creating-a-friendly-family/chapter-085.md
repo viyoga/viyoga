@@ -188,11 +188,11 @@ chapter = 85
 
 <p>However, his feelings towards Seonju Imo seemed a little different from those for Mom and Sehee Nuna.</p>
 
-<p>Seonju Imo had given birth to Sua without being married.</p>
+<p>Seonju Imo had given birth to Soa without being married.</p>
 
-<p>Even then, she had given birth to Sua without revealing who Sua's father was.</p>
+<p>Even then, she had given birth to Soa without revealing who Soa's father was.</p>
 
-<p>If Seonju Imo were to become pregnant with Shiwoo's child, she would keep the fact that Shiwoo was the father a secret, just as she did with Sua.</p>
+<p>If Seonju Imo were to become pregnant with Shiwoo's child, she would keep the fact that Shiwoo was the father a secret, just as she did with Soa.</p>
 
 <p>The fact that Seonju Imo was an unmarried mother made his feelings about pregnancy a little looser.</p>
 
@@ -230,7 +230,7 @@ chapter = 85
 
 <p>Shiwoo's playful words continued.</p>
 
-<p>"Then we can have one son and one daughter. Right? Sua would like having many younger siblings too"</p>
+<p>"Then we can have one son and one daughter. Right? Soa would like having many younger siblings too"</p>
 
 <p>Shiwoo, seemingly delighted, answered his own questions.</p>
 

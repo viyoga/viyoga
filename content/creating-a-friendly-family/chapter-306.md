@@ -4,7 +4,7 @@ weight = 306
 [extra]
 chapter = 306
 +++
-<p>,Haa... Yes...! Master-nim Please impregnate my daughter Sua and me today...,</p>
+<p>,Haa... Yes...! Master-nim Please impregnate my daughter Soa and me today...,</p>
 
 <p>Seonju Imo contorts her face vulgarly, answering with ragged breaths.</p>
 
@@ -16,7 +16,7 @@ chapter = 306
 
 <p>The words Seonju Imo spoke were being captured intact in the video Shiwoo was currently filming with his smartphone.</p>
 
-<p>And those mind-blowing sentences and voice must surely be audible to Sua and Seyoung beyond the gate.</p>
+<p>And those mind-blowing sentences and voice must surely be audible to Soa and Seyoung beyond the gate.</p>
 
 <p>Just now, Shiwoo had made the mother declare the pregnancy of mother and daughter.</p>
 
@@ -30,7 +30,7 @@ chapter = 306
 
 <p>The video he just uploaded, as well as the video he uploaded to the group chat before coming out of the bathroom, didn't seem to have been checked yet by Mom and Sehee Nuna.</p>
 
-<p>Shiwoo switches the smartphone screen to the home screen and launches the app that will activate the vibrator worn on Sua's body.</p>
+<p>Shiwoo switches the smartphone screen to the home screen and launches the app that will activate the vibrator worn on Soa's body.</p>
 
 <p>The indication that the device is powered on was expressed as a green lit image on the upper right of the vibrator operation app's main screen.</p>
 
@@ -44,13 +44,13 @@ chapter = 306
 
 <p>As if startled by the sudden vibration sound, Seonju Imo flinched greatly once, in a prone position with her back turned.</p>
 
-<p>Probably that vibration ringing in the smartphone was also ringing loudly in the vibrator Sua was wearing.</p>
+<p>Probably that vibration ringing in the smartphone was also ringing loudly in the vibrator Soa was wearing.</p>
 
 <p>Shiwoo had raised the vibration intensity to the maximum from the beginning.</p>
 
 <p>With it turned on like that, Shiwoo presses the hold button to manipulate it so that the vibration continues to be maintained.</p>
 
-<p>While having intense sexual intercourse with Seonju Imo on the grass lawn, Seonju Imo's daughter, Sua, was also able to share the extreme sexual pleasure provided by Shiwoo outside the gate.</p>
+<p>While having intense sexual intercourse with Seonju Imo on the grass lawn, Seonju Imo's daughter, Soa, was also able to share the extreme sexual pleasure provided by Shiwoo outside the gate.</p>
 
 <p>Shiwoo puts the smartphone down on the grass lawn floor and grabs Seonju Imo's buttocks with both hands.</p>
 

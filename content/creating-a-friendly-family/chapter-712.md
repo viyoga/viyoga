@@ -1,5 +1,5 @@
 +++
-title = "Chapter 712: [Incest] Making a Friendly Family 712 (Mom, Sun-ju, Se-hee, Se-young, Su-ah) (Kitchen)"
+title = "Chapter 712: [Incest] Making a Friendly Family 712 (Mom, Sun-ju, Se-hee, Se-young, Soa) (Kitchen)"
 weight = 712
 [extra]
 chapter = 712
@@ -54,23 +54,23 @@ chapter = 712
 
 <p>Mom answered Shiwoo's questions as if struggling to hide her awkwardness. She tried to maintain a natural voice, but the ends of her words, which she couldn't ultimately suppress, trembled slightly. That small tremor lingered in Shiwoo's ears, seeming to carve itself even more vividly into his brain.</p>
 
-<p>"How about Seonju-imo and Sua? Are your bodies okay? Did you wash up in the morning?"</p>
+<p>"How about Seonju-imo and Soa? Are your bodies okay? Did you wash up in the morning?"</p>
 
-<p>Shiwoo asked, looking at Seonju-imo and Sua as he picked up a sausage with his chopsticks.</p>
+<p>Shiwoo asked, looking at Seonju-imo and Soa as he picked up a sausage with his chopsticks.</p>
 
-<p>"Yeah I fell asleep just like that, so as soon as I woke up, I washed with Sua"</p>
+<p>"Yeah I fell asleep just like that, so as soon as I woke up, I washed with Soa"</p>
 
 <p>Unlike Mom, Seonju-imo answered Shiwoo while mentioning yesterday's events as if they were no big deal.</p>
 
 <p>"Did I make you do something too difficult yesterday? How did you handle the leftover sushi?"</p>
 
-<p>Shiwoo asked, seemingly curious about how they had washed out the sushi he had shoved deep inside Seonju-imo and Sua's vaginal openings.</p>
+<p>Shiwoo asked, seemingly curious about how they had washed out the sushi he had shoved deep inside Seonju-imo and Soa's vaginal openings.</p>
 
 <p>"There were plenty of cleaners in the shower room. Didn't you buy that many just to do that to us?"</p>
 
 <p>Seonju-imo shrugged her shoulders seductively and answered with a playful smile.</p>
 
-<p>"I bought them for various reasons, but if Seonju-imo and Sua used them like that, it was a good purchase"</p>
+<p>"I bought them for various reasons, but if Seonju-imo and Soa used them like that, it was a good purchase"</p>
 
 <p>Shiwoo responded with a smirk, playing along with Seonju-imo's playful words. It felt as though everyone except Mom didn't place much meaning on or consciously care about the rule of returning to a normal family in the morning. They were merely maintaining a formal attitude, reverting their titles and speech patterns to match Mom's mood or avoiding direct mentions.</p>
 

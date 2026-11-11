@@ -24,9 +24,9 @@ chapter = 105
 
 <p>Moreover, they had almost forcibly come to share Shiwoo's unspeakable secrets.</p>
 
-<p>Seonju Imo and Sua were, needless to say, already there.</p>
+<p>Seonju Imo and Soa were, needless to say, already there.</p>
 
-<p>Shiwoo believed that he could call out Seonju Imo or Sua and demand sex whenever he pleased.</p>
+<p>Shiwoo believed that he could call out Seonju Imo or Soa and demand sex whenever he pleased.</p>
 
 <p>-Perhaps even with Sejin Nuna...-</p>
 
@@ -214,7 +214,7 @@ chapter = 105
 
 <p>Mom spoke to Shiwoo as if slightly complaining and giving up.</p>
 
-<p>"Today, on the way home with Sehee Nuna, I met Seyoung and Sua."</p>
+<p>"Today, on the way home with Sehee Nuna, I met Seyoung and Soa."</p>
 
 <p>Shiwoo suddenly brought up Seyoung.</p>
 

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 670: [Incest] Making a Friendly Family 670 (Se-young, Aunt Sun-ju, Su-ah) (Entrance)"
+title = "Chapter 670: [Incest] Making a Friendly Family 670 (Se-young, Aunt Sun-ju, Soa) (Entrance)"
 weight = 670
 [extra]
 chapter = 670
@@ -28,13 +28,13 @@ chapter = 670
 
 <p>Seonju Imo replied with a tender smile of her own to match Seyoung's.</p>
 
-<p>"But why didn't you wear the headband? I told you to wear it all day. Didn't you hear from Sua?"</p>
+<p>"But why didn't you wear the headband? I told you to wear it all day. Didn't you hear from Soa?"</p>
 
 <p>Seyoung asked Seonju Imo in a slightly overbearing tone, still smiling. Seonju Imo glanced toward Shiwoo as if troubled.</p>
 
 <p>"Well... I heard... but Shiwoo told me to come as an Imo today..."</p>
 
-<p>"And... it's a bit much to walk around outside like that... maybe if I were Seyoung or Sua's age..."</p>
+<p>"And... it's a bit much to walk around outside like that... maybe if I were Seyoung or Soa's age..."</p>
 
 <p>She laughed embarrassedly as if to appease Seyoung, cautiously fiddling with the strap of her bag.</p>
 
@@ -68,7 +68,7 @@ chapter = 670
 
 <p>It had been a long time before his father passed away that he wrote the will included in the file. At that time, the person who met the conditions for the heir in the will his father wrote was almost certainly Seyoung. And the time Seyoung signed the confirmation to waive her inheritance was shortly after their father passed away. In other words, the time the will was written and the time Seyoung gave up the inheritance were years apart.</p>
 
-<p>If so, during that interval, Seonju Imo might have served Seyoung like a true ' Master .' No, perhaps even until this very moment, Seonju Imo was maintaining the same courtesy and conduct toward that former temporary master... Once his thoughts reached that point, Shiwoo felt like he finally understood the inside story of the strange and dissonant attitudes Seonju Imo , Seyoung, and Sua had shown him.</p>
+<p>If so, during that interval, Seonju Imo might have served Seyoung like a true ' Master .' No, perhaps even until this very moment, Seonju Imo was maintaining the same courtesy and conduct toward that former temporary master... Once his thoughts reached that point, Shiwoo felt like he finally understood the inside story of the strange and dissonant attitudes Seonju Imo , Seyoung, and Soa had shown him.</p>
 
 <p>The anxiety and stickiness that had filled his head slowly vanished, replaced by a warm sense of relief seeping into a corner of his heart. Their conversations and actions began to feel like a game of house between adults and children, and now they just looked cute.</p>
 
@@ -106,6 +106,6 @@ chapter = 670
 
 <p>"She told me to keep them just in case, but I wasn't planning on using them since I don't need them..."</p>
 
-<p>"...But... 'Sua' is getting close to her 'danger days'..."</p>
+<p>"...But... 'Soa' is getting close to her 'danger days'..."</p>
 
-<p>Seonju Imo avoided Shiwoo's gaze for a moment as she mentioned Sua's name, then muttered softly. Hearing that his mother had handed Seonju Imo condoms before she returned home, and that Sua's 'danger days' were approaching, Shiwoo felt a slightly erotic sensation spread through his chest.</p>
+<p>Seonju Imo avoided Shiwoo's gaze for a moment as she mentioned Soa's name, then muttered softly. Hearing that his mother had handed Seonju Imo condoms before she returned home, and that Soa's 'danger days' were approaching, Shiwoo felt a slightly erotic sensation spread through his chest.</p>

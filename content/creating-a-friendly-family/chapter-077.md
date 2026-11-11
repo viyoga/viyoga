@@ -62,11 +62,11 @@ chapter = 77
 
 <p>,Ah really? Then shall we go eat together with Oppa next time? Oppa will buy you anything you want to eat, Seyoung-ah!!,</p>
 
-<p>,Yes!! Sua too! I think they also tell fortunes with tarot cards at the cafe. Like love compatibility or future spouse,</p>
+<p>,Yes!! Soa too! I think they also tell fortunes with tarot cards at the cafe. Like love compatibility or future spouse,</p>
 
-<p>Seyoung, taking care of Sua next to her, was answering innocently...</p>
+<p>Seyoung, taking care of Soa next to her, was answering innocently...</p>
 
-<p>,Okay! Good! Sua too!!,</p>
+<p>,Okay! Good! Soa too!!,</p>
 
 <p>-I also have the card I received from Mom...-</p>
 
@@ -180,13 +180,13 @@ chapter = 77
 
 <p>Seulgi was roughly explaining her situation to Shiwoo and Cheoljin.</p>
 
-<p>Just as Shiwoo was about to react to the word 'auntie' and ask a question, Seyoung and Sua, who had been next to Shiwoo, suddenly ran forward.</p>
+<p>Just as Shiwoo was about to react to the word 'auntie' and ask a question, Seyoung and Soa, who had been next to Shiwoo, suddenly ran forward.</p>
 
 <p>,Seulgi Unnie we're here too!,</p>
 
-<p>Seyoung and Sua hugged Seulgi as if burrowing into her arms and greeted her happily.</p>
+<p>Seyoung and Soa hugged Seulgi as if burrowing into her arms and greeted her happily.</p>
 
-<p>Seulgi hugged Seyoung and Sua, who were hugging her, with both hands and patted their buttocks.</p>
+<p>Seulgi hugged Seyoung and Soa, who were hugging her, with both hands and patted their buttocks.</p>
 
 <p>,Our kittens are here?,</p>
 

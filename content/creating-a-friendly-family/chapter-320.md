@@ -1,12 +1,12 @@
 +++
-title = "Chapter 320: [Incest] Creating a Close Family 320 (Se-young, Su-a)"
+title = "Chapter 320: [Incest] Creating a Close Family 320 (Se-young, Soa)"
 weight = 320
 [extra]
 chapter = 320
 +++
-<p>Sua, as if understanding Shiwoo's words as a command, nods her head up and down with vacant, unfocused eyes and expression, without questioning or arguing.</p>
+<p>Soa, as if understanding Shiwoo's words as a command, nods her head up and down with vacant, unfocused eyes and expression, without questioning or arguing.</p>
 
-<p>Up ahead, Seyoung turns back to look at Shiwoo and Sua, who are whispering, and wears a pleased, enigmatic smile.</p>
+<p>Up ahead, Seyoung turns back to look at Shiwoo and Soa, who are whispering, and wears a pleased, enigmatic smile.</p>
 
 <p>-A relaxed, overflowing smile, as if she had known from the beginning that it would turn out this way-</p>
 
@@ -22,7 +22,7 @@ chapter = 320
 
 <p>Now, Shiwoo and his younger sisters walk along the passage leading to the department store, maintaining some distance from each other.</p>
 
-<p>Shiwoo watches the backs of Sua and Seyoung as they walk ahead.</p>
+<p>Shiwoo watches the backs of Soa and Seyoung as they walk ahead.</p>
 
 <p>His younger sisters, as if having returned to reality, are now acting with a natural, unconcerned air.</p>
 
@@ -40,21 +40,21 @@ chapter = 320
 
 <p>Looking around inside the convenience store, Shiwoo spotted an ice cream freezer.</p>
 
-<p>Shiwoo recalled what Sua had done in his changing room last time with Seyoung's puppy, which they had brought from Sua's house.</p>
+<p>Shiwoo recalled what Soa had done in his changing room last time with Seyoung's puppy, which they had brought from Soa's house.</p>
 
-<p>The puppy Seyoung had brought was frantically licking Sua's clitoris, which had ice cream smeared on it.</p>
+<p>The puppy Seyoung had brought was frantically licking Soa's clitoris, which had ice cream smeared on it.</p>
 
-<p>Thinking about it now, it seemed certain that Seyoung was either involved in or aware of what Sua was doing at that time.</p>
+<p>Thinking about it now, it seemed certain that Seyoung was either involved in or aware of what Soa was doing at that time.</p>
 
-<p>In Shiwoo's mind, the image of Seyoung licking Sua's pussy flashed like a delusion.</p>
+<p>In Shiwoo's mind, the image of Seyoung licking Soa's pussy flashed like a delusion.</p>
 
 <p>His younger sisters, completely naked in the changing room, wearing only dog collars.</p>
 
-<p>Between Sua's spread legs, ice cream was smeared.</p>
+<p>Between Soa's spread legs, ice cream was smeared.</p>
 
 <p>Shiwoo's semen, flowing from between her legs, was mixed with the ice cream on her pussy flesh, creating a messy sight.</p>
 
-<p>Seyoung, kneeling with her buttocks raised, brought her mouth to Sua's crotch.</p>
+<p>Seyoung, kneeling with her buttocks raised, brought her mouth to Soa's crotch.</p>
 
 <p>Shiwoo grabbed Seyoung's buttocks with both hands and shoved his massive penis into the secret crevice in front.</p>
 
@@ -74,21 +74,21 @@ chapter = 320
 
 <p>Seyoung asks, as if reacting familiarly to Shiwoo's soliloquy.</p>
 
-<p>"No I was just thinking about the puppy at home because it licked up the ice cream Sua gave it so well last time"</p>
+<p>"No I was just thinking about the puppy at home because it licked up the ice cream Soa gave it so well last time"</p>
 
 <p>Shiwoo answers as if provoking his younger sisters, reminding them of what happened last time.</p>
 
-<p>"Ah You mean Sae-a? That kid licks up anything Sua gives her so well! Hehe!"</p>
+<p>"Ah You mean Sae-a? That kid licks up anything Soa gives her so well! Hehe!"</p>
 
 <p>Is Seyoung understanding what Shiwoo is saying and responding?</p>
 
 <p>Seyoung speaks as if responding to Shiwoo's words, without any sign of agitation or shame.</p>
 
-<p>"Seyoung, have you ever given Sae-a food like Sua did?"</p>
+<p>"Seyoung, have you ever given Sae-a food like Soa did?"</p>
 
 <p>Shiwoo asks Seyoung, testing her, just in case.</p>
 
-<p>The question was whether she had ever smeared ice cream on her crotch and let the dog lick it, just like Sua had done.</p>
+<p>The question was whether she had ever smeared ice cream on her crotch and let the dog lick it, just like Soa had done.</p>
 
 <p>"No, I haven't tried that yet"</p>
 
@@ -120,9 +120,9 @@ chapter = 320
 
 <p>Shiwoo paid for the items at the convenience store counter with his card.</p>
 
-<p>After putting the charging adapter separately in his bag, Shiwoo turned to Sua with a pleased expression and handed her the purchased items.</p>
+<p>After putting the charging adapter separately in his bag, Shiwoo turned to Soa with a pleased expression and handed her the purchased items.</p>
 
-<p>Sua, her face flushed red, received the wet wipes and waterproof bandages.</p>
+<p>Soa, her face flushed red, received the wet wipes and waterproof bandages.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -132,7 +132,7 @@ chapter = 320
 
 <p>On the way to the restroom, Shiwoo looked at his smartphone and spoke as if to himself.</p>
 
-<p>Seyoung and Sua looked at Shiwoo with puzzled expressions at the mention of</p>
+<p>Seyoung and Soa looked at Shiwoo with puzzled expressions at the mention of</p>
 
 <p>"puppies."</p>
 
@@ -152,7 +152,7 @@ chapter = 320
 
 <p>Shiwoo answered as if deliberately emphasizing his position and showing off in front of his younger sisters.</p>
 
-<p>A different kind of depraved pleasure, unlike when he casually called Seonju Imo-nim's name in front of Sua, coursed down Shiwoo's spine.</p>
+<p>A different kind of depraved pleasure, unlike when he casually called Seonju Imo-nim's name in front of Soa, coursed down Shiwoo's spine.</p>
 
 <p>Shiwoo manipulated his smartphone screen as if concentrating.</p>
 
@@ -182,7 +182,7 @@ chapter = 320
 
 <p>Shiwoo's penis was throbbing wildly inside his clothes as if going mad.</p>
 
-<p>Shiwoo uploaded the photo of Sua's panties he had taken earlier on the train to the chat group with Mom, Seonju Imo-nim, and Sehee noona.</p>
+<p>Shiwoo uploaded the photo of Soa's panties he had taken earlier on the train to the chat group with Mom, Seonju Imo-nim, and Sehee noona.</p>
 
 <p>The photo was uploaded to the chat as if to confirm the progress with his younger sisters.</p>
 

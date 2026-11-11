@@ -1,5 +1,5 @@
 +++
-title = "Chapter 345: [Incest] Creating a Close Family 345 (Se-young, Su-a)"
+title = "Chapter 345: [Incest] Creating a Close Family 345 (Se-young, Soa)"
 weight = 345
 [extra]
 chapter = 345
@@ -84,13 +84,13 @@ chapter = 345
 
 <p>Seyoung responded to Shiwoo, looking at the photo as if she was happily excited.</p>
 
-<p>Sua also looked at the smartphone Shiwoo held out with curious eyes.</p>
+<p>Soa also looked at the smartphone Shiwoo held out with curious eyes.</p>
 
 <p>"It looks like it'll take about twenty minutes to get home! I wonder if it'll be similar to the basket-shaped contraption on the department store ceiling?"</p>
 
 <p>Shiwoo, just like Seyoung had done earlier, was explaining by connecting it to the department store's viewing contraption so that his sisters could anticipate the lewd acts that would take place inside the vehicle.</p>
 
-<p>Shiwoo input Sua's house as the destination and hailed the nine-seater van towards the main entrance of the department store.</p>
+<p>Shiwoo input Soa's house as the destination and hailed the nine-seater van towards the main entrance of the department store.</p>
 
 <p>Shiwoo selected the payment method to be a card payment as soon as he got in.</p>
 
@@ -136,13 +136,13 @@ chapter = 345
 
 <p>Shiwoo remembered the size he had learned when he bought Mom's sexy underwear last time.</p>
 
-<p>"Sua-ya, Seyoung-ah, can you come here for a moment?"</p>
+<p>"Soa-ya, Seyoung-ah, can you come here for a moment?"</p>
 
-<p>Shiwoo, picking up a red swimsuit that seemed to go well with Mom's dog collar, called out to Sua and Seyoung.</p>
+<p>Shiwoo, picking up a red swimsuit that seemed to go well with Mom's dog collar, called out to Soa and Seyoung.</p>
 
 <p>"Huh? Why?"</p>
 
-<p>Sua and Seyoung, who had been looking around inside the store, ran to Shiwoo like puppies as soon as they heard him calling them.</p>
+<p>Soa and Seyoung, who had been looking around inside the store, ran to Shiwoo like puppies as soon as they heard him calling them.</p>
 
 <p>"What do you think of this?"</p>
 
@@ -160,7 +160,7 @@ chapter = 345
 
 <p>-Click! Click! Click!-</p>
 
-<p>Shiwoo took photos of the red swimsuit to give as a gift to Mom, using the figures of Seyoung and Sua, who were standing with their necklaces and leashes hidden inside their clothes, as the background.</p>
+<p>Shiwoo took photos of the red swimsuit to give as a gift to Mom, using the figures of Seyoung and Soa, who were standing with their necklaces and leashes hidden inside their clothes, as the background.</p>
 
 <p>Shiwoo immediately sent the swimsuit photos he had taken with his sisters to Mom via text message.</p>
 
@@ -194,7 +194,7 @@ chapter = 345
 
 <p>Seyoung was acting in the most appropriate way in this situation, as if she knew what Shiwoo wanted.</p>
 
-<p>Sua also naturally followed Seyoung and sat in the back seat of the nine-seater vehicle.</p>
+<p>Soa also naturally followed Seyoung and sat in the back seat of the nine-seater vehicle.</p>
 
 <p>At first, the driver ahjussi looked at Shiwoo and his sisters, who had reserved a large nine-seater call van without a guardian, with a slightly puzzled expression.</p>
 

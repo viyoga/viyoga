@@ -102,7 +102,7 @@ chapter = 526
 
 <p>The family members' moaning sounds, which had continued from morning till night, were echoing in sequence inside the smartphone.</p>
 
-<p>Mom, Sehee Nuna, Seyoung, and Seonju Imo, and Sua.</p>
+<p>Mom, Sehee Nuna, Seyoung, and Seonju Imo, and Soa.</p>
 
 <p>Moreover, even Sehee Nuna's friends, Sinbi Nuna and Sora Nuna...</p>
 

@@ -1,16 +1,16 @@
 +++
-title = "Chapter 347: [Incest] Creating a Close Family 347 (Se-young, Su-a [Explicit])"
+title = "Chapter 347: [Incest] Creating a Close Family 347 (Se-young, Soa [Explicit])"
 weight = 347
 [extra]
 chapter = 347
 +++
-<p>Sua and Seyoung maintained their uncomfortable posture, moving their bodies as if reacting to Shiwoo's touch.</p>
+<p>Soa and Seyoung maintained their uncomfortable posture, moving their bodies as if reacting to Shiwoo's touch.</p>
 
-<p>Shiwoo raised his hands directly and placed them on Sua and Seyoung's crotches.</p>
+<p>Shiwoo raised his hands directly and placed them on Soa and Seyoung's crotches.</p>
 
 <p>Shiwoo was continuously rubbing their delicate flower petals with his fingers.</p>
 
-<p>Then, he pushed his hand further forward and touched Seyoung and Sua's clitorises with the tip of his middle finger.</p>
+<p>Then, he pushed his hand further forward and touched Seyoung and Soa's clitorises with the tip of his middle finger.</p>
 
 <p>His sisters' sensitive clitoral flesh was rubbed by Shiwoo's fingers, accompanied by a jjigeok jjigeok jjigeok sound.</p>
 
@@ -28,7 +28,7 @@ chapter = 347
 
 <p>Seyoung was the first to reach out and grasp the base of Shiwoo's shaft.</p>
 
-<p>Seeing Seyoung's hand wrapped around the base, Sua then also cupped the upper part of Shiwoo's shaft with her palm.</p>
+<p>Seeing Seyoung's hand wrapped around the base, Soa then also cupped the upper part of Shiwoo's shaft with her palm.</p>
 
 <p>Shiwoo moved his pelvis up and down, rubbing his wet penis within his sisters' hands.</p>
 
@@ -42,21 +42,21 @@ chapter = 347
 
 <p>-Swoosh!</p>
 
-<p>Shiwoo tried pushing his finger into Sua's vagina hole.</p>
+<p>Shiwoo tried pushing his finger into Soa's vagina hole.</p>
 
 <p>Perhaps because she had accepted her cousin oppa's massive penis, Shiwoo's middle finger slid in easily.</p>
 
 <p>"Haaaeuuup!"</p>
 
-<p>A suppressed gasp escaped Sua's lips.</p>
+<p>A suppressed gasp escaped Soa's lips.</p>
 
 <p>-Jjigeok jjigeok jjigeok!</p>
 
-<p>As he bent his middle finger and rubbed against Sua's slippery vaginal walls, a sound of air escaping with pressure was created within the vacuum-like hole.</p>
+<p>As he bent his middle finger and rubbed against Soa's slippery vaginal walls, a sound of air escaping with pressure was created within the vacuum-like hole.</p>
 
-<p>Sua, sitting awkwardly with her face and mouth buried in the backrest of the front seat, was holding Shiwoo's penis.</p>
+<p>Soa, sitting awkwardly with her face and mouth buried in the backrest of the front seat, was holding Shiwoo's penis.</p>
 
-<p>Sua's hand, gripping Shiwoo's penis, tightened as if squeezing it.</p>
+<p>Soa's hand, gripping Shiwoo's penis, tightened as if squeezing it.</p>
 
 <p>A pleasure and pain, as if his penis shaft was being wrung, spread through Shiwoo's body.</p>
 
@@ -86,47 +86,47 @@ chapter = 347
 
 <p>Seyoung's breath, as if in relief, was exhaled in a long sigh.</p>
 
-<p>From both Seyoung's pussy and Sua's pussy, copious amounts of fluid flowed out, wetting Shiwoo's hands.</p>
+<p>From both Seyoung's pussy and Soa's pussy, copious amounts of fluid flowed out, wetting Shiwoo's hands.</p>
 
 <p>Shiwoo withdrew his hands from his sisters' moist crotches.</p>
 
 <p>Shiwoo moved both of his hands, wet with vaginal fluid, towards each of their faces.</p>
 
-<p>Sua, with one hand covering her mouth, had her face buried in the backrest of the front seat.</p>
+<p>Soa, with one hand covering her mouth, had her face buried in the backrest of the front seat.</p>
 
-<p>Shiwoo smeared Sua's own vaginal fluid onto her face.</p>
+<p>Shiwoo smeared Soa's own vaginal fluid onto her face.</p>
 
-<p>Shiwoo wedged his hand sideways, as if forcing it, into Sua's hand that was covering her mouth.</p>
+<p>Shiwoo wedged his hand sideways, as if forcing it, into Soa's hand that was covering her mouth.</p>
 
-<p>Shiwoo rubbed her lips from side to side with the middle finger that had been inside Sua's vagina hole.</p>
+<p>Shiwoo rubbed her lips from side to side with the middle finger that had been inside Soa's vagina hole.</p>
 
-<p>Sua's vaginal fluid, thickly smeared on his finger, transferred to her lips.</p>
+<p>Soa's vaginal fluid, thickly smeared on his finger, transferred to her lips.</p>
 
-<p>Sua seemed to feel an instinctive repulsion to the fluid from her lower hole entering another hole above her neck, and she resisted, clenching her lips tightly.</p>
+<p>Soa seemed to feel an instinctive repulsion to the fluid from her lower hole entering another hole above her neck, and she resisted, clenching her lips tightly.</p>
 
 <p>But soon, as if giving up resistance to Shiwoo's finger movements, she parted her lips.</p>
 
-<p>Shiwoo's finger persistently burrowed between Sua's upper and lower lips.</p>
+<p>Shiwoo's finger persistently burrowed between Soa's upper and lower lips.</p>
 
 <p>Shiwoo explored her oral cavity with his finger, as if delving into it.</p>
 
 <p>After feeling her still-delicate gums and tiny baby teeth with his finger, he carelessly prodded her soft, pliable tongue and even her uvula, which had received Shiwoo's cum, with his fingertip.</p>
 
-<p>Sua instinctively touched the dazzling foreign object that had penetrated her mouth with her tongue.</p>
+<p>Soa instinctively touched the dazzling foreign object that had penetrated her mouth with her tongue.</p>
 
 <p>"Ooohp Hwuaak!"</p>
 
-<p>When Shiwoo's finger touched her uvula, Sua tried to gag.</p>
+<p>When Shiwoo's finger touched her uvula, Soa tried to gag.</p>
 
-<p>Sua, seemingly conscious of the driver in the front seat, suppressed the sounds coming from her throat as much as possible, as if trying to avoid notice.</p>
+<p>Soa, seemingly conscious of the driver in the front seat, suppressed the sounds coming from her throat as much as possible, as if trying to avoid notice.</p>
 
-<p>Sua kept her eyes tightly shut and her head thrust forward, allowing Shiwoo's finger to ravage her mouth.</p>
+<p>Soa kept her eyes tightly shut and her head thrust forward, allowing Shiwoo's finger to ravage her mouth.</p>
 
 <p>This time, Shiwoo brought the finger that had been toying with Seyoung's crotch to her face.</p>
 
 <p>Seyoung seemed startled for a moment, but then she turned her gaze to the window outside, visible through a gap in the curtain, pretending not to understand Shiwoo's intention.</p>
 
-<p>With his right finger still thoroughly ravaging Sua's mouth, Shiwoo now used his left hand to rub against Seyoung's cheek, right near her lips.</p>
+<p>With his right finger still thoroughly ravaging Soa's mouth, Shiwoo now used his left hand to rub against Seyoung's cheek, right near her lips.</p>
 
 <p>Seyoung's vaginal fluid, thickly smeared on his finger, was spread over her plump cheek.</p>
 
@@ -134,7 +134,7 @@ chapter = 347
 
 <p>Soon, Shiwoo attempted to penetrate his sister's mouth with his left finger as well.</p>
 
-<p>Unlike Sua, Seyoung docilely accepted Shiwoo's finger into her mouth.</p>
+<p>Unlike Soa, Seyoung docilely accepted Shiwoo's finger into her mouth.</p>
 
 <p>Shiwoo seemed satisfied that he could ravage Seyoung's mouth without resistance.</p>
 
@@ -154,9 +154,9 @@ chapter = 347
 
 <p>Seyoung began to suck on her oppa's hand in her mouth, moving her hand up and down.</p>
 
-<p>Seyoung's hand moved upward, pushing against Sua's hand which was gripping the upper part of the shaft.</p>
+<p>Seyoung's hand moved upward, pushing against Soa's hand which was gripping the upper part of the shaft.</p>
 
-<p>At Seyoung's gesture, which seemed to be urging something, Sua was startled and moved the hand gripping the penis in unison.</p>
+<p>At Seyoung's gesture, which seemed to be urging something, Soa was startled and moved the hand gripping the penis in unison.</p>
 
 <p>His sisters' small, adorable hands began to move up and down, matching Shiwoo's waist movements.</p>
 
@@ -170,21 +170,21 @@ chapter = 347
 
 <p>Soon after, Shiwoo made his sisters release their hands that were gripping his penis.</p>
 
-<p>Shiwoo aimed his penis, which was soaring as if to pierce the air, towards Sua.</p>
+<p>Shiwoo aimed his penis, which was soaring as if to pierce the air, towards Soa.</p>
 
-<p>And he cupped Sua's awkwardly seated crotch with his hand, lifting it.</p>
+<p>And he cupped Soa's awkwardly seated crotch with his hand, lifting it.</p>
 
-<p>Shiwoo, keeping his buttocks on the seat, gradually shifted towards where Sua was sitting.</p>
+<p>Shiwoo, keeping his buttocks on the seat, gradually shifted towards where Soa was sitting.</p>
 
-<p>Shiwoo completely moved his body to Sua's previous spot, seating her on his knees and thighs in a supported posture.</p>
+<p>Shiwoo completely moved his body to Soa's previous spot, seating her on his knees and thighs in a supported posture.</p>
 
-<p>His firmly erect penis was pressed tightly between Sua's buttocks cleavage.</p>
+<p>His firmly erect penis was pressed tightly between Soa's buttocks cleavage.</p>
 
-<p>Shiwoo held Sua's waist with both hands and made her legs straighten slightly.</p>
+<p>Shiwoo held Soa's waist with both hands and made her legs straighten slightly.</p>
 
-<p>As her body leaned forward and her pelvis lifted, Shiwoo aligned his penis between Sua's parted hips.</p>
+<p>As her body leaned forward and her pelvis lifted, Shiwoo aligned his penis between Soa's parted hips.</p>
 
-<p>The tip of Shiwoo's penis hooked into Sua's parted crevice as if interlocking.</p>
+<p>The tip of Shiwoo's penis hooked into Soa's parted crevice as if interlocking.</p>
 
 <p>As he thrust his waist upward, the tip of Shiwoo's penis slid into her hole.</p>
 
@@ -192,8 +192,8 @@ chapter = 347
 
 <p>"Heeuuup!"</p>
 
-<p>Along with the wet friction sound of his penis sliding in and being inserted, Sua's suppressed moaning sound, with her mouth covered, could be heard.</p>
+<p>Along with the wet friction sound of his penis sliding in and being inserted, Soa's suppressed moaning sound, with her mouth covered, could be heard.</p>
 
-<p>Shiwoo firmly pushed his cock shaft into her body until it reached the end of Sua's vagina hole.</p>
+<p>Shiwoo firmly pushed his cock shaft into her body until it reached the end of Soa's vagina hole.</p>
 
-<p>Sua's wet vagina hole and vaginal wall mucous membranes were strongly pressed by Shiwoo's massive penis.</p>
+<p>Soa's wet vagina hole and vaginal wall mucous membranes were strongly pressed by Shiwoo's massive penis.</p>

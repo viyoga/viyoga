@@ -1,5 +1,5 @@
 +++
-title = "Chapter 327: [Incest] Creating a Close Family 327 (Mom, Se-young, Su-a)"
+title = "Chapter 327: [Incest] Creating a Close Family 327 (Mom, Se-young, Soa)"
 weight = 327
 [extra]
 chapter = 327
@@ -18,27 +18,27 @@ chapter = 327
 
 <p>Shiwoo's bag was tilted as if its balance had been disturbed.</p>
 
-<p>Shiwoo grabbed one side of the bag that Seyoung had let go of and tried to balance it again with Sua.</p>
+<p>Shiwoo grabbed one side of the bag that Seyoung had let go of and tried to balance it again with Soa.</p>
 
 <p>Shiwoo's bag swayed, rubbing against his penis.</p>
 
-<p>Shiwoo wrapped his arm over Sua's bare skin shoulder.</p>
+<p>Shiwoo wrapped his arm over Soa's bare skin shoulder.</p>
 
-<p>Sua's body pressed close against Shiwoo's as if she were being embraced.</p>
+<p>Soa's body pressed close against Shiwoo's as if she were being embraced.</p>
 
-<p>Sua's breasts and pelvis pressed against Shiwoo's body.</p>
+<p>Soa's breasts and pelvis pressed against Shiwoo's body.</p>
 
 <p>"I want to do it right now...sex..."</p>
 
-<p>Shiwoo muttered to himself as if to make Sua hear.</p>
+<p>Shiwoo muttered to himself as if to make Soa hear.</p>
 
-<p>Sua reacted as if startled by Shiwoo's blatant words, spoken as if directly addressing her for the first time, and her body stiffened.</p>
+<p>Soa reacted as if startled by Shiwoo's blatant words, spoken as if directly addressing her for the first time, and her body stiffened.</p>
 
 <p>"We can do exactly what we talked about with Seonju earlier, right? Because I'm just going to put it in... I might really... get you pregnant..."</p>
 
-<p>Shiwoo, his gaze fixed on Seyoung walking ahead, spoke to Sua in a low voice.</p>
+<p>Shiwoo, his gaze fixed on Seyoung walking ahead, spoke to Soa in a low voice.</p>
 
-<p>Shiwoo lowered the hand that had been resting on her shoulder towards Sua's breast.</p>
+<p>Shiwoo lowered the hand that had been resting on her shoulder towards Soa's breast.</p>
 
 <p>Then, as if forcing an answer from her who remained silent, he grabbed her breast over her clothes.</p>
 
@@ -46,13 +46,13 @@ chapter = 327
 
 <p>No matter how many people were passing by... whether they noticed his actions or not...</p>
 
-<p>Shiwoo intended to keep squeezing Sua's breast until she answered.</p>
+<p>Shiwoo intended to keep squeezing Soa's breast until she answered.</p>
 
 <p>"Hngh...uh...mm..."</p>
 
-<p>Along with Sua's regretful sigh, a tiny, almost crawling voice escaped her lips.</p>
+<p>Along with Soa's regretful sigh, a tiny, almost crawling voice escaped her lips.</p>
 
-<p>Shiwoo released the hand that had been clutching Sua's breast and placed it back on her shoulder.</p>
+<p>Shiwoo released the hand that had been clutching Soa's breast and placed it back on her shoulder.</p>
 
 <p>And Shiwoo brought his mouth to her ear.</p>
 
@@ -62,9 +62,9 @@ chapter = 327
 
 <p>Shiwoo thought he would be able to find a place somewhere inside the department store where he could leisurely spend a pleasant time with his younger sisters, just like he had with Sehee noona in the Ferris wheel last time.</p>
 
-<p>Sua quietly nodded at Shiwoo's words.</p>
+<p>Soa quietly nodded at Shiwoo's words.</p>
 
-<p>Shiwoo confirmed Sua's answer and entered the hamburger restaurant with his younger sisters.</p>
+<p>Shiwoo confirmed Soa's answer and entered the hamburger restaurant with his younger sisters.</p>
 
 <p>Before entering the store, Shiwoo casually looked around the department store ceiling.</p>
 
@@ -78,7 +78,7 @@ chapter = 327
 
 <p>Inside the store, a kiosk was installed, allowing customers to order without needing to speak directly with staff.</p>
 
-<p>After placing Sua's bag on an empty corner table to reserve their spot, Shiwoo and his younger sisters went to the kiosk.</p>
+<p>After placing Soa's bag on an empty corner table to reserve their spot, Shiwoo and his younger sisters went to the kiosk.</p>
 
 <p>After choosing their favorite set menus, Shiwoo paid with Mom's card.</p>
 
@@ -102,7 +102,7 @@ chapter = 327
 
 <p>Shiwoo casually checked the thumbnail of the video Mom sent, then forwarded the video to his younger sisters without even properly watching it.</p>
 
-<p>He uploaded the video Mom had just sent to the chat room where Seyoung and Sua were together.</p>
+<p>He uploaded the video Mom had just sent to the chat room where Seyoung and Soa were together.</p>
 
 <p>Soon, notification sounds rang from his younger sisters' smartphones.</p>
 
@@ -140,7 +140,7 @@ chapter = 327
 
 <p>Even while suffering and feeling regretful because her secrets were discovered by her youngest daughter, Shiwoo believed that Mom was enjoying it just as much as she was suffering and regretting.</p>
 
-<p>'I'm going to tell Sua and Seyoung to watch it in the bathroom in a bit too.'</p>
+<p>'I'm going to tell Soa and Seyoung to watch it in the bathroom in a bit too.'</p>
 
 <p>Shiwoo added, as if deliberately bringing to the surface the information Mom was trying to ignore.</p>
 
@@ -152,7 +152,7 @@ chapter = 327
 
 <p>Since it was a 1:1 chat window where they had promised to maintain their mother-son relationship, she could have done something—gotten angry, annoyed, or put on a serious face...</p>
 
-<p>Seeing her own video sent via text to Seyoung and Sua, Mom was giving Shiwoo short, curt answers, as if she had been intimidated.</p>
+<p>Seeing her own video sent via text to Seyoung and Soa, Mom was giving Shiwoo short, curt answers, as if she had been intimidated.</p>
 
 <p>Mom's reaction was reminiscent of the bench lying overturned in the corner of Seonju Imo-nim's yard, after realizing the power dynamic with Shiwoo.</p>
 
@@ -192,7 +192,7 @@ chapter = 327
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo returned to the spot they had reserved with Sua's bag and sat down with his younger sisters.</p>
+<p>Shiwoo returned to the spot they had reserved with Soa's bag and sat down with his younger sisters.</p>
 
 <p>In the corner seat, which bent like the Korean letter 'ㄱ' and extended like a sofa, Shiwoo sat with his back against the corner wall, facing the interior of the store.</p>
 
@@ -200,8 +200,8 @@ chapter = 327
 
 <p>"Time to charge, right?"</p>
 
-<p>As soon as he sat down, Shiwoo placed Sua's bag, which had been on the table, onto the chair against the wall closer to Sua, and spoke.</p>
+<p>As soon as he sat down, Shiwoo placed Soa's bag, which had been on the table, onto the chair against the wall closer to Soa, and spoke.</p>
 
-<p>Shiwoo began to slowly open Sua's bag zipper, looking around.</p>
+<p>Shiwoo began to slowly open Soa's bag zipper, looking around.</p>
 
-<p>The smell of his semen wafted from inside Sua's bag, as if he had marked his territory.</p>
+<p>The smell of his semen wafted from inside Soa's bag, as if he had marked his territory.</p>

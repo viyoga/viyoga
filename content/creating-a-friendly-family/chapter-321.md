@@ -1,5 +1,5 @@
 +++
-title = "Chapter 321: [Incest] Creating a Close Family 321 (Se-young, Su-a)"
+title = "Chapter 321: [Incest] Creating a Close Family 321 (Se-young, Soa)"
 weight = 321
 [extra]
 chapter = 321
@@ -14,27 +14,27 @@ chapter = 321
 
 <p>Only about 20 percent of the vibrator's battery remained.</p>
 
-<p>Though it wasn't much, it seemed to be enough to fluster Sua.</p>
+<p>Though it wasn't much, it seemed to be enough to fluster Soa.</p>
 
-<p>In front of and behind Sua, female academy students of Sehee Nuna's age were forming a line, engrossed in their smartphones.</p>
+<p>In front of and behind Soa, female academy students of Sehee Nuna's age were forming a line, engrossed in their smartphones.</p>
 
-<p>Shiwoo imagined Sua's flustered appearance among the people when he activated the vibrator without warning.</p>
+<p>Shiwoo imagined Soa's flustered appearance among the people when he activated the vibrator without warning.</p>
 
 <p>Shiwoo pressed the vibrator's activation button with a feeling as if consuming the last of his energy.</p>
 
-<p>Along with the smartphone's vibration, Sua's body 움찔, jerking up as if flustered.</p>
+<p>Along with the smartphone's vibration, Soa's body 움찔, jerking up as if flustered.</p>
 
-<p>At that moment, Sua's eyes met Shiwoo's.</p>
+<p>At that moment, Soa's eyes met Shiwoo's.</p>
 
-<p>Sua was staring at Shiwoo, looking troubled and making an imploring expression.</p>
+<p>Soa was staring at Shiwoo, looking troubled and making an imploring expression.</p>
 
 <p>Ignoring her, Shiwoo raised the vibrator's intensity to maximum, then activated the hold button.</p>
 
-<p>Not knowing what to do, Sua shrank her body inward.</p>
+<p>Not knowing what to do, Soa shrank her body inward.</p>
 
-<p>Seyoung, who was watching from the side, looked between Sua and Shiwoo, then playfully made an expression as if there was nothing she could do.</p>
+<p>Seyoung, who was watching from the side, looked between Soa and Shiwoo, then playfully made an expression as if there was nothing she could do.</p>
 
-<p>Then, Seyoung turned on the mini fan hanging around Sua's neck.</p>
+<p>Then, Seyoung turned on the mini fan hanging around Soa's neck.</p>
 
 <p>A tingling sensation of ejaculation spread through Shiwoo's penis.</p>
 
@@ -44,33 +44,33 @@ chapter = 321
 
 <p>Shiwoo was sitting inside a toilet stall in the restroom.</p>
 
-<p>With his vibrating smartphone, he looked at Sua's photo that he had just uploaded to the group chat with Mom, Seonju -imo, and Sehee Nuna.</p>
+<p>With his vibrating smartphone, he looked at Soa's photo that he had just uploaded to the group chat with Mom, Seonju -imo, and Sehee Nuna.</p>
 
-<p>It was the photo of the indecent act he had taken earlier inside the train to check Sua's panties color.</p>
+<p>It was the photo of the indecent act he had taken earlier inside the train to check Soa's panties color.</p>
 
-<p>Sua was currently wearing both a vibrator and a panty liner at the same time.</p>
+<p>Soa was currently wearing both a vibrator and a panty liner at the same time.</p>
 
 <p>Originally, Seonju -imo had made her wear the panty liner in advance to prepare for the virgin blood that would flow during her first experience with Shiwoo, in case it stained her clothes.</p>
 
-<p>Thanks to that, despite being tormented all morning by the vibrator that Shiwoo and Seyoung had been operating, Sua didn't seem to have completely soaked her entire legs with vaginal fluid.</p>
+<p>Thanks to that, despite being tormented all morning by the vibrator that Shiwoo and Seyoung had been operating, Soa didn't seem to have completely soaked her entire legs with vaginal fluid.</p>
 
 <p>-Though enough vaginal fluid to catch Shiwoo's eye seemed to be leaking out between her thighs...-</p>
 
-<p>How much vaginal fluid was Sua leaking now?</p>
+<p>How much vaginal fluid was Soa leaking now?</p>
 
 <p>His sisters had to stand for a long time among the people because they were waiting in line.</p>
 
 <p>The vibrator's battery was reduced to about 5 percent.</p>
 
-<p>As he imagined the shame Sua would feel and the masochistic excitement during that time, Shiwoo's chest began to pound again.</p>
+<p>As he imagined the shame Soa would feel and the masochistic excitement during that time, Shiwoo's chest began to pound again.</p>
 
-<p>Inside Sua's bag, her smartphone, cards, panties, and panty liner were all together, soaked with Shiwoo's semen.</p>
+<p>Inside Soa's bag, her smartphone, cards, panties, and panty liner were all together, soaked with Shiwoo's semen.</p>
 
-<p>Shiwoo had ordered Sua to leave everything as it was, unwiped, except for the smartphone she needed to use immediately.</p>
+<p>Shiwoo had ordered Soa to leave everything as it was, unwiped, except for the smartphone she needed to use immediately.</p>
 
 <p>The rest of the items would be kept inside the bag, soiled with Shiwoo's semen.</p>
 
-<p>Until she returned home, Sua would wander around the department store all day, carrying Shiwoo's ejaculated semen in her bag.</p>
+<p>Until she returned home, Soa would wander around the department store all day, carrying Shiwoo's ejaculated semen in her bag.</p>
 
 <p>While sitting on the toilet, Shiwoo pulled down his pants and underwear and took out his erect penis.</p>
 
@@ -104,7 +104,7 @@ chapter = 321
 
 <p>After a moment of hesitation, as if biding her time, Seyoung's text message arrived for Shiwoo.</p>
 
-<p>'We just got in with Sua! Are you in the restroom too, Oppa?'</p>
+<p>'We just got in with Soa! Are you in the restroom too, Oppa?'</p>
 
 <p>Seyoung responded to Shiwoo as if not caring much about his penis photo, in her usual way of speaking to her older brother.</p>
 
@@ -130,9 +130,9 @@ chapter = 321
 
 <p>The current situation where his relationships with Mom, Sehee Nuna, and even Seonju -imo had been exposed.</p>
 
-<p>Inside the subway train, receiving a handjob from Sua, he even ejaculated into her bag.</p>
+<p>Inside the subway train, receiving a handjob from Soa, he even ejaculated into her bag.</p>
 
-<p>And now, the vibrator attached to Sua was turned on.</p>
+<p>And now, the vibrator attached to Soa was turned on.</p>
 
 <p>At this point, even if they exchanged a few high-level obscene photos or some dirty talk, he wouldn't be misunderstood or considered a strange person by Seyoung.</p>
 
@@ -160,28 +160,28 @@ chapter = 321
 
 <p>Not long after, a video was sent from Seyoung.</p>
 
-<p>It was a video showing the inside of Sua's bag, spread open on both sides.</p>
+<p>It was a video showing the inside of Soa's bag, spread open on both sides.</p>
 
 <p>The sound of the fan's motor and the vibrator's buzzing sound rang out.</p>
 
-<p>Sua's moans, faintly leaking out and audible, were also mixed in.</p>
+<p>Soa's moans, faintly leaking out and audible, were also mixed in.</p>
 
 <p>The filming seemed to be inside a toilet stall in the women's restroom.</p>
 
-<p>Sua was revealing the inside of the bag, holding it open with both hands in front of the camera.</p>
+<p>Soa was revealing the inside of the bag, holding it open with both hands in front of the camera.</p>
 
-<p>The items inside Sua's cross-body bag were smeared with Shiwoo's semen.</p>
+<p>The items inside Soa's cross-body bag were smeared with Shiwoo's semen.</p>
 
-<p>Not only Sua's smartphone, but also her check card, panty liner, and reddish-brown panties were thoroughly soaked with Shiwoo's semen.</p>
+<p>Not only Soa's smartphone, but also her check card, panty liner, and reddish-brown panties were thoroughly soaked with Shiwoo's semen.</p>
 
 <p>Seyoung, holding the smartphone camera, extended her other hand and rummaged through the items inside the bag one by one.</p>
 
 <p>Shiwoo's semen, stuck to the items, was getting smeared between Seyoung's fingers.</p>
 
-<p>Seyoung took Sua's smartphone out of the bag and handed it to Sua.</p>
+<p>Seyoung took Soa's smartphone out of the bag and handed it to Soa.</p>
 
-<p>Sua received the smartphone from Seyoung, stained with Shiwoo's semen like a smudge.</p>
+<p>Soa received the smartphone from Seyoung, stained with Shiwoo's semen like a smudge.</p>
 
-<p>Sua wiped the smartphone she had received with a wet wipe that Shiwoo had bought.</p>
+<p>Soa wiped the smartphone she had received with a wet wipe that Shiwoo had bought.</p>
 
 <p>Seyoung's giggling laughter seemed to be heard from inside the screen for a moment.</p>

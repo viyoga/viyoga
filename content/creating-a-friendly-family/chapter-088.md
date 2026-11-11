@@ -4,7 +4,7 @@ weight = 88
 [extra]
 chapter = 88
 +++
-<p>"But are you sure you don't need to call Sua?"</p>
+<p>"But are you sure you don't need to call Soa?"</p>
 
 <p>Shiwoo said, looking down at Seonju Imo with a mischievous tone.</p>
 
@@ -14,15 +14,15 @@ chapter = 88
 
 <p>Each time Shiwoo moved his hips back and forth, the tip of his glans repeatedly tapped and thrust against Seonju Imo's chin and cheek.</p>
 
-<p>"Huh? Su...Sua? Why Sua?"</p>
+<p>"Huh? Su...Soa? Why Soa?"</p>
 
-<p>As her chin and cheek were being struck by his glans, Seonju Imo was flustered when Sua's name came out of Shiwoo's mouth again.</p>
+<p>As her chin and cheek were being struck by his glans, Seonju Imo was flustered when Soa's name came out of Shiwoo's mouth again.</p>
 
-<p>"You're not going straight home, are you? You should call Sua and tell her you'll be late so she doesn't worry!! She's your daughter!!"</p>
+<p>"You're not going straight home, are you? You should call Soa and tell her you'll be late so she doesn't worry!! She's your daughter!!"</p>
 
-<p>Emphasizing the word 'daughter,' Shiwoo spoke as if trying to remind her of the lewd talk about Sua he had whispered earlier when they were having sex while pretending to be asleep.</p>
+<p>Emphasizing the word 'daughter,' Shiwoo spoke as if trying to remind her of the lewd talk about Soa he had whispered earlier when they were having sex while pretending to be asleep.</p>
 
-<p>Just as he had sucked Seonju Imo's breasts while she was on the phone with Mom, Shiwoo intended to thoroughly humiliate and torment Seonju Imo while she was on the phone with Sua.</p>
+<p>Just as he had sucked Seonju Imo's breasts while she was on the phone with Mom, Shiwoo intended to thoroughly humiliate and torment Seonju Imo while she was on the phone with Soa.</p>
 
 <p>Shiwoo's fondling during Seonju Imo's call with Mom...</p>
 
@@ -38,7 +38,7 @@ chapter = 88
 
 <p>As if forcing an answer, Shiwoo strongly gripped Seonju Imo's large breasts and twisted them.</p>
 
-<p>"Ugh... th-then... should I try calling? It would be good to talk to Sua, right?"</p>
+<p>"Ugh... th-then... should I try calling? It would be good to talk to Soa, right?"</p>
 
 <p>Seonju Imo answered, as if submitting to Shiwoo's authority.</p>
 
@@ -54,7 +54,7 @@ chapter = 88
 
 <p class="scene-break">· · ·</p>
 
-<p>Seonju Imo picked up her smartphone and called Sua.</p>
+<p>Seonju Imo picked up her smartphone and called Soa.</p>
 
 <p>"Put it on speakerphone!!"</p>
 
@@ -64,7 +64,7 @@ chapter = 88
 
 <p>Seonju Imo answered Shiwoo submissively, pressing the speaker button on the smartphone's call screen.</p>
 
-<p>The ringing tone for Sua's call loudly echoed from the smartphone in Seonju Imo's hand.</p>
+<p>The ringing tone for Soa's call loudly echoed from the smartphone in Seonju Imo's hand.</p>
 
 <p>Shiwoo stroked Seonju Imo's head as if praising a well-behaved child.</p>
 
@@ -86,13 +86,13 @@ chapter = 88
 
 <p>At Shiwoo's sudden action, Seonju Imo cried out as if startled.</p>
 
-<p>The ringing call tone was abruptly cut off, and Sua's voice was heard.</p>
+<p>The ringing call tone was abruptly cut off, and Soa's voice was heard.</p>
 
 <p class="scene-break">· · ·</p>
 
 <p>"Mom?"</p>
 
-<p>Sua's voice, answering the phone.</p>
+<p>Soa's voice, answering the phone.</p>
 
 <p>"Heeung My daughter Did you have a good day at school? ...What are you doing now?"</p>
 
@@ -100,7 +100,7 @@ chapter = 88
 
 <p>"Yeah... I just ate the chicken porridge Seonmi Imo brought, and now I'm doing homework with Seyoung..."</p>
 
-<p>Sua's clear, bright voice came through at length.</p>
+<p>Soa's clear, bright voice came through at length.</p>
 
 <p>Shiwoo gathered both of Seonju Imo's nipples together, took them into his mouth, and focused his assault.</p>
 
@@ -110,7 +110,7 @@ chapter = 88
 
 <p>"No, nothing special Mom, are you still at Shiwoo Oppa's house?"</p>
 
-<p>Sua's voice, continuing a normal conversation with her mother.</p>
+<p>Soa's voice, continuing a normal conversation with her mother.</p>
 
 <p>Shiwoo slowly began to move his mouth downwards, towards Seonju Imo's genitals.</p>
 
@@ -126,9 +126,9 @@ chapter = 88
 
 <p>"So you're coming home late today? How late? Mom, why does your voice sound like that?"</p>
 
-<p>Sua also asked, sounding puzzled, as if her mother's voice seemed a little strange.</p>
+<p>Soa also asked, sounding puzzled, as if her mother's voice seemed a little strange.</p>
 
-<p>Sua's voice, suspicious of her mother's tone, seemed to be a great stimulant for Shiwoo.</p>
+<p>Soa's voice, suspicious of her mother's tone, seemed to be a great stimulant for Shiwoo.</p>
 
 <p>"Oh Mom's getting something nice from Shiwoo Oppa right now? Heut..."</p>
 
@@ -142,15 +142,15 @@ chapter = 88
 
 <p>Seonju Imo's body trembled convulsively, reaching climax.</p>
 
-<p>Seonju Imo, without Shiwoo even asking, rambled on with a long explanation, letting Sua hear her moaning sound as she reached climax.</p>
+<p>Seonju Imo, without Shiwoo even asking, rambled on with a long explanation, letting Soa hear her moaning sound as she reached climax.</p>
 
 <p>"Mom, are you okay?"</p>
 
-<p>Sua, speaking as if worried about her mother.</p>
+<p>Soa, speaking as if worried about her mother.</p>
 
-<p>"Eueung... Mom's okay Haaah Later, Sua, you should also ask Shiwoo Oppa to give you a massage... heu... it feels so good, you know?"</p>
+<p>"Eueung... Mom's okay Haaah Later, Soa, you should also ask Shiwoo Oppa to give you a massage... heu... it feels so good, you know?"</p>
 
-<p>Seonju Imo, with unfocused eyes, looked at Shiwoo and spoke to Sua, her body twitching and shuddering.</p>
+<p>Seonju Imo, with unfocused eyes, looked at Shiwoo and spoke to Soa, her body twitching and shuddering.</p>
 
 <p>Seonju Imo looked at Shiwoo with a desperate expression.</p>
 
@@ -160,7 +160,7 @@ chapter = 88
 
 <p>"Uh... anyway... Mom might be late today, so don't worry and go to sleep quickly Understood?"</p>
 
-<p>Seonju Imo spoke urgently and quickly hung up the phone before Sua could even answer.</p>
+<p>Seonju Imo spoke urgently and quickly hung up the phone before Soa could even answer.</p>
 
 <p class="scene-break">· · ·</p>
 

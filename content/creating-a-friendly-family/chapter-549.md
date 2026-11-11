@@ -54,7 +54,7 @@ chapter = 549
 
 <p>Shiwoo mentioned Seonju Imo in casual speech, omitting the honorific title of Imo.</p>
 
-<p>,Yeah Seonju and Sua's house is originally where we live wearing only underwear Sometimes Seonju even takes a shower and then spends the whole day without even wearing underwear,</p>
+<p>,Yeah Seonju and Soa's house is originally where we live wearing only underwear Sometimes Seonju even takes a shower and then spends the whole day without even wearing underwear,</p>
 
 <p>Seyoung is saying, as if happily exposing Seonju Imo's daily life.</p>
 

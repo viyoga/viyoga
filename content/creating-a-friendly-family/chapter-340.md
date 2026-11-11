@@ -1,5 +1,5 @@
 +++
-title = "Chapter 340: [Incest] Creating a Close Family 340 (Se-young, Su-a)"
+title = "Chapter 340: [Incest] Creating a Close Family 340 (Se-young, Soa)"
 weight = 340
 [extra]
 chapter = 340
@@ -46,25 +46,25 @@ chapter = 340
 
 <p>Seyoung asks as if she understood Shiwoo's feelings.</p>
 
-<p>,But Sua said earlier that she had never been to a haunted house before, so we were going to go today, right? Should we just stop by there and then go? We can come back and go to the aquarium next time! How about it?"</p>
+<p>,But Soa said earlier that she had never been to a haunted house before, so we were going to go today, right? Should we just stop by there and then go? We can come back and go to the aquarium next time! How about it?"</p>
 
-<p>Shiwoo suggested stopping by the haunted house as if he were being considerate of Sua.</p>
+<p>Shiwoo suggested stopping by the haunted house as if he were being considerate of Soa.</p>
 
-<p>,Really? I don't mind Sua, what about you? Can you go now?"</p>
+<p>,Really? I don't mind Soa, what about you? Can you go now?"</p>
 
-<p>Seyoung left the answer to Shiwoo's suggestion to Sua.</p>
+<p>Seyoung left the answer to Shiwoo's suggestion to Soa.</p>
 
-<p>Sua nods her head shyly up and down.</p>
+<p>Soa nods her head shyly up and down.</p>
 
 <p>,Then should we go straight to the amusement park? We can put our luggage in the locker and go straight to the haunted house."</p>
 
-<p>Shiwoo says to his sisters as soon as he sees Sua nodding her head in agreement to his suggestion.</p>
+<p>Shiwoo says to his sisters as soon as he sees Soa nodding her head in agreement to his suggestion.</p>
 
 <p>,Okay! Hehe "</p>
 
 <p>Seyoung answers in a tone full of energy, unlike when she said she was tired just a moment ago.</p>
 
-<p>Shiwoo was speaking as if he was thinking of Sua, but in fact, he had other intentions in his heart.</p>
+<p>Shiwoo was speaking as if he was thinking of Soa, but in fact, he had other intentions in his heart.</p>
 
 <p>He was thinking of putting dog collars on his two sisters in the haunted house where people's eyes wouldn't reach.</p>
 
@@ -88,17 +88,17 @@ chapter = 340
 
 <p>Shiwoo connects the dog collars and leashes according to their colors.</p>
 
-<p>And Shiwoo picks up Seyoung and Sua's name tags and inserts them into the rings of the dog collars.</p>
+<p>And Shiwoo picks up Seyoung and Soa's name tags and inserts them into the rings of the dog collars.</p>
 
 <p>The orange one is matched with the name tag with Seyoung's name on it...</p>
 
-<p>The reddish-brown one is matched with the name tag with Sua's name on it.</p>
+<p>The reddish-brown one is matched with the name tag with Soa's name on it.</p>
 
-<p>Shiwoo put the completed dog collars for Seyoung and Sua in the shopping bag he was holding.</p>
+<p>Shiwoo put the completed dog collars for Seyoung and Soa in the shopping bag he was holding.</p>
 
 <p>The sisters seemed to know what Shiwoo was trying to do.</p>
 
-<p>Seyoung, with a smile on her face, and Sua, shyly averting her gaze, watch Shiwoo's actions.</p>
+<p>Seyoung, with a smile on her face, and Soa, shyly averting her gaze, watch Shiwoo's actions.</p>
 
 <p>Shiwoo closes the locker and sets the password.</p>
 
@@ -160,7 +160,7 @@ chapter = 340
 
 <p>The sisters flinch and bounce their bodies for a moment.</p>
 
-<p>Actions that he had already done countless times to Seyoung and Sua without anyone else knowing...</p>
+<p>Actions that he had already done countless times to Seyoung and Soa without anyone else knowing...</p>
 
 <p>But the thought of violating his two younger sisters while being shown to someone through the camera filled Shiwoo's heart with a different kind of pleasure.</p>
 
@@ -168,11 +168,11 @@ chapter = 340
 
 <p>A perverted act that would surely be shown through the camera in front.</p>
 
-<p>He felt Seyoung's plump bare buttocks and Sua's buttocks through her wet panties in his hand.</p>
+<p>He felt Seyoung's plump bare buttocks and Soa's buttocks through her wet panties in his hand.</p>
 
 <p>In an instant, Shiwoo lifted their skirts with a flick, pretending to be crazy.</p>
 
-<p>Seyoung's completely exposed pelvis and split clamshell, and Sua's crotch covered by panties, were revealed outside the skirt for a brief moment.</p>
+<p>Seyoung's completely exposed pelvis and split clamshell, and Soa's crotch covered by panties, were revealed outside the skirt for a brief moment.</p>
 
 <p>The sisters were startled and lowered their raised skirts with both hands.</p>
 
@@ -200,9 +200,9 @@ chapter = 340
 
 <p>The leash is inserted into the chest area of the dress and falls down to the bottom of the skirt.</p>
 
-<p>Next, Shiwoo puts the reddish-brown dog collar on Sua.</p>
+<p>Next, Shiwoo puts the reddish-brown dog collar on Soa.</p>
 
-<p>Likewise, the leash is inserted into the reddish-brown camisole dress that Sua is wearing.</p>
+<p>Likewise, the leash is inserted into the reddish-brown camisole dress that Soa is wearing.</p>
 
 <p>The two sisters accepted the dog collars that Shiwoo put on them without any resistance.</p>
 

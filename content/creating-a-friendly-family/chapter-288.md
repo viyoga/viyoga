@@ -148,11 +148,11 @@ chapter = 288
 
 <p>Seyoung says again, smiling innocently.</p>
 
-<p>,Should I ask Gyuri Ajumma later? No Should I look for a woman with small breasts to compare? How about sucking Sua's breast to sleep?"</p>
+<p>,Should I ask Gyuri Ajumma later? No Should I look for a woman with small breasts to compare? How about sucking Soa's breast to sleep?"</p>
 
 <p>Shiwoo continues to tease Seyoung as if he was teasing her with a mischievous tone.</p>
 
-<p>,What is that! Why would I suck Sua's breast to sleep?"</p>
+<p>,What is that! Why would I suck Soa's breast to sleep?"</p>
 
 <p>Seyoung reacted to her brother's joke as if she was dumbfounded.</p>
 

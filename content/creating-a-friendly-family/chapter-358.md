@@ -1,5 +1,5 @@
 +++
-title = "Chapter 358: [Incest] Creating a Close Family 358 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 358: [Incest] Creating a Close Family 358 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 358
 [extra]
 chapter = 358
@@ -56,39 +56,39 @@ chapter = 358
 
 <p>It seemed it was time to brand Seonju Imo-nim with the mark of a slave in front of her daughter and young nephews.</p>
 
-<p>With his penis still on Seonju Imo-nim's face, Shiwoo raised his head and looked at Sua, who was standing next to Seyoung.</p>
+<p>With his penis still on Seonju Imo-nim's face, Shiwoo raised his head and looked at Soa, who was standing next to Seyoung.</p>
 
-<p>Sua, who had given up her seat to Seyoung for a moment and stepped aside.</p>
+<p>Soa, who had given up her seat to Seyoung for a moment and stepped aside.</p>
 
 <p>She was looking at her mom with a pitiful expression, but when her eyes met Shiwoo's, she flinched as if startled.</p>
 
 <p>Her alluring backside and red, swollen buttocks were fully exposed,</p>
 
-<p>Sua was still covering her breasts and crotch with her arms and hands, seemingly embarrassed.</p>
+<p>Soa was still covering her breasts and crotch with her arms and hands, seemingly embarrassed.</p>
 
-<p>Shiwoo naturally directed the smartphone camera lens towards Sua.</p>
+<p>Shiwoo naturally directed the smartphone camera lens towards Soa.</p>
 
-<p>While capturing Sua's figure on camera, Shiwoo pointed to the shopping bag that had fallen on the floor with his hand.</p>
+<p>While capturing Soa's figure on camera, Shiwoo pointed to the shopping bag that had fallen on the floor with his hand.</p>
 
 <p>It was a signal for her to bring him the shopping bag containing the dog collar and leash.</p>
 
-<p>Sua seemed to understand what Shiwoo was trying to do now.</p>
+<p>Soa seemed to understand what Shiwoo was trying to do now.</p>
 
 <p>She immediately turned to the side and walked towards the shopping bag she had dropped on the floor.</p>
 
-<p>Sua was walking with an awkward gait, as if there was still a tingling pain in her buttocks.</p>
+<p>Soa was walking with an awkward gait, as if there was still a tingling pain in her buttocks.</p>
 
-<p>Sua released the hand covering her chest and bent her waist slightly to pick up the shopping bag.</p>
+<p>Soa released the hand covering her chest and bent her waist slightly to pick up the shopping bag.</p>
 
-<p>Sua's adorably ripening breasts were shown to Shiwoo as her arm was released.</p>
+<p>Soa's adorably ripening breasts were shown to Shiwoo as her arm was released.</p>
 
-<p>As Shiwoo commanded, Sua picked up the shopping bag containing the dog collar and leash and returned to where Shiwoo, Seonju Imo-nim, and Seyoung were.</p>
+<p>As Shiwoo commanded, Soa picked up the shopping bag containing the dog collar and leash and returned to where Shiwoo, Seonju Imo-nim, and Seyoung were.</p>
 
-<p>Sua's breasts shook like pudding with every step she took.</p>
+<p>Soa's breasts shook like pudding with every step she took.</p>
 
-<p>While Sua was returning with the shopping bag, Shiwoo was perfectly capturing Sua's body with the smartphone camera.</p>
+<p>While Soa was returning with the shopping bag, Shiwoo was perfectly capturing Soa's body with the smartphone camera.</p>
 
-<p>Sua held out the shopping bag containing the dog collar to Shiwoo and waited for Shiwoo's next instruction.</p>
+<p>Soa held out the shopping bag containing the dog collar to Shiwoo and waited for Shiwoo's next instruction.</p>
 
 <p>First, Shiwoo stopped filming and saved the video he had just taken to his smartphone.</p>
 
@@ -100,9 +100,9 @@ chapter = 358
 
 <p>Shiwoo filmed Seonju Imo-nim's face with his penis resting on it with the recording smartphone.</p>
 
-<p>Then, he captured the shopping bag that Sua was holding on the screen.</p>
+<p>Then, he captured the shopping bag that Soa was holding on the screen.</p>
 
-<p>Shiwoo captured Sua's facial expression and even her adorable breasts, which were revealed as her arm was moved away, on camera.</p>
+<p>Shiwoo captured Soa's facial expression and even her adorable breasts, which were revealed as her arm was moved away, on camera.</p>
 
 <p>Shiwoo was filming the situation here as if he was roughly scanning it, as if to show it to someone.</p>
 
@@ -132,19 +132,19 @@ chapter = 358
 
 <p>"Black!"</p>
 
-<p>Shiwoo reached out his hand to Sua, demanding Seonju Imo-nim's black dog collar.</p>
+<p>Shiwoo reached out his hand to Soa, demanding Seonju Imo-nim's black dog collar.</p>
 
-<p>Sua rummaged through the shopping bag with the hand that had been covering her crotch and found Seonju Imo-nim's black dog collar.</p>
+<p>Soa rummaged through the shopping bag with the hand that had been covering her crotch and found Seonju Imo-nim's black dog collar.</p>
 
-<p>Sua took out Seonju Imo-nim's black leather collar, which had a double buckle, from the shopping bag with a rattling sound.</p>
+<p>Soa took out Seonju Imo-nim's black leather collar, which had a double buckle, from the shopping bag with a rattling sound.</p>
 
-<p>Sua handed Shiwoo the black dog collar she had found for Seonju Imo-nim.</p>
+<p>Soa handed Shiwoo the black dog collar she had found for Seonju Imo-nim.</p>
 
-<p>At Sua's crotch, where her hand had been removed, her light red, split petals were shyly revealed.</p>
+<p>At Soa's crotch, where her hand had been removed, her light red, split petals were shyly revealed.</p>
 
 <p>Seyoung was meticulously capturing all the situations and scenes that were happening with Shiwoo's smartphone camera she was holding.</p>
 
-<p>Shiwoo loosened the buckle of Seonju Imo-nim's black collar he had received from Sua to make it easier to put on.</p>
+<p>Shiwoo loosened the buckle of Seonju Imo-nim's black collar he had received from Soa to make it easier to put on.</p>
 
 <p>After glancing at the camera Seyoung was holding and confirming that she was ready, Shiwoo brought the loosened collar to Seonju Imo-nim's neck.</p>
 
@@ -154,33 +154,33 @@ chapter = 358
 
 <p>The dog collar, the mark of a slave, was fitted onto Seonju Imo-nim.</p>
 
-<p>While Shiwoo was putting the dog collar on Seonju Imo-nim, Sua had already found and taken out the black leash on her own.</p>
+<p>While Shiwoo was putting the dog collar on Seonju Imo-nim, Soa had already found and taken out the black leash on her own.</p>
 
-<p>Sua put down the shopping bag and completely revealed her naked body in front of Shiwoo, holding the leash to put on Seonju Imo-nim in her hand, waiting for Shiwoo's command.</p>
+<p>Soa put down the shopping bag and completely revealed her naked body in front of Shiwoo, holding the leash to put on Seonju Imo-nim in her hand, waiting for Shiwoo's command.</p>
 
-<p>Shiwoo looked at such Sua with an expression as if he was finding her admirable.</p>
+<p>Shiwoo looked at such Soa with an expression as if he was finding her admirable.</p>
 
-<p>"Sua, you put it on Seonju directly!"</p>
+<p>"Soa, you put it on Seonju directly!"</p>
 
-<p>Shiwoo stared straight at Sua and commanded.</p>
+<p>Shiwoo stared straight at Soa and commanded.</p>
 
-<p>Shiwoo's command to have Sua put the leash she was holding directly on the dog collar that had been put on Seonju Imo-nim.</p>
+<p>Shiwoo's command to have Soa put the leash she was holding directly on the dog collar that had been put on Seonju Imo-nim.</p>
 
-<p>Perhaps Sua knew exactly what Shiwoo's command meant.</p>
+<p>Perhaps Soa knew exactly what Shiwoo's command meant.</p>
 
-<p>Sua hesitated for a moment, then confirmed Seonju Imo-nim's figure, who was unable to open her eyes because she was covered in Shiwoo's semen, and soon held the dog collar on Seonju Imo-nim's neck in her hand.</p>
+<p>Soa hesitated for a moment, then confirmed Seonju Imo-nim's figure, who was unable to open her eyes because she was covered in Shiwoo's semen, and soon held the dog collar on Seonju Imo-nim's neck in her hand.</p>
 
-<p>Sua put the ring of the leash she was holding into the ring of the black leather collar.</p>
+<p>Soa put the ring of the leash she was holding into the ring of the black leather collar.</p>
 
 <p>-Cheolkeok!-</p>
 
 <p>The short metallic sound of it locking firmly echoed in the hallway.</p>
 
-<p>Sua was properly holding the leash connected to the dog collar Seonju Imo-nim was wearing.</p>
+<p>Soa was properly holding the leash connected to the dog collar Seonju Imo-nim was wearing.</p>
 
-<p>"From now on, Sua will take Seonju for walks! And fix her habits! Or else Sua, you'll get hit instead like before!"</p>
+<p>"From now on, Soa will take Seonju for walks! And fix her habits! Or else Soa, you'll get hit instead like before!"</p>
 
-<p>Shiwoo commanded as if to establish Sua's authority.</p>
+<p>Shiwoo commanded as if to establish Soa's authority.</p>
 
 <p>Seonju Imo-nim, whose ownership and control of all rights over her body and actions had been entrusted to her daughter by Shiwoo.</p>
 

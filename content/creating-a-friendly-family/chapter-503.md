@@ -186,7 +186,7 @@ chapter = 503
 
 <p>Shiwoo twitches his body as if embarrassed at the unfamiliar sensation.</p>
 
-<p>Recalling the scene of Sua sucking Sae-a's genitals, Shiwoo imagines what it would feel like to have his genitals sucked by Sae-a's tongue, as if estimating.</p>
+<p>Recalling the scene of Soa sucking Sae-a's genitals, Shiwoo imagines what it would feel like to have his genitals sucked by Sae-a's tongue, as if estimating.</p>
 
 <p>At the unfamiliar stimulation that he does not want to become accustomed to yet, Shiwoo shrugged his shoulders and shuddered.</p>
 

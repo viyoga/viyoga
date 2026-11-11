@@ -74,7 +74,7 @@ chapter = 407
 
 <p>"Why didn't you say something before eating it? I thought Mom was okay with it because you drank it so naturally from the beginning!"</p>
 
-<p>"But Seyoung and Sua were drinking it just fine without saying anything... Sehee seems to be used to it now too!"</p>
+<p>"But Seyoung and Soa were drinking it just fine without saying anything... Sehee seems to be used to it now too!"</p>
 
 <p>"Seonju even drinks my piss, so isn't Mom being too picky with your tastes?"</p>
 

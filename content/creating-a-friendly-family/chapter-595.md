@@ -106,7 +106,7 @@ chapter = 595
 
 <p>Shiwoo suddenly recalls the scene in the short video he received from Seonju Imo.</p>
 
-<p>The lewd video of Sejin Nuna and Seonju Imo, which was filmed with Sua in the center at the lodging...</p>
+<p>The lewd video of Sejin Nuna and Seonju Imo, which was filmed with Soa in the center at the lodging...</p>
 
 <p>"The baby's Dad... is it 'that person' I know?"</p>
 

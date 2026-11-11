@@ -38,7 +38,7 @@ chapter = 212
 
 <p>While Shiwoo was in the master bedroom, Sehee Nuna had gone up to her room on the second floor, gathered clothes to change into, and then immediately entered the shower room to wash.</p>
 
-<p>Seyoung and Sua still seemed to be playing with the puppy in the living room where the sofa was.</p>
+<p>Seyoung and Soa still seemed to be playing with the puppy in the living room where the sofa was.</p>
 
 <p>Shiwoo turns his eyes towards the kitchen, looking for Mom.</p>
 
@@ -128,17 +128,17 @@ chapter = 212
 
 <p>Shiwoo, who was organizing his thoughts while sitting on the bed, was startled by Seyoung's voice and turned towards the door where Seyoung was.</p>
 
-<p>,You were awake?! I thought Oppa had gone into the room and was sleeping again, so Sua and I came to wake you up together Hehe,</p>
+<p>,You were awake?! I thought Oppa had gone into the room and was sleeping again, so Soa and I came to wake you up together Hehe,</p>
 
 <p>Seyoung said to Shiwoo with a bright smile, entering the room with the door wide open as if it were natural.</p>
 
-<p>Behind her, Sua followed Seyoung into the room, smiling shyly.</p>
+<p>Behind her, Soa followed Seyoung into the room, smiling shyly.</p>
 
 <p>Seyoung probably intended to wake Shiwoo with a splash technique as usual.</p>
 
-<p>That too, a splash where she and Sua would overlap and attack him simultaneously.</p>
+<p>That too, a splash where she and Soa would overlap and attack him simultaneously.</p>
 
-<p>Shiwoo imagines Seyoung and Sua overlapping on his body on the bed for a moment.</p>
+<p>Shiwoo imagines Seyoung and Soa overlapping on his body on the bed for a moment.</p>
 
 <p>Shiwoo's penis, with a rapidly surging excitement, was starting to become slightly erect.</p>
 
@@ -164,9 +164,9 @@ chapter = 212
 
 <p>,Okay I'll do that from now on Hehe Are you coming down now? Today's side dishes are frankfurter sausages and fried eggs, which Oppa likes,</p>
 
-<p>Seyoung, as if not caring much about Shiwoo's embarrassment, said what she wanted to say and left the room with Sua.</p>
+<p>Seyoung, as if not caring much about Shiwoo's embarrassment, said what she wanted to say and left the room with Soa.</p>
 
-<p>Shiwoo was thinking that it wouldn't be a big problem even if he showed his erect penis to Seyoung or Sua now.</p>
+<p>Shiwoo was thinking that it wouldn't be a big problem even if he showed his erect penis to Seyoung or Soa now.</p>
 
 <p>However, when he thought about openly showing his aroused state to his younger sisters - especially Seyoung - in his right mind, he felt slightly embarrassed, unlike with Mom or Seonju Imo-nim.</p>
 
@@ -176,7 +176,7 @@ chapter = 212
 
 <p>All the family members except Shiwoo were gathered in the kitchen.</p>
 
-<p>Mom and Seonju Imo-nim were sitting side by side, and Sehee Nuna and Seyoung were sitting across from Seonju Imo-nim and Sua.</p>
+<p>Mom and Seonju Imo-nim were sitting side by side, and Sehee Nuna and Seyoung were sitting across from Seonju Imo-nim and Soa.</p>
 
 <p>Shiwoo naturally sat down in the seat across from Mom.</p>
 
@@ -204,14 +204,14 @@ chapter = 212
 
 <p>Shiwoo said, looking at Seyoung, who was holding the puppy as if showing it off to Shiwoo.</p>
 
-<p>It was the very same puppy that had licked Sua's crotch last time.</p>
+<p>It was the very same puppy that had licked Soa's crotch last time.</p>
 
-<p>Shiwoo, feeling a slightly lewd feeling, looked at Sua's face, who was sitting across from him.</p>
+<p>Shiwoo, feeling a slightly lewd feeling, looked at Soa's face, who was sitting across from him.</p>
 
-<p>Sua, who had filmed and sent him a scene of herself sitting on the floor of the dressing room with her legs spread open and the puppy licking her clitoris.</p>
+<p>Soa, who had filmed and sent him a scene of herself sitting on the floor of the dressing room with her legs spread open and the puppy licking her clitoris.</p>
 
-<p>At that time, Sua was holding Sehee Nuna's orange panties with semen on them right in front of her face.</p>
+<p>At that time, Soa was holding Sehee Nuna's orange panties with semen on them right in front of her face.</p>
 
-<p>Sua, as if knowing what Shiwoo was thinking, blushed and shyly avoided Shiwoo's eyes.</p>
+<p>Soa, as if knowing what Shiwoo was thinking, blushed and shyly avoided Shiwoo's eyes.</p>
 
 <p>Blood was rushing back into Shiwoo's penis, which had subsided, and it was gaining strength.</p>

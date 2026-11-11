@@ -1,5 +1,5 @@
 +++
-title = "Chapter 362: [Incest] Creating a Close Family 362 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 362: [Incest] Creating a Close Family 362 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 362
 [extra]
 chapter = 362
@@ -10,7 +10,7 @@ chapter = 362
 
 <p>Shiwoo lifts the smartphone camera upwards, adjusting the angle to a completely downward-looking perspective, capturing Seonju Imo-nim and his younger sisters on the screen.</p>
 
-<p>Sua and Seonju Imo-nim, facing each other across his cock shaft, meticulously licking it.</p>
+<p>Soa and Seonju Imo-nim, facing each other across his cock shaft, meticulously licking it.</p>
 
 <p>And Seyoung, bringing her tongue to the underside of his glans, accepting the flowing filth into her mouth.</p>
 
@@ -24,61 +24,61 @@ chapter = 362
 
 <p>Shiwoo feels the sadistic emotions that had been directed towards Seonju Imo-nim surging up again.</p>
 
-<p>"Sua, stop licking for a moment, get up and take off the socks you're wearing on your legs!"</p>
+<p>"Soa, stop licking for a moment, get up and take off the socks you're wearing on your legs!"</p>
 
-<p>Shiwoo commands Sua, who is licking his penis, in a cold tone as if sternly shouting.</p>
+<p>Shiwoo commands Soa, who is licking his penis, in a cold tone as if sternly shouting.</p>
 
-<p>Shiwoo's command to take off the over-the-knee socks that Sua is wearing.</p>
+<p>Shiwoo's command to take off the over-the-knee socks that Soa is wearing.</p>
 
-<p>Sua, licking Shiwoo's penis with dazed eyes cast downwards, startles as if shocked, recoiling her body and taking her mouth away from Shiwoo's penis.</p>
+<p>Soa, licking Shiwoo's penis with dazed eyes cast downwards, startles as if shocked, recoiling her body and taking her mouth away from Shiwoo's penis.</p>
 
 <p>Turning her head towards Shiwoo's face, she glances up at Shiwoo, and when their eyes meet, she averts her gaze momentarily as if embarrassed, and quickly gets up from her spot.</p>
 
-<p>The smartphone camera held in Shiwoo's hand follows Sua's figure as it is.</p>
+<p>The smartphone camera held in Shiwoo's hand follows Soa's figure as it is.</p>
 
-<p>Having been licking Shiwoo's penis with her mouth the whole time, she seemed slightly short of breath, Sua was adjusting her breathing by moving her shoulders up and down slightly.</p>
+<p>Having been licking Shiwoo's penis with her mouth the whole time, she seemed slightly short of breath, Soa was adjusting her breathing by moving her shoulders up and down slightly.</p>
 
-<p>Sua takes off the over-the-knee socks she is wearing one by one, as Shiwoo commanded.</p>
+<p>Soa takes off the over-the-knee socks she is wearing one by one, as Shiwoo commanded.</p>
 
-<p>Sua's snow-white, long, and smooth legs, which had been hidden inside the over-the-knee socks, are revealed one by one.</p>
+<p>Soa's snow-white, long, and smooth legs, which had been hidden inside the over-the-knee socks, are revealed one by one.</p>
 
-<p>Now, Sua's body had nothing on it except for the wine-colored panties wrapped around one thigh and the dog collar that seemed to match the color.</p>
+<p>Now, Soa's body had nothing on it except for the wine-colored panties wrapped around one thigh and the dog collar that seemed to match the color.</p>
 
-<p>The white over-the-knee socks that had just been taken off Sua's legs were slightly damp, mixed with vaginal fluid and other bodily fluids.</p>
+<p>The white over-the-knee socks that had just been taken off Soa's legs were slightly damp, mixed with vaginal fluid and other bodily fluids.</p>
 
-<p>Holding the over-the-knee socks that she had taken off her legs, and standing there as if asking what to do next, Sua awkwardly extends her hand towards Shiwoo, with her gaze cast downwards.</p>
+<p>Holding the over-the-knee socks that she had taken off her legs, and standing there as if asking what to do next, Soa awkwardly extends her hand towards Shiwoo, with her gaze cast downwards.</p>
 
-<p>Shiwoo slightly extends the knee of one of his legs, which is positioned towards Sua, showing Sua the semen smeared on his thigh.</p>
+<p>Shiwoo slightly extends the knee of one of his legs, which is positioned towards Soa, showing Soa the semen smeared on his thigh.</p>
 
-<p>A silent command to wipe the semen on his thigh with Sua's over-the-knee socks that she had just taken off.</p>
+<p>A silent command to wipe the semen on his thigh with Soa's over-the-knee socks that she had just taken off.</p>
 
-<p>Sua nods as if she understood Shiwoo's gesture, and kneels again in front of Shiwoo's crotch.</p>
+<p>Soa nods as if she understood Shiwoo's gesture, and kneels again in front of Shiwoo's crotch.</p>
 
-<p>Sua extends the over-the-knee socks in her hand forward and brings them to Shiwoo's thigh.</p>
+<p>Soa extends the over-the-knee socks in her hand forward and brings them to Shiwoo's thigh.</p>
 
-<p>Sua meticulously wipes away the semen and filth smeared on Shiwoo's thigh with the over-the-knee socks she had been wearing.</p>
+<p>Soa meticulously wipes away the semen and filth smeared on Shiwoo's thigh with the over-the-knee socks she had been wearing.</p>
 
-<p>Not only Shiwoo's thigh, but also the area below his testicles and between his legs, and even the lower abdomen and the side of his groin where the semen had splattered, Sua carefully cleans up her mother's mistake using the over-the-knee socks that she had balled up in her hand.</p>
+<p>Not only Shiwoo's thigh, but also the area below his testicles and between his legs, and even the lower abdomen and the side of his groin where the semen had splattered, Soa carefully cleans up her mother's mistake using the over-the-knee socks that she had balled up in her hand.</p>
 
-<p>After wiping away the semen that had been sprayed on Shiwoo's body, except for his penis, Sua is watching Shiwoo's expression, waiting for the next command to be given.</p>
+<p>After wiping away the semen that had been sprayed on Shiwoo's body, except for his penis, Soa is watching Shiwoo's expression, waiting for the next command to be given.</p>
 
 <p>'Spit it out!'</p>
 
-<p>Shiwoo looks at such Sua and instructs her, moving only his lips as if mouthing the words without making a sound.</p>
+<p>Shiwoo looks at such Soa and instructs her, moving only his lips as if mouthing the words without making a sound.</p>
 
-<p>Sua makes a flustered expression as if she didn't understand what he was saying.</p>
+<p>Soa makes a flustered expression as if she didn't understand what he was saying.</p>
 
-<p>Shiwoo extends the index finger of the hand holding the three slaves' leashes and points to the over-the-knee socks that Sua is holding.</p>
+<p>Shiwoo extends the index finger of the hand holding the three slaves' leashes and points to the over-the-knee socks that Soa is holding.</p>
 
-<p>At that moment, Sua shuddered as if she understood Shiwoo's command.</p>
+<p>At that moment, Soa shuddered as if she understood Shiwoo's command.</p>
 
-<p>Sua immediately spits out the mucus contained in her mouth onto the over-the-knee socks that are covered in semen and filth.</p>
+<p>Soa immediately spits out the mucus contained in her mouth onto the over-the-knee socks that are covered in semen and filth.</p>
 
-<p>The over-the-knee socks held in Sua's hand were becoming even more damp with the saliva in Sua's mouth and Shiwoo's semen.</p>
+<p>The over-the-knee socks held in Soa's hand were becoming even more damp with the saliva in Soa's mouth and Shiwoo's semen.</p>
 
 <p>After confirming that she had spat out all the semen and other filth that had been in her mouth,</p>
 
-<p>Shiwoo extends the hand holding the leashes and receives the mucus-covered socks from Sua.</p>
+<p>Shiwoo extends the hand holding the leashes and receives the mucus-covered socks from Soa.</p>
 
 <p>"Seonju! You fucking bitch, open your mouth!"</p>
 
@@ -90,11 +90,11 @@ chapter = 362
 
 <p>Seonju Imo-nim seemed to be waiting for her nephew and daughter to spray Shiwoo's semen, which they had gathered with their mouths, back into her mouth.</p>
 
-<p>At that moment, Shiwoo shoves one of the over-the-knee socks he received from Sua directly into Seonju Imo-nim's mouth.</p>
+<p>At that moment, Shiwoo shoves one of the over-the-knee socks he received from Soa directly into Seonju Imo-nim's mouth.</p>
 
 <p>"Uuup!"</p>
 
-<p>Seonju Imo-nim groans, seemingly startled as the wet Sua's socks suddenly enter her mouth and block her breathing.</p>
+<p>Seonju Imo-nim groans, seemingly startled as the wet Soa's socks suddenly enter her mouth and block her breathing.</p>
 
 <p>Seonju Imo-nim, who had thought that she would receive the filth mixed with semen from her nephew and daughter as Shiwoo had ordered.</p>
 
@@ -104,7 +104,7 @@ chapter = 362
 
 <p>Seonju Imo-nim quickly realizes that what had entered her mouth was the over-the-knee socks that her daughter had just taken off.</p>
 
-<p>Sua's over-the-knee socks, now covered in filth that was mixed up beyond recognition.</p>
+<p>Soa's over-the-knee socks, now covered in filth that was mixed up beyond recognition.</p>
 
 <p>A rough breath was exhaled from Seonju Imo-nim's nose along with hot air.</p>
 
@@ -120,9 +120,9 @@ chapter = 362
 
 <p>The filth that had been applied to the upper part of his cock head had now almost all flowed down Seyoung's tongue and into her mouth.</p>
 
-<p>Shiwoo points to Seonju Imo-nim, who is holding Sua's socks in her mouth, as if giving Seyoung a silent instruction.</p>
+<p>Shiwoo points to Seonju Imo-nim, who is holding Soa's socks in her mouth, as if giving Seyoung a silent instruction.</p>
 
-<p>Seonju Imo-nim, who is still waiting for Shiwoo's next action with Sua's wet over-the-knee socks in her mouth and her mouth still open.</p>
+<p>Seonju Imo-nim, who is still waiting for Shiwoo's next action with Soa's wet over-the-knee socks in her mouth and her mouth still open.</p>
 
 <p>Seyoung, as if she understood Shiwoo's instruction, sweeps her tongue up the penis, putting the liquid remaining at the tip of his glans into her mouth.</p>
 
@@ -162,7 +162,7 @@ chapter = 362
 
 <p>Has she already thrown away any awareness of being older or being a mother?</p>
 
-<p>Sua's facial expression, as she watches the figure of her mother being violated by her nephews, seemed to be distorted with a mixture of excitement and pity.</p>
+<p>Soa's facial expression, as she watches the figure of her mother being violated by her nephews, seemed to be distorted with a mixture of excitement and pity.</p>
 
 <p class="scene-break">· · ·</p>
 

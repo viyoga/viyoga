@@ -6,7 +6,7 @@ chapter = 406
 +++
 <p>Shiwoo was slowly reading the posts in the group chat window while Mom was in the bathroom.</p>
 
-<p>The family group chat, which now included Mom, Seonju Imo, Sehee Nuna, and even Seyoung and Sua.</p>
+<p>The family group chat, which now included Mom, Seonju Imo, Sehee Nuna, and even Seyoung and Soa.</p>
 
 <p>As if trying to grasp the reality of the family relationships that had been incredibly overturned in just a few weeks...</p>
 
@@ -16,7 +16,7 @@ chapter = 406
 
 <p>Seonju Imo, who, even if she sometimes teased and ruffled Shiwoo's feathers, had treated him with a submissive attitude from the beginning.</p>
 
-<p>Sua, who seemed to have been thoroughly educated by Seonju Imo from a young age on the etiquette and common sense of a sex slave.</p>
+<p>Soa, who seemed to have been thoroughly educated by Seonju Imo from a young age on the etiquette and common sense of a sex slave.</p>
 
 <p>Seyoung, who had been surprising Shiwoo and asserting her presence even before Shiwoo awakened to incest.</p>
 
@@ -100,7 +100,7 @@ chapter = 406
 
 <p>Everyone in the chat room had checked Seonju Imo's and Shiwoo's messages.</p>
 
-<p>Not only Sehee Nuna, Seyoung, and Sua, but even Mom, who had been ignoring the family chat content until just now...</p>
+<p>Not only Sehee Nuna, Seyoung, and Soa, but even Mom, who had been ignoring the family chat content until just now...</p>
 
 <p>Shiwoo's penis surged with power.</p>
 

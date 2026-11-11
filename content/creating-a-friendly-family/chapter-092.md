@@ -94,9 +94,9 @@ chapter = 92
 
 <p class="scene-break">· · ·</p>
 
-<p>"What about Sua? If Sua finds out about us? Her dignity as a mother, everything, will be utterly shattered, won't it?"</p>
+<p>"What about Soa? If Soa finds out about us? Her dignity as a mother, everything, will be utterly shattered, won't it?"</p>
 
-<p>Shiwoo cautiously shifted the topic from Mom to Sua, asking half-jokingly.</p>
+<p>Shiwoo cautiously shifted the topic from Mom to Soa, asking half-jokingly.</p>
 
 <p>Seonju Imo, who had been pretending to be asleep while receiving a massage before Sehee Nuna came home.</p>
 
@@ -118,13 +118,13 @@ chapter = 92
 
 <p>-Though it was via chat-</p>
 
-<p>The phrase 'won't my darling somehow take care of it' could only be interpreted as Seonju Imo asking Shiwoo to sexually touch Sua.</p>
+<p>The phrase 'won't my darling somehow take care of it' could only be interpreted as Seonju Imo asking Shiwoo to sexually touch Soa.</p>
 
 <p>No matter how much it was a line in a role-play meant to heighten a man's excitement and arousal, could a mother with a sound mind carelessly make such a joke about her own young daughter?</p>
 
 <p>Shiwoo was suspicious whether Seonju Imo was truly serious now.</p>
 
-<p>Shiwoo having sex with Sua or Seyoung-yi was a problem of a different nature than doing so with Sehee Nuna or the mothers.</p>
+<p>Shiwoo having sex with Soa or Seyoung-yi was a problem of a different nature than doing so with Sehee Nuna or the mothers.</p>
 
 <p>Shiwoo suddenly felt as if a switch in his mind had clicked and changed position.</p>
 
@@ -138,11 +138,11 @@ chapter = 92
 
 <p>If it were Seonju Imo, how would she have reacted in such a situation?</p>
 
-<p>If Shiwoo were to try to have sex with Sua...</p>
+<p>If Shiwoo were to try to have sex with Soa...</p>
 
 <p>Seonju Imo, who had the same tendencies as Mom and was even skilled at it.</p>
 
-<p>If Shiwoo were to actually try to realize sex with Sua...</p>
+<p>If Shiwoo were to actually try to realize sex with Soa...</p>
 
 <p>Would she still be able to face Shiwoo, feigning the seductive composure of an adult woman?</p>
 
@@ -176,7 +176,7 @@ chapter = 92
 
 <p>Shiwoo stared at the chat window with Imo for a long time, his heart pounding with anxiety.</p>
 
-<p>"If you're worried about Sua, tell me now!! If Imo says it's okay, I'm going to meet Sua with the intention of having sex with her from now on! I might even do it forcibly and violently!!"</p>
+<p>"If you're worried about Soa, tell me now!! If Imo says it's okay, I'm going to meet Soa with the intention of having sex with her from now on! I might even do it forcibly and violently!!"</p>
 
 <p>Shiwoo's message, sent as if to confirm Seonju Imo's true feelings.</p>
 
@@ -188,7 +188,7 @@ chapter = 92
 
 <p>-Tak! Tak! Tak! Tak! Tak!</p>
 
-<p>Mom, Sehee Nuna, Seonju Imo, and Seyoung-yi, Sua, and finally even Sejin Nuna...</p>
+<p>Mom, Sehee Nuna, Seonju Imo, and Seyoung-yi, Soa, and finally even Sejin Nuna...</p>
 
 <p>Each time he recalled the face of one person after another, a shiver of ecstasy, as if he would cum at any moment, swept through his entire body.</p>
 

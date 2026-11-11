@@ -28,7 +28,7 @@ chapter = 123
 
 <p>Seonju Imo's excited voice.</p>
 
-<p>"What do you mean, 'what to do'? Just give birth to Sua's younger sibling! So, what time are you coming today?"</p>
+<p>"What do you mean, 'what to do'? Just give birth to Soa's younger sibling! So, what time are you coming today?"</p>
 
 <p>Shiwoo, half-seriously speaking but also feeling a bit amused, quickly changed the subject.</p>
 
@@ -38,7 +38,7 @@ chapter = 123
 
 <p>"date,"</p>
 
-<p>Shiwoo recalled the video of a family gathering trip from early summer last year that Seonju Imo had sent him. The shocking video containing Seonju Imo sucking Sua's pussy. Perhaps Seonju Imo also had the same tendencies as Sehee Nuna. Imagining Seonju Imo sucking Sehee Nuna's pussy for a moment, Shiwoo felt a dizzying sensation.</p>
+<p>Shiwoo recalled the video of a family gathering trip from early summer last year that Seonju Imo had sent him. The shocking video containing Seonju Imo sucking Soa's pussy. Perhaps Seonju Imo also had the same tendencies as Sehee Nuna. Imagining Seonju Imo sucking Sehee Nuna's pussy for a moment, Shiwoo felt a dizzying sensation.</p>
 
 <p>"Oh? But what kind of date?"</p>
 

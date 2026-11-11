@@ -62,11 +62,11 @@ chapter = 747
 
 <p>Mom finally goes as far as to utter the word 'sex' right in front of Shiwoo, vomiting out all the pent-up resentment and complex emotions she had kept buried regarding Aunt Seonju.</p>
 
-<p>"I told her to be so careful, but then she went and got pregnant with Sua!"</p>
+<p>"I told her to be so careful, but then she went and got pregnant with Soa!"</p>
 
 <p>"Fine, if she's pregnant, she has to give birth, but why is she so desperate to drag her own daughter into these things?!"</p>
 
-<p>"And if you look closely, Sua might stay quiet and act reserved, but she's a total fox just like her mother!"</p>
+<p>"And if you look closely, Soa might stay quiet and act reserved, but she's a total fox just like her mother!"</p>
 
 <p>"She pretends to greet me shyly while hugging me, but she's touching me here and there! I caught her and scolded her a few times, so she doesn't do it anymore, but I'm certain Seonju was the one who told her to do it."</p>
 
@@ -84,7 +84,7 @@ chapter = 747
 
 <p>"Alright, alright! I swear, from now on, if it even looks like Seonju is treating you poorly, I won't leave her alone!"</p>
 
-<p>"I'll put a blindfold and handcuffs on Sua and lock her in a dog cage, and even if I have to starve her for days, I'll fix Seonju's habit somehow. So don't worry anymore!"</p>
+<p>"I'll put a blindfold and handcuffs on Soa and lock her in a dog cage, and even if I have to starve her for days, I'll fix Seonju's habit somehow. So don't worry anymore!"</p>
 
 <p>Shiwoo speaks with a serious expression, looking directly at his mother.</p>
 
@@ -166,7 +166,7 @@ chapter = 747
 
 <p>Shiwoo continues to talk, spearing two or three scallops at a time and eating them.</p>
 
-<p>"Since you obviously did it with Seonju back when you were Dad's slave, that means you've done it with almost everyone in the family except Sua. You should have some kind of gut feeling by now, right? Whether you're a lesbian or whatever..."</p>
+<p>"Since you obviously did it with Seonju back when you were Dad's slave, that means you've done it with almost everyone in the family except Soa. You should have some kind of gut feeling by now, right? Whether you're a lesbian or whatever..."</p>
 
 <p>Shiwoo adds the comment like a joke, but he is relentless, driving the questions home as if he has no intention of backing down until he gets an answer.</p>
 

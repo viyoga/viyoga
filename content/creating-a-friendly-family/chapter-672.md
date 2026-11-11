@@ -1,28 +1,28 @@
 +++
-title = "Chapter 672: [Incest] Making a Friendly Family 672 (Aunt Sun-ju, Se-young, Su-ah) (Kitchen)"
+title = "Chapter 672: [Incest] Making a Friendly Family 672 (Aunt Sun-ju, Se-young, Soa) (Kitchen)"
 weight = 672
 [extra]
 chapter = 672
 +++
-<p>Siu gently moves Sua's hands, which were shyly covering her groin, to the side.</p>
+<p>Siu gently moves Soa's hands, which were shyly covering her groin, to the side.</p>
 
-<p>Sua's hands moved without resistance, as if naturally submitting to Siu's touch.</p>
+<p>Soa's hands moved without resistance, as if naturally submitting to Siu's touch.</p>
 
 <p>Her groin, which had been hidden by her hands, carefully revealed itself.</p>
 
-<p>The residual heat and other fluids seeped between the folds of her flesh, like a long-suppressed lump, pushing their way out of Sua's body as if in a persistent reflux.</p>
+<p>The residual heat and other fluids seeped between the folds of her flesh, like a long-suppressed lump, pushing their way out of Soa's body as if in a persistent reflux.</p>
 
 <p>Siu gathered her slightly spread thighs inward until they touched.</p>
 
-<p>Next, Siu raised Sua's straightened knees slightly, making her thighs tilt a bit from her knees toward her groin.</p>
+<p>Next, Siu raised Soa's straightened knees slightly, making her thighs tilt a bit from her knees toward her groin.</p>
 
 <p>An exquisite tilt, just enough so that the sushi placed on her thighs wouldn't slide off...</p>
 
-<p>A concave, triangular valley was formed in Sua's groin.</p>
+<p>A concave, triangular valley was formed in Soa's groin.</p>
 
 <p>"Make sure this doesn't fall!"</p>
 
-<p>Siu spoke while applying pressure with his hands to squeeze Sua's knees inward once more.</p>
+<p>Siu spoke while applying pressure with his hands to squeeze Soa's knees inward once more.</p>
 
 <p>It wasn't clear if the</p>
 
@@ -30,17 +30,17 @@ chapter = 672
 
 <p>he warned her not to let fall referred to the sushi on her thighs or her knees that he had just pushed together.</p>
 
-<p>However, Sua tensed her entire body as if she were focusing on both at the same time.</p>
+<p>However, Soa tensed her entire body as if she were focusing on both at the same time.</p>
 
 <p>A taut tension hung over the muscles of her pelvis and thighs.</p>
 
 <p>And through Siu's hands, which were squeezing her knees together, a fine trembling was transmitted.</p>
 
-<p>Siu slowly removed his hands from Sua's knees and poured the mouth of the liquor bottle between her gathered thighs.</p>
+<p>Siu slowly removed his hands from Soa's knees and poured the mouth of the liquor bottle between her gathered thighs.</p>
 
-<p>As the cold alcohol slid over Sua's pressed-together thighs, it seemed to seep into that secret, damp triangular valley.</p>
+<p>As the cold alcohol slid over Soa's pressed-together thighs, it seemed to seep into that secret, damp triangular valley.</p>
 
-<p>Clear liquor pooled deep within Sua's groin, and a faint moisture soaked the surrounding area.</p>
+<p>Clear liquor pooled deep within Soa's groin, and a faint moisture soaked the surrounding area.</p>
 
 <p>Siu was now mimicking a scene from a video he had previously received from Chul-jin, following it exactly as he remembered.</p>
 
@@ -62,9 +62,9 @@ chapter = 672
 
 <p>"Here, drink!"</p>
 
-<p>Siu briefly set down the bottle and pointed with his fingertip toward Sua's groin where the sake was pooled, as if offering a drink to Aunt Sunju.</p>
+<p>Siu briefly set down the bottle and pointed with his fingertip toward Soa's groin where the sake was pooled, as if offering a drink to Aunt Sunju.</p>
 
-<p>Aunt Sunju had been watching the entire scene from right in front—the way Siu gathered Sua's thighs and poured the liquor into her triangular valley.</p>
+<p>Aunt Sunju had been watching the entire scene from right in front—the way Siu gathered Soa's thighs and poured the liquor into her triangular valley.</p>
 
 <p>"Uh... what?.."</p>
 
@@ -78,31 +78,31 @@ chapter = 672
 
 <p>As if she finally understood Siu's meaning, Aunt Sunju lifted her hips from her chair and half-rose.</p>
 
-<p>She placed her hand lightly on Sua's side and slowly leaned her body forward.</p>
+<p>She placed her hand lightly on Soa's side and slowly leaned her body forward.</p>
 
-<p>Her loosely dilated pupils and dazed gaze naturally drifted toward the triangular valley below Sua's pubic bone.</p>
+<p>Her loosely dilated pupils and dazed gaze naturally drifted toward the triangular valley below Soa's pubic bone.</p>
 
-<p>Aunt Sunju slowly extended her head, bringing her mouth toward the alcohol pooled in Sua's groin.</p>
+<p>Aunt Sunju slowly extended her head, bringing her mouth toward the alcohol pooled in Soa's groin.</p>
 
 <p>Her lips approached, drawn as if by a magnet toward the space in that triangular valley where the liquor had gathered.</p>
 
-<p>At a certain point, Aunt Sunju's extended lips touched the liquid pooled in Sua's valley.</p>
+<p>At a certain point, Aunt Sunju's extended lips touched the liquid pooled in Soa's valley.</p>
 
 <p>"Slurp! Chu-uuup, sluuuurp."</p>
 
 <p>Aunt Sunju sucked in the calmly pooled liquor as if inhaling it into her mouth.</p>
 
-<p>The liquor that had been gathered in Sua's valley quickly disappeared, revealing the moist flesh that had been hidden beneath.</p>
+<p>The liquor that had been gathered in Soa's valley quickly disappeared, revealing the moist flesh that had been hidden beneath.</p>
 
 <p>"Aum! Gulp, gulp, gulp!"</p>
 
 <p>Aunt Sunju swallowed the liquor she held in her mouth as if savoring it.</p>
 
-<p>Following that, she swept her tongue upward, digging between the gaps of Sua's moisture-laden flesh.</p>
+<p>Following that, she swept her tongue upward, digging between the gaps of Soa's moisture-laden flesh.</p>
 
 <p>"Haa-ut!"</p>
 
-<p>At the slippery yet scraping pleasure touching the cleft of her pussy, Sua groaned, her body flinching for a moment as if she had been shocked.</p>
+<p>At the slippery yet scraping pleasure touching the cleft of her pussy, Soa groaned, her body flinching for a moment as if she had been shocked.</p>
 
 <p>The filth that had leaked out from the gaps of her flesh must have been felt by the tip of Aunt Sunju's tongue as well...</p>
 
@@ -124,17 +124,17 @@ chapter = 672
 
 <p>"Ah... with my mouth?"</p>
 
-<p>Then, as if complying, she set the chopsticks down on the table, lowered her head, and brought her mouth to Sua's stomach.</p>
+<p>Then, as if complying, she set the chopsticks down on the table, lowered her head, and brought her mouth to Soa's stomach.</p>
 
 <p>"Ha-um!"</p>
 
 <p>Aunt Sunju gently bit into the exact piece of sushi Siu had pointed to with her lips.</p>
 
-<p>Her lips brushed against the skin on Sua's stomach.</p>
+<p>Her lips brushed against the skin on Soa's stomach.</p>
 
-<p>Instantly, Sua's abdominal muscles tightened, and a fine tremor ran through her body.</p>
+<p>Instantly, Soa's abdominal muscles tightened, and a fine tremor ran through her body.</p>
 
-<p>As if conscious of Sua's reaction and Siu's gaze, Aunt Sunju kept her lips pressed there for a moment before using her tongue to finish pulling the sushi into her mouth.</p>
+<p>As if conscious of Soa's reaction and Siu's gaze, Aunt Sunju kept her lips pressed there for a moment before using her tongue to finish pulling the sushi into her mouth.</p>
 
 <p>In the spot where the sushi had been, the liquor and saliva from around Aunt Sunju's mouth were left behind, dampening the skin.</p>
 
@@ -168,27 +168,27 @@ chapter = 672
 
 <p>"I want to try eating one like Aunt Sunju too"</p>
 
-<p>After saying that to Siu, Seyoung got up from her seat and bit into a piece of sushi placed on Sua's stomach with her lips.</p>
+<p>After saying that to Siu, Seyoung got up from her seat and bit into a piece of sushi placed on Soa's stomach with her lips.</p>
 
 <p>"U-am!"</p>
 
-<p>With her lips pressed against Sua's side, Seyoung also took the sushi smeared with Siu's semen into her mouth and began to chew it, munching away.</p>
+<p>With her lips pressed against Soa's side, Seyoung also took the sushi smeared with Siu's semen into her mouth and began to chew it, munching away.</p>
 
 <p>"Aum, am, ham...!"</p>
 
-<p>Seyoung's munching lips were rubbing against Sua's side.</p>
+<p>Seyoung's munching lips were rubbing against Soa's side.</p>
 
 <p>"Haa... ha... haaaa..."</p>
 
-<p>Sua writhed and squirmed, as if Seyoung's lips were incredibly ticklish.</p>
+<p>Soa writhed and squirmed, as if Seyoung's lips were incredibly ticklish.</p>
 
-<p>Occasionally, as if on purpose, Seyoung's tongue would dart out and deeply lick Sua's skin.</p>
+<p>Occasionally, as if on purpose, Seyoung's tongue would dart out and deeply lick Soa's skin.</p>
 
 <p>"Hnngh... ha-ut...! Haaa-ang!"</p>
 
-<p>Each time, Sua let out groans mixed with sharp breaths, her body bucking as if it were hard to endure.</p>
+<p>Each time, Soa let out groans mixed with sharp breaths, her body bucking as if it were hard to endure.</p>
 
-<p>After fully enjoying the taste of the sushi and lightly stroking Sua's side with her lips, Seyoung pulled her lips away and lifted her head.</p>
+<p>After fully enjoying the taste of the sushi and lightly stroking Soa's side with her lips, Seyoung pulled her lips away and lifted her head.</p>
 
 <p>With a satisfied face, Seyoung swallowed the remaining sushi and looked directly at Siu.</p>
 
@@ -202,9 +202,9 @@ chapter = 672
 
 <p>Seyoung made a sound of satisfaction as her head was stroked by Siu's hand, along with her decorative ears.</p>
 
-<p>Siu looked at Seyoung with satisfaction for a moment, then picked up the liquor bottle again and poured more alcohol into Sua's groin.</p>
+<p>Siu looked at Seyoung with satisfaction for a moment, then picked up the liquor bottle again and poured more alcohol into Soa's groin.</p>
 
-<p>Soon, Sua's triangular valley was filled to the brim with clear liquor.</p>
+<p>Soon, Soa's triangular valley was filled to the brim with clear liquor.</p>
 
 <p>"Seyoung, you drink some too"</p>
 

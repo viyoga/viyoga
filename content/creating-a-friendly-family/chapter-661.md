@@ -1,5 +1,5 @@
 +++
-title = "Chapter 661: [Incest] Making a Friendly Family 661 (Su-ah, Se-young) (Kitchen)"
+title = "Chapter 661: [Incest] Making a Friendly Family 661 (Soa, Se-young) (Kitchen)"
 weight = 661
 [extra]
 chapter = 661
@@ -14,17 +14,17 @@ chapter = 661
 
 <p>The tuna sushi, coated in semen like a sauce, gleamed smoothly as if it were holding a polished luster.</p>
 
-<p>He considered placing the sushi directly onto Sua's body but paused to look at her face.</p>
+<p>He considered placing the sushi directly onto Soa's body but paused to look at her face.</p>
 
 <p>Her mouth was half-open, exhaling unstable breaths.</p>
 
 <p>Shiwoo decided to try feeding her a piece of sushi first.</p>
 
-<p>Feeling it would be a waste to just feed it to her normally, Shiwoo brought the tuna sushi toward the crack between Sua's legs.</p>
+<p>Feeling it would be a waste to just feed it to her normally, Shiwoo brought the tuna sushi toward the crack between Soa's legs.</p>
 
 <p>"Heut!"</p>
 
-<p>As if startled by the sudden sensation of the sushi touching her, Sua's propped-up legs wavered and shook inward before finding their place again.</p>
+<p>As if startled by the sudden sensation of the sushi touching her, Soa's propped-up legs wavered and shook inward before finding their place again.</p>
 
 <p>The white fluid flowing from her crack and the filth pushed out spread over the tuna flesh and rice grains, adding more sauce to them.</p>
 
@@ -34,11 +34,11 @@ chapter = 661
 
 <p>After confirming that the leaked filth and sauce were spread somewhat evenly over the tuna sushi, Shiwoo pulled the sushi away from her groin.</p>
 
-<p>Shiwoo brought the sushi held in his chopsticks to Sua's lips.</p>
+<p>Shiwoo brought the sushi held in his chopsticks to Soa's lips.</p>
 
-<p>Sua, whose eyes were covered by a blindfold, flinched once more at the sensation and the subtle scent touching her lips.</p>
+<p>Soa, whose eyes were covered by a blindfold, flinched once more at the sensation and the subtle scent touching her lips.</p>
 
-<p>As Shiwoo carefully rubbed the tuna around her lips, Sua's mouth slowly opened as if accepting the sensation.</p>
+<p>As Shiwoo carefully rubbed the tuna around her lips, Soa's mouth slowly opened as if accepting the sensation.</p>
 
 <p>Shiwoo pushed the sushi between her parted lips.</p>
 
@@ -54,7 +54,7 @@ chapter = 661
 
 <p>Shiwoo also meticulously squeezed the wasabi sauce from its pack around her navel.</p>
 
-<p>Sua was accepting Shiwoo's work, her abdominal muscles held in tension.</p>
+<p>Soa was accepting Shiwoo's work, her abdominal muscles held in tension.</p>
 
 <p>Next, Shiwoo used the chopsticks to place the pieces of sushi from the box onto her body.</p>
 
@@ -68,7 +68,7 @@ chapter = 661
 
 <p>With a careful and deliberate touch, as if refining an unstable sculpture, Shiwoo applied pressure to the sushi.</p>
 
-<p>The eel sushi sat precariously, wedged onto the protrusion rising from the thick flesh of Sua's breast.</p>
+<p>The eel sushi sat precariously, wedged onto the protrusion rising from the thick flesh of Soa's breast.</p>
 
 <p>It felt as though a secret thrill, a mix of alien warmth and sensation, was spreading through her entire body.</p>
 
@@ -82,19 +82,19 @@ chapter = 661
 
 <p>"Aum aam... huaaa..."</p>
 
-<p>After finely chewing the tuna sushi in her mouth, Sua swallowed it all down her throat and let out a cautious breath of relief.</p>
+<p>After finely chewing the tuna sushi in her mouth, Soa swallowed it all down her throat and let out a cautious breath of relief.</p>
 
 <p>"You can move your arms freely! But once you've taken a position, don't move!"</p>
 
 <p>Shiwoo commanded while looking down at her.</p>
 
-<p>Sua hesitated for a moment, then pulled her hands out from behind her head and covered her face with one arm.</p>
+<p>Soa hesitated for a moment, then pulled her hands out from behind her head and covered her face with one arm.</p>
 
 <p>Even though she was wearing a blindfold, did she want to hide the expressions on the parts of her face that weren't covered?</p>
 
-<p>Sua reached her other arm down toward her groin, covering the vital area between her spread legs.</p>
+<p>Soa reached her other arm down toward her groin, covering the vital area between her spread legs.</p>
 
-<p>As if sensing her own fate, Sua carefully wrapped her own face and body, taking a posture as if to protect herself from someone's gaze.</p>
+<p>As if sensing her own fate, Soa carefully wrapped her own face and body, taking a posture as if to protect herself from someone's gaze.</p>
 
 <p>Shiwoo picked up his smartphone camera and took photos of her.</p>
 
@@ -126,7 +126,7 @@ chapter = 661
 
 <p>Soon, the numbers next to the video and photos he had sent disappeared.</p>
 
-<p>He saw Sua, who was lying there like a plate, flinch slightly for a moment.</p>
+<p>He saw Soa, who was lying there like a plate, flinch slightly for a moment.</p>
 
 <p>It felt as if the tension that had been submerged in still water suddenly leaped above the surface.</p>
 
@@ -136,7 +136,7 @@ chapter = 661
 
 <p>How would Aunt Seonju feel, seeing her daughter being utilized as a sushi plate?</p>
 
-<p>She had not sent any reply, even after seeing the videos and photos of Sua that Shiwoo had sent.</p>
+<p>She had not sent any reply, even after seeing the videos and photos of Soa that Shiwoo had sent.</p>
 
 <p>Was it because of Shiwoo's command for her to come with the mindset of an aunt, not a slave?</p>
 
@@ -178,7 +178,7 @@ chapter = 661
 
 <p>In Seyoung's words, only the word 'alone' remained particularly distinct.</p>
 
-<p>It wasn't clear whether that was an apology toward Sua, who had been tormented by Shiwoo, or gratitude toward Shiwoo, who had prepared the sushi.</p>
+<p>It wasn't clear whether that was an apology toward Soa, who had been tormented by Shiwoo, or gratitude toward Shiwoo, who had prepared the sushi.</p>
 
 <p>But either way, it seemed certain that she was accepting the work Shiwoo had prepared with such care in a favorable and positive light.</p>
 

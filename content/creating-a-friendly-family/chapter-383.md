@@ -142,7 +142,7 @@ chapter = 383
 
 <p>It seemed that Mom was intentionally not looking at the group text message window.</p>
 
-<p>Was it after inviting Seyoung and Sua to the group chat?</p>
+<p>Was it after inviting Seyoung and Soa to the group chat?</p>
 
 <p>Was she embarrassed to show her youngest daughters the 모습 of herself, their mother, treating Shiwoo as a slave?</p>
 
@@ -204,7 +204,7 @@ chapter = 383
 
 <p>Seyoung smiled shyly when she saw Shiwoo, then quickly came over and linked arms with Shiwoo.</p>
 
-<p>"Next time we go to the cafe in the basement of the academy, Sua and I should get ten ice creams from Oppa. Hehe"</p>
+<p>"Next time we go to the cafe in the basement of the academy, Soa and I should get ten ice creams from Oppa. Hehe"</p>
 
 <p>Seyoung buried her face in Shiwoo's arm and spoke as if complaining about what had just happened.</p>
 

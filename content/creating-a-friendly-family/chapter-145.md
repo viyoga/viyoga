@@ -44,7 +44,7 @@ chapter = 145
 
 <p>The conversations he had with Imo via text.</p>
 
-<p>Mom said she knew Sua was Dad's daughter, but she didn't know about what happened at the pension last year.</p>
+<p>Mom said she knew Soa was Dad's daughter, but she didn't know about what happened at the pension last year.</p>
 
 <p>That meant Dad was keeping his sexual relationship with Sejin Nuna, who was his own daughter, a secret from Mom.</p>
 

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 685: [Incest] Making a Friendly Family 685 (Mom, Se-young, Su-ah) (Kitchen, Living Room)"
+title = "Chapter 685: [Incest] Making a Friendly Family 685 (Mom, Se-young, Soa) (Kitchen, Living Room)"
 weight = 685
 [extra]
 chapter = 685
@@ -60,7 +60,7 @@ chapter = 685
 
 <p>At the same time, Shiwoo sent the video and photos of the dinner time he had recorded earlier on his smartphone to Mom...</p>
 
-<p>The video and photos of the play he had conducted on the kitchen table, using Sua as a dish, quietly uploaded into Mom's chat window.</p>
+<p>The video and photos of the play he had conducted on the kitchen table, using Soa as a dish, quietly uploaded into Mom's chat window.</p>
 
 <p>After checking the video and photos Shiwoo sent through the chat, Mom was silent for a moment.</p>
 
@@ -76,11 +76,11 @@ chapter = 685
 
 <p>Shiwoo replied as if lightly agreeing with her words.</p>
 
-<p>[Did Seonju and Sua go home right after dinner? Looking at the mess, it's going to take a while to clean up the kitchen!]</p>
+<p>[Did Seonju and Soa go home right after dinner? Looking at the mess, it's going to take a while to clean up the kitchen!]</p>
 
 <p>After checking the dinner photos Shiwoo had sent, Mom spoke in a complaining tone.</p>
 
-<p>[The kitchen is mostly all cleaned up. While I was in the room with Seonju, Seyoung cleaned it all up Seonju is currently passed out on the bed in Sejin's room, and Seyoung has gone into the shower room to wash Sua! I think we really raised our youngest daughter incredibly well, don't you?]</p>
+<p>[The kitchen is mostly all cleaned up. While I was in the room with Seonju, Seyoung cleaned it all up Seonju is currently passed out on the bed in Sejin's room, and Seyoung has gone into the shower room to wash Soa! I think we really raised our youngest daughter incredibly well, don't you?]</p>
 
 <p>In response to Mom's complaints and questions, Shiwoo explained the situation in the house in detail, then praised Seyoung, soothing and reassuring her gently.</p>
 

@@ -74,7 +74,7 @@ chapter = 222
 
 <p>Mom seemed to have completely forgotten about what she was originally going to argue with Shiwoo about, and lost her way.</p>
 
-<p>,hehehe I wonder if it'll go in well with Seyoung and Sua?,</p>
+<p>,hehehe I wonder if it'll go in well with Seyoung and Soa?,</p>
 
 <p>Shiwoo's text seemed to be trying to provoke Mom again.</p>
 
@@ -86,21 +86,21 @@ chapter = 222
 
 <p>,Mom I think we should go now!,</p>
 
-<p>Sua, who had been playing with the dog for a while, looked at the wall clock in the living room and spoke towards the kitchen where Seonju -imo was.</p>
+<p>Soa, who had been playing with the dog for a while, looked at the wall clock in the living room and spoke towards the kitchen where Seonju -imo was.</p>
 
 <p>,Huh? Are you leaving already?,</p>
 
-<p>Shiwoo momentarily took his eyes off the smartphone screen he had been looking at and spoke to Sua.</p>
+<p>Shiwoo momentarily took his eyes off the smartphone screen he had been looking at and spoke to Soa.</p>
 
 <p>,Yeah... it's almost time for our kids at home to eat, so Mom and I have to go now Uh... it seems like Mom's business is over too...,</p>
 
-<p>Sua said shyly, unable to make eye contact with Shiwoo.</p>
+<p>Soa said shyly, unable to make eye contact with Shiwoo.</p>
 
 <p>Was it because she found Mom being harassed by Shiwoo and was trying to rescue her?</p>
 
 <p>,Ah... really? Then I guess you have to go,</p>
 
-<p>Shiwoo felt a slightly unnatural sense of discomfort at Sua's trailing words, but just ignored it and answered.</p>
+<p>Shiwoo felt a slightly unnatural sense of discomfort at Soa's trailing words, but just ignored it and answered.</p>
 
 <p>After answering, Shiwoo immediately got up from his seat and approached Seonju -imo in the kitchen.</p>
 
@@ -114,7 +114,7 @@ chapter = 222
 
 <p>Shiwoo left Seonju -imo, who had gotten up from her seat, behind him and headed towards the dressing room where Mom was.</p>
 
-<p>,Mom Seonju -imo and Sua are going home now!,</p>
+<p>,Mom Seonju -imo and Soa are going home now!,</p>
 
 <p>Shiwoo said loudly to Mom, who was in the dressing room.</p>
 
@@ -126,7 +126,7 @@ chapter = 222
 
 <p>,Yeah They have to go feed the dog And Seonju -imo's business is all done too,</p>
 
-<p>Shiwoo conveyed the words he had heard from Sua to Mom as they were.</p>
+<p>Shiwoo conveyed the words he had heard from Soa to Mom as they were.</p>
 
 <p>Mom was silent again for a while, as if hesitating about something.</p>
 
@@ -146,7 +146,7 @@ chapter = 222
 
 <p>After saying that, Shiwoo sent a text to Mom with his smartphone.</p>
 
-<p>,Why? Are you worried that you'll be raped in front of your daughters after Seonju and Sua leave? Or is it the other way around? ㅋㅋ,</p>
+<p>,Why? Are you worried that you'll be raped in front of your daughters after Seonju and Soa leave? Or is it the other way around? ㅋㅋ,</p>
 
 <p>Shiwoo was speaking rudely and disrespectfully, looking down on Mom.</p>
 
@@ -210,7 +210,7 @@ chapter = 222
 
 <p>Sehee seemed to be blushing as she looked at Mom wearing the red dog collar and Shiwoo standing proudly next to her.</p>
 
-<p>,Oh, right I was thinking of taking Seyoung and Sua to the department store tomorrow to buy some dog supplies, is that okay? Mom?,</p>
+<p>,Oh, right I was thinking of taking Seyoung and Soa to the department store tomorrow to buy some dog supplies, is that okay? Mom?,</p>
 
 <p>Shiwoo was asking Mom, who was wearing the dog collar.</p>
 
@@ -224,6 +224,6 @@ chapter = 222
 
 <p>Mom was answering as if her spirit had been broken by Shiwoo's oppressive question.</p>
 
-<p>,That's great Then I'll pick you up with Seyoung right after breakfast tomorrow Sua, get ready at home too!,</p>
+<p>,That's great Then I'll pick you up with Seyoung right after breakfast tomorrow Soa, get ready at home too!,</p>
 
-<p>Shiwoo said to Sua with a satisfied expression as soon as he heard Mom's answer.</p>
+<p>Shiwoo said to Soa with a satisfied expression as soon as he heard Mom's answer.</p>

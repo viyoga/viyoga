@@ -1,16 +1,16 @@
 +++
-title = "Chapter 369: [Incest] Creating a Close Family 369 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 369: [Incest] Creating a Close Family 369 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 369
 [extra]
 chapter = 369
 +++
 <p>A feeling like an annelid invertebrate covered in slime is crawling over the skin of his buttocks.</p>
 
-<p>Seyoung's tongue licks the flesh around his buttocks, then suddenly begins to move towards Shiwoo's anus, which Sua is sucking.</p>
+<p>Seyoung's tongue licks the flesh around his buttocks, then suddenly begins to move towards Shiwoo's anus, which Soa is sucking.</p>
 
 <p>Seyoung's tongue, erect and thrusting like a dagger, burrows into the hole between Shiwoo's butt cheeks.</p>
 
-<p>Seyoung's tongue touches Sua's tongue, which is licking Shiwoo's anus.</p>
+<p>Seyoung's tongue touches Soa's tongue, which is licking Shiwoo's anus.</p>
 
 <p>With the sisters' tongues touching and stuck together, they begin to rub Shiwoo's anus, crisscrossing up and down.</p>
 
@@ -32,7 +32,7 @@ chapter = 369
 
 <p>"Heeuuut!"</p>
 
-<p>Unable to endure any longer, Shiwoo lets out a huge moaning sound at the rimjob Seyoung and Sua are giving him.</p>
+<p>Unable to endure any longer, Shiwoo lets out a huge moaning sound at the rimjob Seyoung and Soa are giving him.</p>
 
 <p>From below, where Shiwoo's gaze couldn't reach, he seemed to hear Seyoung's giggling laughter as she watched Shiwoo's reaction.</p>
 
@@ -56,7 +56,7 @@ chapter = 369
 
 <p>He clearly remembered sucking Seonju Imo-nim's ass before, but this was the first time he had his own anus licked like this.</p>
 
-<p>Moreover, it was a new form of caress that he was receiving voluntarily from Seyoung and Sua, even without his command or request.</p>
+<p>Moreover, it was a new form of caress that he was receiving voluntarily from Seyoung and Soa, even without his command or request.</p>
 
 <p>That caress was raising Shiwoo's senses to a different dimension than ever before.</p>
 
@@ -64,13 +64,13 @@ chapter = 369
 
 <p>The small, soft tongues of his two younger sisters, digging more and more fiercely into his anal wrinkles as if competing to enter his anus.</p>
 
-<p>Soon, Sua, seeing what Seyoung was doing, followed suit, putting all her strength into her tongue and caressing Shiwoo's anus even more persistently.</p>
+<p>Soon, Soa, seeing what Seyoung was doing, followed suit, putting all her strength into her tongue and caressing Shiwoo's anus even more persistently.</p>
 
 <p>The two younger sisters' tongues dig into Shiwoo's anus so intensely that they seem to be completely imprinted on his senses.</p>
 
 <p>Shiwoo grits his teeth, closes his eyes tightly, and endures the two sisters' caresses.</p>
 
-<p>Shiwoo suddenly imagines all the family members he has had relations with licking his anus like Seyoung and Sua.</p>
+<p>Shiwoo suddenly imagines all the family members he has had relations with licking his anus like Seyoung and Soa.</p>
 
 <p>Just as the scenes of new rituals and games with his family were about to become more concrete in his mind...</p>
 
@@ -86,7 +86,7 @@ chapter = 369
 
 <p>The sensation of his lips being spread open and pressed against his anus, sucking as hard as they could, was being felt in Shiwoo's anus.</p>
 
-<p>Shiwoo could tell that it was Seyoung who was pushing Sua away, covering her lips around his anus, and sucking the flesh inside the hole, without even looking back.</p>
+<p>Shiwoo could tell that it was Seyoung who was pushing Soa away, covering her lips around his anus, and sucking the flesh inside the hole, without even looking back.</p>
 
 <p>Seyoung, using the powerful suction of her mouth to squeeze and suck his anus.</p>
 
@@ -108,11 +108,11 @@ chapter = 369
 
 <p>Only then does Shiwoo relax his body as if relieved of tension, burying his face in Seonju Imo-nim's chest.</p>
 
-<p>Sua, who had been pushed away by Seyoung and had her spot temporarily taken, puts her tongue to Shiwoo's empty anus as soon as Seyoung removes her lips.</p>
+<p>Soa, who had been pushed away by Seyoung and had her spot temporarily taken, puts her tongue to Shiwoo's empty anus as soon as Seyoung removes her lips.</p>
 
-<p>Sua diligently caresses Shiwoo's anus and its surroundings with her own soft tongue movements.</p>
+<p>Soa diligently caresses Shiwoo's anus and its surroundings with her own soft tongue movements.</p>
 
-<p>As if reassured once again, Shiwoo relaxes his body and fully feels the cozy and soft sensation of Sua's tongue with a languid feeling.</p>
+<p>As if reassured once again, Shiwoo relaxes his body and fully feels the cozy and soft sensation of Soa's tongue with a languid feeling.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -120,7 +120,7 @@ chapter = 369
 
 <p>At that moment, a hot and moist sensation, like something enveloping his balls, is felt from below, where his vision is limited, along with an exaggerated sucking sound.</p>
 
-<p>The sensation of Seonju Imo-nim's smooth vagina hole on his penis, and the cozy and delicate sensation of Sua's tongue on his anus.</p>
+<p>The sensation of Seonju Imo-nim's smooth vagina hole on his penis, and the cozy and delicate sensation of Soa's tongue on his anus.</p>
 
 <p>And a new sensation that seemed to be added in between.</p>
 

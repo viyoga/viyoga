@@ -8,7 +8,7 @@ chapter = 176
 
 <p>The number next to the sent photo disappeared in just a few seconds.</p>
 
-<p>The moment it was confirmed that the photo was sent to Sua, Seonju Imo's body trembled.</p>
+<p>The moment it was confirmed that the photo was sent to Soa, Seonju Imo's body trembled.</p>
 
 <p>The slick flesh inside Seonju Imo's vagina also clung to Shiwoo's massive cock, creating subtle aftershocks.</p>
 
@@ -76,63 +76,63 @@ chapter = 176
 
 <p>At first, he was going to ignore the smartphone text, but he couldn't because of the name on the notification message.</p>
 
-<p>It was a message back from Sua.</p>
+<p>It was a message back from Soa.</p>
 
 <p>Feeling as if he had been caught off guard, Shiwoo felt goosebumps all over his body.</p>
 
 <p>A thrilling and trembling sensation running down his spine.</p>
 
-<p>It was only natural, but Sua was reacting to the photos Shiwoo and Seonju Imo had sent.</p>
+<p>It was only natural, but Soa was reacting to the photos Shiwoo and Seonju Imo had sent.</p>
 
-<p>Why hadn't Shiwoo thought that Sua would reply right away?</p>
+<p>Why hadn't Shiwoo thought that Soa would reply right away?</p>
 
 <p>A vague sense of reality took a clear form and felt like it was overwhelming Shiwoo.</p>
 
-<p>Shiwoo tried to check the message from Sua while maintaining the movement of his arm strangling Seonju Imo and his shaking waist.</p>
+<p>Shiwoo tried to check the message from Soa while maintaining the movement of his arm strangling Seonju Imo and his shaking waist.</p>
 
 <p>Shiwoo reached out and touched the message notification window.</p>
 
-<p>The screen switched to the conversation window with Sua, and a sent video was visible.</p>
+<p>The screen switched to the conversation window with Soa, and a sent video was visible.</p>
 
 <p>As soon as Shiwoo saw the thumbnail of the video, he felt like his head was turning white.</p>
 
-<p>Sua's figure was visible, reflected in the translucent glass door leading to the shower room.</p>
+<p>Soa's figure was visible, reflected in the translucent glass door leading to the shower room.</p>
 
 <p>The glass door of the shower room had a translucent sticker on the inside, so you could see your reflection on the smooth surface on the outside.</p>
 
-<p>Right in front of that smooth, translucent glass door, Sua was sitting on the floor of the dressing room with her legs spread and her upper body tilted back halfway, and that figure was captured and sent as a video.</p>
+<p>Right in front of that smooth, translucent glass door, Soa was sitting on the floor of the dressing room with her legs spread and her upper body tilted back halfway, and that figure was captured and sent as a video.</p>
 
-<p>Shiwoo turned down the volume of his smartphone as much as possible and played the video of Sua.</p>
+<p>Shiwoo turned down the volume of his smartphone as much as possible and played the video of Soa.</p>
 
-<p>The inside of the shower room was dark, so Sua's figure was as clear as it would be in a mirror.</p>
+<p>The inside of the shower room was dark, so Soa's figure was as clear as it would be in a mirror.</p>
 
-<p>Sua was only wearing the T-shirt she had been wearing just now, and her lower body was completely naked.</p>
+<p>Soa was only wearing the T-shirt she had been wearing just now, and her lower body was completely naked.</p>
 
-<p>Sua, wearing only a green T-shirt and sitting with her legs spread.</p>
+<p>Soa, wearing only a green T-shirt and sitting with her legs spread.</p>
 
-<p>The swollen crack and smooth mound between Sua's spread legs were clearly visible.</p>
+<p>The swollen crack and smooth mound between Soa's spread legs were clearly visible.</p>
 
 <p>One part of the egg-shaped vibrator inside the crack was sticking out from the gap, fixed and attached with skin tape.</p>
 
-<p>And the white fur ball located on the inside of Sua's thigh.</p>
+<p>And the white fur ball located on the inside of Soa's thigh.</p>
 
 <p>'Huh?'</p>
 
-<p>Shiwoo didn't recognize the white fur ball at first, but after seeing it wiggling inside Sua's leg, he was able to identify what it was.</p>
+<p>Shiwoo didn't recognize the white fur ball at first, but after seeing it wiggling inside Soa's leg, he was able to identify what it was.</p>
 
 <p>It was the puppy that Seyoung was going to adopt from Seonju Imo's house this time.</p>
 
-<p>Seyoung had taken it to the living room before Sua went to the bathroom...</p>
+<p>Seyoung had taken it to the living room before Soa went to the bathroom...</p>
 
 <p>What had happened while Shiwoo and Seonju Imo were in Shiwoo's room?</p>
 
-<p>The small puppy attached to the inside of her thigh gradually approached Sua's crack and began to stick out its tongue and lick the protrusion on the petals.</p>
+<p>The small puppy attached to the inside of her thigh gradually approached Soa's crack and began to stick out its tongue and lick the protrusion on the petals.</p>
 
 <p>"Haeueut Heueu..."</p>
 
-<p>Sua's head was tilted back, and she let out a moan.</p>
+<p>Soa's head was tilted back, and she let out a moan.</p>
 
-<p>Sua's faint voice, almost inaudible, was echoing from Shiwoo's smartphone, which had its volume turned down to the maximum.</p>
+<p>Soa's faint voice, almost inaudible, was echoing from Shiwoo's smartphone, which had its volume turned down to the maximum.</p>
 
 <p>Shiwoo's spine felt like it was being pierced by a spear from the dizzying sensation of pleasure.</p>
 

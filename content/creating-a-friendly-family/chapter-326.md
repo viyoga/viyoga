@@ -1,5 +1,5 @@
 +++
-title = "Chapter 326: [Incest] Creating a Close Family 326 (Mom, Se-hee, Se-young, Su-a)"
+title = "Chapter 326: [Incest] Creating a Close Family 326 (Mom, Se-hee, Se-young, Soa)"
 weight = 326
 [extra]
 chapter = 326
@@ -32,43 +32,43 @@ chapter = 326
 
 <p>With his smartphone in hand, Shiwoo casually puts his arm around his younger sisters' waists again.</p>
 
-<p>The smartphone in Shiwoo's hand is moved onto Sua's pelvis.</p>
+<p>The smartphone in Shiwoo's hand is moved onto Soa's pelvis.</p>
 
-<p>'The hamburger place, it seems to be somewhere around here, can Sua find it with the navigation map app?'</p>
+<p>'The hamburger place, it seems to be somewhere around here, can Soa find it with the navigation map app?'</p>
 
-<p>Shiwoo instructs Sua to find the location of the fast-food restaurant he had checked on the information board at the department store entrance.</p>
+<p>Shiwoo instructs Soa to find the location of the fast-food restaurant he had checked on the information board at the department store entrance.</p>
 
 <p>'Uhm... O... Okay... I'll look it up now... Just a moment...'</p>
 
-<p>Sua answers Shiwoo in an awkward tone, then takes her smartphone out of her pocket, opens the map app, and searches for the location of the fast-food restaurant.</p>
+<p>Soa answers Shiwoo in an awkward tone, then takes her smartphone out of her pocket, opens the map app, and searches for the location of the fast-food restaurant.</p>
 
-<p>Sua's smartphone, which was covered and smeared with Shiwoo's semen just a few minutes ago.</p>
+<p>Soa's smartphone, which was covered and smeared with Shiwoo's semen just a few minutes ago.</p>
 
 <p>Water stains from wiping it with wet wipes remained on the smartphone screen like smudges.</p>
 
-<p>While wiping the smartphone, he imagines the scene of his semen being smeared on Sua's delicate little hands like a fantasy.</p>
+<p>While wiping the smartphone, he imagines the scene of his semen being smeared on Soa's delicate little hands like a fantasy.</p>
 
-<p>Then, Shiwoo recalled his semen that must be smeared on Sua's crotch.</p>
+<p>Then, Shiwoo recalled his semen that must be smeared on Soa's crotch.</p>
 
-<p>It seemed like the smell of his semen was faintly wafting from under Sua's one-piece dress.</p>
+<p>It seemed like the smell of his semen was faintly wafting from under Soa's one-piece dress.</p>
 
 <p>Shiwoo's penis suddenly starts to throb, pushing against his bag.</p>
 
 <p>"There seem to be some smudges left?"</p>
 
-<p>Shiwoo speaks to Sua for no reason, gauging her reaction.</p>
+<p>Shiwoo speaks to Soa for no reason, gauging her reaction.</p>
 
 <p>"Yeah... I was in a hurry to clean it up..."</p>
 
-<p>When Shiwoo mentions the smudges on the smartphone, Sua blushes even more, her face already red, and answers shyly, as if she's in trouble.</p>
+<p>When Shiwoo mentions the smudges on the smartphone, Soa blushes even more, her face already red, and answers shyly, as if she's in trouble.</p>
 
 <p>At that moment, the sound of a message arrival notification rings from Shiwoo's smartphone along with a vibration.</p>
 
-<p>Shiwoo's smartphone vibrates, stuck to Sua's pelvis.</p>
+<p>Shiwoo's smartphone vibrates, stuck to Soa's pelvis.</p>
 
-<p>Sua flinches again, startled as if surprised.</p>
+<p>Soa flinches again, startled as if surprised.</p>
 
-<p>Shiwoo pats her pelvis as if trying to calm Sua, who is trembling reflexively.</p>
+<p>Shiwoo pats her pelvis as if trying to calm Soa, who is trembling reflexively.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -168,52 +168,52 @@ chapter = 326
 
 <p>As if she is willing to respond to the conversation at any time if Shiwoo brings up the contents of the chat room she just saw...</p>
 
-<p>Shiwoo smiles contentedly and turns his head towards Sua this time.</p>
+<p>Shiwoo smiles contentedly and turns his head towards Soa this time.</p>
 
-<p>Sua, who had been glancing at Shiwoo's smartphone screen, where he was texting Mom, until just before the smartphone switched to standby mode.</p>
+<p>Soa, who had been glancing at Shiwoo's smartphone screen, where he was texting Mom, until just before the smartphone switched to standby mode.</p>
 
-<p>When Shiwoo turns to look at her, Sua quickly lowers her head and pretends to focus on her own smartphone screen.</p>
+<p>When Shiwoo turns to look at her, Soa quickly lowers her head and pretends to focus on her own smartphone screen.</p>
 
 <p>"Did you find the hamburger place?"</p>
 
-<p>Shiwoo speaks to Sua, fiddling with his own smartphone for no reason.</p>
+<p>Shiwoo speaks to Soa, fiddling with his own smartphone for no reason.</p>
 
 <p>"Yeah... It seems to be right in front of us. Just a little further"</p>
 
-<p>Sua answers, staring at the navigation map screen without looking back at Shiwoo.</p>
+<p>Soa answers, staring at the navigation map screen without looking back at Shiwoo.</p>
 
-<p>The hamburger place that Sua is looking for was a trendy fast-food restaurant that operates like a cafe.</p>
+<p>The hamburger place that Soa is looking for was a trendy fast-food restaurant that operates like a cafe.</p>
 
 <p>Of course, there are no time restrictions, and you can freely charge your smartphone.</p>
 
-<p>Shiwoo looks down at Sua for a moment, then turns on his smartphone again as if he had forgotten something.</p>
+<p>Shiwoo looks down at Soa for a moment, then turns on his smartphone again as if he had forgotten something.</p>
 
 <p>The contents of the 1:1 chat room with Mom remaining on the screen...</p>
 
-<p>Shiwoo lowers the chat room with Mom and texts Sua.</p>
+<p>Shiwoo lowers the chat room with Mom and texts Soa.</p>
 
 <p>'As soon as we go in, grab a seat and start charging the vibrator!</p>
 
-<p>Shiwoo instructs Sua via text on what to do as soon as they enter the store.</p>
+<p>Shiwoo instructs Soa via text on what to do as soon as they enter the store.</p>
 
-<p>The text message Shiwoo sent arrives on Sua's smartphone.</p>
+<p>The text message Shiwoo sent arrives on Soa's smartphone.</p>
 
-<p>Sua, who had only been looking at the navigation map screen, trembles and reacts as if startled by the message notification window appearing on the screen and the arrival notification sound coming from the speaker.</p>
+<p>Soa, who had only been looking at the navigation map screen, trembles and reacts as if startled by the message notification window appearing on the screen and the arrival notification sound coming from the speaker.</p>
 
-<p>Sua presses the message notification window to open the chat room and immediately checks Shiwoo's message.</p>
+<p>Soa presses the message notification window to open the chat room and immediately checks Shiwoo's message.</p>
 
 <p>'Okay. I'll do as Shiwoo oppa says'</p>
 
-<p>Sua doesn't turn to look at Shiwoo and writes a text to Shiwoo.</p>
+<p>Soa doesn't turn to look at Shiwoo and writes a text to Shiwoo.</p>
 
 <p>'Is it uncomfortable to walk? My stuff must be on the panty liner, right?'</p>
 
-<p>Shiwoo wrote so that Sua could be conscious of his semen on the panty liner she was wearing.</p>
+<p>Shiwoo wrote so that Soa could be conscious of his semen on the panty liner she was wearing.</p>
 
 <p>Shiwoo, sending words that he still can't say in real life, instead sends them in a text.</p>
 
 <p>'Yeah... It seems okay for now'</p>
 
-<p>Sua lowers her head and replies to Shiwoo's text.</p>
+<p>Soa lowers her head and replies to Shiwoo's text.</p>
 
 <p>A sense of unreality once again fills the space where Shiwoo and his younger sisters are walking.</p>

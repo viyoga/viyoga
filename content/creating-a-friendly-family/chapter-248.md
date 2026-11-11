@@ -158,7 +158,7 @@ chapter = 248
 
 <p>Seonju Imo was the first to reply and send a picture.</p>
 
-<p>The picture Seonju Imo sent also included a naked picture of Sua.</p>
+<p>The picture Seonju Imo sent also included a naked picture of Soa.</p>
 
 <p>And then, in order, came the nude pictures of Sehee Nuna and Mom.</p>
 
@@ -170,7 +170,7 @@ chapter = 248
 
 <p>It was the time when Seyoung would be in the master bedroom, suckling at Mom's breast.</p>
 
-<p>Shiwoo was masturbating with a condom on, alternately looking at the nude pictures of Mom, Sehee Nuna, Seonju Imo, and Sua.</p>
+<p>Shiwoo was masturbating with a condom on, alternately looking at the nude pictures of Mom, Sehee Nuna, Seonju Imo, and Soa.</p>
 
 <p>Shiwoo had intended to pass the time until Seyoung was likely to fall asleep.</p>
 

@@ -240,7 +240,7 @@ chapter = 61
 
 <p>If it was a photo of Seonju Imo and Seyoung taken simultaneously, there must be someone taking the picture...</p>
 
-<p>At Seonju Imo's house, there were only Seonju Imo, Seyoung, Mom, and Sua.</p>
+<p>At Seonju Imo's house, there were only Seonju Imo, Seyoung, Mom, and Soa.</p>
 
 <p>No way...</p>
 
@@ -250,14 +250,14 @@ chapter = 61
 
 <p>The mystery was solved so simply.</p>
 
-<p>The one taking the photo was Seonju Imo's daughter, Sua.</p>
+<p>The one taking the photo was Seonju Imo's daughter, Soa.</p>
 
-<p>Imagining Sua, in her underwear, taking lewd photos to send to Shiwoo, taking advantage of Mom showering, Shiwoo's body tingled with arousal.</p>
+<p>Imagining Soa, in her underwear, taking lewd photos to send to Shiwoo, taking advantage of Mom showering, Shiwoo's body tingled with arousal.</p>
 
 <p>Seonju Imo in her underwear, and Seyoung with her clothes pulled up to her neck, revealing her underwear.</p>
 
-<p>And... Sua...</p>
+<p>And... Soa...</p>
 
-<p>Shiwoo imagined Seyoung and Sua suckling Seonju Imo's breasts, and pulled his steel-hard penis from his boxer briefs, stroking it with his hand.</p>
+<p>Shiwoo imagined Seyoung and Soa suckling Seonju Imo's breasts, and pulled his steel-hard penis from his boxer briefs, stroking it with his hand.</p>
 
 <p>While having the dizzying and worrisome thought that he might actually 'kill' Sehee Nuna tonight...</p>

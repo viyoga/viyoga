@@ -100,7 +100,7 @@ chapter = 632
 
 <p>"Really? That's great! Hehe I'm in class It'll be over in a bit!"</p>
 
-<p>"Do you want to go to the cafe in the basement of the academy? Let's eat ice cream later! With Sua!"</p>
+<p>"Do you want to go to the cafe in the basement of the academy? Let's eat ice cream later! With Soa!"</p>
 
 <p>Seyoung replied with an excited reaction as if she was happy that Shiwoo had come to pick her up.</p>
 

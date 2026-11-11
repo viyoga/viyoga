@@ -78,7 +78,7 @@ chapter = 715
 
 <p>Aunt Seonju, clutching her swollen cheek with her head bowed, slowly bent her trembling legs one by one and knelt.</p>
 
-<p>"Put your hands down! If your hands come up, I'm going downstairs right now and I'll make it so Sua can't even walk today in your place, Seonju!"</p>
+<p>"Put your hands down! If your hands come up, I'm going downstairs right now and I'll make it so Soa can't even walk today in your place, Seonju!"</p>
 
 <p>Shiwoo looked down at her, speaking with a sharp, threatening gaze.</p>
 

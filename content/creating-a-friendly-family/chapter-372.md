@@ -1,5 +1,5 @@
 +++
-title = "Chapter 372: [Incest] Creating a Close Family 372 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 372: [Incest] Creating a Close Family 372 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 372
 [extra]
 chapter = 372
@@ -8,49 +8,49 @@ chapter = 372
 
 <p>Or was it that she climaxed, feeling a masochistic excitement conflicting with her maternal instincts, as she watched her daughter being violated right next to her?</p>
 
-<p>Shiwoo forcefully presses the back of Sua's head with both hands, pushing his erect penis into her throat.</p>
+<p>Shiwoo forcefully presses the back of Soa's head with both hands, pushing his erect penis into her throat.</p>
 
 <p>"Uu-uk! Uu-uk! Uu-uk-uk! Uu-uk!"</p>
 
-<p>The sensation of Sua's throat, pleasantly enveloping and constricting his penis.</p>
+<p>The sensation of Soa's throat, pleasantly enveloping and constricting his penis.</p>
 
-<p>Shiwoo violates their souls several times over, thrusting his regrown penis into Sua's mouth and throat.</p>
+<p>Shiwoo violates their souls several times over, thrusting his regrown penis into Soa's mouth and throat.</p>
 
-<p>Shiwoo's penis pillar moving back and forth, entering and exiting Sua's constricting throat.</p>
+<p>Shiwoo's penis pillar moving back and forth, entering and exiting Soa's constricting throat.</p>
 
-<p>Each time Shiwoo's penis plunges deeply into Sua's hot throat, Seonju Imo-nim trembles violently as if losing control, swallowing her saliva.</p>
+<p>Each time Shiwoo's penis plunges deeply into Soa's hot throat, Seonju Imo-nim trembles violently as if losing control, swallowing her saliva.</p>
 
-<p>After enjoying the soft and warm sensation of Sua's throat with his glans and penis pillar several times, Shiwoo finally pulls his waist back.</p>
+<p>After enjoying the soft and warm sensation of Soa's throat with his glans and penis pillar several times, Shiwoo finally pulls his waist back.</p>
 
-<p>Shiwoo withdraws his penis pillar, which had been buried in Sua's throat.</p>
+<p>Shiwoo withdraws his penis pillar, which had been buried in Soa's throat.</p>
 
-<p>Shiwoo pauses his glans on Sua's lower lip, checking the condition of his pillar.</p>
+<p>Shiwoo pauses his glans on Soa's lower lip, checking the condition of his pillar.</p>
 
-<p>Most of the filth on Shiwoo's penis seemed to have been wiped away inside Sua's mouth.</p>
+<p>Most of the filth on Shiwoo's penis seemed to have been wiped away inside Soa's mouth.</p>
 
-<p>Shiwoo's penis, drenched in Sua's saliva instead of his semen and Seonju Imo-nim's filth.</p>
+<p>Shiwoo's penis, drenched in Soa's saliva instead of his semen and Seonju Imo-nim's filth.</p>
 
-<p>Sua uses her entire lips to envelop and bite Shiwoo's glans, which had been resting on her lower lip.</p>
+<p>Soa uses her entire lips to envelop and bite Shiwoo's glans, which had been resting on her lower lip.</p>
 
 <p>"Huu-up! Ol-gak ol-gak! Uu-uk! Ol-gak!"</p>
 
-<p>While repeatedly gagging, Sua gathers all the filth on Shiwoo's glans and in her mouth, swallowing it all properly into her body.</p>
+<p>While repeatedly gagging, Soa gathers all the filth on Shiwoo's glans and in her mouth, swallowing it all properly into her body.</p>
 
-<p>Shiwoo gently strokes Sua's head with the hand he had placed on the back of her head.</p>
+<p>Shiwoo gently strokes Soa's head with the hand he had placed on the back of her head.</p>
 
 <p>"Uuu-uut hu-aaaaaa"</p>
 
-<p>Sua swallows all the filth in her mouth down her throat, then exhales a large breath she had been holding back.</p>
+<p>Soa swallows all the filth in her mouth down her throat, then exhales a large breath she had been holding back.</p>
 
 <p>Her breath, reaching the sensitive skin of his wet penis, seemed to make Shiwoo feel touched.</p>
 
-<p>Shiwoo slowly removes his penis, which had been cleaned by Sua's mouth, from her lips.</p>
+<p>Shiwoo slowly removes his penis, which had been cleaned by Soa's mouth, from her lips.</p>
 
-<p>A strand of Sua's saliva connects to the tip of his penis before soon falling downwards.</p>
+<p>A strand of Soa's saliva connects to the tip of his penis before soon falling downwards.</p>
 
 <p>Shiwoo looks around, trying to find something to wipe the saliva off his penis.</p>
 
-<p>After looking around for a while, Shiwoo found the perfect item to wipe Sua's saliva off his penis.</p>
+<p>After looking around for a while, Shiwoo found the perfect item to wipe Soa's saliva off his penis.</p>
 
 <p>It was the apricot-colored slip wrapped around Seonju Imo-nim's waist.</p>
 
@@ -62,7 +62,7 @@ chapter = 372
 
 <p>Shiwoo felt like he could now use Seonju Imo-nim's body and the slip draped over it however he wanted.</p>
 
-<p>Shiwoo brings his penis, covered in Sua's saliva, to Seonju Imo-nim's slip and begins to rub it.</p>
+<p>Shiwoo brings his penis, covered in Soa's saliva, to Seonju Imo-nim's slip and begins to rub it.</p>
 
 <p>The moisture on his penis was being absorbed and wiped away as if being sucked into Seonju Imo-nim's slip.</p>
 
@@ -78,7 +78,7 @@ chapter = 372
 
 <p>Shiwoo slapped the side of one of Seonju Imo-nim's shaking breasts with his palm.</p>
 
-<p>He wanted to do it mischievously, just like he had grabbed Sua's breasts.</p>
+<p>He wanted to do it mischievously, just like he had grabbed Soa's breasts.</p>
 
 <p>"Ah-hut!"</p>
 
@@ -94,7 +94,7 @@ chapter = 372
 
 <p>The rolled-up panties were just a tool to heighten her masochistic excitement, without any actual restraining function...</p>
 
-<p>Shiwoo looks at Sua's panties wrapped around Seonju Imo-nim's wrists and recalls the slave contracts and ledgers he had found in Sejin Nuna's room last night.</p>
+<p>Shiwoo looks at Soa's panties wrapped around Seonju Imo-nim's wrists and recalls the slave contracts and ledgers he had found in Sejin Nuna's room last night.</p>
 
 <p>Familiar photos and names entered in the ledger...</p>
 
@@ -132,7 +132,7 @@ chapter = 372
 
 <p>Seonju Imo-nim, whose main parts of her body were barely covered by the slip that had been unfolded and put back on her.</p>
 
-<p>Shiwoo moves to the head of Seonju Imo-nim's bed and lightly removes Sua's panties that were wrapped around both of her wrists.</p>
+<p>Shiwoo moves to the head of Seonju Imo-nim's bed and lightly removes Soa's panties that were wrapped around both of her wrists.</p>
 
 <p>Seonju Imo-nim had been roughly dressed again by Shiwoo, and even her hands were freed.</p>
 
@@ -158,13 +158,13 @@ chapter = 372
 
 <p>Without warning, a strong stream of liquid splits and gushes out from the tip of Shiwoo's pillar.</p>
 
-<p>Shiwoo had begun to urinate towards Seonju Imo-nim's body, which was lying on the bed right in front of Sua.</p>
+<p>Shiwoo had begun to urinate towards Seonju Imo-nim's body, which was lying on the bed right in front of Soa.</p>
 
 <p>The thickest stream of the split stream pours towards Seonju Imo-nim's face.</p>
 
-<p>Sua widens her eyes in surprise, staring at the strong stream of water pouring onto Seonju Imo-nim's face, scattering droplets in all directions.</p>
+<p>Soa widens her eyes in surprise, staring at the strong stream of water pouring onto Seonju Imo-nim's face, scattering droplets in all directions.</p>
 
-<p>Urination being performed in front of his cousin, Sua...</p>
+<p>Urination being performed in front of his cousin, Soa...</p>
 
 <p>Moreover, Shiwoo's urine was being sprayed on her mom, Seonju Imo-nim.</p>
 

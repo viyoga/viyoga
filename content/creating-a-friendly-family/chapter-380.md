@@ -54,13 +54,13 @@ chapter = 380
 
 <p>Seyoung quickly answered as if worried that Shiwoo would raise the vibrator's vibration intensity again.</p>
 
-<p>"Friends...? Besides Sua, do you have any close friends? Kids you hang out with or play with during breaks..."</p>
+<p>"Friends...? Besides Soa, do you have any close friends? Kids you hang out with or play with during breaks..."</p>
 
 <p>Shiwoo throws out an ordinary question that an older brother might ask his younger sister.</p>
 
 <p>-A question about her school life that doesn't fit with tormenting his younger sister with a vibrator-</p>
 
-<p>"Be...besides Sua?... Yes... I don't hang out with them often... but I have some close friends..."</p>
+<p>"Be...besides Soa?... Yes... I don't hang out with them often... but I have some close friends..."</p>
 
 <p>Seyoung looked up at Shiwoo in a sitting position and answered.</p>
 
@@ -160,11 +160,11 @@ chapter = 380
 
 <p>Her body that didn't seem to have been able to clean up the filth at all, and her nipples that were standing straight.</p>
 
-<p>It was Seonju Imo-nim's photo that seemed to have been taken urgently without even calming down her excitement after seeing the text she belatedly checked during her act with Sua.</p>
+<p>It was Seonju Imo-nim's photo that seemed to have been taken urgently without even calming down her excitement after seeing the text she belatedly checked during her act with Soa.</p>
 
 <p>Seonju Imo-nim's pussy was photographed with the red flesh swollen, revealing the fact that it had accepted Shiwoo's heavy and brutal cock about dozens of minutes ago.</p>
 
-<p>Shiwoo quickly realized that Sua was the one who took the photo, seeing that both of Seonju Imo-nim's hands were opening her pussy.</p>
+<p>Shiwoo quickly realized that Soa was the one who took the photo, seeing that both of Seonju Imo-nim's hands were opening her pussy.</p>
 
 <p>Shiwoo is newly impressed with Seonju Imo-nim, who can send such obscene and humiliating poses and fascinating eyes to her own daughter who is holding the camera.</p>
 
@@ -172,21 +172,21 @@ chapter = 380
 
 <p>-Tti-ring!</p>
 
-<p>Then, Sua's message arrived this time.</p>
+<p>Then, Soa's message arrived this time.</p>
 
-<p>Shiwoo closes Seonju Imo-nim's photo and immediately checks Sua's photo.</p>
+<p>Shiwoo closes Seonju Imo-nim's photo and immediately checks Soa's photo.</p>
 
-<p>Probably Sua's obscene photo that Seonju Imo-nim took for her.</p>
+<p>Probably Soa's obscene photo that Seonju Imo-nim took for her.</p>
 
-<p>Sua in the photo lying backwards, turning her head away from the camera with a flushed face.</p>
+<p>Soa in the photo lying backwards, turning her head away from the camera with a flushed face.</p>
 
-<p>An unidentified liquid was dripping down around Sua's lips.</p>
+<p>An unidentified liquid was dripping down around Soa's lips.</p>
 
 <p>Shiwoo could quickly recognize that the liquid was from Seonju Imo-nim's pussy.</p>
 
-<p>Sua, shyly spreading her legs, showing her clam meat towards the camera.</p>
+<p>Soa, shyly spreading her legs, showing her clam meat towards the camera.</p>
 
-<p>Sua also had her nipples standing tall on her plump breasts like her mother.</p>
+<p>Soa also had her nipples standing tall on her plump breasts like her mother.</p>
 
 <p>Now, all but one of the slaves had sent their boob and pussy photos.</p>
 
@@ -208,7 +208,7 @@ chapter = 380
 
 <p>While thinking that, Shiwoo looks at Seyoung who is standing next to him.</p>
 
-<p>Seyoung seemed to be checking the photos of Seonju Imo-nim and Sua that were sent to the group chat room, just like Shiwoo.</p>
+<p>Seyoung seemed to be checking the photos of Seonju Imo-nim and Soa that were sent to the group chat room, just like Shiwoo.</p>
 
 <p>When Shiwoo looked at her, Seyoung took her eyes off the smartphone screen and looked up at Shiwoo.</p>
 

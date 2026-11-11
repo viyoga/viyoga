@@ -178,7 +178,7 @@ chapter = 276
 
 <p>If it was the current Seyoung, she would probably pretend not to notice Shiwoo's molestation until the end.</p>
 
-<p>Although she wasn't trained from a young age like Sua, Seyoung had clearly been greatly influenced by Seonju Imo and Yu Yena Teacher.</p>
+<p>Although she wasn't trained from a young age like Soa, Seyoung had clearly been greatly influenced by Seonju Imo and Yu Yena Teacher.</p>
 
 <p>Shiwoo, who had been lost in thought for a moment, approached the washing machine as if something had come to mind.</p>
 

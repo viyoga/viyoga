@@ -1,5 +1,5 @@
 +++
-title = "Chapter 302: [Incest] Creating a Close Family 302 (Mom, Se-hee, Sun-ju, Se-young, Su-a)"
+title = "Chapter 302: [Incest] Creating a Close Family 302 (Mom, Se-hee, Sun-ju, Se-young, Soa)"
 weight = 302
 [extra]
 chapter = 302
@@ -194,29 +194,29 @@ chapter = 302
 
 <p>Shiwoo is heading to the kitchen, having the audacious thought of how Seonju Imo and Seyoung will react to seeing his erect penis.</p>
 
-<p>Sua had finished preparing in the room and was in the kitchen.</p>
+<p>Soa had finished preparing in the room and was in the kitchen.</p>
 
-<p>Sua is sitting at the table, talking with Seyoung.</p>
+<p>Soa is sitting at the table, talking with Seyoung.</p>
 
-<p>In that moment, Shiwoo stops short upon seeing Sua, and tries to hide his penis, which is sticking out inside his clothes, with his hand.</p>
+<p>In that moment, Shiwoo stops short upon seeing Soa, and tries to hide his penis, which is sticking out inside his clothes, with his hand.</p>
 
-<p>But after all, Sua has also had sexual interactions with Shiwoo, knowingly or unknowingly.</p>
+<p>But after all, Soa has also had sexual interactions with Shiwoo, knowingly or unknowingly.</p>
 
 <p>Moreover, perhaps she knows more details about the family's secret past or twisted relationships than Seyoung does.</p>
 
 <p>Soon, Shiwoo removes his hand to the side and walks towards the kitchen, as if showing off his penis, which is swollen with excitement/arousal.</p>
 
-<p>,Sua's out?\</p>
+<p>,Soa's out?\</p>
 
-<p>Shiwoo raises the tension in his voice and greets Sua happily.</p>
+<p>Shiwoo raises the tension in his voice and greets Soa happily.</p>
 
-<p>Sua, who had been chatting and talking with Seyoung, turns her head as if reacting to Shiwoo's voice.</p>
+<p>Soa, who had been chatting and talking with Seyoung, turns her head as if reacting to Shiwoo's voice.</p>
 
 <p>,Oh? Shiwoo Oppa Hello\,</p>
 
-<p>Sua greets Shiwoo brightly as she turns to look at him.</p>
+<p>Soa greets Shiwoo brightly as she turns to look at him.</p>
 
-<p>Then, as if discovering Shiwoo's erect thing, Sua flinches and lowers her eyes.</p>
+<p>Then, as if discovering Shiwoo's erect thing, Soa flinches and lowers her eyes.</p>
 
 <p>An exhilarating sensation of unknown achievement and conquest passes through Shiwoo's head in an instant.</p>
 

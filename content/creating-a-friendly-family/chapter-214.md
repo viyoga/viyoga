@@ -98,7 +98,7 @@ chapter = 214
 
 <p>The kitchen table where the family was sitting was filled with Mom's ragged breathing.</p>
 
-<p>Seyoung and Sua stared at the strange and awkward scene unfolding on the table with bewildered expressions...</p>
+<p>Seyoung and Soa stared at the strange and awkward scene unfolding on the table with bewildered expressions...</p>
 
 <p>And Sehee Nuna, sitting next to Shiwoo, blushed.</p>
 
@@ -120,7 +120,7 @@ chapter = 214
 
 <p>As things were about to be settled to some extent,</p>
 
-<p>Seyoung and Sua finished their meals and got up from their seats first.</p>
+<p>Seyoung and Soa finished their meals and got up from their seats first.</p>
 
 <p>The younger sisters went back to the living room sofa with their dog and started playing.</p>
 
@@ -194,7 +194,7 @@ chapter = 214
 
 <p>Shiwoo smiled contentedly as he watched Mom and Sehee Nuna like that and got up from his seat.</p>
 
-<p>Without even trying to hide his erect penis from Seyoung and Sua, who were playing with the dog in the living room...</p>
+<p>Without even trying to hide his erect penis from Seyoung and Soa, who were playing with the dog in the living room...</p>
 
 <p>Shiwoo went straight up to the second floor via the stairs.</p>
 
@@ -206,7 +206,7 @@ chapter = 214
 
 <p>Shiwoo looked down at the living room floor below the stairs from the second-floor hallway.</p>
 
-<p>Shiwoo shook his penis up and down, thinking of Mom and Sehee Nuna below, and Seyoung and Sua.</p>
+<p>Shiwoo shook his penis up and down, thinking of Mom and Sehee Nuna below, and Seyoung and Soa.</p>
 
 <p>As if performing a ritual of the male who dominates all the women in the house...</p>
 

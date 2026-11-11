@@ -1,5 +1,5 @@
 +++
-title = "Chapter 590: [Incest] Making a Friendly Family 590 (Mom, Sun-ju, Gyuri, Se-hee, Se-young, Su-ah)"
+title = "Chapter 590: [Incest] Making a Friendly Family 590 (Mom, Sun-ju, Gyuri, Se-hee, Se-young, Soa)"
 weight = 590
 [extra]
 chapter = 590
@@ -68,7 +68,7 @@ chapter = 590
 
 <p>"The day we came in here, we all took naked pictures and uploaded them, like an initiation ceremony, remember?"</p>
 
-<p>Seyoung, along with Sua, seemed to be recalling Shiwoo's command from when they first entered the family group chat room.</p>
+<p>Seyoung, along with Soa, seemed to be recalling Shiwoo's command from when they first entered the family group chat room.</p>
 
 <p>"Ah Right, that's correct. Everyone took a picture and sent it once, didn't they?"</p>
 
@@ -98,7 +98,7 @@ chapter = 590
 
 <p>Gyuri Ajumma hesitated for a moment, then answered in respectful speech, hiding her awkwardness.</p>
 
-<p>"Wow Unnie, are you really taking off your clothes and taking a naked picture right now? You're going to upload it here where Seyoung and Sua can all see? ㅋㅋㅋ"</p>
+<p>"Wow Unnie, are you really taking off your clothes and taking a naked picture right now? You're going to upload it here where Seyoung and Soa can all see? ㅋㅋㅋ"</p>
 
 <p>Seonju Imo was speaking as if teasing Gyuri Ajumma and trying to provoke her sense of shame.</p>
 

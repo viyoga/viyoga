@@ -154,7 +154,7 @@ chapter = 386
 
 <p>Sora Nuna and Sinbi Nuna had not only simply learned about the existence of the family group chat, but were already indirectly participating by taking and sending Sehee Nuna's photo.</p>
 
-<p>That means Sora Nuna and Sinbi Nuna know not only about the relationship between Sehee Nuna and Shiwoo, but also about the relationship between Mom and Seyoung, and between Imo-nim and Sua.</p>
+<p>That means Sora Nuna and Sinbi Nuna know not only about the relationship between Sehee Nuna and Shiwoo, but also about the relationship between Mom and Seyoung, and between Imo-nim and Soa.</p>
 
 <p>Although he was flustered by the sudden situation, when he thought about it, it wasn't that surprising that these facts were shared.</p>
 

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 669: [Incest] Making a Friendly Family 669 (Aunt Sun-ju, Yoo Ye-na, Se-young, Su-ah) (Sister Se-jin's Room, Living Room, Kitchen, Entrance)"
+title = "Chapter 669: [Incest] Making a Friendly Family 669 (Aunt Sun-ju, Yoo Ye-na, Se-young, Soa) (Sister Se-jin's Room, Living Room, Kitchen, Entrance)"
 weight = 669
 [extra]
 chapter = 669
@@ -78,7 +78,7 @@ chapter = 669
 
 <p>From the subtle changes in the sound and vibration, Shiwoo could tell that Seyoung was almost finished drying her hair in her room.</p>
 
-<p>Sua was still lying on the kitchen table like a decoration, faithfully fulfilling her role without much movement.</p>
+<p>Soa was still lying on the kitchen table like a decoration, faithfully fulfilling her role without much movement.</p>
 
 <p>The evening scene of the living room—ordinary, yet not ordinary at all.</p>
 
@@ -106,11 +106,11 @@ chapter = 669
 
 <p>Matching the sound of the gate opening, the low humming of the hairdryer from Seyoung's room stopped.</p>
 
-<p>Shiwoo briefly looked back toward the table where Sua was lying.</p>
+<p>Shiwoo briefly looked back toward the table where Soa was lying.</p>
 
 <p>Was it because she heard Seonju Imo's voice along with the sound of the gate opening?</p>
 
-<p>Sua's hips were twitching, her fine muscles snapping vividly as she flinched ( umjjil umjjil ).</p>
+<p>Soa's hips were twitching, her fine muscles snapping vividly as she flinched ( umjjil umjjil ).</p>
 
 <p>Even if it was her own mother who had been in charge of her slave education since she was young, exposing such a strange and shameful appearance so suddenly was clearly difficult for her as well.</p>
 
@@ -172,7 +172,7 @@ chapter = 669
 
 <p>"Where's Seyoung?"</p>
 
-<p>Even though she could clearly see Sua lying on the table over Shiwoo's shoulder, Seonju Imo looked for Seyoung as if intentionally ignoring her.</p>
+<p>Even though she could clearly see Soa lying on the table over Shiwoo's shoulder, Seonju Imo looked for Seyoung as if intentionally ignoring her.</p>
 
 <p>"Ah she's in her room drying her hair she just got out of the shower."</p>
 

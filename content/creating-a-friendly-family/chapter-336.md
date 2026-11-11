@@ -1,5 +1,5 @@
 +++
-title = "Chapter 336: [Incest] Creating a Close Family 336 (Se-young, Su-a [Explicit])"
+title = "Chapter 336: [Incest] Creating a Close Family 336 (Se-young, Soa [Explicit])"
 weight = 336
 [extra]
 chapter = 336
@@ -12,53 +12,53 @@ chapter = 336
 
 <p>"Haeuk! Haaa! Haaaat!! Haeung!! Heueueueung!"</p>
 
-<p>Sua, now whimpering, arched her back like a bow, then repeatedly leaned forward again.</p>
+<p>Soa, now whimpering, arched her back like a bow, then repeatedly leaned forward again.</p>
 
-<p>She seemed to have already reached climax multiple times, but Shiwoo and Seyoung had no intention of letting Sua go.</p>
+<p>She seemed to have already reached climax multiple times, but Shiwoo and Seyoung had no intention of letting Soa go.</p>
 
-<p>Shiwoo had long since reached his limit for ejaculation, but he gritted his teeth and continued his strong piston-like movements, intending to drive Sua until she lost her mind with his penis buried inside her.</p>
+<p>Shiwoo had long since reached his limit for ejaculation, but he gritted his teeth and continued his strong piston-like movements, intending to drive Soa until she lost her mind with his penis buried inside her.</p>
 
 <p>Shiwoo's penis felt so tingly that it felt like it could explode at any moment.</p>
 
 <p>An intense tingling and burning sensation, as if excessive lactic acid was being secreted, was felt in Shiwoo's penis and the muscles around his groin.</p>
 
-<p>Shiwoo continued to pound his penis without mercy, as if he really intended to turn Sua's vagina hole into a rag.</p>
+<p>Shiwoo continued to pound his penis without mercy, as if he really intended to turn Soa's vagina hole into a rag.</p>
 
-<p>At the same time, he was strongly aware of Seyoung, who was sucking on Sua's clitoris.</p>
+<p>At the same time, he was strongly aware of Seyoung, who was sucking on Soa's clitoris.</p>
 
 <p>After enduring as much as he could, Shiwoo's mind went completely blank, as if he had entered a state of ecstasy.</p>
 
-<p>Shiwoo thrust his pelvis strongly, burying his massive penis deep into Sua's hole to the very root.</p>
+<p>Shiwoo thrust his pelvis strongly, burying his massive penis deep into Soa's hole to the very root.</p>
 
 <p>-Pueok!!!!</p>
 
-<p>Even though he was holding Sua's waist with his arms and pressing her down, Sua's pelvis bounced up about 20 centimeters due to Shiwoo's powerful thrusting.</p>
+<p>Even though he was holding Soa's waist with his arms and pressing her down, Soa's pelvis bounced up about 20 centimeters due to Shiwoo's powerful thrusting.</p>
 
 <p>"Kkyahheueuk!!!"</p>
 
-<p>A moaning sound, close to a scream, that Shiwoo had never heard before came from Sua's mouth.</p>
+<p>A moaning sound, close to a scream, that Shiwoo had never heard before came from Soa's mouth.</p>
 
-<p>Sua's body, which had been leaning on Shiwoo, was stiff and stretched out into the air.</p>
+<p>Soa's body, which had been leaning on Shiwoo, was stiff and stretched out into the air.</p>
 
 <p>-Pusyuk! Pusyuyuk! Bbusyuk!</p>
 
-<p>Shiwoo's semen was gushing out from the base of his penis, starting from the tailbone area behind her pelvis, and pouring into Sua's uterus.</p>
+<p>Shiwoo's semen was gushing out from the base of his penis, starting from the tailbone area behind her pelvis, and pouring into Soa's uterus.</p>
 
-<p>Sua, not knowing how to support her body, trembled precariously all over, barely supporting her upper body.</p>
+<p>Soa, not knowing how to support her body, trembled precariously all over, barely supporting her upper body.</p>
 
-<p>Shiwoo pulled out his penis, which had been buried in Sua's body, as it was.</p>
+<p>Shiwoo pulled out his penis, which had been buried in Soa's body, as it was.</p>
 
 <p>The thick semen and vaginal fluid that had been filling her vagina hole flowed out in a stream.</p>
 
-<p>Shiwoo pulled Sua's raised body down, bringing her pelvis down towards Shiwoo's pubic bone.</p>
+<p>Shiwoo pulled Soa's raised body down, bringing her pelvis down towards Shiwoo's pubic bone.</p>
 
-<p>Shiwoo pressed down, with his heavy penis, which had been pulled out, wedged between Sua's legs and her vulva mound.</p>
+<p>Shiwoo pressed down, with his heavy penis, which had been pulled out, wedged between Soa's legs and her vulva mound.</p>
 
 <p>Shiwoo's penis, which had been erect, was now turned towards Seyoung.</p>
 
 <p>-Pusyuk! Pusyuk!</p>
 
-<p>Shiwoo ejaculated towards the direction where Seyoung's face was located under Sua's skirt.</p>
+<p>Shiwoo ejaculated towards the direction where Seyoung's face was located under Soa's skirt.</p>
 
 <p>"Heut!"</p>
 
@@ -66,9 +66,9 @@ chapter = 336
 
 <p>Seyoung's face was probably covered in Shiwoo's semen.</p>
 
-<p>Shiwoo released his arms from around Sua's waist and wrapped his hands around Seyoung's head under Sua's skirt.</p>
+<p>Shiwoo released his arms from around Soa's waist and wrapped his hands around Seyoung's head under Soa's skirt.</p>
 
-<p>Then, he brought his penis, which was pressed forward between Sua's legs, to Seyoung's mouth.</p>
+<p>Then, he brought his penis, which was pressed forward between Soa's legs, to Seyoung's mouth.</p>
 
 <p>Shiwoo had not yet released all of the remaining semen.</p>
 
@@ -158,19 +158,19 @@ chapter = 336
 
 <p>Where on earth did Seyoung learn this?</p>
 
-<p>Seonju Imo-nim had said that she had never trained Seyoung like Sua...</p>
+<p>Seonju Imo-nim had said that she had never trained Seyoung like Soa...</p>
 
-<p>After cleaning Shiwoo's thing with her mouth, Seyoung tried to return Shiwoo's thing, which was not yet completely flaccid, into Sua's hole.</p>
+<p>After cleaning Shiwoo's thing with her mouth, Seyoung tried to return Shiwoo's thing, which was not yet completely flaccid, into Soa's hole.</p>
 
-<p>Seyoung held the shaft with one hand, aligned the tip of the glans with Sua's vertical slit, and then forced his penis into the opening of her vagina hole.</p>
+<p>Seyoung held the shaft with one hand, aligned the tip of the glans with Soa's vertical slit, and then forced his penis into the opening of her vagina hole.</p>
 
-<p>Shiwoo's soft flesh filled Sua's slippery vagina hole.</p>
+<p>Shiwoo's soft flesh filled Soa's slippery vagina hole.</p>
 
-<p>The sense of stability and relief that came again simply from being placed inside Sua's soft hole.</p>
+<p>The sense of stability and relief that came again simply from being placed inside Soa's soft hole.</p>
 
-<p>The semen that had been ejaculated deep inside her vagina hole, pressed by Shiwoo's penis, leaked out of Sua's cave.</p>
+<p>The semen that had been ejaculated deep inside her vagina hole, pressed by Shiwoo's penis, leaked out of Soa's cave.</p>
 
-<p>Seyoung's mouth quickly reattached to the area where Shiwoo and Sua were joined, licking up the semen that was leaking out through the gap.</p>
+<p>Seyoung's mouth quickly reattached to the area where Shiwoo and Soa were joined, licking up the semen that was leaking out through the gap.</p>
 
 <p>Seyoung's tongue was so relentlessly persistent.</p>
 
@@ -178,23 +178,23 @@ chapter = 336
 
 <p>"Haeueung...haaa...haeueue...!!!"</p>
 
-<p>Sua also seemed to be feeling the same stinging pain. Each time Seyoung's tongue strongly swept up her clitoris area, she trembled all over and moaned.</p>
+<p>Soa also seemed to be feeling the same stinging pain. Each time Seyoung's tongue strongly swept up her clitoris area, she trembled all over and moaned.</p>
 
 <p>"Olgak olgak olgak!"</p>
 
-<p>Seyoung wiped away the filth flowing between Shiwoo and Sua's joined area and swallowed it all into her mouth.</p>
+<p>Seyoung wiped away the filth flowing between Shiwoo and Soa's joined area and swallowed it all into her mouth.</p>
 
 <p>-Ddiring!</p>
 
-<p>The notification sound of the smartphone camera, indicating the end of the video recording, was heard from under Sua's skirt.</p>
+<p>The notification sound of the smartphone camera, indicating the end of the video recording, was heard from under Soa's skirt.</p>
 
 <p>The secret acts that had taken place under the skirt had been saved as-is on Seyoung's smartphone.</p>
 
-<p>Seyoung pulled her head out from under Sua's one-piece dress.</p>
+<p>Seyoung pulled her head out from under Soa's one-piece dress.</p>
 
 <p>Seyoung's face was covered in the semen that Shiwoo had spewed out.</p>
 
-<p>She had been wiping the filth on Sua and Shiwoo's genitals with her mouth, but it seemed that she had not paid much attention to the semen on her own face.</p>
+<p>She had been wiping the filth on Soa and Shiwoo's genitals with her mouth, but it seemed that she had not paid much attention to the semen on her own face.</p>
 
 <p>Traces of wiping away the filth remained around her mouth.</p>
 
@@ -208,7 +208,7 @@ chapter = 336
 
 <p>Seyoung sat back in her chair, composed herself, and looked down at the outside.</p>
 
-<p>Her expression had returned to being as calm as if nothing had happened between Shiwoo and Sua's crotch just a moment ago.</p>
+<p>Her expression had returned to being as calm as if nothing had happened between Shiwoo and Soa's crotch just a moment ago.</p>
 
 <p>The vibration sound of the vibrator installed on Seyoung's clitoris...</p>
 

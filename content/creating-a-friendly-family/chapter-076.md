@@ -84,11 +84,11 @@ chapter = 76
 
 <p>After school</p>
 
-<p>Cheoljin was following Shiwoo to Sua's house.</p>
+<p>Cheoljin was following Shiwoo to Soa's house.</p>
 
 <p>,Are you really going today?",</p>
 
-<p>Shiwoo asked Cheoljin, as if confirming one last time as they headed to Sua's house.</p>
+<p>Shiwoo asked Cheoljin, as if confirming one last time as they headed to Soa's house.</p>
 
 <p>,Yeah I was going to drop by sometime anyway! It's best if I can visit as naturally as possible! I don't want to miss this kind of opportunity!",</p>
 
@@ -126,23 +126,23 @@ chapter = 76
 
 <p>A house with a wide lawn, as if it were out of a fairy tale.</p>
 
-<p>When they rang the bell, Seyoung and Sua came out, having finished preparing to go out.</p>
+<p>When they rang the bell, Seyoung and Soa came out, having finished preparing to go out.</p>
 
 <p>It seemed that Mom and Seonju Imo were away from home due to work.</p>
 
-<p>Sua was wearing a pink T-shirt and a pleated white lace skirt.</p>
+<p>Soa was wearing a pink T-shirt and a pleated white lace skirt.</p>
 
-<p>Sua had pigtails of black hair that reached her waist.</p>
+<p>Soa had pigtails of black hair that reached her waist.</p>
 
 <p>Her tall height and the cool, refreshing proportions of her well-balanced body simply made people feel good.</p>
 
-<p>Seyoung came out following Sua.</p>
+<p>Seyoung came out following Soa.</p>
 
 <p>A dark gray T-shirt that clung to her body and loose denim skirt that came down to above her knees.</p>
 
 <p>Seyoung's body didn't have many curves, but she still exuded a very feminine atmosphere.</p>
 
-<p>A little shorter than Sua, but with a nice shape and moderately long yet petite frame.</p>
+<p>A little shorter than Soa, but with a nice shape and moderately long yet petite frame.</p>
 
 <p>The sight of the two of them opening the gate and jumping out was like fairies popping out of a fairy tale.</p>
 
@@ -150,11 +150,11 @@ chapter = 76
 
 <p>,Wow Shiwoo oppa! Cheoljin oppa! Hello"</p>
 
-<p>Seyoung and Sua greeted Shiwoo and Cheoljin happily.</p>
+<p>Seyoung and Soa greeted Shiwoo and Cheoljin happily.</p>
 
-<p>,Hello Seyoung-a Sua-ya",</p>
+<p>,Hello Seyoung-a Soa-ya",</p>
 
-<p>Shiwoo greeted them, reaching out both hands at the same time and stroking Seyoung and Sua's hair with a more friendly feeling than usual.</p>
+<p>Shiwoo greeted them, reaching out both hands at the same time and stroking Seyoung and Soa's hair with a more friendly feeling than usual.</p>
 
 <p>Shiwoo was feeling proud as he looked at his younger sisters greeting him happily.</p>
 
@@ -162,7 +162,7 @@ chapter = 76
 
 <p>A photo that Seonju Imo had sent to Shiwoo last night.</p>
 
-<p>Even Sua, who had taken the photo herself, was standing right next to him.</p>
+<p>Even Soa, who had taken the photo herself, was standing right next to him.</p>
 
 <p>She must have known that it was a photo being sent to Shiwoo...</p>
 
@@ -212,7 +212,7 @@ chapter = 76
 
 <p>,Even if you lose the fight and get robbed, you have to make sure you calculate properly! Always carry change, Cheoljin oppa! Kukuk"</p>
 
-<p>Sua, who was watching from the side, was adding to the role-playing game that Seyoung was pushing, adding jokes as if she was enjoying it.</p>
+<p>Soa, who was watching from the side, was adding to the role-playing game that Seyoung was pushing, adding jokes as if she was enjoying it.</p>
 
 <p>,No... that's not it! Hey Shiwoo, say something!",</p>
 
@@ -228,7 +228,7 @@ chapter = 76
 
 <p>Shiwoo asked, answering and asking for understanding at the same time.</p>
 
-<p>Seyoung and Sua, who had been appropriately accepting Cheoljin's jokes and teasing him, seemed to look at each other for a moment, then smiled and answered.</p>
+<p>Seyoung and Soa, who had been appropriately accepting Cheoljin's jokes and teasing him, seemed to look at each other for a moment, then smiled and answered.</p>
 
 <p>,Yeah, that seems okay"</p>
 
@@ -236,7 +236,7 @@ chapter = 76
 
 <p>,If you guys ever do a magic show, I'll definitely come and take pictures for you!",</p>
 
-<p>Cheoljin, with his good-naturedness, said to Seyoung and Sua as if applying for reconciliation.</p>
+<p>Cheoljin, with his good-naturedness, said to Seyoung and Soa as if applying for reconciliation.</p>
 
 <p>-As if trying to subtly get permission for photography on this occasion-</p>
 
@@ -248,7 +248,7 @@ chapter = 76
 
 <p>,I'll ask Shiwoo oppa to do it then too, so it's okay, Cheoljin oppa"</p>
 
-<p>Sua also said to Cheoljin in a clear tone and clung to Shiwoo's remaining arm as if hugging him.</p>
+<p>Soa also said to Cheoljin in a clear tone and clung to Shiwoo's remaining arm as if hugging him.</p>
 
 <p>It seemed that their jokes and teasing towards Cheoljin were continuing.</p>
 

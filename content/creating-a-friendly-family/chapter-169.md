@@ -12,15 +12,15 @@ chapter = 169
 
 <p>Seyoung's tender flesh, pressed directly against him, was wrapping around and pressing against Shiwoo's hard pillar.</p>
 
-<p>Shiwoo, with his hand placed over Seyoung's buttocks, observed Sua who was following Seyoung into the living room.</p>
+<p>Shiwoo, with his hand placed over Seyoung's buttocks, observed Soa who was following Seyoung into the living room.</p>
 
-<p>Whether she knew of Shiwoo's erect state or not, Sua was looking at Shiwoo with her usual shy smile.</p>
+<p>Whether she knew of Shiwoo's erect state or not, Soa was looking at Shiwoo with her usual shy smile.</p>
 
 <p>"Hehe I brought our puppy The one we're adopting this time"</p>
 
-<p>Seyoung, as if not caring about Shiwoo's erect thing, slightly turned her body to the side, turning her head towards where Sua was standing.</p>
+<p>Seyoung, as if not caring about Shiwoo's erect thing, slightly turned her body to the side, turning her head towards where Soa was standing.</p>
 
-<p>In Sua's arms, standing behind Seyoung, a white puppy was held.</p>
+<p>In Soa's arms, standing behind Seyoung, a white puppy was held.</p>
 
 <p>"Oh, that...really? That puppy we talked about before? Did I see it once during a walk?"</p>
 
@@ -28,19 +28,19 @@ chapter = 169
 
 <p>"Yes, that's right I saw it. Before, when Sehee-unnie and Shiwoo-oppa were holding hands and coming home, when we caught them"</p>
 
-<p>Sua was speaking, holding out the puppy to Shiwoo so it could be seen well.</p>
+<p>Soa was speaking, holding out the puppy to Shiwoo so it could be seen well.</p>
 
-<p>Sua was talking about the time Shiwoo and Sehee-nuna had encountered her and Seyoung while walking the puppy, on the day they were returning from grocery shopping at the mart.</p>
+<p>Soa was talking about the time Shiwoo and Sehee-nuna had encountered her and Seyoung while walking the puppy, on the day they were returning from grocery shopping at the mart.</p>
 
 <p>-Pointedly emphasizing the act of holding hands with Sehee-nuna as if it were an immoral act, using the expression 'when we caught them'-</p>
 
 <p>"Uh?...Ah...Uh..."</p>
 
-<p>At the mention of Sehee-nuna coming from Sua's mouth, Shiwoo, not knowing how to react, looked at Sua with a tense expression.</p>
+<p>At the mention of Sehee-nuna coming from Soa's mouth, Shiwoo, not knowing how to react, looked at Soa with a tense expression.</p>
 
-<p>Still, without any particular change in expression, Sua was looking at Shiwoo, smiling shyly and sweetly.</p>
+<p>Still, without any particular change in expression, Soa was looking at Shiwoo, smiling shyly and sweetly.</p>
 
-<p>Shiwoo briefly wondered if Sua had noticed the relationship between Sehee-nuna and him.</p>
+<p>Shiwoo briefly wondered if Soa had noticed the relationship between Sehee-nuna and him.</p>
 
 <p>Perhaps she might have heard everything about Shiwoo and Sehee-nuna from Seonju Imo.</p>
 
@@ -50,27 +50,27 @@ chapter = 169
 
 <p>Shiwoo, following his younger sisters into the living room, looked at Seonju Imo, who was speaking, with a flustered expression.</p>
 
-<p>In fact, Shiwoo had no need to hide the act he was performing on Seyoung in front of Seonju Imo or Sua.</p>
+<p>In fact, Shiwoo had no need to hide the act he was performing on Seyoung in front of Seonju Imo or Soa.</p>
 
 <p>Seonju Imo was already in a state of obediently following Shiwoo's commands as a slave.</p>
 
-<p>Moreover, she seemed to have made up her mind to offer even her own daughter, Sua, to Shiwoo.</p>
+<p>Moreover, she seemed to have made up her mind to offer even her own daughter, Soa, to Shiwoo.</p>
 
-<p>Sua in the photo Seonju Imo had sent was in the form of a slave, wearing a placard with provocative phrases, her eyes blindfolded, and assuming a public humiliation pose.</p>
+<p>Soa in the photo Seonju Imo had sent was in the form of a slave, wearing a placard with provocative phrases, her eyes blindfolded, and assuming a public humiliation pose.</p>
 
 <p>Shiwoo recalled the clause of the slave contract which stated that a slave must create the atmosphere and environment for the designated heir of that status to draw up a slave contract later.</p>
 
 <p>Seonju Imo seemed to have faithfully carried out that clause of the slave contract, applying it to her own daughter.</p>
 
-<p>Sua was already ready to form a sexual master-slave relationship with Shiwoo.</p>
+<p>Soa was already ready to form a sexual master-slave relationship with Shiwoo.</p>
 
-<p>Although he thought there was no need to hide the molestation of Seyoung in front of Seonju Imo and Sua, what Shiwoo was actually concerned about now was Seyoung, the subject of the molestation.</p>
+<p>Although he thought there was no need to hide the molestation of Seyoung in front of Seonju Imo and Soa, what Shiwoo was actually concerned about now was Seyoung, the subject of the molestation.</p>
 
 <p>"I too want to hold hands with Shiwoo-oppa outside Because Shiwoo-oppa is close with me too Hehe"</p>
 
 <p>Seyoung was speaking, looking up at Shiwoo, with her body pressed even closer.</p>
 
-<p>'If Mom hadn't changed her mind, would Seyoung also, like Sua, have been raised as Dad's or his own sex slave?'</p>
+<p>'If Mom hadn't changed her mind, would Seyoung also, like Soa, have been raised as Dad's or his own sex slave?'</p>
 
 <p>Shiwoo looked down at Seyoung, who was held in his arms, and thought.</p>
 
@@ -80,9 +80,9 @@ chapter = 169
 
 <p>And obscene skinship, disguised as a hug, pressing down on Shiwoo's genitals.</p>
 
-<p>There was no doubt that Seyoung's recent eccentric and provocative actions towards Shiwoo were influenced by Sua and Seonju Imo.</p>
+<p>There was no doubt that Seyoung's recent eccentric and provocative actions towards Shiwoo were influenced by Soa and Seonju Imo.</p>
 
-<p>"Oh my Seyoung wants to hold hands with Shiwoo-oppa too? Imo and Sua are also eyeing that spot! Kikik! If Seonmi-unnie joins in soon, Shiwoo will be so happy he'll go wild"</p>
+<p>"Oh my Seyoung wants to hold hands with Shiwoo-oppa too? Imo and Soa are also eyeing that spot! Kikik! If Seonmi-unnie joins in soon, Shiwoo will be so happy he'll go wild"</p>
 
 <p>Seonju Imo, taking Seyoung's words, was mischievously making a joke that seemed to have a hidden meaning, and laughing.</p>
 
@@ -152,7 +152,7 @@ chapter = 169
 
 <p>Seyoung followed Seonju Imo and took out plates and forks from the kitchen cupboard.</p>
 
-<p>Sua, hugging the puppy, was still wearing a shy smile as she passed by Shiwoo.</p>
+<p>Soa, hugging the puppy, was still wearing a shy smile as she passed by Shiwoo.</p>
 
 <p>A mint scent brushed the tip of his nose.</p>
 
@@ -164,7 +164,7 @@ chapter = 169
 
 <p>Mom had gone to Seonju Imo's house as if fleeing, likely because she still wanted to protect Seyoung from past mistakes.</p>
 
-<p>Mom, who had learned about the relationship between Shiwoo and Seonju Imo, there's no way she would have willingly let Seonju Imo go, saying she was taking Seyoung and Sua to Shiwoo...</p>
+<p>Mom, who had learned about the relationship between Shiwoo and Seonju Imo, there's no way she would have willingly let Seonju Imo go, saying she was taking Seyoung and Soa to Shiwoo...</p>
 
 <p>"What was there to tell her before coming? I just took the kids out and sent one text saying I'd feed them dinner and then go back in! Kikik"</p>
 
@@ -184,15 +184,15 @@ chapter = 169
 
 <p>Shiwoo felt the realistic relationship between him and Mom gradually changing, just like the master-slave relationship formed in their texts.</p>
 
-<p>"Oh, but didn't Seyoung and Sua say they had something to give me?"</p>
+<p>"Oh, but didn't Seyoung and Soa say they had something to give me?"</p>
 
 <p>Shiwoo asked, looking at Seonju Imo as if suddenly remembering.</p>
 
-<p>"Oh that's right, Seyoung and Sua said they had a gift for you, Shiwoo."</p>
+<p>"Oh that's right, Seyoung and Soa said they had a gift for you, Shiwoo."</p>
 
 <p>"A gift?"</p>
 
-<p>"Yes this! I made it with Sua at the academy"</p>
+<p>"Yes this! I made it with Soa at the academy"</p>
 
 <p>Seyoung placed the object she was holding in her hand on the table and spoke to Shiwoo, smiling.</p>
 

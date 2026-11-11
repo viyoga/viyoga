@@ -1,20 +1,20 @@
 +++
-title = "Chapter 671: [Incest] Making a Friendly Family 671 (Aunt Sun-ju, Se-young, Su-ah) (Entrance, Kitchen)"
+title = "Chapter 671: [Incest] Making a Friendly Family 671 (Aunt Sun-ju, Se-young, Soa) (Entrance, Kitchen)"
 weight = 671
 [extra]
 chapter = 671
 +++
 <p>Mom had handed Seonju-imo a condom as a precaution for any eventuality. However, she had already known even before returning home that Shiwoo would end up having sex with Seonju-imo or the other family members.</p>
 
-<p>Moreover, hearing Seonju-imo talk about Sua's 'danger day' after he had already ejaculated inside her vagina was enough to stimulate Shiwoo's tension and arousal simultaneously, snapping the final thread of his reason.</p>
+<p>Moreover, hearing Seonju-imo talk about Soa's 'danger day' after he had already ejaculated inside her vagina was enough to stimulate Shiwoo's tension and arousal simultaneously, snapping the final thread of his reason.</p>
 
 <p>Shiwoo tore open a condom package as if showing off to Seonju-imo, then placed it atop his tautly swollen glans. He then rolled the ringed edge downward, sheathing the skin of his pillar of flesh.</p>
 
-<p>"I think it might be a bit late since I already ejaculated inside her earlier, but you're saying I should keep this on when I'm with Sua for the time being, right?"</p>
+<p>"I think it might be a bit late since I already ejaculated inside her earlier, but you're saying I should keep this on when I'm with Soa for the time being, right?"</p>
 
-<p>Shiwoo spoke playfully, pointing at his condom-clad penis as if readily granting her request. His penis throbbed precariously, looking as if it might lunge into Sua at any moment.</p>
+<p>Shiwoo spoke playfully, pointing at his condom-clad penis as if readily granting her request. His penis throbbed precariously, looking as if it might lunge into Soa at any moment.</p>
 
-<p>"Yes... but I just brought the condoms just in case. We can always have Sua take a contraceptive pill later..."</p>
+<p>"Yes... but I just brought the condoms just in case. We can always have Soa take a contraceptive pill later..."</p>
 
 <p>"I didn't intend to force you if you didn't want to use them... so don't misunderstand... okay?"</p>
 
@@ -100,7 +100,7 @@ chapter = 671
 
 <p>Shiwoo leaned in slightly, bringing his face close to Seonju-imo's ear.</p>
 
-<p>"If you keep complaining and acting like a baby, I might just choose Sua... as the 'sacrifice'... so be careful... how's that?"</p>
+<p>"If you keep complaining and acting like a baby, I might just choose Soa... as the 'sacrifice'... so be careful... how's that?"</p>
 
 <p>Shiwoo whispered into Seonju-imo's ear in a low voice. Instantly, the shy smile vanished from Seonju-imo's face.</p>
 
@@ -126,11 +126,11 @@ chapter = 671
 
 <p>"Y... yes... okay... shall we go eat now?"</p>
 
-<p>Seonju-imo spoke as if carefully playing along with Shiwoo, her face slightly flushed. Though she hesitated awkwardly, she soon began to follow behind Shiwoo as he led her. Shiwoo headed toward the dining table where Sua was lying, his condom-clad penis leading the way.</p>
+<p>Seonju-imo spoke as if carefully playing along with Shiwoo, her face slightly flushed. Though she hesitated awkwardly, she soon began to follow behind Shiwoo as he led her. Shiwoo headed toward the dining table where Soa was lying, his condom-clad penis leading the way.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>Sua was still lying on the table, covering her face and her vital areas with trembling hands. With her eyes covered by a blindfold, her breathing grew increasingly unstable and ragged, thin and faint exhales leaking through her lips. Seyoung, who had run to the kitchen ahead of them, was already unwrapping the bottle of alcohol Seonju-imo had bought and placing it on the table. Not just the alcohol, Seyoung had also prepared chopsticks and appetizer plates, setting them at the places where Seonju-imo and Shiwoo would sit.</p>
+<p>Soa was still lying on the table, covering her face and her vital areas with trembling hands. With her eyes covered by a blindfold, her breathing grew increasingly unstable and ragged, thin and faint exhales leaking through her lips. Seyoung, who had run to the kitchen ahead of them, was already unwrapping the bottle of alcohol Seonju-imo had bought and placing it on the table. Not just the alcohol, Seyoung had also prepared chopsticks and appetizer plates, setting them at the places where Seonju-imo and Shiwoo would sit.</p>
 
 <p>Then, Seyoung quietly sat in the chair she usually occupied at the table.</p>
 
@@ -146,4 +146,4 @@ chapter = 671
 
 <p>"Ah I saw people drinking like this somewhere before"</p>
 
-<p>Shiwoo stood up with the bottle in hand and placed his hand on Sua's thigh, where the sushi was laid out.</p>
+<p>Shiwoo stood up with the bottle in hand and placed his hand on Soa's thigh, where the sushi was laid out.</p>

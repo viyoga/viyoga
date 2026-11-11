@@ -1,5 +1,5 @@
 +++
-title = "Chapter 311: [Incest] Creating a Close Family 311 (Se-young, Su-a)"
+title = "Chapter 311: [Incest] Creating a Close Family 311 (Se-young, Soa)"
 weight = 311
 [extra]
 chapter = 311
@@ -20,7 +20,7 @@ chapter = 311
 
 <p>Without having conspired beforehand, at some point, an atmosphere is created where it feels as if they have no choice but to be swept along with the flow.</p>
 
-<p>Perhaps Seyoung-i and Sua are also accomplices or collaborators on a magic stage meticulously set up by someone, demanding the same deceptive performance from Shiwoo that they themselves are putting on.</p>
+<p>Perhaps Seyoung-i and Soa are also accomplices or collaborators on a magic stage meticulously set up by someone, demanding the same deceptive performance from Shiwoo that they themselves are putting on.</p>
 
 <p>As he walked, Shiwoo naturally became swept up in that 'no choice but to do it' atmosphere, blending in as he matched pace with his sisters.</p>
 
@@ -34,63 +34,63 @@ chapter = 311
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo subtly turned his head to observe Sua's facial expression as she walked close by.</p>
+<p>Shiwoo subtly turned his head to observe Soa's facial expression as she walked close by.</p>
 
-<p>Sua was walking to Shiwoo's left, maintaining an awkward distance, almost touching but not quite.</p>
+<p>Soa was walking to Shiwoo's left, maintaining an awkward distance, almost touching but not quite.</p>
 
-<p>Sua was walking with her head turned away, as if trying to hide her flushed face.</p>
+<p>Soa was walking with her head turned away, as if trying to hide her flushed face.</p>
 
-<p>Just a few minutes ago, Sua knew that her mother and Shiwoo had engaged in a wild, master-slave sexual encounter in their front yard.</p>
+<p>Just a few minutes ago, Soa knew that her mother and Shiwoo had engaged in a wild, master-slave sexual encounter in their front yard.</p>
 
-<p>During their intercourse, Shiwoo had activated the vibrator attached to Sua's clitoris.</p>
+<p>During their intercourse, Shiwoo had activated the vibrator attached to Soa's clitoris.</p>
 
 <p>A long duration, enough for her to have climaxed countless times, which wouldn't be surprising at all.</p>
 
 <p>Throughout his entire sex act with Seonju Imo, Shiwoo had kept the vibrator vibrating at its highest intensity.</p>
 
-<p>Sua was already shy around Shiwoo in normal circumstances...</p>
+<p>Soa was already shy around Shiwoo in normal circumstances...</p>
 
-<p>And Sua was the type of child who couldn't hide her feelings or emotions well, even usually.</p>
+<p>And Soa was the type of child who couldn't hide her feelings or emotions well, even usually.</p>
 
 <p>Even now, she seemed to be trying her best not to show her aroused state...</p>
 
 <p>But after experiencing such a situation, there was no way she could completely hide her agitation or nervousness.</p>
 
-<p>Shiwoo pretended to take out his smartphone from his pocket, lowering his hand, and carefully brushed the back of his hand against Sua's pelvis.</p>
+<p>Shiwoo pretended to take out his smartphone from his pocket, lowering his hand, and carefully brushed the back of his hand against Soa's pelvis.</p>
 
-<p>Sua flinched and recoiled as if startled by Shiwoo's hand touching her pelvis.</p>
+<p>Soa flinched and recoiled as if startled by Shiwoo's hand touching her pelvis.</p>
 
-<p>Yet, Sua continued to walk as if nothing had happened, without turning to look at Shiwoo.</p>
+<p>Yet, Soa continued to walk as if nothing had happened, without turning to look at Shiwoo.</p>
 
 <p>"Is the weather a bit hot today?"</p>
 
-<p>Shiwoo, taking out his smartphone from his pocket, spoke to Sua in a casual tone.</p>
+<p>Shiwoo, taking out his smartphone from his pocket, spoke to Soa in a casual tone.</p>
 
 <p>"...Huh?"</p>
 
-<p>Sua, slightly flustered by Shiwoo's words, finally turned to look at him and reacted.</p>
+<p>Soa, slightly flustered by Shiwoo's words, finally turned to look at him and reacted.</p>
 
-<p>"Sua, your face looks a bit red right now, are you not feeling well?"</p>
+<p>"Soa, your face looks a bit red right now, are you not feeling well?"</p>
 
-<p>Shiwoo asked, as if unnecessarily checking Sua's physical condition.</p>
+<p>Shiwoo asked, as if unnecessarily checking Soa's physical condition.</p>
 
 <p>"Ah... uh... I'm... I'm fine... just a little... it just feels like the weather got hotter..."</p>
 
-<p>Sua turned her head forward, avoiding Shiwoo's gaze, and mumbled her answer, echoing Shiwoo's words.</p>
+<p>Soa turned her head forward, avoiding Shiwoo's gaze, and mumbled her answer, echoing Shiwoo's words.</p>
 
-<p>"Then Sua needs to cool down with her fan"</p>
+<p>"Then Soa needs to cool down with her fan"</p>
 
-<p>Shiwoo said to Sua, fiddling with the smartphone he had just taken out.</p>
+<p>Shiwoo said to Soa, fiddling with the smartphone he had just taken out.</p>
 
 <p>"Huh? Uh... yeah..."</p>
 
-<p>Sua replied with a troubled expression, as if she knew what Shiwoo was about to do.</p>
+<p>Soa replied with a troubled expression, as if she knew what Shiwoo was about to do.</p>
 
-<p>After answering, Sua laboriously turned on the portable mini-fan hanging around her neck.</p>
+<p>After answering, Soa laboriously turned on the portable mini-fan hanging around her neck.</p>
 
 <p>-Wiiiiiing!</p>
 
-<p>Sua's fan began to spin, making a whirring sound at maximum speed.</p>
+<p>Soa's fan began to spin, making a whirring sound at maximum speed.</p>
 
 <p>"Hold on a moment, kids"</p>
 
@@ -104,13 +104,13 @@ chapter = 311
 
 <p>-Jiiiiiing!</p>
 
-<p>Along with the smartphone, a vibrating sound, slightly different in quality from the fan's whir, began to resonate from Sua's core.</p>
+<p>Along with the smartphone, a vibrating sound, slightly different in quality from the fan's whir, began to resonate from Soa's core.</p>
 
 <p>"Haa..."</p>
 
-<p>A regretful sigh escaped Sua's lips.</p>
+<p>A regretful sigh escaped Soa's lips.</p>
 
-<p>Shiwoo confirmed Sua's reaction and then held the vibration steady.</p>
+<p>Shiwoo confirmed Soa's reaction and then held the vibration steady.</p>
 
 <p>Seyoung-i, standing beside him with her arm released, watched each step of Shiwoo operating the smartphone screen with curious eyes.</p>
 
@@ -118,7 +118,7 @@ chapter = 311
 
 <p>Shiwoo again spoke to his sisters in a casual, passing tone.</p>
 
-<p>Now, Shiwoo was calling Seonju Imo's name freely in front of Sua and Seyoung-i, without any hesitation.</p>
+<p>Now, Shiwoo was calling Seonju Imo's name freely in front of Soa and Seyoung-i, without any hesitation.</p>
 
 <p>"Nope Nothing happened"</p>
 
@@ -126,13 +126,13 @@ chapter = 311
 
 <p>As soon as Shiwoo heard Seyoung-i's words, he wrapped the arm holding the smartphone around Seyoung-i's waist and the upper part of her buttocks.</p>
 
-<p>He also pulled Sua, who was standing beside him, breathing heavily, closer, and wrapped his arm around her waist as well, just like Seyoung-i.</p>
+<p>He also pulled Soa, who was standing beside him, breathing heavily, closer, and wrapped his arm around her waist as well, just like Seyoung-i.</p>
 
 <p>Soft, pleasant bone structures and flesh fit perfectly into Shiwoo's embrace on both sides, as if custom-made.</p>
 
-<p>The vibration emanating from Sua's body seemed to transmit to Shiwoo's body.</p>
+<p>The vibration emanating from Soa's body seemed to transmit to Shiwoo's body.</p>
 
-<p>Even through the smartphone resting lightly on Seyoung-i's pelvis, a strong vibration resonated, hinting at the pleasure Sua must be feeling.</p>
+<p>Even through the smartphone resting lightly on Seyoung-i's pelvis, a strong vibration resonated, hinting at the pleasure Soa must be feeling.</p>
 
 <p>Shiwoo and his sisters shared the resonating vibration, pressing their bodies close together.</p>
 
@@ -152,19 +152,19 @@ chapter = 311
 
 <p>Seyoung-i, excited by the mention of food, leaned towards Shiwoo and shouted out her desired menu.</p>
 
-<p>"Really? Then maybe I'll have a hamburger set for the first time in a while too? How about you, Sua? Is that okay?"</p>
+<p>"Really? Then maybe I'll have a hamburger set for the first time in a while too? How about you, Soa? Is that okay?"</p>
 
-<p>Shiwoo subtly lowered the hand that had been resting on Seyoung-i's and Sua's pelvis, and turned his head towards Sua, pretending not to notice.</p>
+<p>Shiwoo subtly lowered the hand that had been resting on Seyoung-i's and Soa's pelvis, and turned his head towards Soa, pretending not to notice.</p>
 
 <p>"Uh... yeah... I... Haa... like it... hamburger... Hmm..."</p>
 
-<p>Sua barely managed to breathe out a heavy sigh, answering as if submitting to the overwhelming flow.</p>
+<p>Soa barely managed to breathe out a heavy sigh, answering as if submitting to the overwhelming flow.</p>
 
 <p>Shiwoo's hand, holding the smartphone, covered the upper mound of Seyoung-i's buttocks.</p>
 
 <p>The smartphone's vibration resonated with Seyoung-i's plump buttocks.</p>
 
-<p>A bone-rattling vibration also transmitted from Sua's buttocks through Shiwoo's hand.</p>
+<p>A bone-rattling vibration also transmitted from Soa's buttocks through Shiwoo's hand.</p>
 
 <p>The vibration, connected between the three of them, seemed to transmit to Shiwoo's penis, resonating with a tingling pleasure.</p>
 

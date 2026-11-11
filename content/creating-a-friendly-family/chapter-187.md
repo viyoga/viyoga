@@ -126,11 +126,11 @@ chapter = 187
 
 <p>Sehee Nuna asked curiously, sniffing next to Shiwoo.</p>
 
-<p>"Ah It's perfume Seyoung and Sua gave me as a gift."</p>
+<p>"Ah It's perfume Seyoung and Soa gave me as a gift."</p>
 
 <p>Shiwoo simply answered Sehee Nuna, who was curious about the perfume.</p>
 
-<p>"Seyoung and Sua? When?"</p>
+<p>"Seyoung and Soa? When?"</p>
 
 <p>Sehee Nuna asked, as if surprised.</p>
 

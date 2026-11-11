@@ -62,7 +62,7 @@ chapter = 719
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo came down the stairs to the first-floor living room. The living room was submerged in a silence that felt indifferently sunken, with the TV turned off. It seemed Seyoung and Sua had already left the house to go to the academy. Mom was not visible, but thanks to the excited presence felt through the slightly ajar master bedroom door, Shiwoo could tell she was still there.</p>
+<p>Shiwoo came down the stairs to the first-floor living room. The living room was submerged in a silence that felt indifferently sunken, with the TV turned off. It seemed Seyoung and Soa had already left the house to go to the academy. Mom was not visible, but thanks to the excited presence felt through the slightly ajar master bedroom door, Shiwoo could tell she was still there.</p>
 
 <p>"Mom I'm heading to the academy!"</p>
 

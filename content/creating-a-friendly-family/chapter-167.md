@@ -46,11 +46,11 @@ chapter = 167
 
 <p>Shiwoo deliberately replied to Seonju Imo's text in a dry tone.</p>
 
-<p>'You're home alone this evening, right?! I was thinking of going to your house with Sua and Seyoung for a bit, would that be okay?'</p>
+<p>'You're home alone this evening, right?! I was thinking of going to your house with Soa and Seyoung for a bit, would that be okay?'</p>
 
 <p>Seonju Imo, somehow knowing that Sehee Nuna wasn't coming home today, was asking Shiwoo for permission.</p>
 
-<p>'Uh... with Sua and Seyoung? You're coming home together? At what time?'</p>
+<p>'Uh... with Soa and Seyoung? You're coming home together? At what time?'</p>
 
 <p>Shiwoo felt a sense of welcome for some reason, but still replied in a blunt manner.</p>
 
@@ -62,11 +62,11 @@ chapter = 167
 
 <p>Shiwoo asked Seonju Imo, slightly puzzled.</p>
 
-<p>'Sua and Seyoung said they have something to give to Master-nim, so I'm going with them'</p>
+<p>'Soa and Seyoung said they have something to give to Master-nim, so I'm going with them'</p>
 
 <p>Seonju Imo replied to Shiwoo's question right away.</p>
 
-<p>'Sua and Seyoung have something for me? What?'</p>
+<p>'Soa and Seyoung have something for me? What?'</p>
 
 <p>Shiwoo asked, curious.</p>
 
@@ -88,9 +88,9 @@ chapter = 167
 
 <p>Seonju Imo was replying that she was faithfully carrying out Shiwoo's orders.</p>
 
-<p>'Seonju, you! Fully charge that vibrator and put it inside when you come here with Sua and Seyoung! Got it?!'</p>
+<p>'Seonju, you! Fully charge that vibrator and put it inside when you come here with Soa and Seyoung! Got it?!'</p>
 
-<p>Shiwoo imagined Seonju Imo forcibly enduring the vibrations in front of Sua and Seyoung and mischievously gave her an order.</p>
+<p>Shiwoo imagined Seonju Imo forcibly enduring the vibrations in front of Soa and Seyoung and mischievously gave her an order.</p>
 
 <p>'Yes I'll do as Master-nim says.'</p>
 
@@ -144,7 +144,7 @@ chapter = 167
 
 <p>Then, he lowered his pants, took out his penis, and grabbed it with one hand.</p>
 
-<p>Shiwoo imagined Seyoung and Sua arriving in about an hour and shook his cock.</p>
+<p>Shiwoo imagined Seyoung and Soa arriving in about an hour and shook his cock.</p>
 
 <p>Shiwoo increased the speed of his arm shaking his penis to raise his ejaculation feeling.</p>
 

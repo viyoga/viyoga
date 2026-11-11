@@ -42,7 +42,7 @@ chapter = 220
 
 <p>The thought that his younger sisters were no longer relevant was entering Shiwoo's mind.</p>
 
-<p>After all, Sua had been raised as a slave by Seonju since she was young.</p>
+<p>After all, Soa had been raised as a slave by Seonju since she was young.</p>
 
 <p>The lesbian video from the pension last summer that Seonju Imo-nim had sent.</p>
 
@@ -50,7 +50,7 @@ chapter = 220
 
 <p>And even the masturbation video that had been sent while he was having sex with Seonju Imo-nim on the second floor the other day.</p>
 
-<p>Sua was already prepared to the point where Shiwoo could have sex with her whenever he wanted.</p>
+<p>Soa was already prepared to the point where Shiwoo could have sex with her whenever he wanted.</p>
 
 <p>Seyoung also seemed to be somewhat aware of the incestuous relationship between Shiwoo and the family now.</p>
 
@@ -62,7 +62,7 @@ chapter = 220
 
 <p>-Peok! Peok! Peok! Peok! Peok!</p>
 
-<p>Shiwoo was imagining a destructive scene where he would take Mom to the living room right now and violate her in front of Seyoung and Sua, thrusting deeply into Mom's cave.</p>
+<p>Shiwoo was imagining a destructive scene where he would take Mom to the living room right now and violate her in front of Seyoung and Soa, thrusting deeply into Mom's cave.</p>
 
 <p>"Haaat! Haaang Haeueuk! Haaat!"</p>
 
@@ -168,7 +168,7 @@ chapter = 220
 
 <p>Fortunately, Seyoung didn't seem to notice Shiwoo's thing that was bulging out below his waistband.</p>
 
-<p>Seyoung hugged the white puppy with an innocent expression and returned to the living room where Sehee Nuna and Sua were.</p>
+<p>Seyoung hugged the white puppy with an innocent expression and returned to the living room where Sehee Nuna and Soa were.</p>
 
 <p class="scene-break">· · ·</p>
 

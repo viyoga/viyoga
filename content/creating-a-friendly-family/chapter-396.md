@@ -98,7 +98,7 @@ chapter = 396
 
 <p>For Mom, that was nothing short of an absolute prerequisite regarding establishing a Master-slave relationship with Shiwoo.</p>
 
-<p>But now, not only herself, Seonju Imo and Sehee Nuna, but even Seyoung and Sua, who were almost the last line of defense, had developed a Master-slave relationship with Shiwoo.</p>
+<p>But now, not only herself, Seonju Imo and Sehee Nuna, but even Seyoung and Soa, who were almost the last line of defense, had developed a Master-slave relationship with Shiwoo.</p>
 
 <p>Now that Mom's absolute prerequisite for establishing a Master-slave relationship with Shiwoo had been broken...</p>
 

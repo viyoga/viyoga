@@ -22,9 +22,9 @@ chapter = 22
 
 <p>"Aunt's house? Why?"</p>
 
-<p>"She's looking into academies to attend with Sua."</p>
+<p>"She's looking into academies to attend with Soa."</p>
 
-<p>-Sua is Seonju Imo's daughter, the same age as Seyoung-</p>
+<p>-Soa is Seonju Imo's daughter, the same age as Seyoung-</p>
 
 <p>"Academy?"</p>
 
@@ -34,7 +34,7 @@ chapter = 22
 
 <p>"Yeah."</p>
 
-<p>"They said it would help if she did something she enjoys as a hobby... Seyoung has liked magic and stuff since she was little! Seonju said she knows a magic academy, so I told her to take Sua and Seyoung there together."</p>
+<p>"They said it would help if she did something she enjoys as a hobby... Seyoung has liked magic and stuff since she was little! Seonju said she knows a magic academy, so I told her to take Soa and Seyoung there together."</p>
 
 <p>After saying that, Mom suddenly seemed to remember something else.</p>
 

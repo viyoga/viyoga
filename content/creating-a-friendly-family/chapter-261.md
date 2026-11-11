@@ -48,7 +48,7 @@ chapter = 261
 
 <p>Seyoung's adorable and soft piece of flesh was felt in Shiwoo's mouth. Perhaps because it had been exposed with Mom's saliva on it, Seyoung's nipple felt slightly cold. Shiwoo extended his tongue and licked that adorable, tiny piece of flesh, tasting it. A slightly fishy semen and Mom's saliva were subtly felt on Shiwoo's tongue. Blood rushed to Shiwoo's already engorged penis once again, making it swell as if it would burst. The tip of his massive slab of meat was precariously positioned between the parted crack beneath Seyoung's lifted body.</p>
 
-<p>If he just aligned the angle and lifted his hips, Shiwoo would be joined with Seyoung. Shiwoo felt a thrilling impulse that made him break out in a cold sweat, but he still wasn't sure. Was Seyoung truly understanding all of these situations? According to Seonju I모, Seyoung seemed to have not received sexual training from a young age, unlike Sua. Shiwoo's unilateral act towards a sleeping Seyoung might become a lifelong trauma for Seyoung. Shiwoo thought for a moment, then made Seyoung's body's center of gravity lean slightly towards him.</p>
+<p>If he just aligned the angle and lifted his hips, Shiwoo would be joined with Seyoung. Shiwoo felt a thrilling impulse that made him break out in a cold sweat, but he still wasn't sure. Was Seyoung truly understanding all of these situations? According to Seonju I모, Seyoung seemed to have not received sexual training from a young age, unlike Soa. Shiwoo's unilateral act towards a sleeping Seyoung might become a lifelong trauma for Seyoung. Shiwoo thought for a moment, then made Seyoung's body's center of gravity lean slightly towards him.</p>
 
 <p>Her breasts, soft like mochi, were pleasantly pressed against Shiwoo's face. Shiwoo lowered the hand that had been on Seyoung's back, directing the tip of his cock towards Seyoung's front. Shiwoo released Seyoung's nipple that he had been holding in his mouth and lowered Seyoung's body. Shiwoo's penis pillar rubbed against Seyoung's parted crack as if being wedged into it. The sensation of soft, slick, tender flesh was felt on Shiwoo's cock. After fitting his cock into Seyoung's parted crack, Shiwoo embraced Seyoung again.</p>
 
@@ -62,6 +62,6 @@ chapter = 261
 
 <p>His cock pillar pressed against Seyoung's wet, sensitive inner flesh inside her panties, in an embrace. Although he couldn't tell if she was still asleep or awake, Shiwoo was talking as usual, as if to an awake Seyoung.</p>
 
-<p>"Ah Tomorrow, I wonder if I can have breakfast made by Seyoung after a long time? Do you like aquariums, Seyoung? Sehee and I were supposed to go but couldn't, so I hope I can go with Seyoung and Sua tomorrow"</p>
+<p>"Ah Tomorrow, I wonder if I can have breakfast made by Seyoung after a long time? Do you like aquariums, Seyoung? Sehee and I were supposed to go but couldn't, so I hope I can go with Seyoung and Soa tomorrow"</p>
 
 <p>Shiwoo kept changing topics, rambling out sounds that were neither monologue nor conversation. Throughout his everyday chatter with Seyoung while climbing the stairs, Shiwoo's cock was wildly gushing pre-cum and twitching.</p>

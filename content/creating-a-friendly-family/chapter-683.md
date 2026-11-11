@@ -58,7 +58,7 @@ chapter = 683
 
 <p>Shiwoo asked her while moving his waist, his face still buried in Seonju-imo's shoulder.</p>
 
-<p>"Ah... I knew... even the things you went through, Shiwoo... haaa... because I was hearing news related to the academy or the company... through Sua and Seyoung..."</p>
+<p>"Ah... I knew... even the things you went through, Shiwoo... haaa... because I was hearing news related to the academy or the company... through Soa and Seyoung..."</p>
 
 <p>She answered calmly, as if she knew not only the things Shiwoo mentioned but even the events that had happened to him.</p>
 
@@ -70,11 +70,11 @@ chapter = 683
 
 <p>Seonju-imo answered with a trembling voice, as if hiding her true feelings.</p>
 
-<p>"What are you going to do about Sua? Can we live together even if she becomes a public slave?"</p>
+<p>"What are you going to do about Soa? Can we live together even if she becomes a public slave?"</p>
 
 <p>Shiwoo asked Seonju-imo as if confirming a worrisome situation.</p>
 
-<p>"...If that happens, I plan to ask Seonmi-eonni to take care of her... of course, after getting your permission first, Shiwoo... because both Sua and Seonmi-eonni belong to you now..."</p>
+<p>"...If that happens, I plan to ask Seonmi-eonni to take care of her... of course, after getting your permission first, Shiwoo... because both Soa and Seonmi-eonni belong to you now..."</p>
 
 <p>Seonju-imo answered as if she had already thought of something. In an instant, Shiwoo was swept away by an intense desire for possession and an impulse toward her.</p>
 
@@ -98,7 +98,7 @@ chapter = 683
 
 <p>After thrusting his penis into Seonju-imo's vagina for a long time as if to engrave his existence there, Shiwoo slowly caught his breath and stopped his waist. Seonju-imo was trembling as if shuddering from Shiwoo's harsh pounding, yet she was struggling not to let go, keeping her arms and legs wrapped around his body. After some time had passed... Seonju-imo lay limp, struggling to return her breathing to normal, seemingly trying to calm her body which had reached its peak.</p>
 
-<p>"...Then... what if, instead of Seonju-imo, haa... I sacrifice Sua? What would you do?"</p>
+<p>"...Then... what if, instead of Seonju-imo, haa... I sacrifice Soa? What would you do?"</p>
 
 <p>Shiwoo, having calmed his breathing, asked Seonju-imo again in a cautious voice as if testing her true intentions. At that moment, tension returned to Seonju-imo's body, and the muscles inside her vagina tightly gripped Shiwoo.</p>
 
@@ -106,7 +106,7 @@ chapter = 683
 
 <p>Seonju-imo hugged Shiwoo, suppressing her surging breath, as if clinging to a hope that might break at any moment.</p>
 
-<p>"I didn't ask if it was okay to sacrifice Seonju-imo instead of Sua, did I? I asked what Seonju-imo would do if I sacrificed Sua. Would you still not resent me then?"</p>
+<p>"I didn't ask if it was okay to sacrifice Seonju-imo instead of Soa, did I? I asked what Seonju-imo would do if I sacrificed Soa. Would you still not resent me then?"</p>
 
 <p>Shiwoo asked persistently with a sharp voice, as if driving Seonju-imo into a corner.</p>
 

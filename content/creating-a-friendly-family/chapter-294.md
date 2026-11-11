@@ -8,13 +8,13 @@ chapter = 294
 
 <p>Arriving in front of Seyoung's door, Shiwoo opens it and enters, and the puppy that was sleeping inside wags its tail and approaches Shiwoo.</p>
 
-<p>That puppy was the female puppy that licked Sua's pussy after ice cream was applied in the dressing room.</p>
+<p>That puppy was the female puppy that licked Soa's pussy after ice cream was applied in the dressing room.</p>
 
-<p>Sua seemed to be not very unfamiliar with such acts with the puppy.</p>
+<p>Soa seemed to be not very unfamiliar with such acts with the puppy.</p>
 
 <p>Seyoung, who had been living at Seonju Imo's house for a week...</p>
 
-<p>Could Seyoung also be masturbating with the help of the puppy like Sua?</p>
+<p>Could Seyoung also be masturbating with the help of the puppy like Soa?</p>
 
 <p>Shiwoo imagines Seyoung secretly in her room, naked and offering her pussy to the puppy to be licked.</p>
 

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 355: [Incest] Creating a Close Family 355 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 355: [Incest] Creating a Close Family 355 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 355
 [extra]
 chapter = 355
@@ -22,7 +22,7 @@ chapter = 355
 
 <p>Was it because they had experience receiving Shiwoo's thing into their throats or vagina holes?</p>
 
-<p>Sua and Seyoung flinched, as if reacting to Shiwoo's bold actions that seemed like a boast.</p>
+<p>Soa and Seyoung flinched, as if reacting to Shiwoo's bold actions that seemed like a boast.</p>
 
 <p>Thick pre-cum from the tip of Shiwoo's penis dripped onto the grass in the yard.</p>
 
@@ -70,11 +70,11 @@ chapter = 355
 
 <p>Setting the rules, and destroying the existing rules, was now all up to Shiwoo.</p>
 
-<p>"From now on, I should tell them not to wear clothes or anything at Seonju's house. I'll talk to Seonju about it... Sua, you should know that too!"</p>
+<p>"From now on, I should tell them not to wear clothes or anything at Seonju's house. I'll talk to Seonju about it... Soa, you should know that too!"</p>
 
 <p>Shiwoo spoke as if talking to himself while crossing the yard.</p>
 
-<p>Sua's body twitched as she listened to Shiwoo's command, which he was giving as if talking to himself.</p>
+<p>Soa's body twitched as she listened to Shiwoo's command, which he was giving as if talking to himself.</p>
 
 <p>"Seyoung, after pouring everything in your mouth on Seonju's face, charge the vibrator first! Because you'll have to use it while going home."</p>
 
@@ -84,9 +84,9 @@ chapter = 355
 
 <p>After confirming the younger sisters' reactions to his commands, Shiwoo walked across the yard with his younger sisters towards the front door.</p>
 
-<p>While walking, Shiwoo was imagining ravaging Sua's pussy with his penis, without any restrictions, and turning it into a wasteland in front of Seonju Imo.</p>
+<p>While walking, Shiwoo was imagining ravaging Soa's pussy with his penis, without any restrictions, and turning it into a wasteland in front of Seonju Imo.</p>
 
-<p>-Or, conversely, imagining fucking Seonju Imo's pussy in front of Sua...-</p>
+<p>-Or, conversely, imagining fucking Seonju Imo's pussy in front of Soa...-</p>
 
 <p>Seyoung stood beside Shiwoo, who was violating the mother and daughter, holding a smartphone camera and recording the situation.</p>
 
@@ -98,43 +98,43 @@ chapter = 355
 
 <p>Before opening the front door of Seonju Imo's house, Shiwoo took out his smartphone and started recording a video.</p>
 
-<p>"Sua, open the door first and go inside!"</p>
+<p>"Soa, open the door first and go inside!"</p>
 
-<p>Shiwoo commanded in a firm tone while filming Sua's back with the camera.</p>
+<p>Shiwoo commanded in a firm tone while filming Soa's back with the camera.</p>
 
-<p>Shiwoo, who was naked with his penis erect and had completed all preparations for copulation with the two women, wanted to capture on camera the scene of Seonju Imo and Sua awkwardly facing each other, with him right behind them.</p>
+<p>Shiwoo, who was naked with his penis erect and had completed all preparations for copulation with the two women, wanted to capture on camera the scene of Seonju Imo and Soa awkwardly facing each other, with him right behind them.</p>
 
-<p>Sua hesitated and walked towards the front door at Shiwoo's command.</p>
+<p>Soa hesitated and walked towards the front door at Shiwoo's command.</p>
 
-<p>Sua was caressing the doorknob of her own house, which she had opened countless times, as if hesitating with some awkwardness.</p>
+<p>Soa was caressing the doorknob of her own house, which she had opened countless times, as if hesitating with some awkwardness.</p>
 
 <p>About the things she had to do for Seonju Imo at Shiwoo's command after opening the door and going inside...</p>
 
 <p>Or was she feeling burdened or awkward about the hierarchy between mother and daughter that would be completely reversed starting today?</p>
 
-<p>Sua would clearly know the meaning of Shiwoo's command to pass the semen in her mouth to her mother and to put the leash on her herself.</p>
+<p>Soa would clearly know the meaning of Shiwoo's command to pass the semen in her mouth to her mother and to put the leash on her herself.</p>
 
 <p>A situation where a shocking ritual and sexual relationship that would reverse the hierarchy of the mother and daughter was imminent.</p>
 
-<p>No matter how much Sua had been raised as a sex slave by Seonju Imo since she was young, she would not be able to help the turmoil and confusion in her heart.</p>
+<p>No matter how much Soa had been raised as a sex slave by Seonju Imo since she was young, she would not be able to help the turmoil and confusion in her heart.</p>
 
-<p>Shiwoo silently waited for Sua to be fully prepared, without any particular words or urging.</p>
+<p>Shiwoo silently waited for Soa to be fully prepared, without any particular words or urging.</p>
 
-<p>The more Shiwoo thought about Sua's shy and troubled heart, the more his excitement seemed to escalate.</p>
+<p>The more Shiwoo thought about Soa's shy and troubled heart, the more his excitement seemed to escalate.</p>
 
-<p>Sua tightly closed and opened her eyes, and finally grabbed the doorknob as if she had made up her mind and opened the front door.</p>
+<p>Soa tightly closed and opened her eyes, and finally grabbed the doorknob as if she had made up her mind and opened the front door.</p>
 
 <p>The front door of Seonju Imo's house opened without resistance, as if the lock had already been released.</p>
 
-<p>Sua, after opening the front door and checking the inside of the house, flinched as if surprised by the changed atmosphere of the house.</p>
+<p>Soa, after opening the front door and checking the inside of the house, flinched as if surprised by the changed atmosphere of the house.</p>
 
-<p>Sua's expression froze for a moment as if she had recognized something in the house.</p>
+<p>Soa's expression froze for a moment as if she had recognized something in the house.</p>
 
-<p>But Sua, as if she had already prepared herself before entering the house, soon relaxed her frozen expression and calmly took steps into the house.</p>
+<p>But Soa, as if she had already prepared herself before entering the house, soon relaxed her frozen expression and calmly took steps into the house.</p>
 
-<p>Seyoung and Shiwoo also soon followed Sua into the house.</p>
+<p>Seyoung and Shiwoo also soon followed Soa into the house.</p>
 
-<p>As soon as he entered the house, Shiwoo was momentarily a little surprised by the sight that unfolded before his eyes, just like Sua had been a moment ago.</p>
+<p>As soon as he entered the house, Shiwoo was momentarily a little surprised by the sight that unfolded before his eyes, just like Soa had been a moment ago.</p>
 
 <p>Seonju Imo, kneeling and prostrating herself in an almost naked state in the entrance hall where shoes are taken off, in the passage leading to the living room.</p>
 
@@ -174,10 +174,10 @@ chapter = 355
 
 <p>Shiwoo turned his head away from Seonju Imo without any particular answer.</p>
 
-<p>Then, Shiwoo pointed the smartphone he was holding towards Seonju Imo in the direction where Sua was standing.</p>
+<p>Then, Shiwoo pointed the smartphone he was holding towards Seonju Imo in the direction where Soa was standing.</p>
 
-<p>The sadistic impulse that had been rising in Shiwoo seemed to be directed towards Sua instead of Seonju Imo.</p>
+<p>The sadistic impulse that had been rising in Shiwoo seemed to be directed towards Soa instead of Seonju Imo.</p>
 
-<p>Shiwoo pulled one of the shoulder straps of the reddish-brown dress that Sua was wearing to the side.</p>
+<p>Shiwoo pulled one of the shoulder straps of the reddish-brown dress that Soa was wearing to the side.</p>
 
-<p>Whether it was because she had become somewhat immune to undressing due to the exposure play in the haunted house or in the car, or because she was feeling relieved after coming inside the house, Sua was not greatly embarrassed and was accepting Shiwoo's touch.</p>
+<p>Whether it was because she had become somewhat immune to undressing due to the exposure play in the haunted house or in the car, or because she was feeling relieved after coming inside the house, Soa was not greatly embarrassed and was accepting Shiwoo's touch.</p>

@@ -6,11 +6,11 @@ chapter = 182
 +++
 <p>"Oh, right! Seonju Imo! What kind of leash should we buy?"</p>
 
-<p>Seyoung asks Seonju Imo, seemingly remembering the question she hadn't gotten a proper answer to from Sua earlier.</p>
+<p>Seyoung asks Seonju Imo, seemingly remembering the question she hadn't gotten a proper answer to from Soa earlier.</p>
 
 <p>Shiwoo is startled by Seyoung's words, 'our leash,' with the word 'puppy' omitted in the middle.</p>
 
-<p>Shiwoo imagines Seyoung and Sua, each wearing pink and light purple leashes, respectively.</p>
+<p>Shiwoo imagines Seyoung and Soa, each wearing pink and light purple leashes, respectively.</p>
 
 <p>He feels a tingling shiver running from the soles of his feet up to his knees and pelvic bones.</p>
 
@@ -60,23 +60,23 @@ chapter = 182
 
 <p>Shiwoo gathers the drooping end of the towel forward, covering his erect cock. The towel that only covers the shaft creates an even clearer outline of his cock.</p>
 
-<p>The only one who can see Shiwoo's erect cock right now is Sua, who is sitting next to Shiwoo.</p>
+<p>The only one who can see Shiwoo's erect cock right now is Soa, who is sitting next to Shiwoo.</p>
 
-<p>Shiwoo deliberately leans his upper body slightly against the back of the chair, tilting his body so that the penis hidden by his body is clearly visible to Sua.</p>
+<p>Shiwoo deliberately leans his upper body slightly against the back of the chair, tilting his body so that the penis hidden by his body is clearly visible to Soa.</p>
 
 <p>The dark hairs below the shaft of Shiwoo's cock and the red, flushed skin of Shiwoo's shaft are revealed.</p>
 
 <p>Shiwoo looks back and forth between Seonju Imo and Seyoung as if nothing is wrong.</p>
 
-<p>Even without turning his head towards Sua, Shiwoo could feel Sua's shy gaze.</p>
+<p>Even without turning his head towards Soa, Shiwoo could feel Soa's shy gaze.</p>
 
-<p>Shiwoo felt a chill running down his spine at the fact that Sua was looking at his penis.</p>
+<p>Shiwoo felt a chill running down his spine at the fact that Soa was looking at his penis.</p>
 
 <p>Shiwoo's massive cock, throbbing greatly as if about to burst.</p>
 
 <p>The towel is sliding forward precariously, and the bare skin of Shiwoo's cock shaft, excluding the glans, is being shown exposed under the table.</p>
 
-<p>Shiwoo is secretly erect in a half-naked state at the table where Seonju Imo, Seyoung, and Sua are together.</p>
+<p>Shiwoo is secretly erect in a half-naked state at the table where Seonju Imo, Seyoung, and Soa are together.</p>
 
 <p>Shiwoo gently grabs the bottom part of his massive shaft with one hand and shakes it up and down slightly.</p>
 
@@ -84,7 +84,7 @@ chapter = 182
 
 <p>Intense pleasure of transgression and a heterogeneous sense of joy seemed to be stirring Shiwoo's entire body.</p>
 
-<p>Shiwoo was thinking that he might have raped Sua right in front of Seonju Imo if Seyoung, who was sitting across from him, wasn't there.</p>
+<p>Shiwoo was thinking that he might have raped Soa right in front of Seonju Imo if Seyoung, who was sitting across from him, wasn't there.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -140,43 +140,43 @@ chapter = 182
 
 <p>Seonju Imo says playfully, pretending to feed Seyoung her breast.</p>
 
-<p>"Yeah I want to suck on Imo's breasts all night long With Sua"</p>
+<p>"Yeah I want to suck on Imo's breasts all night long With Soa"</p>
 
 <p>Seyoung is shamelessly grabbing one of Seonju Imo's breasts with her hand and bringing her mouth to the other breast as if biting it.</p>
 
-<p>Shiwoo turns to look to the side for a moment at Seyoung's words, 'With Sua'</p>
+<p>Shiwoo turns to look to the side for a moment at Seyoung's words, 'With Soa'</p>
 
-<p>Sua's gaze, which had been lowered towards Shiwoo's penis under the table, drops as if avoiding Shiwoo's eyes.</p>
+<p>Soa's gaze, which had been lowered towards Shiwoo's penis under the table, drops as if avoiding Shiwoo's eyes.</p>
 
 <p>The conversation between Seonju Imo and Seyoung is making him feel dizzy.</p>
 
-<p>And Sua's reaction to watching Shiwoo's masturbation.</p>
+<p>And Soa's reaction to watching Shiwoo's masturbation.</p>
 
 <p>Shiwoo's pre-cum is smearing all over his hand.</p>
 
 <p>Shiwoo was swept up in a strange excitement and was shaking his cock under the table without making a sound.</p>
 
-<p>The sight of him watching the high-level adult play of his aunt and young niece while sitting next to Sua as if watching a high-level adult play, watching the high-level vulgar sexual jokes of his aunt and young niece across from him.</p>
+<p>The sight of him watching the high-level adult play of his aunt and young niece while sitting next to Soa as if watching a high-level adult play, watching the high-level vulgar sexual jokes of his aunt and young niece across from him.</p>
 
-<p>Shiwoo stops the hand that he was shaking for a moment and raises that hand, which is covered in pre-cum, onto Sua's thigh.</p>
+<p>Shiwoo stops the hand that he was shaking for a moment and raises that hand, which is covered in pre-cum, onto Soa's thigh.</p>
 
-<p>Sua is feeling Shiwoo's touch with her face dropped.</p>
+<p>Soa is feeling Shiwoo's touch with her face dropped.</p>
 
-<p>Shiwoo's slippery pre-cum is spreading widely on Sua's white thigh.</p>
+<p>Shiwoo's slippery pre-cum is spreading widely on Soa's white thigh.</p>
 
-<p>Shiwoo's hand goes inside Sua's crotch under the table, past her inner thigh, without Seonju Imo and Seyoung noticing.</p>
+<p>Shiwoo's hand goes inside Soa's crotch under the table, past her inner thigh, without Seonju Imo and Seyoung noticing.</p>
 
 <p>A foreign substance is caught on Shiwoo's fingertips.</p>
 
 <p>"Haa..."</p>
 
-<p>Sua shuddered and reacted to Shiwoo's hand.</p>
+<p>Soa shuddered and reacted to Shiwoo's hand.</p>
 
 <p>Shiwoo's cock twitched, and the towel that was precariously hanging on the tip of his glans fell onto Shiwoo's thigh.</p>
 
 <p>Now Shiwoo's penis was completely exposed under the table.</p>
 
-<p>Should he just drag Sua to the dressing room and rape her like this?</p>
+<p>Should he just drag Soa to the dressing room and rape her like this?</p>
 
 <p>Wouldn't Seonju Imo take Seyoung to the room and do something to her?</p>
 
@@ -190,7 +190,7 @@ chapter = 182
 
 <p>Seonju Imo checks her smartphone screen and then brings her index finger to her lips, giving Shiwoo and her younger sisters a warning.</p>
 
-<p>In an instant, Shiwoo's hand comes out of Sua's skirt.</p>
+<p>In an instant, Shiwoo's hand comes out of Soa's skirt.</p>
 
 <p>The person who called Seonju Imo was probably Mom, who is alone at Seonju Imo's house right now.</p>
 

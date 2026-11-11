@@ -204,9 +204,9 @@ chapter = 103
 
 <p>The owner of the familiar voice was Seyoung.</p>
 
-<p>Seyoung and Sua were each holding two leashes, seemingly walking the dogs.</p>
+<p>Seyoung and Soa were each holding two leashes, seemingly walking the dogs.</p>
 
-<p>"Oh Seyoung-a, Sua-ya! Didn't you two go to the academy today?"</p>
+<p>"Oh Seyoung-a, Soa-ya! Didn't you two go to the academy today?"</p>
 
 <p>Sehee Nuna called her sisters' names and asked, trying to act natural as if to hide her surprise.</p>
 
@@ -216,11 +216,11 @@ chapter = 103
 
 <p>"Looks like you were walking the dogs?"</p>
 
-<p>Shiwoo also spoke, following Sehee Nuna's lead, looking back and forth between Seyoung and Sua.</p>
+<p>Shiwoo also spoke, following Sehee Nuna's lead, looking back and forth between Seyoung and Soa.</p>
 
-<p>Shiwoo's eyes met Sua's for a moment.</p>
+<p>Shiwoo's eyes met Soa's for a moment.</p>
 
-<p>Shiwoo recalled the image of Sua in the photo, tied up with a sign around her neck and her eyes covered by a blindfold.</p>
+<p>Shiwoo recalled the image of Soa in the photo, tied up with a sign around her neck and her eyes covered by a blindfold.</p>
 
 <p>A powerful, thrilling sensation, like sparks flying, surged through him, and Shiwoo's penis stiffened once again.</p>
 
@@ -228,7 +228,7 @@ chapter = 103
 
 <p>Seyoung, noticing Shiwoo's momentarily dazed state, pulled the dogs she was holding on leashes closer to show him.</p>
 
-<p>It seemed Sua's family divided the dog walking between the large dog and the small puppies.</p>
+<p>It seemed Soa's family divided the dog walking between the large dog and the small puppies.</p>
 
 <p>"Oh They're cute? Didn't Seyoung say before that she wanted to adopt one and raise it?"</p>
 

@@ -54,7 +54,7 @@ chapter = 705
 
 <p>"And Seyoung, why do you keep switching between formal and informal speech with me? You only call me Master whenever you feel like it!"</p>
 
-<p>"Didn't you and Sua give up your inheritance rights just to make me your Master?"</p>
+<p>"Didn't you and Soa give up your inheritance rights just to make me your Master?"</p>
 
 <p>Shiwoo gave a bitter smile, venting his dissatisfaction filled with disappointment and bitterness toward Seyoung's attitude, which suggested she didn't fully regard him as her Master.</p>
 

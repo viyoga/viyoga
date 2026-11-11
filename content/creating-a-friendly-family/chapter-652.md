@@ -1,20 +1,20 @@
 +++
-title = "Chapter 652: [Incest] Making a Friendly Family 652 (Su-ah, Se-young, Mom, Se-hee, Tattoo Shop Owner) (Way Home, House)"
+title = "Chapter 652: [Incest] Making a Friendly Family 652 (Soa, Se-young, Mom, Se-hee, Tattoo Shop Owner) (Way Home, House)"
 weight = 652
 [extra]
 chapter = 652
 +++
-<p>"Sunju would eat it up without a word and Sua has already had it raw a few times, so it shouldn't matter, right? Hehe"</p>
+<p>"Sunju would eat it up without a word and Soa has already had it raw a few times, so it shouldn't matter, right? Hehe"</p>
 
-<p>Seyeong gave Siwoo a meaningful smile, whispering as if to egg him on in the mischievous fantasy of drizzling 'special sauce' on the sushi and feeding it to Aunt Sunju and Sua.</p>
+<p>Seyeong gave Siwoo a meaningful smile, whispering as if to egg him on in the mischievous fantasy of drizzling 'special sauce' on the sushi and feeding it to Aunt Sunju and Soa.</p>
 
 <p>As she did, she stimulated Siwoo's penis by gripping it through his clothes and moving her hand in large motions.</p>
 
-<p>As if reacting to the stimulation vibrating through his penis, Siwoo firmly grasped Sua's breast.</p>
+<p>As if reacting to the stimulation vibrating through his penis, Siwoo firmly grasped Soa's breast.</p>
 
 <p>"Ha-euut!..."</p>
 
-<p>Along with a moan, Sua's hand firmly gripped Siwoo's testicles...</p>
+<p>Along with a moan, Soa's hand firmly gripped Siwoo's testicles...</p>
 
 <p>Although they were sisters who had already crossed the line of taboos and distorted pleasure several times, Siwoo still felt that his sisters' actions were strange and distant.</p>
 
@@ -22,7 +22,7 @@ chapter = 652
 
 <p>The hands of the sisters, tucked between Siwoo's bag and his crotch, remained tightly pressed against his penis and testicles even as people passed them in the alley.</p>
 
-<p>Due to Seyeong and Sua's proactive behavior, Siwoo trembled, wavering between pleasure and bewilderment as he failed to find his bearings.</p>
+<p>Due to Seyeong and Soa's proactive behavior, Siwoo trembled, wavering between pleasure and bewilderment as he failed to find his bearings.</p>
 
 <p>Seyeong's magic academy, which he had learned about through Aunt Sunju...</p>
 
@@ -60,11 +60,11 @@ chapter = 652
 
 <p>Siwoo finally arrived in front of the house with his sisters.</p>
 
-<p>During the walk home, Sua and Seyeong had massaged Siwoo's penis and scrotum while exchanging conversation as if nothing were out of the ordinary.</p>
+<p>During the walk home, Soa and Seyeong had massaged Siwoo's penis and scrotum while exchanging conversation as if nothing were out of the ordinary.</p>
 
 <p>Secretly moving their fingertips hidden between the bag and his crotch, as if acting out a normal daily life...</p>
 
-<p>Sua and Seyeong's hands, which had been holding Siwoo's penis and testicles, naturally pulled away just before arriving at the house, as if by prior agreement.</p>
+<p>Soa and Seyeong's hands, which had been holding Siwoo's penis and testicles, naturally pulled away just before arriving at the house, as if by prior agreement.</p>
 
 <p>The strange balance and sense of unity that seemed to communicate without words wrapped around Siwoo's heart affectionately.</p>
 
@@ -72,45 +72,45 @@ chapter = 652
 
 <p>Seah, the dog who had been guarding the house alone, welcomed Siwoo and the sisters happily.</p>
 
-<p>"I'll go wash up first and come out to get dinner ready, so Oppa and Sua can watch TV or go into the room and rest for a bit Okay?"</p>
+<p>"I'll go wash up first and come out to get dinner ready, so Oppa and Soa can watch TV or go into the room and rest for a bit Okay?"</p>
 
 <p>Seyeong spoke as she walked toward the shower after placing the sushi she was carrying on the dining table.</p>
 
 <p>Siwoo put the ice cream in the freezer and turned back to the table.</p>
 
-<p>Sua was also tidying up, putting the drinks and snacks she had been carrying on the table.</p>
+<p>Soa was also tidying up, putting the drinks and snacks she had been carrying on the table.</p>
 
 <p>"Siwoo Oppa! Should I just leave this here? Or should I take it all out and unpack it?"</p>
 
-<p>Sua asked Siwoo while looking at the items in the plastic bag.</p>
+<p>Soa asked Siwoo while looking at the items in the plastic bag.</p>
 
 <p>"Just leave it There's still some time before Sunju arrives."</p>
 
-<p>Siwoo spoke to Sua, intentionally mentioning Aunt Sunju's name.</p>
+<p>Siwoo spoke to Soa, intentionally mentioning Aunt Sunju's name.</p>
 
 <p>"Yeah..."</p>
 
 <p>Was it because Siwoo had spat out her mother's name like he were calling a subordinate while they were alone?</p>
 
-<p>Sua answered briefly, unable to hide her awkwardness.</p>
+<p>Soa answered briefly, unable to hide her awkwardness.</p>
 
-<p>On the way home, Sua had been bold enough to massage his testicles as if it were nothing.</p>
+<p>On the way home, Soa had been bold enough to massage his testicles as if it were nothing.</p>
 
 <p>She was the one who had been raised under Aunt Sunju's slave education since she was young, and who didn't hesitate to engage in perverted sexual relations with Siwoo...</p>
 
-<p>Seeing Sua act embarrassed or awkward like that felt contradictory and caused a strange feeling to tickle his insides.</p>
+<p>Seeing Soa act embarrassed or awkward like that felt contradictory and caused a strange feeling to tickle his insides.</p>
 
 <p>Suddenly, the suggestion Seyeong had made on the way home popped into Siwoo's head.</p>
 
 <p>"Ah! Open up one box! Like Seyeong said earlier, I'm planning to feed you after I drizzle my stuff on it..."</p>
 
-<p>Siwoo instructed Sua as if explaining a staged script.</p>
+<p>Siwoo instructed Soa as if explaining a staged script.</p>
 
 <p>"Y-yeah..."</p>
 
-<p>Following Siwoo's command, Sua took out one of the sushi boxes from the bag and carefully unwrapped it.</p>
+<p>Following Siwoo's command, Soa took out one of the sushi boxes from the bag and carefully unwrapped it.</p>
 
-<p>While Sua was laying out the sushi box, Siwoo opened a 1:1 chat window with his mom on his smartphone.</p>
+<p>While Soa was laying out the sushi box, Siwoo opened a 1:1 chat window with his mom on his smartphone.</p>
 
 <p>[Are you still doing it? When are you planning to come home?]</p>
 

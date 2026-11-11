@@ -1,14 +1,14 @@
 +++
-title = "Chapter 350: [Incest] Creating a Close Family 350 (Se-young, Su-a [Explicit])"
+title = "Chapter 350: [Incest] Creating a Close Family 350 (Se-young, Soa [Explicit])"
 weight = 350
 [extra]
 chapter = 350
 +++
-<p>Seyoung, having released about half of her semen into Sua's mouth, had her tongue inside Sua's mouth, stirring it around as if exploring.</p>
+<p>Seyoung, having released about half of her semen into Soa's mouth, had her tongue inside Soa's mouth, stirring it around as if exploring.</p>
 
 <p>Seyoung's actions seemed almost like she was showing off wildly to Shiwoo, the smartphone camera Shiwoo was holding, and to anyone who might see the video later.</p>
 
-<p>Seyoung continued to stir Shiwoo's semen around in Sua's mouth with her tongue.</p>
+<p>Seyoung continued to stir Shiwoo's semen around in Soa's mouth with her tongue.</p>
 
 <p>The entire scene was captured intact by Shiwoo's smartphone camera.</p>
 
@@ -24,69 +24,69 @@ chapter = 350
 
 <p class="scene-break">· · ·</p>
 
-<p>Seyoung, who had handed over half of the semen as Shiwoo had ordered, soon took her lips away from Sua.</p>
+<p>Seyoung, who had handed over half of the semen as Shiwoo had ordered, soon took her lips away from Soa.</p>
 
-<p>Sua's head, which had been turned towards Seyoung, leaned against Shiwoo's shoulder again.</p>
+<p>Soa's head, which had been turned towards Seyoung, leaned against Shiwoo's shoulder again.</p>
 
-<p>Sua, with pupils that seemed completely unfocused as if she had been completely released while holding Shiwoo's semen, leaned back and looked up at Shiwoo.</p>
+<p>Soa, with pupils that seemed completely unfocused as if she had been completely released while holding Shiwoo's semen, leaned back and looked up at Shiwoo.</p>
 
-<p>Sua was keeping the semen she had received from her mouth in her mouth without swallowing it, as Shiwoo had ordered Seyoung to do.</p>
+<p>Soa was keeping the semen she had received from her mouth in her mouth without swallowing it, as Shiwoo had ordered Seyoung to do.</p>
 
 <p>Shiwoo's semen, which she couldn't quite contain entirely in her mouth, was overflowing from the corners of her lips.</p>
 
 <p>The dreamy mucus falling in clear, white streaks around her lips.</p>
 
-<p>Shiwoo wiped the streaks of mucus flowing from Sua's lips with his finger.</p>
+<p>Shiwoo wiped the streaks of mucus flowing from Soa's lips with his finger.</p>
 
-<p>Then, he pushed the liquid he had gathered with his finger back into Sua's mouth.</p>
+<p>Then, he pushed the liquid he had gathered with his finger back into Soa's mouth.</p>
 
-<p>Sua tilted her head back slightly further and opened her mouth slightly to help Shiwoo's work go smoothly.</p>
+<p>Soa tilted her head back slightly further and opened her mouth slightly to help Shiwoo's work go smoothly.</p>
 
-<p>Sua finally got all the semen that had flowed around her mouth into her mouth.</p>
+<p>Soa finally got all the semen that had flowed around her mouth into her mouth.</p>
 
-<p>Sua was quietly holding the semen she had received, staring into space with her back and head completely leaning against Shiwoo.</p>
+<p>Soa was quietly holding the semen she had received, staring into space with her back and head completely leaning against Shiwoo.</p>
 
-<p>Sua, who didn't seem to be completely used to Shiwoo's penis yet, occasionally tightened her vagina hole and struggled to arch her back.</p>
+<p>Soa, who didn't seem to be completely used to Shiwoo's penis yet, occasionally tightened her vagina hole and struggled to arch her back.</p>
 
-<p>Sua's breath, with her mouth closed, was gradually becoming rougher.</p>
+<p>Soa's breath, with her mouth closed, was gradually becoming rougher.</p>
 
 <p>Shiwoo changed the lens direction of the smartphone video to the selfie camera.</p>
 
-<p>Then, Shiwoo stretched out his arm and captured the image of himself and Sua, who was leaning against him, on the screen.</p>
+<p>Then, Shiwoo stretched out his arm and captured the image of himself and Soa, who was leaning against him, on the screen.</p>
 
-<p>The camera angle showed Shiwoo himself and Sua, who was leaning back with her pussy penetrated by his penis.</p>
+<p>The camera angle showed Shiwoo himself and Soa, who was leaning back with her pussy penetrated by his penis.</p>
 
-<p>Sua, with her body drooping and a relaxed expression, was looking at the screen that was filming her.</p>
+<p>Soa, with her body drooping and a relaxed expression, was looking at the screen that was filming her.</p>
 
-<p>Sua seemed to be desperately breathing through her nose, with her mouth tightly closed, so as not to spill the semen in her mouth.</p>
+<p>Soa seemed to be desperately breathing through her nose, with her mouth tightly closed, so as not to spill the semen in her mouth.</p>
 
-<p>,Sua! Open your mouth towards here!'</p>
+<p>,Soa! Open your mouth towards here!'</p>
 
-<p>Shiwoo ordered Sua, pointing to the lens of the smartphone camera on the screen.</p>
+<p>Shiwoo ordered Soa, pointing to the lens of the smartphone camera on the screen.</p>
 
-<p>Shiwoo seemed to want to record a video of Sua with his ejaculate in her mouth.</p>
+<p>Shiwoo seemed to want to record a video of Soa with his ejaculate in her mouth.</p>
 
-<p>Sua hesitated for a while, then closed her eyes tightly as if she was embarrassed, and slowly opened her mouth to show Shiwoo's semen in her mouth to the camera.</p>
+<p>Soa hesitated for a while, then closed her eyes tightly as if she was embarrassed, and slowly opened her mouth to show Shiwoo's semen in her mouth to the camera.</p>
 
-<p>Shiwoo brought his hand under Sua's chin and pressed her cheeks with his thumb and middle finger, making Sua's open mouth open wider.</p>
+<p>Shiwoo brought his hand under Soa's chin and pressed her cheeks with his thumb and middle finger, making Soa's open mouth open wider.</p>
 
-<p>Then, he moved his hand holding Sua's cheeks and chin, adjusting the angle so that Sua's mouth would be clearly visible in the camera.</p>
+<p>Then, he moved his hand holding Soa's cheeks and chin, adjusting the angle so that Soa's mouth would be clearly visible in the camera.</p>
 
-<p>Soon, the appearance of Sua's oral cavity, which had been shyly hidden, was captured nakedly by the camera Shiwoo was holding.</p>
+<p>Soon, the appearance of Soa's oral cavity, which had been shyly hidden, was captured nakedly by the camera Shiwoo was holding.</p>
 
-<p>Sua's red and vibrant mouth was tangled with Shiwoo's semen, including her palate, cheeks, and tongue.</p>
+<p>Soa's red and vibrant mouth was tangled with Shiwoo's semen, including her palate, cheeks, and tongue.</p>
 
 <p>Shiwoo's semen, contained under her tongue, was pooled like a viscous slime.</p>
 
-<p>Each time Sua's tense tongue, which seemed nervous, floated on the pooled semen and moved, the slime that had been pooled changed its level in Sua's mouth.</p>
+<p>Each time Soa's tense tongue, which seemed nervous, floated on the pooled semen and moved, the slime that had been pooled changed its level in Soa's mouth.</p>
 
-<p>Shiwoo, who had filmed all of Sua's mouth to a satisfactory degree, became aware of Seyoung's rough breathing sounds coming from next to him.</p>
+<p>Shiwoo, who had filmed all of Soa's mouth to a satisfactory degree, became aware of Seyoung's rough breathing sounds coming from next to him.</p>
 
 <p>Shiwoo turned to look at Seyoung, who was facing Shiwoo from the next seat.</p>
 
-<p>Was Seyoung also excited while watching Sua with her mouth open, capturing the semen in her mouth on camera?</p>
+<p>Was Seyoung also excited while watching Soa with her mouth open, capturing the semen in her mouth on camera?</p>
 
-<p>At the thought that it would soon be her turn to open her mouth like Sua and capture the appearance of her mouth with semen in it on camera...</p>
+<p>At the thought that it would soon be her turn to open her mouth like Soa and capture the appearance of her mouth with semen in it on camera...</p>
 
 <p>As Shiwoo's gaze turned to her, Seyoung's face, with her mouth closed while holding semen, gradually turned bright red.</p>
 
@@ -132,13 +132,13 @@ chapter = 350
 
 <p>Shiwoo stopped filming the video with a satisfied expression.</p>
 
-<p>After saving the video he had just taken, he placed the smartphone on Sua's stomach and stroked the heads of his two younger sisters with both hands.</p>
+<p>After saving the video he had just taken, he placed the smartphone on Soa's stomach and stroked the heads of his two younger sisters with both hands.</p>
 
 <p>At that moment, Shiwoo's penis regained its strength.</p>
 
-<p>However, it seemed that he no longer had the energy to shake his waist and violate Sua.</p>
+<p>However, it seemed that he no longer had the energy to shake his waist and violate Soa.</p>
 
-<p>Shiwoo, with his penis still inside Sua's pussy,</p>
+<p>Shiwoo, with his penis still inside Soa's pussy,</p>
 
 <p>And with his semen divided and contained in his younger sisters' mouths,</p>
 
@@ -146,7 +146,7 @@ chapter = 350
 
 <p class="scene-break">· · ·</p>
 
-<p>Just as Shiwoo's thighs, on which Sua was placed, were starting to feel a little numb, familiar scenery outside the window began to appear through the gap in the curtained window.</p>
+<p>Just as Shiwoo's thighs, on which Soa was placed, were starting to feel a little numb, familiar scenery outside the window began to appear through the gap in the curtained window.</p>
 
 <p>Before he knew it, the taxi was entering Seonju -imo's neighborhood, which he had set as his destination before departure.</p>
 
@@ -154,11 +154,11 @@ chapter = 350
 
 <p>Although they were drooping their bodies as if exhausted, they were preserving the semen contained in their mouths according to Shiwoo's orders.</p>
 
-<p>Shiwoo looked at his younger sisters, who were breathing through their noses, and seemed to be thinking about something for a moment, then picked up the smartphone that he had placed on Sua's stomach.</p>
+<p>Shiwoo looked at his younger sisters, who were breathing through their noses, and seemed to be thinking about something for a moment, then picked up the smartphone that he had placed on Soa's stomach.</p>
 
 <p>Shiwoo opened the smartphone gallery and checked the videos he had just filmed inside the call van taxi.</p>
 
-<p>Sua's luscious buttocks being violated by his penis.</p>
+<p>Soa's luscious buttocks being violated by his penis.</p>
 
 <p>Seyoung's small mouth receiving the semen spewing from his penis.</p>
 

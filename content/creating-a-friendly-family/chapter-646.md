@@ -1,5 +1,5 @@
 +++
-title = "Chapter 646: [Incest] Making a Friendly Family 646 (Se-young, Sex, Su-ah) (Cafe) (Today's Recommended Menu)"
+title = "Chapter 646: [Incest] Making a Friendly Family 646 (Se-young, Sex, Soa) (Cafe) (Today's Recommended Menu)"
 weight = 646
 [extra]
 chapter = 646
@@ -76,15 +76,15 @@ chapter = 646
 
 <p>To shake off the embarrassment, Shiwoo popped the cap of the glass bottle.</p>
 
-<p>"Sua, here!"</p>
+<p>"Soa, here!"</p>
 
-<p>Shiwoo then tilted the opened glass bottle toward Sua first...</p>
+<p>Shiwoo then tilted the opened glass bottle toward Soa first...</p>
 
-<p>Startled, Sua held out her ice cream bowl as if in a daze.</p>
+<p>Startled, Soa held out her ice cream bowl as if in a daze.</p>
 
 <p>A strange tension was embedded in that small gesture, and her gaze held a desperate longing, as if she were humbly accepting Shiwoo's will and pleading for something.</p>
 
-<p>The thick breast milk of Sejin Nuna flowed down onto Sua's ice cream.</p>
+<p>The thick breast milk of Sejin Nuna flowed down onto Soa's ice cream.</p>
 
 <p>Following that, Shiwoo drizzled Sejin Nuna's breast milk over his own ice cream.</p>
 
@@ -98,7 +98,7 @@ chapter = 646
 
 <p>Seyoung released her grip on Shiwoo's penis and pulled her hand out from under the blanket...</p>
 
-<p>Like Sua, Seyoung held her ice cream bowl with both hands and held it out toward Shiwoo.</p>
+<p>Like Soa, Seyoung held her ice cream bowl with both hands and held it out toward Shiwoo.</p>
 
 <p>Shiwoo did not pour Sejin Nuna's breast milk onto Seyoung's ice cream, but instead watched her for a moment.</p>
 
@@ -188,9 +188,9 @@ chapter = 646
 
 <p>The sensation of the breast milk clinging to Seyoung's tongue could also be felt sliding against his penis.</p>
 
-<p>Sua, sitting across from him, also picked up her spoon and began to eat the ice cream.</p>
+<p>Soa, sitting across from him, also picked up her spoon and began to eat the ice cream.</p>
 
-<p>With a slackened expression and gaze, Sua savored the taste along with Shiwoo for a while.</p>
+<p>With a slackened expression and gaze, Soa savored the taste along with Shiwoo for a while.</p>
 
 <p>At some point, Seyoung's mouth, which had been clamped around the glans, pulled away.</p>
 

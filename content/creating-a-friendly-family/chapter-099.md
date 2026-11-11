@@ -30,7 +30,7 @@ chapter = 99
 
 <p>More than half of his family members had already become people who had sex with Shiwoo.</p>
 
-<p>If Shiwoo set his mind to it, Sejin Nuna and Sua would also soon be panting, impaled beneath Shiwoo.</p>
+<p>If Shiwoo set his mind to it, Sejin Nuna and Soa would also soon be panting, impaled beneath Shiwoo.</p>
 
 <p>-Though he didn't know in detail what kind of treatment the two of them, along with Seonju Imo, were receiving from Dad-</p>
 

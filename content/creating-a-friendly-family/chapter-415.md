@@ -110,13 +110,13 @@ chapter = 415
 
 <p>Shiwoo felt that Mom's state and desperate voice were truly lovely.</p>
 
-<p>"Seyoung and Sua did even worse things than you without complaining, so why are you whining so much over just having your clothes taken off in a place where no one's watching? You fucking whore!"</p>
+<p>"Seyoung and Soa did even worse things than you without complaining, so why are you whining so much over just having your clothes taken off in a place where no one's watching? You fucking whore!"</p>
 
 <p>Shiwoo compared Mom to his younger sisters, belittling her with harsh words.</p>
 
 <p>After speaking, Shiwoo brought up the gallery app on his smartphone screen and looked for the photos and videos of Seyoung that he had taken today.</p>
 
-<p>Shiwoo uploaded the photos and videos of Seyoung and Sua, which he hadn't shown to Mom and the other family members yet, to the 1:1 chat with Mom.</p>
+<p>Shiwoo uploaded the photos and videos of Seyoung and Soa, which he hadn't shown to Mom and the other family members yet, to the 1:1 chat with Mom.</p>
 
 <p>Photos of his sisters naked in the dark haunted house.</p>
 
@@ -124,7 +124,7 @@ chapter = 415
 
 <p>And the photos and videos of the exhibitionist urination shame play he had done with Seyoung alone behind the park bathroom.</p>
 
-<p>Shiwoo had uploaded the photos and videos of the exhibitionist play he had done with Seyoung and Sua today to the 1:1 conversation with Mom as if showing off.</p>
+<p>Shiwoo had uploaded the photos and videos of the exhibitionist play he had done with Seyoung and Soa today to the 1:1 conversation with Mom as if showing off.</p>
 
 <p>The sisters' videos and photos, which clearly seemed to be much more explicit than what Mom was doing.</p>
 
@@ -132,7 +132,7 @@ chapter = 415
 
 <p>It seemed that Mom was checking the photos and videos that her son had sent.</p>
 
-<p>"Look! Seyoung and Sua don't make crying sounds like Mom does while doing things like that!"</p>
+<p>"Look! Seyoung and Soa don't make crying sounds like Mom does while doing things like that!"</p>
 
 <p>Shiwoo was speaking to Mom again in a text.</p>
 

@@ -72,7 +72,7 @@ chapter = 546
 
 <p>Seyoung's hand, which had been moving up Mom's waist, back, and neck, was placed on the crown of her head.</p>
 
-<p>,Shiwoo Oppa was too much, wasn't he? He could have told Seonju and Sua more slowly... after they had adapted...,</p>
+<p>,Shiwoo Oppa was too much, wasn't he? He could have told Seonju and Soa more slowly... after they had adapted...,</p>
 
 <p>Then, Seyoung spoke while stroking the back of Mom's head with her hand placed on the crown of her head.</p>
 

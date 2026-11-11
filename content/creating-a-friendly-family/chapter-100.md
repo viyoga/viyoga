@@ -24,7 +24,7 @@ chapter = 100
 
 <p>Through Gyuri Ajumma's slave contract and the video Seonju Imo had sent, Shiwoo had come to understand what kind of man Dad was.</p>
 
-<p>Dad had laid hands on Mom's friend, Gyuri Ajumma, his eldest daughter, Sejin Nuna, his sister-in-law, Seonju Imo, and even his niece, Sua.</p>
+<p>Dad had laid hands on Mom's friend, Gyuri Ajumma, his eldest daughter, Sejin Nuna, his sister-in-law, Seonju Imo, and even his niece, Soa.</p>
 
 <p>It was shocking, but by now, the desire or inclination for incestuous relationships was not entirely unfamiliar to Shiwoo.</p>
 
@@ -48,15 +48,15 @@ chapter = 100
 
 <p>What concerned Shiwoo most right now was Seyoung.</p>
 
-<p>The video from the pension that Imo had sent, and Sua's photo.</p>
+<p>The video from the pension that Imo had sent, and Soa's photo.</p>
 
-<p>The placard hanging around Sua's neck...</p>
+<p>The placard hanging around Soa's neck...</p>
 
 <p>Phrases related to sex slaves...</p>
 
 <p>If Dad had still been alive, would he have extended his hands to Sehee Nuna or Seyoung too?</p>
 
-<p>Looking at the video of Seonju Imo breastfeeding Seyoung, it seemed she wasn't treating Seyoung like Sua yet.</p>
+<p>Looking at the video of Seonju Imo breastfeeding Seyoung, it seemed she wasn't treating Seyoung like Soa yet.</p>
 
 <p>When Shiwoo touched Seyoung, Mom didn't react immediately.</p>
 

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 367: [Incest] Creating a Close Family 367 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 367: [Incest] Creating a Close Family 367 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 367
 [extra]
 chapter = 367
@@ -86,21 +86,21 @@ chapter = 367
 
 <p>Seonju Imo-nim shook her head, which was thrown back, from side to side, exhaling a helpless sigh of submission through her nose.</p>
 
-<p>Shiwoo looked at Sua and Seyoung, who were seated on either side, one at a time.</p>
+<p>Shiwoo looked at Soa and Seyoung, who were seated on either side, one at a time.</p>
 
-<p>Sua and Seyoung, kneeling on either side of Seonju Imo-nim's chest, watching Shiwoo and Seonju Imo-nim's sex with flushed faces.</p>
+<p>Soa and Seyoung, kneeling on either side of Seonju Imo-nim's chest, watching Shiwoo and Seonju Imo-nim's sex with flushed faces.</p>
 
-<p>Seyoung, looking at the combined area of Seonju Imo-nim and Shiwoo with curious eyes, and Sua, looking down as if worriedly examining Seonju Imo-nim's condition, their contrasting appearances seemed to further stimulate Shiwoo's excitement.</p>
+<p>Seyoung, looking at the combined area of Seonju Imo-nim and Shiwoo with curious eyes, and Soa, looking down as if worriedly examining Seonju Imo-nim's condition, their contrasting appearances seemed to further stimulate Shiwoo's excitement.</p>
 
 <p>"Grab this!"</p>
 
-<p>Shiwoo commanded, pushing Seonju Imo-nim's legs towards Sua and Seyoung.</p>
+<p>Shiwoo commanded, pushing Seonju Imo-nim's legs towards Soa and Seyoung.</p>
 
 <p>Shiwoo was ordering his younger sisters to grab Seonju Imo-nim's legs as if he were handling props or objects, not a person.</p>
 
 <p>Seyoung first grabbed and secured Seonju Imo-nim's legs, embracing them with both arms, as Shiwoo had ordered.</p>
 
-<p>Following this, Sua also grabbed Seonju Imo-nim's legs on the other side, embracing them with both arms as Seyoung had done.</p>
+<p>Following this, Soa also grabbed Seonju Imo-nim's legs on the other side, embracing them with both arms as Seyoung had done.</p>
 
 <p>Seonju Imo-nim's legs, which had been spread apart in an awkward V-shape, were grabbed and restrained by her two younger sisters.</p>
 
@@ -144,12 +144,12 @@ chapter = 367
 
 <p>Seonju Imo-nim's large and luscious breasts, shaking along with the twitching of her body.</p>
 
-<p>Both breasts were thoroughly wet with Seyoung's and Sua's saliva.</p>
+<p>Both breasts were thoroughly wet with Seyoung's and Soa's saliva.</p>
 
 <p>Shiwoo bent his arms, which had been supporting him under Seonju Imo-nim's armpits, in half and buried his face between Seonju Imo-nim's large breasts.</p>
 
 <p>The smell of Seonju Imo-nim's sweat and the faint smell of his younger sisters' saliva vibrated at the tip of Shiwoo's nose.</p>
 
-<p>He could also smell the scent of his own semen, which his younger sisters had been holding in their mouths for a long time, from the saliva of Seyoung and Sua, which was spread widely around her breasts.</p>
+<p>He could also smell the scent of his own semen, which his younger sisters had been holding in their mouths for a long time, from the saliva of Seyoung and Soa, which was spread widely around her breasts.</p>
 
 <p>Without hesitation, Shiwoo bit into the breast that Seyoung had been sucking.</p>

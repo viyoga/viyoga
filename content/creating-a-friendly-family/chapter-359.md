@@ -1,5 +1,5 @@
 +++
-title = "Chapter 359: [Incest] Creating a Close Family 359 (Sun-ju, Se-young, Su-a [Explicit])"
+title = "Chapter 359: [Incest] Creating a Close Family 359 (Sun-ju, Se-young, Soa [Explicit])"
 weight = 359
 [extra]
 chapter = 359
@@ -36,17 +36,17 @@ chapter = 359
 
 <p>As the tip of his penis entered Seonju Imo-nim's mouth so deeply that it touched her throat, her gagging sounds erupted, as if something was refluxing from deep within.</p>
 
-<p>Seonju Imo-nim's leash was still held in Sua's hand.</p>
+<p>Seonju Imo-nim's leash was still held in Soa's hand.</p>
 
-<p>In front of Sua, who was holding Seonju Imo-nim's leash, Shiwoo was thoroughly ravaging Seonju Imo-nim's mouth.</p>
+<p>In front of Soa, who was holding Seonju Imo-nim's leash, Shiwoo was thoroughly ravaging Seonju Imo-nim's mouth.</p>
 
-<p>As if showing off to Sua, Shiwoo looked at Sua as if piercing her eyes, and applied even stronger pressure with his penis into Seonju Imo-nim's mouth.</p>
+<p>As if showing off to Soa, Shiwoo looked at Soa as if piercing her eyes, and applied even stronger pressure with his penis into Seonju Imo-nim's mouth.</p>
 
 <p>"Uuueup...!"</p>
 
 <p>At the sensation of the penis tip pressing even harder against her throat, Seonju Imo-nim let out a moan, as if flustered.</p>
 
-<p>Sua, at Shiwoo's gaze directed at her and her Mom's moaning sounds, flinched as if flustered, but couldn't take her eyes off Shiwoo's penis being swallowed by her Mom's mouth.</p>
+<p>Soa, at Shiwoo's gaze directed at her and her Mom's moaning sounds, flinched as if flustered, but couldn't take her eyes off Shiwoo's penis being swallowed by her Mom's mouth.</p>
 
 <p>Shiwoo pulled his waist back, then once again strongly thrust his penis into Seonju Imo-nim's throat.</p>
 
@@ -104,7 +104,7 @@ chapter = 359
 
 <p>The atmosphere in Seonju Imo-nim's house instantly turned chilling, as if frozen.</p>
 
-<p>Sua's eyes widened, and she stood frozen, watching the scene.</p>
+<p>Soa's eyes widened, and she stood frozen, watching the scene.</p>
 
 <p>Her own mother, enduring as she accepted her nephew Shiwoo oppa's penis into her throat, but eventually unable to withstand the feeling of suffocation and coughing, then spitting out semen and getting slapped across the cheek...</p>
 
@@ -116,29 +116,29 @@ chapter = 359
 
 <p>Seonju Imo-nim's eyelids trembled, and she uttered a sentence with realism, a sentence that was impossible to tell if it was acting or real.</p>
 
-<p>Shiwoo glared at Sua, who was watching his and Seonju Imo-nim's actions, as if to devour her.</p>
+<p>Shiwoo glared at Soa, who was watching his and Seonju Imo-nim's actions, as if to devour her.</p>
 
-<p>Sua, not knowing what to do, cast her gaze downwards.</p>
+<p>Soa, not knowing what to do, cast her gaze downwards.</p>
 
-<p>"Sua, you fucking bitch, what are you doing?! Since your bitch mother did this, you have to clean it up! With your mouth!"</p>
+<p>"Soa, you fucking bitch, what are you doing?! Since your bitch mother did this, you have to clean it up! With your mouth!"</p>
 
-<p>Shiwoo, with his firmly erect penis covered in the semen Seonju Imo-nim had spat out, extended it towards the frozen Sua and spoke in a demanding tone.</p>
+<p>Shiwoo, with his firmly erect penis covered in the semen Seonju Imo-nim had spat out, extended it towards the frozen Soa and spoke in a demanding tone.</p>
 
 <p>"Yes... yes..."</p>
 
-<p>Still holding Seonju Imo-nim's leash in her hand, Sua answered in a dazed voice, then knelt before Shiwoo.</p>
+<p>Still holding Seonju Imo-nim's leash in her hand, Soa answered in a dazed voice, then knelt before Shiwoo.</p>
 
-<p>Whether Sua was imitating Seonju Imo-nim, she answered Shiwoo using respectful speech.</p>
+<p>Whether Soa was imitating Seonju Imo-nim, she answered Shiwoo using respectful speech.</p>
 
-<p>Sua's tongue, as she knelt, touched Shiwoo's thigh.</p>
+<p>Soa's tongue, as she knelt, touched Shiwoo's thigh.</p>
 
-<p>Sua's tongue, clinging to the underside of his thigh, swept upwards.</p>
+<p>Soa's tongue, clinging to the underside of his thigh, swept upwards.</p>
 
-<p>As it swept upwards, the semen gathered on her tongue was sucked into Sua's mouth.</p>
+<p>As it swept upwards, the semen gathered on her tongue was sucked into Soa's mouth.</p>
 
-<p>Then Sua's tongue touched Shiwoo's scrotum and penis shaft.</p>
+<p>Then Soa's tongue touched Shiwoo's scrotum and penis shaft.</p>
 
-<p>Sua's tongue was carefully licked upwards, from the base of the shaft up to the head of his cock.</p>
+<p>Soa's tongue was carefully licked upwards, from the base of the shaft up to the head of his cock.</p>
 
 <p>The sensation of her soft and pliable tongue swept over Shiwoo's sensitive skin as if tickling.</p>
 
@@ -146,33 +146,33 @@ chapter = 359
 
 <p>"Seonju, you fucking bitch! Because of you, your fucking daughter is sucking my cock like this right now, so what are you doing?!"</p>
 
-<p>Shiwoo, as Sua sucked his cock, spoke as if chiding Seonju Imo-nim.</p>
+<p>Shiwoo, as Soa sucked his cock, spoke as if chiding Seonju Imo-nim.</p>
 
 <p>"Haat... Yes... Heut... I'm sorry, Juinin-nim I'll suck it right now!"</p>
 
 <p>Seonju Imo-nim, unable to properly open her eyes, groped Shiwoo's thigh with her hand and spoke guiltily.</p>
 
-<p>Seonju Imo-nim also soon brought her tongue to Shiwoo's penis and began sweeping up Shiwoo's penis from Sua's opposite side.</p>
+<p>Seonju Imo-nim also soon brought her tongue to Shiwoo's penis and began sweeping up Shiwoo's penis from Soa's opposite side.</p>
 
 <p>With the fellatio received simultaneously from mother and daughter, Shiwoo's mind seemed to grow distant.</p>
 
-<p>Seonju Imo-nim's and Sua's tongue play, sweeping across the skin on both sides of the shaft, facing each other.</p>
+<p>Seonju Imo-nim's and Soa's tongue play, sweeping across the skin on both sides of the shaft, facing each other.</p>
 
 <p>The sensation of pleasure was ecstatically filling Shiwoo's body and mind.</p>
 
-<p>Shiwoo looked down at Seonju Imo-nim's and Sua's faces, who were sucking his penis.</p>
+<p>Shiwoo looked down at Seonju Imo-nim's and Soa's faces, who were sucking his penis.</p>
 
-<p>Placing a hand on each of Sua's and Seonju Imo-nim's heads, Shiwoo fully savored the feeling of conquest.</p>
+<p>Placing a hand on each of Soa's and Seonju Imo-nim's heads, Shiwoo fully savored the feeling of conquest.</p>
 
 <p>Shiwoo's lips were curved upwards as if very satisfied.</p>
 
 <p>He moved the hands that had been placed on the two women's heads downwards, to the vicinity of their fastened leashes.</p>
 
-<p>Then, grabbing Sua's and Seonju Imo-nim's leashes, Shiwoo pulled them upwards.</p>
+<p>Then, grabbing Soa's and Seonju Imo-nim's leashes, Shiwoo pulled them upwards.</p>
 
-<p>Seonju Imo-nim's dog collar leash handle, held in Sua's hand, slipped weakly from Sua's hand.</p>
+<p>Seonju Imo-nim's dog collar leash handle, held in Soa's hand, slipped weakly from Soa's hand.</p>
 
-<p>Sua's leash handle, which had been hanging downwards, also came into Shiwoo's hand.</p>
+<p>Soa's leash handle, which had been hanging downwards, also came into Shiwoo's hand.</p>
 
 <p>Shiwoo coiled the two women's leash handles in one hand and snapped them hard, inducing the two women to lick his penis even more fiercely.</p>
 
@@ -182,7 +182,7 @@ chapter = 359
 
 <p>'If only Seyoung's mouth were added here...'</p>
 
-<p>Shiwoo suddenly recalled a scene of Seyoung, Sua, and Seonju Imo-nim simultaneously sucking his penis.</p>
+<p>Shiwoo suddenly recalled a scene of Seyoung, Soa, and Seonju Imo-nim simultaneously sucking his penis.</p>
 
 <p>As he imagined that scene, pre-ejaculate gushed, seeming to pour from the slit at the tip of his glans.</p>
 

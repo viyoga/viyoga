@@ -110,7 +110,7 @@ chapter = 217
 
 <p>It seemed Mom was leaving only Shiwoo and Seonju Imo-nim's rice and organizing the rest.</p>
 
-<p>Sehee Nuna was playing with Seyoung and Sua in the living room with the puppy she had received from Seonju Imo-nim.</p>
+<p>Sehee Nuna was playing with Seyoung and Soa in the living room with the puppy she had received from Seonju Imo-nim.</p>
 
 <p>Shiwoo sat down on the dining table chair to finish eating the rice he had been eating.</p>
 
@@ -172,7 +172,7 @@ chapter = 217
 
 <p>Then, he got up from his seat and got up to move the dishes he had picked up to the sink where Mom was washing the dishes.</p>
 
-<p>Shiwoo looked towards the living room where Seyoung, Sua, and Sehee Nuna were.</p>
+<p>Shiwoo looked towards the living room where Seyoung, Soa, and Sehee Nuna were.</p>
 
 <p>Fortunately, the place where Mom was standing was hidden by the pillar and wall and was not easily visible from the living room.</p>
 

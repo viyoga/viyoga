@@ -18,7 +18,7 @@ chapter = 417
 
 <p>Seonju Imo continuously poured out lewd and provocative words, using Mom as a topic.</p>
 
-<p>"I'll take care of the anus, Seyoung and Sua can suck one nipple each, and Sehee can lick the clitoris. Older Sister also likes having her breasts sucked while being fucked, so maybe we can ask Sejin to suck her breasts?"</p>
+<p>"I'll take care of the anus, Seyoung and Soa can suck one nipple each, and Sehee can lick the clitoris. Older Sister also likes having her breasts sucked while being fucked, so maybe we can ask Sejin to suck her breasts?"</p>
 
 <p>Seonju Imo, as if she found it fun to tease Mom, continued her provocative dirty talk, listing each family member's name.</p>
 
@@ -86,7 +86,7 @@ chapter = 417
 
 <p>Seonju Imo's laughter, as if gloating and teasing Mom.</p>
 
-<p>"Sehee, Seyoung, and Sua too, if you've all checked the video content, answer here now that you've checked it!"</p>
+<p>"Sehee, Seyoung, and Soa too, if you've all checked the video content, answer here now that you've checked it!"</p>
 
 <p>Shiwoo demanded an answer from Sehee Nuna and Seyoung, who must have witnessed Mom's slave declaration, the photos and videos, and all the subsequent conversation in the group chat.</p>
 
@@ -96,7 +96,7 @@ chapter = 417
 
 <p>"I saw the video, Master-nim. I'll keep that in mind for now too."</p>
 
-<p>Next to arrive was Sua's message.</p>
+<p>Next to arrive was Soa's message.</p>
 
 <p>"I've checked it too! Hehehe Master-nim!"</p>
 

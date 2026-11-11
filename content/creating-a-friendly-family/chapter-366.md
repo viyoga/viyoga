@@ -1,5 +1,5 @@
 +++
-title = "Chapter 366: [Incest] Creating a Close Family 366 (Sun-ju, Se-young, Su-a)"
+title = "Chapter 366: [Incest] Creating a Close Family 366 (Sun-ju, Se-young, Soa)"
 weight = 366
 [extra]
 chapter = 366
@@ -34,7 +34,7 @@ chapter = 366
 
 <p>But soon, Seyoung pressed down on Seonju Imo-nim's upper body, which was writhing, pressing on her collarbone below her neck and her stomach around her solar plexus, subduing her.</p>
 
-<p>Sua also grabbed Seonju Imo-nim's breasts with both hands, as Seonju Imo-nim's shaking upper body was interfering with her sucking.</p>
+<p>Soa also grabbed Seonju Imo-nim's breasts with both hands, as Seonju Imo-nim's shaking upper body was interfering with her sucking.</p>
 
 <p>His younger sisters brought their mouths back to Seonju Imo-nim's nipples and sucked.</p>
 
@@ -52,7 +52,7 @@ chapter = 366
 
 <p>Only then did Shiwoo remove his mouth from Seonju Imo-nim's clitoris.</p>
 
-<p>Sua and Seyoung, seeing Shiwoo removing his mouth, also released the breasts they had been sucking.</p>
+<p>Soa and Seyoung, seeing Shiwoo removing his mouth, also released the breasts they had been sucking.</p>
 
 <p>Seonju Imo-nim's chest rose and fell greatly, and she breathed roughly through her nose.</p>
 
@@ -130,7 +130,7 @@ chapter = 366
 
 <p>Shiwoo placed his hands next to Seonju Imo-nim's waist and moved his upper body over Seonju Imo-nim's body.</p>
 
-<p>Seonju Imo-nim's breasts, which were visible in front of him, were soaked and sticky with Seyoung's and Sua's saliva.</p>
+<p>Seonju Imo-nim's breasts, which were visible in front of him, were soaked and sticky with Seyoung's and Soa's saliva.</p>
 
 <p>Looking closely, there were clear teeth marks around Seonju Imo-nim's nipples where Seyoung had been sucking.</p>
 
@@ -154,7 +154,7 @@ chapter = 366
 
 <p>Seyoung was watching Shiwoo's actions with wide eyes.</p>
 
-<p>Sua also seemed shy, but she was watching the process of her mom and cousin oppa combining with her eyes lowered.</p>
+<p>Soa also seemed shy, but she was watching the process of her mom and cousin oppa combining with her eyes lowered.</p>
 
 <p>Shiwoo put strength into his waist and pushed his penis in as it was.</p>
 
@@ -186,7 +186,7 @@ chapter = 366
 
 <p>Seonju Imo-nim made a voice as if begging Shiwoo, as if sending a signal that she was also ready.</p>
 
-<p>"I'll really let you give birth to a younger sibling for Sua! If you give birth to a son, I'll let you fuck him, but if you give birth to a daughter, I'll take her, so keep that in mind, you fucking bitch!"</p>
+<p>"I'll really let you give birth to a younger sibling for Soa! If you give birth to a son, I'll let you fuck him, but if you give birth to a daughter, I'll take her, so keep that in mind, you fucking bitch!"</p>
 
 <p>Shiwoo spoke as if declaring Seonju Imo-nim's pregnancy in front of his younger sisters, and then moved his waist slightly back.</p>
 

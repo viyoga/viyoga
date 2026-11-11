@@ -30,7 +30,7 @@ chapter = 300
 
 <p>Shiwoo calls out in a loud voice towards the house, calling out to Seonju Imo-nim, whose figure is not visible.</p>
 
-<p>Hearing the sound of the puppies' busy movements and Shiwoo's voice coming from the living room, Seonju Imo-nim walks out from the direction of Sua's room.</p>
+<p>Hearing the sound of the puppies' busy movements and Shiwoo's voice coming from the living room, Seonju Imo-nim walks out from the direction of Soa's room.</p>
 
 <p>,Welcome! Shiwoo Seyoung-ah! ,</p>
 
@@ -76,11 +76,11 @@ chapter = 300
 
 <p>Shiwoo answers quickly, as if he was stabbed in the right spot, worried that Seyoung might say something strange.</p>
 
-<p>,...Anyway, is Sua still not ready? I sent her a text saying we were coming!,</p>
+<p>,...Anyway, is Soa still not ready? I sent her a text saying we were coming!,</p>
 
 <p>Shiwoo says to Seonju Imo-nim in an irritated tone, as if trying to change the subject urgently.</p>
 
-<p>,She's getting ready now She'll be out soon While Sua is coming out, would you like to have a drink, Shiwoo?,</p>
+<p>,She's getting ready now She'll be out soon While Soa is coming out, would you like to have a drink, Shiwoo?,</p>
 
 <p>Seonju Imo-nim loosens her arms that were embracing Seyoung, and offers Shiwoo a drink as if trying to soothe his irritation.</p>
 
@@ -100,7 +100,7 @@ chapter = 300
 
 <p>Shiwoo looks at the puppies running around lively in the living room with a slightly puzzled expression as he drinks the drink that Seonju Imo-nim poured for him.</p>
 
-<p>Then, the scene of the puppy that Seyoung brought licking Sua's pussy in the dressing room of Shiwoo's house flashes through Shiwoo's mind.</p>
+<p>Then, the scene of the puppy that Seyoung brought licking Soa's pussy in the dressing room of Shiwoo's house flashes through Shiwoo's mind.</p>
 
 <p>And the words that Seyoung whispered to Shiwoo before.</p>
 

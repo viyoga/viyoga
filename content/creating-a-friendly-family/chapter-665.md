@@ -1,5 +1,5 @@
 +++
-title = "Chapter 665: [Incest] Making a Friendly Family 665 (Aunt Sun-ju, Su-ah, Se-young) (Kitchen, Sister Se-jin's Room)"
+title = "Chapter 665: [Incest] Making a Friendly Family 665 (Aunt Sun-ju, Soa, Se-young) (Kitchen, Sister Se-jin's Room)"
 weight = 665
 [extra]
 chapter = 665
@@ -22,7 +22,7 @@ chapter = 665
 
 <p>"meal"</p>
 
-<p>he had prepared referred to the sushi he had set up on the dining table, using Sua's body as the dish.</p>
+<p>he had prepared referred to the sushi he had set up on the dining table, using Soa's body as the dish.</p>
 
 <p>If Seonju Imo had checked the videos and photos, she would certainly know what Shiwoo's words implied.</p>
 
@@ -36,15 +36,15 @@ chapter = 665
 
 <p>Tak tak tak! Ta tak tak!</p>
 
-<p>Even though her eyes were covered, Sua was lying right there on the dining table in front of him, yet Shiwoo was openly masturbating.</p>
+<p>Even though her eyes were covered, Soa was lying right there on the dining table in front of him, yet Shiwoo was openly masturbating.</p>
 
 <p>No matter how much they had shared their bodies in a master-slave relationship and repeated perverted acts, a situation where he let her hear the sounds of masturbation so blatantly felt strangely embarrassing and unfamiliar.</p>
 
-<p>The sound created by Shiwoo's hand echoed even louder within the silence Sua was maintaining.</p>
+<p>The sound created by Shiwoo's hand echoed even louder within the silence Soa was maintaining.</p>
 
-<p>Wrapped in stillness, Sua's body began to tremble, her breath hitching as if reacting to the subtle sound of friction.</p>
+<p>Wrapped in stillness, Soa's body began to tremble, her breath hitching as if reacting to the subtle sound of friction.</p>
 
-<p>Exhaling unstable breaths, Sua was tensing the nerves and muscles of her entire body.</p>
+<p>Exhaling unstable breaths, Soa was tensing the nerves and muscles of her entire body.</p>
 
 <p>The slick pleasure of Seyoung's love juice, still coating the flesh of Shiwoo's penis, created a slippery friction that spread even wider.</p>
 
@@ -58,7 +58,7 @@ chapter = 665
 
 <p>The sight of the neatly organized house, no different from usual, unfolded before Shiwoo's eyes.</p>
 
-<p>The only things different in the house right now were himself, Seyoung, and Sua—the three of them facing their mutual longings in the nude.</p>
+<p>The only things different in the house right now were himself, Seyoung, and Soa—the three of them facing their mutual longings in the nude.</p>
 
 <p>Beyond the closed door of Seyoung's room, the low vibration of a hairdryer could be heard.</p>
 
@@ -66,7 +66,7 @@ chapter = 665
 
 <p>Shiwoo suddenly wondered if there was something he could do in this awkward gap of time, and he began to slowly look around again.</p>
 
-<p>He thought about leaving Sua abandoned on the kitchen table and moving to the living room sofa to turn on the TV, but Shiwoo soon stopped in his tracks and hesitated.</p>
+<p>He thought about leaving Soa abandoned on the kitchen table and moving to the living room sofa to turn on the TV, but Shiwoo soon stopped in his tracks and hesitated.</p>
 
 <p>It was because he felt there was something else that needed to be resolved more urgently than that.</p>
 
@@ -84,7 +84,7 @@ chapter = 665
 
 <p>He then went up to his room on the second floor, took out the key he had hidden deep inside his desk drawer, and came back down to the first floor.</p>
 
-<p>With his penis standing turgid and erect, Shiwoo left Sua on the kitchen table and entered Sejin Nuna's room.</p>
+<p>With his penis standing turgid and erect, Shiwoo left Soa on the kitchen table and entered Sejin Nuna's room.</p>
 
 <p>Shiwoo turned on the light and closed the door...</p>
 
@@ -160,7 +160,7 @@ chapter = 665
 
 <p>He had suspected it, but surprisingly, the owner was 'Yujin-seong.'</p>
 
-<p>Since Sua's biological father was Dad, it might have been a natural thing.</p>
+<p>Since Soa's biological father was Dad, it might have been a natural thing.</p>
 
 <p>However, they were documents where a strange awkwardness was buried within that naturalness.</p>
 

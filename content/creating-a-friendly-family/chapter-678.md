@@ -1,54 +1,54 @@
 +++
-title = "Chapter 678: [Incest] Making a Friendly Family 678 (Aunt Sun-ju, Su-ah, Se-young) (Dining Table)"
+title = "Chapter 678: [Incest] Making a Friendly Family 678 (Aunt Sun-ju, Soa, Se-young) (Dining Table)"
 weight = 678
 [extra]
 chapter = 678
 +++
-<p>"Get on top of Sua's body just like that!"</p>
+<p>"Get on top of Soa's body just like that!"</p>
 
-<p>Siwoo commands Aunt Sunju to get on top of Sua's body.</p>
+<p>Siwoo commands Aunt Sunju to get on top of Soa's body.</p>
 
-<p>Aunt Sunju stepped on the chair and climbed onto the table without a word, lifted her skirt, and overlapped her body inversely on top of Sua's body as if to cover it.</p>
+<p>Aunt Sunju stepped on the chair and climbed onto the table without a word, lifted her skirt, and overlapped her body inversely on top of Soa's body as if to cover it.</p>
 
-<p>Her face was now between Sua's spread crotch.</p>
+<p>Her face was now between Soa's spread crotch.</p>
 
-<p>Sua's vulva, open and rippling, was positioned below Aunt Sunju's face.</p>
+<p>Soa's vulva, open and rippling, was positioned below Aunt Sunju's face.</p>
 
 <p>"Do it!"</p>
 
 <p>Siwoo's command was issued once more to Aunt Sunju, just as it had been to Seyeong.</p>
 
-<p>Aunt Sunju pushed her tongue between the folds of Sua's flesh without hesitation.</p>
+<p>Aunt Sunju pushed her tongue between the folds of Soa's flesh without hesitation.</p>
 
 <p>Then, parting the folds as if digging through them, she scooped up the crushed rice grains packed inside.</p>
 
-<p>Once she became somewhat accustomed to it, Aunt Sunju enveloped Sua's labia with her lips, pressing the flesh around the labia so that the foreign substances inside were pushed out.</p>
+<p>Once she became somewhat accustomed to it, Aunt Sunju enveloped Soa's labia with her lips, pressing the flesh around the labia so that the foreign substances inside were pushed out.</p>
 
 <p>"Sluuurp chu-up su-ap su-up! Su-aa-ap!"</p>
 
-<p>The sound of Aunt Sunju's mouth sucking on Sua's pussy began to echo loudly, filling the kitchen space.</p>
+<p>The sound of Aunt Sunju's mouth sucking on Soa's pussy began to echo loudly, filling the kitchen space.</p>
 
-<p>In the meantime, Aunt Sunju lifted her skirt slightly to expose her buttocks and lowered her pelvis so that the crevice of her own crotch would gently touch Sua's lips.</p>
+<p>In the meantime, Aunt Sunju lifted her skirt slightly to expose her buttocks and lowered her pelvis so that the crevice of her own crotch would gently touch Soa's lips.</p>
 
 <p>"Chyu-ru-up chu-ap ha-ap aaa-am! Ha-u-um!"</p>
 
-<p>The lewd sounds of Sua's mouth were also heard from the crevice of Aunt Sunju's lower crotch.</p>
+<p>The lewd sounds of Soa's mouth were also heard from the crevice of Aunt Sunju's lower crotch.</p>
 
 <p>The mother and daughter were tasting the nutrients compacted within each other's vaginas.</p>
 
 <p>Siwoo brought his condom-clad penis toward Aunt Sunju's face.</p>
 
-<p>Siwoo's penis slid down Aunt Sunju's face and onto Sua's mound.</p>
+<p>Siwoo's penis slid down Aunt Sunju's face and onto Soa's mound.</p>
 
-<p>Siwoo gently rubbed the shaft of his penis around the flesh of Sua's mound where Aunt Sunju's lips were attached.</p>
+<p>Siwoo gently rubbed the shaft of his penis around the flesh of Soa's mound where Aunt Sunju's lips were attached.</p>
 
-<p>Normally, one might try to push the penis into Aunt Sunju's mouth or Sua's crevice...</p>
+<p>Normally, one might try to push the penis into Aunt Sunju's mouth or Soa's crevice...</p>
 
-<p>But as if he had no particular interest, Siwoo made no attempt to wedge his penis into the gap between Aunt Sunju's lips and Sua's mound, nor did he try to force it open.</p>
+<p>But as if he had no particular interest, Siwoo made no attempt to wedge his penis into the gap between Aunt Sunju's lips and Soa's mound, nor did he try to force it open.</p>
 
-<p>Siwoo merely rubbed his penis lightly, moving between Aunt Sunju's cheeks and lips, and Sua's mound and thighs.</p>
+<p>Siwoo merely rubbed his penis lightly, moving between Aunt Sunju's cheeks and lips, and Soa's mound and thighs.</p>
 
-<p>Because of this, Aunt Sunju did not pull her lips away from the mound of Sua's crotch, nor did she try to take Siwoo's penis into her mouth.</p>
+<p>Because of this, Aunt Sunju did not pull her lips away from the mound of Soa's crotch, nor did she try to take Siwoo's penis into her mouth.</p>
 
 <p>The saliva and arousal fluids flowing from Aunt Sunju's mouth were being smeared onto Siwoo's penis.</p>
 
@@ -58,19 +58,19 @@ chapter = 678
 
 <p>No, perhaps ever since he had confirmed at the cafe that his sisters were wearing anal plugs, Siwoo was now attempting a certain significant task he had decided upon.</p>
 
-<p>Without any explanation or warning about what he was trying to do, Siwoo pushed Sua's spread legs slightly upward.</p>
+<p>Without any explanation or warning about what he was trying to do, Siwoo pushed Soa's spread legs slightly upward.</p>
 
-<p>Sua's pelvis was slightly lifted, naturally exposing her chrysanthemum flower upward.</p>
+<p>Soa's pelvis was slightly lifted, naturally exposing her chrysanthemum flower upward.</p>
 
-<p>Sua's anus was already drenched with the fluids that had flowed down from the front...</p>
+<p>Soa's anus was already drenched with the fluids that had flowed down from the front...</p>
 
-<p>Each time Aunt Sunju's mouth worked to suck the food out of the vaginal hole, Sua's anus twitched cutely in reaction.</p>
+<p>Each time Aunt Sunju's mouth worked to suck the food out of the vaginal hole, Soa's anus twitched cutely in reaction.</p>
 
-<p>Siwoo pushed his knees forward to support under Sua's pelvis, then firmly extended his index finger and brought it to her anus.</p>
+<p>Siwoo pushed his knees forward to support under Soa's pelvis, then firmly extended his index finger and brought it to her anus.</p>
 
-<p>As the tip of Siwoo's firmly extended finger touched her back hole, Sua flinched in surprise and tried to close her legs.</p>
+<p>As the tip of Siwoo's firmly extended finger touched her back hole, Soa flinched in surprise and tried to close her legs.</p>
 
-<p>However, Sua was extremely flustered as it was difficult to control her legs, which were held in the air and spread to the left and right.</p>
+<p>However, Soa was extremely flustered as it was difficult to control her legs, which were held in the air and spread to the left and right.</p>
 
 <p>Siwoo placed his thumb and index finger and spread the folds of her chrysanthemum flower to the sides.</p>
 
@@ -78,11 +78,11 @@ chapter = 678
 
 <p>Siwoo brought the tip of his penis directly to that peach-colored flesh.</p>
 
-<p>Siwoo's penis began to dig in, being enveloped by Sua's spread folds.</p>
+<p>Siwoo's penis began to dig in, being enveloped by Soa's spread folds.</p>
 
 <p>"Ha-uuuu-um!"</p>
 
-<p>Sua let out a pained moan, tightening the folds as if to block Siwoo's penis.</p>
+<p>Soa let out a pained moan, tightening the folds as if to block Siwoo's penis.</p>
 
 <p>Siwoo applied strength to his waist to break through her tight grip.</p>
 
@@ -104,15 +104,15 @@ chapter = 678
 
 <p>Moreover, Siwoo had no intention of ending this sadistic play with just a simple insertion.</p>
 
-<p>Siwoo intended to repeatedly insert into her back hole and push her toward an orgasm until Sua fainted.</p>
+<p>Siwoo intended to repeatedly insert into her back hole and push her toward an orgasm until Soa fainted.</p>
 
-<p>Did Siwoo's thought reach Sua through his momentum?</p>
+<p>Did Siwoo's thought reach Soa through his momentum?</p>
 
 <p>Unlike before, her body was trembling as if she were overwhelmed by some precarious premonition.</p>
 
-<p>That precarious and ominous trembling of Sua's seemed to have clearly reached Aunt Sunju as well.</p>
+<p>That precarious and ominous trembling of Soa's seemed to have clearly reached Aunt Sunju as well.</p>
 
-<p>In that moment, Aunt Sunju pulled her lips away from the flesh of Sua's mound...</p>
+<p>In that moment, Aunt Sunju pulled her lips away from the flesh of Soa's mound...</p>
 
 <p>"S-Siwoo, wait a moment!"</p>
 
@@ -122,9 +122,9 @@ chapter = 678
 
 <p>Siwoo looked down at Aunt Sunju, asking with a low and calm voice, sounding indifferent.</p>
 
-<p>"T-that... Sua... she doesn't seem ready yet..."</p>
+<p>"T-that... Soa... she doesn't seem ready yet..."</p>
 
-<p>Aunt Sunju looked up at Siwoo, trying to convey Sua's unready state.</p>
+<p>Aunt Sunju looked up at Siwoo, trying to convey Soa's unready state.</p>
 
 <p>"So what if she's not ready?!"</p>
 
@@ -134,7 +134,7 @@ chapter = 678
 
 <p>Aunt Sunju was momentarily flustered by Siwoo's sarcastic words, stammering because she didn't know how to continue.</p>
 
-<p>"What's wrong with getting hurt? So what! You can get hurt when doing something like this! Right? Have you been intending to entrust Sua to me all this time without even that much mental preparation or determination?!"</p>
+<p>"What's wrong with getting hurt? So what! You can get hurt when doing something like this! Right? Have you been intending to entrust Soa to me all this time without even that much mental preparation or determination?!"</p>
 
 <p>"Even though before that, you went as far as arbitrarily drafting a slave contract, betting your unborn children?!"</p>
 
@@ -184,11 +184,11 @@ chapter = 678
 
 <p>Siwoo grabbed Aunt Sunju's hair with his hand, preventing her from lowering her head.</p>
 
-<p>"Why, you fucking bitch! You want to give it to me instead of Sua?"</p>
+<p>"Why, you fucking bitch! You want to give it to me instead of Soa?"</p>
 
 <p>Siwoo whispered low in a mocking tone, as if cornering her.</p>
 
-<p>"Yes... hic... yeah... I-I'll do it... me... instead of Sua... sob..."</p>
+<p>"Yes... hic... yeah... I-I'll do it... me... instead of Soa... sob..."</p>
 
 <p>Aunt Sunju answered in a sobbing voice.</p>
 
@@ -204,20 +204,20 @@ chapter = 678
 
 <p>"Seyeong, you take over here!"</p>
 
-<p>Siwoo spoke to Seyeong, pointing at Sua's anus.</p>
+<p>Siwoo spoke to Seyeong, pointing at Soa's anus.</p>
 
 <p>"Okay! Got it"</p>
 
-<p>Seyeong answered with a nod and immediately approached Sua's crotch.</p>
+<p>Seyeong answered with a nod and immediately approached Soa's crotch.</p>
 
-<p>Siwoo cautiously knelt up on the table and moved his position toward where Aunt Sunju's buttocks and Sua's face were.</p>
+<p>Siwoo cautiously knelt up on the table and moved his position toward where Aunt Sunju's buttocks and Soa's face were.</p>
 
 <p>He completely lifted the skirt covering Aunt Sunju's buttocks and pulled out the fox tail that was inserted in her anus.</p>
 
 <p>Pop!</p>
 
-<p>A sound similar to the one that had come from Sua's anus was also heard from Aunt Sunju's.</p>
+<p>A sound similar to the one that had come from Soa's anus was also heard from Aunt Sunju's.</p>
 
 <p>Aunt Sunju's dilated anus was gradually tightening while twitching.</p>
 
-<p>When he lifted her skirt and pulled out the tail, Sua's face, lying underneath, was revealed.</p>
+<p>When he lifted her skirt and pulled out the tail, Soa's face, lying underneath, was revealed.</p>

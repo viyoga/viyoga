@@ -1,5 +1,5 @@
 +++
-title = "Chapter 654: [Incest] Making a Friendly Family 654 (Su-ah, Sex) (Living Room, Se-young's Room)"
+title = "Chapter 654: [Incest] Making a Friendly Family 654 (Soa, Sex) (Living Room, Se-young's Room)"
 weight = 654
 [extra]
 chapter = 654
@@ -8,39 +8,39 @@ chapter = 654
 
 <p>"After that, I'm going to push mine right in and start having sex, okay? You understand what I'm saying, right?"</p>
 
-<p>Shiwoo spoke as he held out the shrimp sushi he had been resting on his palm, thrusting it toward Sua so she could see it clearly.</p>
+<p>Shiwoo spoke as he held out the shrimp sushi he had been resting on his palm, thrusting it toward Soa so she could see it clearly.</p>
 
-<p>Hearing Shiwoo's explanation of what was about to happen, Sua blinked her eyes as if startled and stared at Shiwoo's face.</p>
+<p>Hearing Shiwoo's explanation of what was about to happen, Soa blinked her eyes as if startled and stared at Shiwoo's face.</p>
 
-<p>Shiwoo seemed to think about something after seeing her expression, and he stopped his hand, which had been kneading Sua's breasts.</p>
+<p>Shiwoo seemed to think about something after seeing her expression, and he stopped his hand, which had been kneading Soa's breasts.</p>
 
-<p>Sua's hand, which had been cupping Shiwoo's testicles, stopped along with his.</p>
+<p>Soa's hand, which had been cupping Shiwoo's testicles, stopped along with his.</p>
 
 <p>"If you feel uncomfortable or dislike it, tell me now. I have no intention of making you do anything you don't want to do!"</p>
 
-<p>Shiwoo spoke those words—sentences that felt as if someone had branded them into his mind long ago—as if returning them to his younger sister, Sua.</p>
+<p>Shiwoo spoke those words—sentences that felt as if someone had branded them into his mind long ago—as if returning them to his younger sister, Soa.</p>
 
-<p>Sua, who had been wearing a flustered expression, soon regained her composure and nodded quietly.</p>
+<p>Soa, who had been wearing a flustered expression, soon regained her composure and nodded quietly.</p>
 
-<p>Sua, who was said to have been thoroughly trained as a slave by Aunt Seonju since she was young...</p>
+<p>Soa, who was said to have been thoroughly trained as a slave by Aunt Seonju since she was young...</p>
 
 <p>But in truth, when Aunt Seonju or Seyoung-i weren't around, she never took the lead to decide or move on her own.</p>
 
 <p>Like a person being forced to walk by someone else's will rather than her own...</p>
 
-<p>Perhaps Sua hadn't been pleased with this entire situation from the very beginning?</p>
+<p>Perhaps Soa hadn't been pleased with this entire situation from the very beginning?</p>
 
 <p>Such a doubt and a sense of bitterness suddenly rose somewhere in Shiwoo's heart.</p>
 
 <p>"Are you okay?"</p>
 
-<p>Shiwoo spoke while looking into Sua's eyes, as if to confirm one more time.</p>
+<p>Shiwoo spoke while looking into Soa's eyes, as if to confirm one more time.</p>
 
-<p>Shiwoo was now slyly pushing and forcing his own ambiguous and distorted perverted desires onto Sua under the guise of 'consent,' a concept he wasn't even sure of himself.</p>
+<p>Shiwoo was now slyly pushing and forcing his own ambiguous and distorted perverted desires onto Soa under the guise of 'consent,' a concept he wasn't even sure of himself.</p>
 
-<p>Sua had already expressed her agreement by nodding, but she seemed to deliberate for a moment at Shiwoo's question of whether she was okay.</p>
+<p>Soa had already expressed her agreement by nodding, but she seemed to deliberate for a moment at Shiwoo's question of whether she was okay.</p>
 
-<p>Then, Sua suddenly applied a great deal of strength to the hand cupping Shiwoo's testicles...</p>
+<p>Then, Soa suddenly applied a great deal of strength to the hand cupping Shiwoo's testicles...</p>
 
 <p>"Heut!"</p>
 
@@ -48,7 +48,7 @@ chapter = 654
 
 <p>"I'm okay, Shiwoo-oppa! Anything, if it's with Shiwoo-oppa... because I like Shiwoo-oppa..."</p>
 
-<p>Sua spoke as if confessing her inner feelings, looking into Shiwoo's eyes with a faint smile on her lips.</p>
+<p>Soa spoke as if confessing her inner feelings, looking into Shiwoo's eyes with a faint smile on her lips.</p>
 
 <p>Contrary to that soft expression, her hand was kneading Shiwoo's testicles more and more boldly.</p>
 
@@ -56,7 +56,7 @@ chapter = 654
 
 <p class="scene-break">· · ·</p>
 
-<p>Following Shiwoo's instructions, Sua walked slowly into the room, turned her back, and placed her hands on her collar.</p>
+<p>Following Shiwoo's instructions, Soa walked slowly into the room, turned her back, and placed her hands on her collar.</p>
 
 <p>The sound of soft fabric brushing against her skin and falling to the floor echoed.</p>
 
@@ -76,19 +76,19 @@ chapter = 654
 
 <p>A small, round, white tuft of fur.</p>
 
-<p>An anal plug resembling a rabbit's tail was stuck in Sua's rear like a playful joke.</p>
+<p>An anal plug resembling a rabbit's tail was stuck in Soa's rear like a playful joke.</p>
 
 <p>She wasn't wearing any underwear...</p>
 
 <p>She had nothing on her body except for a dog collar and the rabbit-tail anal plug.</p>
 
-<p>Sua shyly covered the anal plug inserted in her rear with her hand.</p>
+<p>Soa shyly covered the anal plug inserted in her rear with her hand.</p>
 
-<p>Sua watched Shiwoo's reaction, even covering her exposed breasts in the front with her arms...</p>
+<p>Soa watched Shiwoo's reaction, even covering her exposed breasts in the front with her arms...</p>
 
 <p>Without saying a word, Shiwoo watched her, his penis standing ramrod straight.</p>
 
-<p>Sua stepped away from the skirt that had slid to the floor and slowly moved toward Seyoung-i's bed.</p>
+<p>Soa stepped away from the skirt that had slid to the floor and slowly moved toward Seyoung-i's bed.</p>
 
 <p>After climbing onto the bed, she pulled back the blanket, set it aside, and slowly lay down on her back.</p>
 
@@ -96,7 +96,7 @@ chapter = 654
 
 <p>With her arms wrapped around her chest and head, she huddled her body, full of tension.</p>
 
-<p>Shiwoo approached Seyoung-i's bed where Sua was lying.</p>
+<p>Shiwoo approached Seyoung-i's bed where Soa was lying.</p>
 
 <p>Shiwoo climbed onto the bed on his knees and positioned himself below her spread hips...</p>
 
@@ -134,7 +134,7 @@ chapter = 654
 
 <p>The moment the moist grains of the shrimp sushi touched her sensitive flesh, her pussy meat twitched sensitively in response.</p>
 
-<p>Shiwoo carefully applied pressure to push the shrimp sushi into Sua's hole, making sure the rice grains didn't scatter.</p>
+<p>Shiwoo carefully applied pressure to push the shrimp sushi into Soa's hole, making sure the rice grains didn't scatter.</p>
 
 <p>The shrimp sushi was wedged into the crevice of her flesh, becoming distorted and crushed.</p>
 
@@ -142,7 +142,7 @@ chapter = 654
 
 <p>Once the shrimp sushi had settled to some extent inside her hole, he pointed his tongue sharply this time to make the rice grains penetrate deeper into her.</p>
 
-<p>While Shiwoo was performing this series of tasks, Sua's M-shaped legs were trembling.</p>
+<p>While Shiwoo was performing this series of tasks, Soa's M-shaped legs were trembling.</p>
 
 <p>Shiwoo sat up on his knees and admired her appearance for a moment.</p>
 
@@ -154,21 +154,21 @@ chapter = 654
 
 <p>The alien sensation of rice grains and shrimp meat touched the tip of Shiwoo's glans.</p>
 
-<p>It was as if the delicate texture felt in the mouth when rice grains softly break apart and are chewed was being recreated inside Sua's vagina hole.</p>
+<p>It was as if the delicate texture felt in the mouth when rice grains softly break apart and are chewed was being recreated inside Soa's vagina hole.</p>
 
 <p>Just as rice grains melt away on the tip of the tongue, the subtle sensation of those grains spread faintly against the tip of his glans.</p>
 
 <p>"Heut!"</p>
 
-<p>At the sensitive sensation coming from inside her crotch, Sua's body bounced, and she pulled her thighs inward, tightly wrapping them around Shiwoo's waist.</p>
+<p>At the sensitive sensation coming from inside her crotch, Soa's body bounced, and she pulled her thighs inward, tightly wrapping them around Shiwoo's waist.</p>
 
-<p>Even though it was a situation she had been warned about, Sua seemed very awkward, as if shocked by the sensation of this alien play she was experiencing for the first time.</p>
+<p>Even though it was a situation she had been warned about, Soa seemed very awkward, as if shocked by the sensation of this alien play she was experiencing for the first time.</p>
 
-<p>As if bracing for Shiwoo's powerful thrusting, Sua's body curled up and stiffened almost instinctively.</p>
+<p>As if bracing for Shiwoo's powerful thrusting, Soa's body curled up and stiffened almost instinctively.</p>
 
-<p>However, the insertion he had just made into Sua was not for the purpose of starting full-scale thrusting.</p>
+<p>However, the insertion he had just made into Soa was not for the purpose of starting full-scale thrusting.</p>
 
-<p>It was merely a preliminary action, like a task to pack the rice grains that had entered Sua's body even deeper.</p>
+<p>It was merely a preliminary action, like a task to pack the rice grains that had entered Soa's body even deeper.</p>
 
 <p>"Jjigeok jjigeok jjigeok!"</p>
 
@@ -176,7 +176,7 @@ chapter = 654
 
 <p>"Ha-eum haaaa... haaa...!"</p>
 
-<p>Sua let out a faint moaning sound, tilting her head back awkwardly.</p>
+<p>Soa let out a faint moaning sound, tilting her head back awkwardly.</p>
 
 <p>The flesh inside her vagina hole also began to tighten convulsively in time with Shiwoo's piston movement.</p>
 
@@ -190,7 +190,7 @@ chapter = 654
 
 <p>The shrimp sushi that had been wedged inside was already crushed beyond recognition, wrapped in her pussy meat, shimmering with a subtle luster.</p>
 
-<p>With her lower body vividly exposed, Sua covered her face and breasts with her arms...</p>
+<p>With her lower body vividly exposed, Soa covered her face and breasts with her arms...</p>
 
 <p>Above the swollen mound of flesh, her downy hair, soaked in love juice, glowed faintly under the room's light.</p>
 

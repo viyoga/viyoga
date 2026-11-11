@@ -56,7 +56,7 @@ chapter = 291
 
 <p>As he was almost finished eating, Shiwoo casually talks to Seyoung as if trying to relieve the tension.</p>
 
-<p>"I have to shower! We decided to go to Sua's house after breakfast, so we should leave around 9 o'clock"</p>
+<p>"I have to shower! We decided to go to Soa's house after breakfast, so we should leave around 9 o'clock"</p>
 
 <p>Seyoung checks the clock on her smartphone's standby screen and answers Shiwoo's question.</p>
 

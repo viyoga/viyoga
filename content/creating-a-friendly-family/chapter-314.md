@@ -1,5 +1,5 @@
 +++
-title = "Chapter 314: [Incest] Creating a Close Family 314 (Se-young, Su-a)"
+title = "Chapter 314: [Incest] Creating a Close Family 314 (Se-young, Soa)"
 weight = 314
 [extra]
 chapter = 314
@@ -42,7 +42,7 @@ chapter = 314
 
 <p>His sisters' panties were shamefully wedged between their butt cheeks like a T-back.</p>
 
-<p>While Shiwoo was creating such a shape with Seyoung and Sua's underwear, they did not stop Shiwoo's actions.</p>
+<p>While Shiwoo was creating such a shape with Seyoung and Soa's underwear, they did not stop Shiwoo's actions.</p>
 
 <p>Far from stopping him, they even helped Shiwoo's movements become easier, as if complying with Shiwoo's touch, stiffening their bodies and naturally adjusting their angles.</p>
 
@@ -76,15 +76,15 @@ chapter = 314
 
 <p>Shiwoo, who didn't have the leeway to use his hands because he was holding his sisters' waists with both arms, glanced down at his protruding lower body and spoke to his sisters as if asking for a favor.</p>
 
-<p>Sua and Seyoung, having confirmed where Shiwoo's gaze was directed, seemed to realize what Shiwoo was asking for, and immediately reached out to grab the bag from both sides.</p>
+<p>Soa and Seyoung, having confirmed where Shiwoo's gaze was directed, seemed to realize what Shiwoo was asking for, and immediately reached out to grab the bag from both sides.</p>
 
-<p>Seyoung and Sua grabbed the bag that Shiwoo was wearing from both sides and positioned the bag in front of Shiwoo's cock.</p>
+<p>Seyoung and Soa grabbed the bag that Shiwoo was wearing from both sides and positioned the bag in front of Shiwoo's cock.</p>
 
 <p>The bag was being rubbed left and right against Shiwoo's cock several times while adjusting its position.</p>
 
 <p>Each time, Shiwoo's penis was frantically throbbing, pushing the bag to the sides again.</p>
 
-<p>When the bag was pushed to one side again by his penis, Shiwoo squeezed Seyoung or Sua's buttocks tightly in his hands, as if signaling them to pull the bag.</p>
+<p>When the bag was pushed to one side again by his penis, Shiwoo squeezed Seyoung or Soa's buttocks tightly in his hands, as if signaling them to pull the bag.</p>
 
 <p>Shiwoo's bag, being pulled by his sisters after receiving the signal, was having its position adjusted.</p>
 
@@ -102,7 +102,7 @@ chapter = 314
 
 <p class="scene-break">· · ·</p>
 
-<p>By the time the moisture on Sua's body and Seyoung's hair had dried to some extent, they had somehow arrived at the subway station near their house.</p>
+<p>By the time the moisture on Soa's body and Seyoung's hair had dried to some extent, they had somehow arrived at the subway station near their house.</p>
 
 <p>Shiwoo and his sisters had not exchanged a single word while coming to the subway station.</p>
 
@@ -118,7 +118,7 @@ chapter = 314
 
 <p>Shiwoo and his sisters, now acting out the relationship between ordinary siblings or cousins, were heading towards the train platform.</p>
 
-<p>,Since Seyoung and Sua can put on their necklaces as soon as we buy them, we just need to put Seonju's and Sehee's necklaces in a shopping bag and bring them, right?,</p>
+<p>,Since Seyoung and Soa can put on their necklaces as soon as we buy them, we just need to put Seonju's and Sehee's necklaces in a shopping bag and bring them, right?,</p>
 
 <p>Arriving at the platform level where the subway trains run, Shiwoo spoke to his sisters.</p>
 
@@ -138,7 +138,7 @@ chapter = 314
 
 <p>Now, Shiwoo was almost chattering away like a chatterbox in front of his sisters.</p>
 
-<p>,If we're going to buy that, I think we should go today, take a look, and tell them to deliver it to the house! We have some food left over from what we brought from Sua's house, so we can order it online next time! Hehe,</p>
+<p>,If we're going to buy that, I think we should go today, take a look, and tell them to deliver it to the house! We have some food left over from what we brought from Soa's house, so we can order it online next time! Hehe,</p>
 
 <p>Seyoung was answering each of Shiwoo's words in a kind tone.</p>
 
