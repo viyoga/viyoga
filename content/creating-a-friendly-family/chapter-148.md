@@ -124,11 +124,11 @@ chapter = 148
 
 <p>Shiwoo pushed Sehee's pink skirt up towards her crotch and gently stroked her thigh.</p>
 
-<p>,Was Imo okay with it? Getting close to Soa?,</p>
+<p>,Was Imo okay with it? Getting close to Sua?,</p>
 
 <p>Shiwoo was asking as if confirming Seonju Imo's feelings.</p>
 
-<p>The incestuous relationship between Soa and her mother...</p>
+<p>The incestuous relationship between Sua and her mother...</p>
 
 <p>And about the act of offering her daughter as a sex slave to Dad...</p>
 

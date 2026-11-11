@@ -1,5 +1,5 @@
 +++
-title = "Chapter 365: [Incest] Creating a Close Family 365 (Sun-ju, Se-young, Soa [Explicit])"
+title = "Chapter 365: [Incest] Creating a Close Family 365 (Sun-ju, Se-young, Su-a [Explicit])"
 weight = 365
 [extra]
 chapter = 365
@@ -80,13 +80,13 @@ chapter = 365
 
 <p>Seyoung and his entire body are accurately captured in the camera angle along with Seonju Imo-nim.</p>
 
-<p>Shiwoo turns his head and looks at Soa, who is standing nearby, as if finding the last puzzle piece.</p>
+<p>Shiwoo turns his head and looks at Sua, who is standing nearby, as if finding the last puzzle piece.</p>
 
-<p>Soa, feeling Shiwoo's gaze blatantly landing on her naked body, which is not covered by a single thread, shrinks her body even more as if embarrassed.</p>
+<p>Sua, feeling Shiwoo's gaze blatantly landing on her naked body, which is not covered by a single thread, shrinks her body even more as if embarrassed.</p>
 
-<p>Shiwoo turns his gaze back from Soa to Seonju Imo-nim and points to Seonju Imo-nim's large breasts with his finger.</p>
+<p>Shiwoo turns his gaze back from Sua to Seonju Imo-nim and points to Seonju Imo-nim's large breasts with his finger.</p>
 
-<p>Soa, as if grasping the implications contained in Shiwoo's gesture, slowly moves her steps and climbs onto the bed where her Mom is.</p>
+<p>Sua, as if grasping the implications contained in Shiwoo's gesture, slowly moves her steps and climbs onto the bed where her Mom is.</p>
 
 <p>As the scenes he had been envisioning became more and more concrete, Shiwoo's chest seemed to be filled with excitement/arousal.</p>
 
@@ -102,19 +102,19 @@ chapter = 365
 
 <p>Each time Seonju Imo-nim twisted her body, her breasts, spread to the sides, began to bounce elastically.</p>
 
-<p>Seonju Imo-nim, with her eyes and mouth covered by Soa's over-the-knee socks, and her hands bound by Soa's panties.</p>
+<p>Seonju Imo-nim, with her eyes and mouth covered by Sua's over-the-knee socks, and her hands bound by Sua's panties.</p>
 
-<p>She was lying between Soa and Seyoung, exposing her breasts and crotch completely, with an apricot-colored slip wrapped around her waist.</p>
+<p>She was lying between Sua and Seyoung, exposing her breasts and crotch completely, with an apricot-colored slip wrapped around her waist.</p>
 
-<p>Seyoung and Soa, kneeling on either side of her, propping their arms on the bed, were looking at Shiwoo like puppies waiting for Shiwoo's command.</p>
+<p>Seyoung and Sua, kneeling on either side of her, propping their arms on the bed, were looking at Shiwoo like puppies waiting for Shiwoo's command.</p>
 
-<p>The sight of the naked Soa and Seyoung, who was wearing clothes and trying to participate in the game, felt foreign.</p>
+<p>The sight of the naked Sua and Seyoung, who was wearing clothes and trying to participate in the game, felt foreign.</p>
 
 <p>Shiwoo looked at Seonju Imo-nim's swaying breasts and nodded indifferently.</p>
 
 <p>Shiwoo's small nod, instructing them to suck Seonju Imo-nim's nipples.</p>
 
-<p>Soa and Seyoung, as if understanding Shiwoo's command, obediently lower their eyes and bring their mouths to Seonju Imo-nim's nipples.</p>
+<p>Sua and Seyoung, as if understanding Shiwoo's command, obediently lower their eyes and bring their mouths to Seonju Imo-nim's nipples.</p>
 
 <p>Soon, his younger sisters' lips cover Seonju Imo-nim's nipples.</p>
 
@@ -134,9 +134,9 @@ chapter = 365
 
 <p>Seonju Imo-nim's figure, twisting her body while having her breasts sucked by her younger sisters, looked like a caterpillar trying to shed its skin.</p>
 
-<p>Soa and Seyoung were not greatly surprised by Seonju Imo-nim's appearance and were concentrating on caressing her nipples.</p>
+<p>Sua and Seyoung were not greatly surprised by Seonju Imo-nim's appearance and were concentrating on caressing her nipples.</p>
 
-<p>Seonju Imo-nim appeared to have had Soa and Seyoung suckle her breasts several times in the past.</p>
+<p>Seonju Imo-nim appeared to have had Sua and Seyoung suckle her breasts several times in the past.</p>
 
 <p>Seonju Imo-nim, who on the outside was blushing and trembling as if not knowing what to do with her shame, was secretly and genuinely enjoying this situation.</p>
 

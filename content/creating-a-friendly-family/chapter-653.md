@@ -1,5 +1,5 @@
 +++
-title = "Chapter 653: [Incest] Making a Friendly Family 653 (Mom, Se-hee, Tattoo Shop Owner, Soa) (Kitchen, Living Room)"
+title = "Chapter 653: [Incest] Making a Friendly Family 653 (Mom, Se-hee, Tattoo Shop Owner, Su-ah) (Kitchen, Living Room)"
 weight = 653
 [extra]
 chapter = 653
@@ -68,39 +68,39 @@ chapter = 653
 
 <p class="scene-break">· · ·</p>
 
-<p>After a while, Shiwoo put down his smartphone and observed Soa's expression. Soa was looking elsewhere as if feigning indifference, her face flushed red. On the dining table in front of her sat a box of assorted sushi with the packaging torn open.</p>
+<p>After a while, Shiwoo put down his smartphone and observed Sua's expression. Sua was looking elsewhere as if feigning indifference, her face flushed red. On the dining table in front of her sat a box of assorted sushi with the packaging torn open.</p>
 
-<p>Shiwoo imagined the sight of the sushi soon to be covered in his semen... In a moment, Shiwoo would be able to feed the sushi covered in semen to Soa. And he would also fill her pussy meat with sushi smeared with semen.</p>
+<p>Shiwoo imagined the sight of the sushi soon to be covered in his semen... In a moment, Shiwoo would be able to feed the sushi covered in semen to Sua. And he would also fill her pussy meat with sushi smeared with semen.</p>
 
-<p>Shiwoo imagined stuffing as much sushi as he could into Soa's vaginal opening and then forcing his penis in and shaking it. The fantasy of forcing his penis into her vaginal opening, which was already bursting and cramped with sushi, and wildly stretching the sensitive vaginal walls...</p>
+<p>Shiwoo imagined stuffing as much sushi as he could into Sua's vaginal opening and then forcing his penis in and shaking it. The fantasy of forcing his penis into her vaginal opening, which was already bursting and cramped with sushi, and wildly stretching the sensitive vaginal walls...</p>
 
-<p>That fantasy alone made a thrill close to ejaculation wrap around Shiwoo's spine. Shiwoo watched Soa as he threw off his clothes, quickly becoming naked.</p>
+<p>That fantasy alone made a thrill close to ejaculation wrap around Shiwoo's spine. Shiwoo watched Sua as he threw off his clothes, quickly becoming naked.</p>
 
-<p>Shiwoo stood with his massively erect penis aimed at Soa. Soa glanced at Shiwoo standing naked and erect, then quickly turned her gaze elsewhere.</p>
+<p>Shiwoo stood with his massively erect penis aimed at Sua. Sua glanced at Shiwoo standing naked and erect, then quickly turned her gaze elsewhere.</p>
 
-<p>Shiwoo looked back toward the shower room Seyoung had entered, then approached the dining table where Soa was. From the sushi box with the lid open and packaging torn, he deliberately picked out a piece of shrimp sushi with his hand.</p>
+<p>Shiwoo looked back toward the shower room Seyoung had entered, then approached the dining table where Sua was. From the sushi box with the lid open and packaging torn, he deliberately picked out a piece of shrimp sushi with his hand.</p>
 
 <p>Shiwoo brought the sushi he held in his hand to the tip of his glans. Shiwoo was smearing the pre-cum flowing from the tip of his glans onto the shrimp sushi.</p>
 
-<p>Shiwoo brought the shrimp sushi smeared with pre-cum to Soa's mouth as if it were nothing. Soa seemed a bit flustered by Shiwoo's action of approaching her naked and erect and putting sushi smeared with pre-cum into her mouth. However, she soon opened her mouth and naturally accepted the sushi Shiwoo handed her.</p>
+<p>Shiwoo brought the shrimp sushi smeared with pre-cum to Sua's mouth as if it were nothing. Sua seemed a bit flustered by Shiwoo's action of approaching her naked and erect and putting sushi smeared with pre-cum into her mouth. However, she soon opened her mouth and naturally accepted the sushi Shiwoo handed her.</p>
 
 <p>Shiwoo took another piece of shrimp sushi out of the box and placed it on his palm.</p>
 
 <p>"Shall we go to the room? Seyoung's room?"</p>
 
-<p>Shiwoo spoke as if being considerate of Soa, who stood there awkwardly chewing the sushi in her mouth.</p>
+<p>Shiwoo spoke as if being considerate of Sua, who stood there awkwardly chewing the sushi in her mouth.</p>
 
 <p>"Yeah..."</p>
 
-<p>Soa replied in a small voice, her head slightly bowed. Shiwoo grabbed Soa's hand as if snatching it and led her toward Seyoung's room. Soa was pulled along by Shiwoo's hand without much resistance.</p>
+<p>Sua replied in a small voice, her head slightly bowed. Shiwoo grabbed Sua's hand as if snatching it and led her toward Seyoung's room. Sua was pulled along by Shiwoo's hand without much resistance.</p>
 
-<p>Shiwoo wrapped one arm around Soa's waist and grabbed her breasts from below her waist. Then, he made Soa's hand wrap around his testicles.</p>
+<p>Shiwoo wrapped one arm around Sua's waist and grabbed her breasts from below her waist. Then, he made Sua's hand wrap around his testicles.</p>
 
-<p>Just as they had done while coming to the front of the house with Seyoung in the residential alley earlier, Shiwoo took a closely pressed posture with Soa. The only difference was that they weren't carrying separate luggage, and Soa's hand was now directly touching Shiwoo's bare skin.</p>
+<p>Just as they had done while coming to the front of the house with Seyoung in the residential alley earlier, Shiwoo took a closely pressed posture with Sua. The only difference was that they weren't carrying separate luggage, and Sua's hand was now directly touching Shiwoo's bare skin.</p>
 
-<p>Shiwoo slowly kneaded Soa's breasts just like before. Soa's hand, which was cupping Shiwoo's testicles as if supporting them, also began to move shyly in sync with Shiwoo's hand. However, it wasn't to the extent of gripping or kneading with enough force to cause pain like before.</p>
+<p>Shiwoo slowly kneaded Sua's breasts just like before. Sua's hand, which was cupping Shiwoo's testicles as if supporting them, also began to move shyly in sync with Shiwoo's hand. However, it wasn't to the extent of gripping or kneading with enough force to cause pain like before.</p>
 
-<p>At Soa's delicate hand movements, Shiwoo's penis flinched, vomiting out pre-cum.</p>
+<p>At Sua's delicate hand movements, Shiwoo's penis flinched, vomiting out pre-cum.</p>
 
 <p>"Take off your clothes as soon as we get in the room..."</p>
 
@@ -110,4 +110,4 @@ chapter = 653
 
 <p>"Okay..."</p>
 
-<p>Soa nodded and responded quietly with a trembling voice.</p>
+<p>Sua nodded and responded quietly with a trembling voice.</p>

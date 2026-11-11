@@ -26,7 +26,7 @@ chapter = 545
 
 <p>Mom looked at Shiwoo with a puzzled expression.</p>
 
-<p>,It's a memento! Keep it Isn't this the first time we've all gathered together to eat like this? And Mom, could you upload that on my behalf to the group chat room with Seonju and Soa?,</p>
+<p>,It's a memento! Keep it Isn't this the first time we've all gathered together to eat like this? And Mom, could you upload that on my behalf to the group chat room with Seonju and Sua?,</p>
 
 <p>Shiwoo instructed Mom to upload the video he had just filmed and sent to her to the group chat room where the enslaved family members were gathered.</p>
 
@@ -150,7 +150,7 @@ chapter = 545
 
 <p>"This is what Seyoung took when it was just Mom and Seyoung! Seyoung wrote the letters on her buttocks herself Seyoung has now decided to train Mom"</p>
 
-<p>Shiwoo ignored Mom's gaze and wrote in the group chat room, as if informing Seonju Imo and Soa of the situation that had taken place.</p>
+<p>Shiwoo ignored Mom's gaze and wrote in the group chat room, as if informing Seonju Imo and Sua of the situation that had taken place.</p>
 
 <p>"I knew it I thought so! Unni can't hide things like that? She's been pretending to be innocent and saying that she can't do that with her own children Lately, it's all over her face that she can't stand wanting to be trained! Hehehe"</p>
 
@@ -186,7 +186,7 @@ chapter = 545
 
 <p>Like the gap between day and night, the boundary between reality and text also seemed very unfamiliar and awkward to Mom.</p>
 
-<p>,Isn't that the video that Shiwoo Oppa took and uploaded to the group chat room with Seonju Imo and Soa?,</p>
+<p>,Isn't that the video that Shiwoo Oppa took and uploaded to the group chat room with Seonju Imo and Sua?,</p>
 
 <p>Seyoung asked, tilting her head as if she couldn't understand why Mom was hiding the smartphone screen.</p>
 

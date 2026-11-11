@@ -4,15 +4,15 @@ weight = 223
 [extra]
 chapter = 223
 +++
-<p>"Seonju Imo-nim! You said you had to go with Soa to feed the puppy now, didn't you? Hurry and go in, the kids must be really hungry"</p>
+<p>"Seonju Imo-nim! You said you had to go with Sua to feed the puppy now, didn't you? Hurry and go in, the kids must be really hungry"</p>
 
-<p>Shiwoo, as if directing traffic, finalized tomorrow's schedule and tried to send Seonju Imo-nim and Soa home.</p>
+<p>Shiwoo, as if directing traffic, finalized tomorrow's schedule and tried to send Seonju Imo-nim and Sua home.</p>
 
-<p>Though she had held onto her sister and niece, Mom, after coming out of the shower room, couldn't utter a single proper word, avoiding eye contact as she saw Seonju Imo-nim and Soa off.</p>
+<p>Though she had held onto her sister and niece, Mom, after coming out of the shower room, couldn't utter a single proper word, avoiding eye contact as she saw Seonju Imo-nim and Sua off.</p>
 
 <p>Seonju Imo-nim also, to hide the fact that semen was in her mouth, bowed her face and nodded her head, bidding farewell to Mom and Shiwoo's family.</p>
 
-<p>After such an awkward farewell among the family members, Seonju Imo-nim and Soa returned home.</p>
+<p>After such an awkward farewell among the family members, Seonju Imo-nim and Sua returned home.</p>
 
 <p>Now, in Shiwoo's house, only Shiwoo, Mom, Sehee Nuna, and Seyoung remained.</p>
 

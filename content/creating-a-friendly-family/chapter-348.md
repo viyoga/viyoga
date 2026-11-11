@@ -1,30 +1,30 @@
 +++
-title = "Chapter 348: [Incest] Creating a Close Family 348 (Se-young, Soa [Explicit])"
+title = "Chapter 348: [Incest] Creating a Close Family 348 (Se-young, Su-a [Explicit])"
 weight = 348
 [extra]
 chapter = 348
 +++
 <p>"Haaeeuk!"</p>
 
-<p>Soa's suppressed moaning sound burst out like a hiccup.</p>
+<p>Sua's suppressed moaning sound burst out like a hiccup.</p>
 
-<p>At the same time, the vibrations and tightening of pleasure Soa created wrapped around Shiwoo's penis.</p>
+<p>At the same time, the vibrations and tightening of pleasure Sua created wrapped around Shiwoo's penis.</p>
 
-<p>Shiwoo moved his waist back and forth, slowly creating gentle friction with his penis, which fully filled Soa's vaginal walls.</p>
+<p>Shiwoo moved his waist back and forth, slowly creating gentle friction with his penis, which fully filled Sua's vaginal walls.</p>
 
-<p>Soa buried her arms and face in the backrest of the front seat, breathing heavily.</p>
+<p>Sua buried her arms and face in the backrest of the front seat, breathing heavily.</p>
 
-<p>Feeling Soa's vagina interior tightly clenching his penis, Shiwoo continued his leisurely thrusting.</p>
+<p>Feeling Sua's vagina interior tightly clenching his penis, Shiwoo continued his leisurely thrusting.</p>
 
-<p>Soa was still leaning her body with difficulty, as if she hadn't yet adapted to Shiwoo's enormous member, which had invaded her for the second time.</p>
+<p>Sua was still leaning her body with difficulty, as if she hadn't yet adapted to Shiwoo's enormous member, which had invaded her for the second time.</p>
 
-<p>Soa, lying prone as if in agony from her vagina hole clenching, arched her waist upwards.</p>
+<p>Sua, lying prone as if in agony from her vagina hole clenching, arched her waist upwards.</p>
 
-<p>Soon, her small body trembled violently, and Soa seemed to reach climax.</p>
+<p>Soon, her small body trembled violently, and Sua seemed to reach climax.</p>
 
-<p>While Soa reached climax, Seyoung's rough breathing sound could be heard from beside them.</p>
+<p>While Sua reached climax, Seyoung's rough breathing sound could be heard from beside them.</p>
 
-<p>Seyoung seemed to be aroused, watching Shiwoo and Soa's sex.</p>
+<p>Seyoung seemed to be aroused, watching Shiwoo and Sua's sex.</p>
 
 <p>Shiwoo suddenly recalled Seyoung's disheveled appearance from just a moment ago.</p>
 
@@ -42,7 +42,7 @@ chapter = 348
 
 <p>-Though, seeing his sisters' attire, with their breasts and crotches already exposed, it seemed unnecessary to pretend-</p>
 
-<p>However, Shiwoo felt certain that Seyoung's gaze had just been fixed on the point of his and Soa's coupling.</p>
+<p>However, Shiwoo felt certain that Seyoung's gaze had just been fixed on the point of his and Sua's coupling.</p>
 
 <p>Soon, Shiwoo's gaze shifted again to Seyoung's face, and then to her legs.</p>
 
@@ -54,9 +54,9 @@ chapter = 348
 
 <p>Shiwoo didn't know if she understood that her actions were a form of masturbation, but he surmised that Seyoung might have enjoyed this type of self-pleasure since infancy.</p>
 
-<p>Seeing Seyoung, who was secretly watching him and Soa copulating, and enjoying such lewd acts with her body, yet pretending to know nothing while gazing out the window, Shiwoo felt a touch of mischief.</p>
+<p>Seeing Seyoung, who was secretly watching him and Sua copulating, and enjoying such lewd acts with her body, yet pretending to know nothing while gazing out the window, Shiwoo felt a touch of mischief.</p>
 
-<p>Shiwoo continued thrusting into Soa's pussy, extending one hand, which had been holding Soa's waist, towards Seyoung.</p>
+<p>Shiwoo continued thrusting into Sua's pussy, extending one hand, which had been holding Sua's waist, towards Seyoung.</p>
 
 <p>Shiwoo's massive hand covered the hand that had been resting between Seyoung's thighs.</p>
 
@@ -94,7 +94,7 @@ chapter = 348
 
 <p>Shiwoo gazed intently at Seyoung's dress, precariously draped over her still-undeveloped pelvis, and her upper body, helplessly exposed and uncovered by anything.</p>
 
-<p>Still thrusting into Soa's vagina hole, Shiwoo reached out his hand to Seyoung's budding breasts.</p>
+<p>Still thrusting into Sua's vagina hole, Shiwoo reached out his hand to Seyoung's budding breasts.</p>
 
 <p>Seyoung accepted Shiwoo's rough touch with a languid body.</p>
 
@@ -104,7 +104,7 @@ chapter = 348
 
 <p>Did she know her impure gaze had already been caught, or had she decided to give up pretending?</p>
 
-<p>Seyoung now gazed a little more overtly at Shiwoo and Soa's copulation.</p>
+<p>Seyoung now gazed a little more overtly at Shiwoo and Sua's copulation.</p>
 
 <p>One of Shiwoo's hands kneaded Seyoung's tender, soft breast as if squeezing it.</p>
 
@@ -112,21 +112,21 @@ chapter = 348
 
 <p>After confirming the pained moaning sound escaping Seyoung's lips, Shiwoo picked up Seyoung's leash that had fallen onto the chair.</p>
 
-<p>Shiwoo's hand, still holding Seyoung's leash, returned to Soa's waist.</p>
+<p>Shiwoo's hand, still holding Seyoung's leash, returned to Sua's waist.</p>
 
-<p>Shiwoo wrapped his arm around Soa's waist, pulling her into a strong, binding embrace.</p>
+<p>Shiwoo wrapped his arm around Sua's waist, pulling her into a strong, binding embrace.</p>
 
-<p>After embracing and securing Soa's waist, Shiwoo applied even greater force to his thrusting.</p>
+<p>After embracing and securing Sua's waist, Shiwoo applied even greater force to his thrusting.</p>
 
 <p class="scene-break">· · ·</p>
 
 <p>-Suguk! Suguk! Suguk! Supuk! Supuk!</p>
 
-<p>Shiwoo, checking the driver's seat, carefully rammed his enormous penis into Soa's hole.</p>
+<p>Shiwoo, checking the driver's seat, carefully rammed his enormous penis into Sua's hole.</p>
 
 <p>"Heup! Heup! Heueut Heueup! Heup!"</p>
 
-<p>Soa desperately covered her mouth, swallowing her moaning sounds.</p>
+<p>Sua desperately covered her mouth, swallowing her moaning sounds.</p>
 
 <p>Each time he adjusted his strength and thrust his waist, Seyoung's leash in Shiwoo's hand was pulled.</p>
 
@@ -134,21 +134,21 @@ chapter = 348
 
 <p>Seyoung continued to masturbate her clitoris with her fingers, letting out moans in rhythm with the tugging leash.</p>
 
-<p>Making love with Soa, and simply holding Seyoung's leash, seemed to fill the space in the back of the vehicle with a sense of unity, connected by pleasure.</p>
+<p>Making love with Sua, and simply holding Seyoung's leash, seemed to fill the space in the back of the vehicle with a sense of unity, connected by pleasure.</p>
 
-<p>For a while, Shiwoo was thrusting his penis into Soa's hole, as if lost in an ecstasy of pleasure.</p>
+<p>For a while, Shiwoo was thrusting his penis into Sua's hole, as if lost in an ecstasy of pleasure.</p>
 
 <p>Then, at some point, Seyoung stopped the hand that was on her crotch and her body trembled violently, as if she had reached climax.</p>
 
 <p>"Haaeeuk! Haaeut! Haaang"</p>
 
-<p>Seyoung seemed to have reached climax before Shiwoo and Soa, fondling her own sensitive nub.</p>
+<p>Seyoung seemed to have reached climax before Shiwoo and Sua, fondling her own sensitive nub.</p>
 
-<p>Afterward, Soa's waist arched backward, and she wildly clenched Shiwoo's penis with her vagina hole, as if reaching climax.</p>
+<p>Afterward, Sua's waist arched backward, and she wildly clenched Shiwoo's penis with her vagina hole, as if reaching climax.</p>
 
 <p>Following his sisters' successive orgasms, the sensation of ejaculation was now coming over Shiwoo.</p>
 
-<p>About to ejaculate inside Soa's vagina hole, Shiwoo stopped and looked at Seyoung, who was practically sprawled out on the seat beside him.</p>
+<p>About to ejaculate inside Sua's vagina hole, Shiwoo stopped and looked at Seyoung, who was practically sprawled out on the seat beside him.</p>
 
 <p>Seyoung's eyes, glazed over and looking utterly ravaged by the pleasure of climax, and her lips, parted and drooling.</p>
 
@@ -156,28 +156,28 @@ chapter = 348
 
 <p>Shiwoo coiled Seyoung's leash, attached to her collar, short in his hand.</p>
 
-<p>As her body bent forward, Seyoung's face was pulled towards the point of Shiwoo and Soa's coupling.</p>
+<p>As her body bent forward, Seyoung's face was pulled towards the point of Shiwoo and Sua's coupling.</p>
 
-<p>Even as Shiwoo felt an intense urge to ejaculate, he continued to thrust and churn inside Soa's hole until the very end.</p>
+<p>Even as Shiwoo felt an intense urge to ejaculate, he continued to thrust and churn inside Sua's hole until the very end.</p>
 
 <p>Shiwoo increased the speed of his thrusting, rushing towards climax.</p>
 
 <p>Shiwoo's mind, engulfed in hot pleasure and heat, grew hazy.</p>
 
-<p>Soa writhed her body as if in agony immediately after climax, from the burning friction of her vaginal walls.</p>
+<p>Sua writhed her body as if in agony immediately after climax, from the burning friction of her vaginal walls.</p>
 
-<p>Shiwoo removed the hand that was wrapped around Soa's waist and picked up his smartphone.</p>
+<p>Shiwoo removed the hand that was wrapped around Sua's waist and picked up his smartphone.</p>
 
-<p>The camera lens of the smartphone Shiwoo picked up was aimed at the point of Soa and Shiwoo's coupling.</p>
+<p>The camera lens of the smartphone Shiwoo picked up was aimed at the point of Sua and Shiwoo's coupling.</p>
 
-<p>Within the camera's angle was Soa's luscious buttocks, viewed from above.</p>
+<p>Within the camera's angle was Sua's luscious buttocks, viewed from above.</p>
 
 <p>The valley between two beautifully rounded parabolas.</p>
 
 <p>And Shiwoo's enormous member, mercilessly thrusting into that space.</p>
 
-<p>Apparently pleased with the angle, Shiwoo pressed the record button, capturing on video the pre-ejaculatory thrusting he was sharing with Soa.</p>
+<p>Apparently pleased with the angle, Shiwoo pressed the record button, capturing on video the pre-ejaculatory thrusting he was sharing with Sua.</p>
 
-<p>Shiwoo violated Soa's vagina hole until the very last moment, then pulled his penis out just before ejaculating.</p>
+<p>Shiwoo violated Sua's vagina hole until the very last moment, then pulled his penis out just before ejaculating.</p>
 
-<p>And then, Shiwoo brought the tip of his penis to Seyoung's face, which had been pulled close to the area of his and Soa's coupling.</p>
+<p>And then, Shiwoo brought the tip of his penis to Seyoung's face, which had been pulled close to the area of his and Sua's coupling.</p>

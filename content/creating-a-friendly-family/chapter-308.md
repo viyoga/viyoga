@@ -8,9 +8,9 @@ chapter = 308
 
 <p>Despite Shiwoo's harsh words and the sadistic acts that painfully assaulted her body, Seonju Imo was still answering Shiwoo politely as a submissive slave.</p>
 
-<p>"Um... Master-nim... While I'm preparing... Should I... Should I widen Soa's too?"</p>
+<p>"Um... Master-nim... While I'm preparing... Should I... Should I widen Sua's too?"</p>
 
-<p>Seonju Imo, showing her loyalty to her master as if trying to fulfill her duty as a slave, asks Shiwoo if she should also prepare her daughter Soa's asshole.</p>
+<p>Seonju Imo, showing her loyalty to her master as if trying to fulfill her duty as a slave, asks Shiwoo if she should also prepare her daughter Sua's asshole.</p>
 
 <p>Jjal-ssak!! Jjal-ssak!! Jjal-ssak!!</p>
 
@@ -20,7 +20,7 @@ chapter = 308
 
 <p>Seonju Imo, not knowing why, lets out a painful moaning sound at Shiwoo's powerful spanking.</p>
 
-<p>"You fucking bitch! How long has it been since I told you to listen well?! You can't stand it and try to do whatever you want again? Didn't I tell you not to be nosy?! I'll take care of Soa and Seyoung! You just do exactly what I tell you to do! You whore vagina hole of a bitch!"</p>
+<p>"You fucking bitch! How long has it been since I told you to listen well?! You can't stand it and try to do whatever you want again? Didn't I tell you not to be nosy?! I'll take care of Sua and Seyoung! You just do exactly what I tell you to do! You whore vagina hole of a bitch!"</p>
 
 <p>As if his anger had reached the top of his head, Shiwoo was shouting loudly, pouring out the anger and curses that had been building up on Seonju Imo.</p>
 
@@ -166,11 +166,11 @@ chapter = 308
 
 <p>The vibration of the smartphone stops immediately.</p>
 
-<p>The vibrator that Soa is wearing in front of her clitoris must have also stopped working...</p>
+<p>The vibrator that Sua is wearing in front of her clitoris must have also stopped working...</p>
 
-<p>Shiwoo presses the vibrator's operation button two or three more times to give a signal, in order to inform Soa that the sexual intercourse with Seonju Imo has ended.</p>
+<p>Shiwoo presses the vibrator's operation button two or three more times to give a signal, in order to inform Sua that the sexual intercourse with Seonju Imo has ended.</p>
 
-<p>It is not a pre-determined signal, so Soa may not understand the signal, but even if that is not the case, if she hears the sounds that were echoing in the yard disappear from in front of the gate, she will be able to fully understand that Shiwoo and Seonju Imo's sexual intercourse has just ended.</p>
+<p>It is not a pre-determined signal, so Sua may not understand the signal, but even if that is not the case, if she hears the sounds that were echoing in the yard disappear from in front of the gate, she will be able to fully understand that Shiwoo and Seonju Imo's sexual intercourse has just ended.</p>
 
 <p>Shiwoo puts his smartphone in his pocket, and then picks up Seonju Imo's silk slip that he had thrown carelessly on the ground.</p>
 

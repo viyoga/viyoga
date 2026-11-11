@@ -30,7 +30,7 @@ chapter = 27
 
 <p>Gyuri Ajumma said, letting Shiwoo do as he pleased while being mindful of the surrounding situation.</p>
 
-<p>She had no idea when Seyoung and Soa might come out of their rooms...</p>
+<p>She had no idea when Seyoung and Sua might come out of their rooms...</p>
 
 <p>Or when Sehee Nuna might come down from the second floor.</p>
 

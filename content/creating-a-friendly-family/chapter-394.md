@@ -4,7 +4,7 @@ weight = 394
 [extra]
 chapter = 394
 +++
-<p>(Soa)</p>
+<p>(Sua)</p>
 
 <p>394</p>
 

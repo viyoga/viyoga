@@ -1,5 +1,5 @@
 +++
-title = "Chapter 377: [Incest] Creating a Close Family 377 (Sun-ju, Se-young, Soa [Explicit])"
+title = "Chapter 377: [Incest] Creating a Close Family 377 (Sun-ju, Se-young, Su-a [Explicit])"
 weight = 377
 [extra]
 chapter = 377
@@ -16,7 +16,7 @@ chapter = 377
 
 <p>The sound of water from the shower room where Seyoung was also continued.</p>
 
-<p>It would have been difficult for the entangled Seonju Imo-nim and Soa to check Shiwoo's message right away...</p>
+<p>It would have been difficult for the entangled Seonju Imo-nim and Sua to check Shiwoo's message right away...</p>
 
 <p>Seyoung, who was showering, wouldn't have found it easy to stop showering and check the text Shiwoo sent,</p>
 
@@ -88,7 +88,7 @@ chapter = 377
 
 <p>Shiwoo was once again surprised by Seyoung's boldness.</p>
 
-<p>Seonju Imo-nim and Soa, whom he had shared a relationship with today, were one thing, but he hadn't had much interaction with Mom and Sehee Nuna yet...</p>
+<p>Seonju Imo-nim and Sua, whom he had shared a relationship with today, were one thing, but he hadn't had much interaction with Mom and Sehee Nuna yet...</p>
 
 <p>Not only did she send a lewd photo, but she also added a message, calling Mom by her name and provoking her as if she was treating her as a subordinate.</p>
 
@@ -186,17 +186,17 @@ chapter = 377
 
 <p>Then, Shiwoo picks up the shopping bag placed on the floor and heads towards the entrance.</p>
 
-<p>"Yes... I packed everything. But Shiwoo oppa... Can we leave without saying goodbye to Seonju Imo and Soa?"</p>
+<p>"Yes... I packed everything. But Shiwoo oppa... Can we leave without saying goodbye to Seonju Imo and Sua?"</p>
 
 <p>Seyoung says, looking at Shiwoo, who is picking up her bag and walking towards the entrance.</p>
 
-<p>"It seems like Seonju and Soa are both... busy inside right now. I don't think we need to say goodbye, let's just go!"</p>
+<p>"It seems like Seonju and Sua are both... busy inside right now. I don't think we need to say goodbye, let's just go!"</p>
 
 <p>Shiwoo listens to the small sounds coming from the master bedroom for a moment, then says to Seyoung.</p>
 
 <p>"Okay... I understand..."</p>
 
-<p>Seyoung quickly understands Shiwoo's words, as if she somewhat guessed the state of Seonju Imo and Soa.</p>
+<p>Seyoung quickly understands Shiwoo's words, as if she somewhat guessed the state of Seonju Imo and Sua.</p>
 
 <p>Then, she follows Shiwoo at a fast pace.</p>
 

@@ -14,7 +14,7 @@ chapter = 246
 
 <p>A chilling sensation brushed the back of Shiwoo's neck, and his limbs trembled violently. A sense of superior control and dominant power seemed to surge strongly within Shiwoo's chest.</p>
 
-<p>'Alright Then, only during the day, you'll be Mom and daughter, and after 9 PM, you'll call her Soa-nim and use respectful speech! You can do that much, right?' Shiwoo spoke to Seonju Imu as if reluctantly compromising, giving in to her cute whining.</p>
+<p>'Alright Then, only during the day, you'll be Mom and daughter, and after 9 PM, you'll call her Sua-nim and use respectful speech! You can do that much, right?' Shiwoo spoke to Seonju Imu as if reluctantly compromising, giving in to her cute whining.</p>
 
 <p>'Yes, I understand. I'll do that But what time in the morning do we go back to being Mom and daughter?' Seonju Imu replied as if to follow Shiwoo's command, then asked as if to confirm the exact time they would revert to being Mom and daughter.</p>
 
@@ -22,15 +22,15 @@ chapter = 246
 
 <p>'I'm sorry Master-nim! I'll do as Master-nim says from 9 PM Hiiing' Seonju Imu apologized to Shiwoo and replied as if vowing to obey his command.</p>
 
-<p>'Tell Soa right now, clearly!' Shiwoo told Seonju Imu to make sure to convey the command he had just given to Soa as well, as if to firmly establish it.</p>
+<p>'Tell Sua right now, clearly!' Shiwoo told Seonju Imu to make sure to convey the command he had just given to Sua as well, as if to firmly establish it.</p>
 
-<p>'Yes As Master-nim commands, I will convey Master-nim's words clearly to Soa-nim!' A submissive, obedient reply came back from Seonju Imu. Seonju Imu's honorific for Soa had changed from Soa to Soa-nim.</p>
+<p>'Yes As Master-nim commands, I will convey Master-nim's words clearly to Sua-nim!' A submissive, obedient reply came back from Seonju Imu. Seonju Imu's honorific for Sua had changed from Sua to Sua-nim.</p>
 
 <p>Time had already passed 9 PM. A strange sense of conquest was slowly creeping into Shiwoo's chest.</p>
 
-<p>'Don't forget to take naked body pictures and send them before you go to bed, on time! Today, take Soa's picture too and send it! Understood?' Shiwoo additionally instructed Seonju Imu, as if checking off tasks to be done before bed.</p>
+<p>'Don't forget to take naked body pictures and send them before you go to bed, on time! Today, take Sua's picture too and send it! Understood?' Shiwoo additionally instructed Seonju Imu, as if checking off tasks to be done before bed.</p>
 
-<p>'Yes I'll take Soa-nim's picture too and send it Master-nim' Seonju Imu replied as if completely subjugated to Shiwoo, her playful tone entirely gone.</p>
+<p>'Yes I'll take Sua-nim's picture too and send it Master-nim' Seonju Imu replied as if completely subjugated to Shiwoo, her playful tone entirely gone.</p>
 
 <p>The numbers next to the messages in the group chat room had all disappeared. Shiwoo felt as if he had conquered Seonju Imu. The fact that he had seemingly subjugated Seonju Imu while Mom and Sehee Nuna were in the room further elevated Shiwoo's mood.</p>
 
@@ -78,11 +78,11 @@ chapter = 246
 
 <p>'What?' Mom asked as if she didn't know exactly what Shiwoo wanted to do.</p>
 
-<p>'After 9 PM, Mom and I calling each other by different honorifics!' Shiwoo proposed to Mom that they establish a master-slave relationship with a set time, just as he had commanded Seonju Imu and Soa.</p>
+<p>'After 9 PM, Mom and I calling each other by different honorifics!' Shiwoo proposed to Mom that they establish a master-slave relationship with a set time, just as he had commanded Seonju Imu and Sua.</p>
 
 <p>Again, a silence, as if they were both conscious of each other...</p>
 
-<p>'Why?' Mom asked Shiwoo the reason, puzzled. She was Mom, who had already drunk her son's semen mixed in a glass according to Shiwoo's command, and even sucked her son's penis in front of her daughter. Moreover, Mom was currently wearing a dog collar and leash. If Shiwoo wanted, he could simply call Mom whatever he pleased, avoiding Seyoung's eyes, and that would be the end of it. In such a situation, Mom couldn't quite understand why he would bother to set a time limit, like 'after 9 PM,' just as he had commanded Seonju Imu and Soa.</p>
+<p>'Why?' Mom asked Shiwoo the reason, puzzled. She was Mom, who had already drunk her son's semen mixed in a glass according to Shiwoo's command, and even sucked her son's penis in front of her daughter. Moreover, Mom was currently wearing a dog collar and leash. If Shiwoo wanted, he could simply call Mom whatever he pleased, avoiding Seyoung's eyes, and that would be the end of it. In such a situation, Mom couldn't quite understand why he would bother to set a time limit, like 'after 9 PM,' just as he had commanded Seonju Imu and Sua.</p>
 
 <p>'If you're doing that with me all day from morning, watching Seyoung, Mom, you'd get tired, wouldn't you?' Shiwoo spoke as if he were being considerate of Mom.</p>
 

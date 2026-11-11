@@ -1,5 +1,5 @@
 +++
-title = "Chapter 650: [Incest] Making a Friendly Family 650 (Shin So-eun, Sex, Se-young, Soa, Shin Ju-hee) (Cafe, Outside Building)"
+title = "Chapter 650: [Incest] Making a Friendly Family 650 (Shin So-eun, Sex, Se-young, Su-ah, Shin Ju-hee) (Cafe, Outside Building)"
 weight = 650
 [extra]
 chapter = 650
@@ -84,7 +84,7 @@ chapter = 650
 
 <p>When he stepped out of the room with her, his younger sisters, who had come out first, were waiting for Shiwoo near the main entrance of the cafe.</p>
 
-<p>Soa and Seyoung waved their hands at Shiwoo, welcoming him back.</p>
+<p>Sua and Seyoung waved their hands at Shiwoo, welcoming him back.</p>
 
 <p>"Then, please come again"</p>
 

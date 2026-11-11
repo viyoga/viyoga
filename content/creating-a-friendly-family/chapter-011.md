@@ -128,7 +128,7 @@ chapter = 11
 
 <p>Time passed, and in the afternoon, after a simple lunch, her younger sister, Seonju, came to visit.</p>
 
-<p>Seonju, who was not much younger than Seonmi, was a single mother with a daughter, Soa, who was the same age as Seyoung.</p>
+<p>Seonju, who was not much younger than Seonmi, was a single mother with a daughter, Sua, who was the same age as Seyoung.</p>
 
 <p>Seonju knew that her deceased brother-in-law had cheated, and she also knew that the other woman was Sejin.</p>
 

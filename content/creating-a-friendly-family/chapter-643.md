@@ -1,5 +1,5 @@
 +++
-title = "Chapter 643: [Incest] Making a Friendly Family 643 (Se-young, Soa, Aunt Sun-ju) (Cafe) (Eating Out)"
+title = "Chapter 643: [Incest] Making a Friendly Family 643 (Se-young, Su-ah, Aunt Sun-ju) (Cafe) (Eating Out)"
 weight = 643
 [extra]
 chapter = 643
@@ -8,7 +8,7 @@ chapter = 643
 
 <p>"Today, Sehee and Seonmi are going to eat out before coming home. So, we're going to eat out before we head back too, okay?"</p>
 
-<p>In front of Soa and Seyoung, Shiwoo intentionally referred to his mother and Sehee-noona by their names instead of their titles.</p>
+<p>In front of Sua and Seyoung, Shiwoo intentionally referred to his mother and Sehee-noona by their names instead of their titles.</p>
 
 <p>"I know Seonmi contacted me earlier!"</p>
 
@@ -24,7 +24,7 @@ chapter = 643
 
 <p>The message Mom sent to Seyoung wasn't simply to inform her that she would be late. It was a silent acknowledgment that took the impending sex between Shiwoo and Seyoung into account—it was no different from a procedure of seeking consent and approval, confirming the position and will of Seyoung, the party involved.</p>
 
-<p>Seyoung and Soa approached the table where Shiwoo was sitting and naturally took the seats opposite him.</p>
+<p>Seyoung and Sua approached the table where Shiwoo was sitting and naturally took the seats opposite him.</p>
 
 <p>"What are we having for dinner?"</p>
 
@@ -60,35 +60,35 @@ chapter = 643
 
 <p>Come to think of it, even though he was already in a relationship with Mom that involved sex, spanking, exposure play, and a sincere Master-slave dynamic... The fact that he was still unconsciously worrying about such trivial discipline or everyday rules of control felt somewhat ridiculous yet strangely endearing.</p>
 
-<p>"Can Soa come eat with us too?"</p>
+<p>"Can Sua come eat with us too?"</p>
 
 <p>After hearing Shiwoo's answer, Seyoung asked with a slightly flushed, excited expression.</p>
 
-<p>"Uh... of course! She can come! Soa, do you want to go eat dinner with us too? Should I contact Seonju and tell her you'll be home after dinner?"</p>
+<p>"Uh... of course! She can come! Sua, do you want to go eat dinner with us too? Should I contact Seonju and tell her you'll be home after dinner?"</p>
 
-<p>Shiwoo answered Seyoung's question as if it were obvious and then turned to Soa to confirm.</p>
+<p>Shiwoo answered Seyoung's question as if it were obvious and then turned to Sua to confirm.</p>
 
 <p>"Yes!"</p>
 
-<p>Soa answered, nodding her head with a shy expression. Even though she was the Soa who had shared sex with Aunt Seonju and Seyoung, the way she still acted shy in front of him felt incredibly cute. Looking at her pure and cautious attitude, Shiwoo momentarily fell into the illusion that everything that happened with her that day might have just been a delusion occurring inside his head. If it weren't for the collars clearly fastened around Seyoung and Soa's necks, he might have truly thought so.</p>
+<p>Sua answered, nodding her head with a shy expression. Even though she was the Sua who had shared sex with Aunt Seonju and Seyoung, the way she still acted shy in front of him felt incredibly cute. Looking at her pure and cautious attitude, Shiwoo momentarily fell into the illusion that everything that happened with her that day might have just been a delusion occurring inside his head. If it weren't for the collars clearly fastened around Seyoung and Sua's necks, he might have truly thought so.</p>
 
 <p class="scene-break">· · ·</p>
 
 <p>Shiwoo picked up his smartphone, opened the chat window, and sent a text to Aunt Seonju.</p>
 
-<p>[I'm going to feed Soa and then send her home, so don't wait up!]</p>
+<p>[I'm going to feed Sua and then send her home, so don't wait up!]</p>
 
 <p>Shiwoo's text to Aunt Seonju was written as if he were giving an order to an inferior.</p>
 
-<p>[Are the three of you—Seyoung, Soa, and Master—having dinner together?]</p>
+<p>[Are the three of you—Seyoung, Sua, and Master—having dinner together?]</p>
 
 <p>A reply came back from Aunt Seonju immediately.</p>
 
-<p>[Yeah, a situation came up where I have to eat out with Seyoung today...] [If nothing's wrong, I'm going to take Soa too... By any chance, were you preparing dinner at home?]</p>
+<p>[Yeah, a situation came up where I have to eat out with Seyoung today...] [If nothing's wrong, I'm going to take Sua too... By any chance, were you preparing dinner at home?]</p>
 
 <p>Shiwoo asked cautiously, checking for any potential issues.</p>
 
-<p>[No We order in most of the time anyway. It was nice when Seonmi-eonni was at our place, though Have a pleasant dinner with Seyoung and Soa today.] [I'll just have to lonely order dinner for myself and eat alone... Hee-ing]</p>
+<p>[No We order in most of the time anyway. It was nice when Seonmi-eonni was at our place, though Have a pleasant dinner with Seyoung and Sua today.] [I'll just have to lonely order dinner for myself and eat alone... Hee-ing]</p>
 
 <p>The title 'Master' and the polite, formal speech that was full of aegyo as if she were acting spoiled... Whether it was in the group chat, a 1:1 chat, or when they met in person, Aunt Seonju was using a polite attitude and honorifics toward Shiwoo. Even though he had warned her not to use the title 'Master' or formal speech toward him without permission back when the Master-slave relationship was just beginning to form... Did Aunt Seonju have no intention of ever returning to being an 'Aunt' in front of Shiwoo again?</p>
 
@@ -120,7 +120,7 @@ chapter = 643
 
 <p>Aunt Seonju showed a somewhat bewildered reaction, as if she didn't understand Shiwoo's words for a moment.</p>
 
-<p>[I mean, set your mind as an 'Aunt' today before you come out, not a slave! Don't make a weird fuss for no reason! I have some serious things to talk about! As Soa's mom... as my mom's younger sister...]</p>
+<p>[I mean, set your mind as an 'Aunt' today before you come out, not a slave! Don't make a weird fuss for no reason! I have some serious things to talk about! As Sua's mom... as my mom's younger sister...]</p>
 
 <p>Shiwoo spoke to Aunt Seonju in a firm tone, as if giving an order. A silence followed in the 1:1 chat with Aunt Seonju for a moment. Was Aunt Seonju feeling confused by the unexpected order Shiwoo had given? Then, Aunt Seonju's text came back again.</p>
 
@@ -136,15 +136,15 @@ chapter = 643
 
 <p>It was an answer from Aunt Seonju that suggested she had vaguely realized the meaning of the order Shiwoo was giving.</p>
 
-<p>"I've contacted Seonju! She said it's okay for Soa to come home after eating dinner with us!"</p>
+<p>"I've contacted Seonju! She said it's okay for Sua to come home after eating dinner with us!"</p>
 
 <p>"And 'Seonju' is coming out too. We're going to eat together. I told her I'd contact her once we decide where to go..."</p>
 
-<p>Shiwoo conveyed the matters decided through the conversation he just had with Aunt Seonju to Seyoung and Soa.</p>
+<p>Shiwoo conveyed the matters decided through the conversation he just had with Aunt Seonju to Seyoung and Sua.</p>
 
 <p>"Really? 'Seonju' is coming too? That's great Hehehe"</p>
 
-<p>Seyoung spoke with a bright smile, looking pleased at Shiwoo's words. Just as she had called their mother by her name, Seyoung emphasized the change by calling Aunt Seonju by her name, 'Seonju,' as if intentionally wanting Soa to hear...</p>
+<p>Seyoung spoke with a bright smile, looking pleased at Shiwoo's words. Just as she had called their mother by her name, Seyoung emphasized the change by calling Aunt Seonju by her name, 'Seonju,' as if intentionally wanting Sua to hear...</p>
 
 <p>"Now then, let's go pick out the ice cream You have to go see the ice cream in person to choose"</p>
 
@@ -152,4 +152,4 @@ chapter = 643
 
 <p>"Uh?... Uh..."</p>
 
-<p>As his arm was pulled by Seyoung, Shiwoo stood up awkwardly, hurriedly trying to manage the penis inside his clothes. Without being able to lay it down tightly inside his waistline, the penis, which was slightly protruding into his academy jacket, was revealing a massive silhouette in front of Soa and Seyoung. It was a protrusion of such a silhouette that anyone looking closely from the side would wonder if that was what they thought it was....</p>
+<p>As his arm was pulled by Seyoung, Shiwoo stood up awkwardly, hurriedly trying to manage the penis inside his clothes. Without being able to lay it down tightly inside his waistline, the penis, which was slightly protruding into his academy jacket, was revealing a massive silhouette in front of Sua and Seyoung. It was a protrusion of such a silhouette that anyone looking closely from the side would wonder if that was what they thought it was....</p>

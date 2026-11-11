@@ -1,10 +1,10 @@
 +++
-title = "Chapter 354: [Incest] Creating a Close Family 354 (Se-young, Soa [Explicit])"
+title = "Chapter 354: [Incest] Creating a Close Family 354 (Se-young, Su-a [Explicit])"
 weight = 354
 [extra]
 chapter = 354
 +++
-<p>The image of Soa and Seyoung, leashed like dogs on the street, handling their bodily functions, flickered before his eyes.</p>
+<p>The image of Sua and Seyoung, leashed like dogs on the street, handling their bodily functions, flickered before his eyes.</p>
 
 <p>His younger sisters, on all fours, lifting a leg and pissing on the street.</p>
 
@@ -26,37 +26,37 @@ chapter = 354
 
 <p>Shiwoo looked around to make sure there were no people, then approached his two younger sisters, holding their leashes in one hand.</p>
 
-<p>Shiwoo handed the shopping bag he was holding to Soa, telling her to carry it.</p>
+<p>Shiwoo handed the shopping bag he was holding to Sua, telling her to carry it.</p>
 
-<p>Shiwoo used the hand holding the leash to subtly lift Soa's dress skirt from behind.</p>
+<p>Shiwoo used the hand holding the leash to subtly lift Sua's dress skirt from behind.</p>
 
-<p>Beneath the lifted wine-colored dress skirt, Soa's plump, fleshy buttocks were revealed.</p>
+<p>Beneath the lifted wine-colored dress skirt, Sua's plump, fleshy buttocks were revealed.</p>
 
 <p>Between the alluringly parted mounds of her buttocks, a small, tight hole would be shyly hidden.</p>
 
 <p>Shiwoo imagined violently thrusting his fully erect penis into that small hole.</p>
 
-<p>Soa's tender hole, not yet trained, would be mercilessly rubbed by Shiwoo's massive penis,</p>
+<p>Sua's tender hole, not yet trained, would be mercilessly rubbed by Shiwoo's massive penis,</p>
 
 <p>Imagining it becoming tattered and loose like a rag.</p>
 
-<p>Soa's moans, which he had never properly heard before, seemed to echo in his head like a round song.</p>
+<p>Sua's moans, which he had never properly heard before, seemed to echo in his head like a round song.</p>
 
-<p>Shiwoo barely suppressed the intense urge to immediately confirm the moans that Soa would make.</p>
+<p>Shiwoo barely suppressed the intense urge to immediately confirm the moans that Sua would make.</p>
 
 <p>"Clap!"</p>
 
-<p>Instead of realizing his impulsive fantasies, Shiwoo strongly struck Soa's bare buttocks with his empty hand.</p>
+<p>Instead of realizing his impulsive fantasies, Shiwoo strongly struck Sua's bare buttocks with his empty hand.</p>
 
 <p>"Haa-oop!"</p>
 
-<p>Soa reacted to Shiwoo's spanking, arching her body as if straightening her back.</p>
+<p>Sua reacted to Shiwoo's spanking, arching her body as if straightening her back.</p>
 
-<p>Shiwoo put Soa's skirt back down and this time lifted Seyoung's skirt next to her.</p>
+<p>Shiwoo put Sua's skirt back down and this time lifted Seyoung's skirt next to her.</p>
 
 <p>The fluttering skirt of her denim dress was lifted up to her waist.</p>
 
-<p>As if realizing that her turn had come after Soa, Seyoung slowed her pace and slightly bent her back forward, making her buttocks protrude towards Shiwoo.</p>
+<p>As if realizing that her turn had come after Sua, Seyoung slowed her pace and slightly bent her back forward, making her buttocks protrude towards Shiwoo.</p>
 
 <p>Seyoung's actions, calmly continued as if positioning herself to make it easier for Shiwoo to hit her buttocks.</p>
 
@@ -104,15 +104,15 @@ chapter = 354
 
 <p class="scene-break">· · ·</p>
 
-<p>As Shiwoo's bodily fluids that had smeared on Soa and Seyoung's skin dried, Shiwoo and his younger sisters arrived in front of Seonju Imo's house.</p>
+<p>As Shiwoo's bodily fluids that had smeared on Sua and Seyoung's skin dried, Shiwoo and his younger sisters arrived in front of Seonju Imo's house.</p>
 
 <p>Shiwoo stood in front of Seonju Imo-nim's house gate and looked at his younger sisters wearing leashes.</p>
 
-<p>Perhaps because of the relief that they had returned home without being caught by the neighbors, a slight color seemed to return to Soa and Seyoung's faces, which had been full of exhaustion.</p>
+<p>Perhaps because of the relief that they had returned home without being caught by the neighbors, a slight color seemed to return to Sua and Seyoung's faces, which had been full of exhaustion.</p>
 
-<p>Perhaps because of the tension from the insertion in the department store and taxi, and the exposure they had been doing while walking through the residential alleys near the house, Soa seemed to have completely lost strength in her lower body.</p>
+<p>Perhaps because of the tension from the insertion in the department store and taxi, and the exposure they had been doing while walking through the residential alleys near the house, Sua seemed to have completely lost strength in her lower body.</p>
 
-<p>Soa was barely supporting her body with her slender legs, shaking her thighs that were stained with her vaginal fluid.</p>
+<p>Sua was barely supporting her body with her slender legs, shaking her thighs that were stained with her vaginal fluid.</p>
 
 <p>Seyoung, who had relatively more energy left, was standing with her back straight.</p>
 
@@ -126,11 +126,11 @@ chapter = 354
 
 <p>Seyoung had soaked the area between her crotch and thighs with vaginal fluid, as if she had even pissed.</p>
 
-<p>In front of Seonju Imo-nim's house gate, Soa and Seyoung, held by Shiwoo's leashes, turned their heads and looked at Shiwoo as if waiting for instructions.</p>
+<p>In front of Seonju Imo-nim's house gate, Sua and Seyoung, held by Shiwoo's leashes, turned their heads and looked at Shiwoo as if waiting for instructions.</p>
 
 <p>Shiwoo approached the gate and pressed the doorbell installed on the gate pillar wall.</p>
 
-<p>Since an external door lock was installed, he could have just told Soa to press the number key and enter.</p>
+<p>Since an external door lock was installed, he could have just told Sua to press the number key and enter.</p>
 
 <p>But Shiwoo wanted to let Seonju Imo-nim know in advance that he had arrived home with his younger sisters.</p>
 
@@ -156,11 +156,11 @@ chapter = 354
 
 <p>As he imagined the things that would happen in the future at the destination he had finally reached, Shiwoo's penis, which was hung on his waist, was pushing against the waistline of his pants as it swelled so much that it hurt.</p>
 
-<p>As if ordering a pony, Shiwoo slightly pulled the leashes holding Soa and Seyoung, signaling them to go forward.</p>
+<p>As if ordering a pony, Shiwoo slightly pulled the leashes holding Sua and Seyoung, signaling them to go forward.</p>
 
-<p>Soa and Seyoung, who had been standing still, trembled as if startled and entered Seonju Imo-nim's house yard through the open gate.</p>
+<p>Sua and Seyoung, who had been standing still, trembled as if startled and entered Seonju Imo-nim's house yard through the open gate.</p>
 
-<p>Shiwoo felt satisfaction as he looked at Soa and Seyoung, who had become accustomed to his signals like well-trained pets.</p>
+<p>Shiwoo felt satisfaction as he looked at Sua and Seyoung, who had become accustomed to his signals like well-trained pets.</p>
 
 <p>Shiwoo followed his younger sisters into Seonju Imo-nim's house yard and closed the gate.</p>
 

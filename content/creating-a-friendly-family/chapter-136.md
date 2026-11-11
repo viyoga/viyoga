@@ -88,7 +88,7 @@ chapter = 136
 
 <p>Even when he took a picture of Gyuri Ajumma being humiliated during the massage and sent it to Mom, Mom only sent Shiwoo a single word text: 'Contraception.'</p>
 
-<p>Even in such a precarious situation where Sehee Nuna, Seyoung, and Soa might come out of their rooms at any moment and had to be stopped...</p>
+<p>Even in such a precarious situation where Sehee Nuna, Seyoung, and Sua might come out of their rooms at any moment and had to be stopped...</p>
 
 <p>Even considering Shiwoo's sexual molestation of Mom, there were too many aspects of Mom's attitude towards Gyuri Ajumma and Shiwoo's relationship that were difficult to understand.</p>
 

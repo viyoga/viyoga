@@ -94,9 +94,9 @@ chapter = 91
 
 <p>** 'Today was so much fun Come to think of it, I didn't give Shiwoo any pocket money for the massage, hahaha.' Seonju Imo said to Shiwoo, as if giving her final farewell before going home.</p>
 
-<p>'It's fine Don't worry about that!! I enjoyed it too, so... just buy Soa and Seyoung lots of delicious food later.' Shiwoo said, puffed up with pride.</p>
+<p>'It's fine Don't worry about that!! I enjoyed it too, so... just buy Sua and Seyoung lots of delicious food later.' Shiwoo said, puffed up with pride.</p>
 
-<p>'Alright I'll tell Soa and Seyoung that Shiwoo Oppa bought it for them and buy them lots of delicious food' Seonju Imo maintained an obedient attitude towards Shiwoo's words until the very end.</p>
+<p>'Alright I'll tell Sua and Seyoung that Shiwoo Oppa bought it for them and buy them lots of delicious food' Seonju Imo maintained an obedient attitude towards Shiwoo's words until the very end.</p>
 
 <p>'Yeah Go in safely now And make sure to send the photo!!" In response, Shiwoo also maintained an overbearing attitude towards Seonju Imo until the very end, matching her. Shiwoo and Seonju Imo's role-play continued smoothly until the very end.</p>
 
@@ -110,7 +110,7 @@ chapter = 91
 
 <p>Shiwoo hesitated to answer, feeling momentarily embarrassed.</p>
 
-<p>'As expected!! So, now it's really just Soa and Seyoung left, huh? hahaha' Seonju Imo continued the conversation arbitrarily before Shiwoo could even answer.</p>
+<p>'As expected!! So, now it's really just Sua and Seyoung left, huh? hahaha' Seonju Imo continued the conversation arbitrarily before Shiwoo could even answer.</p>
 
 <p>'What?' Shiwoo asked, replying to Seonju Imo's incomprehensible question.</p>
 

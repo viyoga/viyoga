@@ -60,7 +60,7 @@ chapter = 753
 
 <p>Coincidentally, a deep-sea fish exhibition was being held at the aquarium theme hall in the basement of the department store.</p>
 
-<p>The same aquarium he had intended to visit with Soa and Seyoung before, but had postponed due to a lack of time.</p>
+<p>The same aquarium he had intended to visit with Sua and Seyoung before, but had postponed due to a lack of time.</p>
 
 <p>The main performance seemed to be in the evening, but the aquarium itself appeared to open from the afternoon.</p>
 

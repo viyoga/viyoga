@@ -144,7 +144,7 @@ chapter = 623
 
 <p>"So, I told Sehee to get my initials tattooed on the other thigh! And I sent Mom along with her to get one too."</p>
 
-<p>"It's a symbol that they're my slaves, so I'm planning to have Seyoung, Seonju Imo, and Soa get them tattooed soon too?"</p>
+<p>"It's a symbol that they're my slaves, so I'm planning to have Seyoung, Seonju Imo, and Sua get them tattooed soon too?"</p>
 
 <p>"Mom and Sehee are probably getting tattoos right now. Like my initials I wrote on Sejin Nuna's back just now..."</p>
 

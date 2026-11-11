@@ -1,22 +1,22 @@
 +++
-title = "Chapter 337: [Incest] Creating a Close Family 337 (Se-young, Soa [Explicit])"
+title = "Chapter 337: [Incest] Creating a Close Family 337 (Se-young, Su-a [Explicit])"
 weight = 337
 [extra]
 chapter = 337
 +++
-<p>Shiwoo's penis, its stiffness gradually receding, remained deeply embedded in Soa's vagina hole.</p>
+<p>Shiwoo's penis, its stiffness gradually receding, remained deeply embedded in Sua's vagina hole.</p>
 
 <p>He took a moment to catch his breath, savoring the languid afterglow of sex, and Shiwoo moved his pelvis, wriggling his engorged member within the embrace of her vaginal walls.</p>
 
-<p>With his semi-hard penis, Shiwoo gently stroked and rubbed against Soa's moist vaginal walls.</p>
+<p>With his semi-hard penis, Shiwoo gently stroked and rubbed against Sua's moist vaginal walls.</p>
 
 <p>"Haa...haa....aah..."</p>
 
-<p>Soa, as if drained of all energy, leaned against Shiwoo, moaning in response to his penis moving inside her vagina.</p>
+<p>Sua, as if drained of all energy, leaned against Shiwoo, moaning in response to his penis moving inside her vagina.</p>
 
 <p>No matter how much she thought about it, she couldn't believe this situation was real.</p>
 
-<p>The sex with Soa while riding the contraption suspended from the department store ceiling...</p>
+<p>The sex with Sua while riding the contraption suspended from the department store ceiling...</p>
 
 <p>And Seyoung's lewd acts, which exceeded Shiwoo's expectations...</p>
 
@@ -24,13 +24,13 @@ chapter = 337
 
 <p>Shiwoo had boarded the contraption to have sex while avoiding the gaze of others.</p>
 
-<p>He had anticipated and mentally prepared for the sex with Soa, of course.</p>
+<p>He had anticipated and mentally prepared for the sex with Sua, of course.</p>
 
-<p>Enduring the awkwardness they felt as blood relatives, Shiwoo had thrust his penis into Soa's hole.</p>
+<p>Enduring the awkwardness they felt as blood relatives, Shiwoo had thrust his penis into Sua's hole.</p>
 
-<p>Shiwoo had ejaculated inside Soa's vagina twice, intending to get her pregnant.</p>
+<p>Shiwoo had ejaculated inside Sua's vagina twice, intending to get her pregnant.</p>
 
-<p>After the second ejaculation, Shiwoo immediately withdrew his penis from Soa's vagina hole and splattered his semen on Seyoung's face and into her mouth.</p>
+<p>After the second ejaculation, Shiwoo immediately withdrew his penis from Sua's vagina hole and splattered his semen on Seyoung's face and into her mouth.</p>
 
 <p>Seyoung had swallowed all of Shiwoo's semen that had been deposited in her mouth.</p>
 
@@ -40,15 +40,15 @@ chapter = 337
 
 <p>It was a smoothness and warmth similar to that of a vagina hole and anus.</p>
 
-<p>Shiwoo moved his penis, which was buried inside Soa's crevice, slightly up and down, comparing it to the sensation of Seyoung's soft throat membranes.</p>
+<p>Shiwoo moved his penis, which was buried inside Sua's crevice, slightly up and down, comparing it to the sensation of Seyoung's soft throat membranes.</p>
 
 <p>An electrifying sensation, as if his glans were burning, traveled up Shiwoo's spine and spread throughout his body.</p>
 
 <p>Afterward, Seyoung, seeing Shiwoo in agony, pulled his penis from her throat.</p>
 
-<p>And she reinserted Shiwoo's penis, which was still semi-hard after ejaculating, into Soa's crevice.</p>
+<p>And she reinserted Shiwoo's penis, which was still semi-hard after ejaculating, into Sua's crevice.</p>
 
-<p>After wiping the filth from the two cousins' groins with her mouth, Seyoung pulled her head out from under Soa's skirt.</p>
+<p>After wiping the filth from the two cousins' groins with her mouth, Seyoung pulled her head out from under Sua's skirt.</p>
 
 <p>Seyoung wiped her face with a wet wipe and returned to her seat.</p>
 
@@ -70,7 +70,7 @@ chapter = 337
 
 <p>Inside the contraption, the buzzing of the vibrator, the fading heat, and the faint odor lingered.</p>
 
-<p>Shiwoo glanced at Seyoung's face over Soa's shoulder.</p>
+<p>Shiwoo glanced at Seyoung's face over Sua's shoulder.</p>
 
 <p>Seyoung's expression was serene, as if she had erased the events that had just transpired from her mind.</p>
 
@@ -102,25 +102,25 @@ chapter = 337
 
 <p>"Huum...eut...haaee..."</p>
 
-<p>A distressed sound escaped Soa's lips, as if she were suppressing a moan.</p>
+<p>A distressed sound escaped Sua's lips, as if she were suppressing a moan.</p>
 
 <p>Relief and a sense of stability washed over Shiwoo upon hearing Seyoung's moans.</p>
 
-<p>As stability returned, Shiwoo's penis, which was inside Soa's vagina hole, tensed up.</p>
+<p>As stability returned, Shiwoo's penis, which was inside Sua's vagina hole, tensed up.</p>
 
 <p>"Eueut."</p>
 
-<p>Soa moaned, twitching her thighs in a chain reaction.</p>
+<p>Sua moaned, twitching her thighs in a chain reaction.</p>
 
-<p>When he lowered his head, Soa's cleavage was alluringly revealed, slightly obscured by the fluttering fabric of her dress.</p>
+<p>When he lowered his head, Sua's cleavage was alluringly revealed, slightly obscured by the fluttering fabric of her dress.</p>
 
-<p>Shiwoo reached into Seyoung's armpit area of her camisole dress and placed his hand on Soa's breast.</p>
+<p>Shiwoo reached into Seyoung's armpit area of her camisole dress and placed his hand on Sua's breast.</p>
 
-<p>Shiwoo's hand grasped Soa's bare breast flesh, which was uncovered.</p>
+<p>Shiwoo's hand grasped Sua's bare breast flesh, which was uncovered.</p>
 
 <p>"It'll be there soon. You'll need to turn on the fan around your neck when you get off."</p>
 
-<p>Shiwoo said to Seyoung, who was trembling from the strong vibrations of the vibrator, while caressing Soa's bare breast flesh with the palm of his hand inside her clothes.</p>
+<p>Shiwoo said to Seyoung, who was trembling from the strong vibrations of the vibrator, while caressing Sua's bare breast flesh with the palm of his hand inside her clothes.</p>
 
 <p>"U...un..."</p>
 
@@ -136,7 +136,7 @@ chapter = 337
 
 <p>In front of his younger sisters, neither Mom nor Seonju Imo-nim were superiors anymore.</p>
 
-<p>Perhaps it was because his own mother's name was being called from Shiwoo's mouth in a disrespectful manner, but Soa's vaginal muscles twitched and tightened for a moment.</p>
+<p>Perhaps it was because his own mother's name was being called from Shiwoo's mouth in a disrespectful manner, but Sua's vaginal muscles twitched and tightened for a moment.</p>
 
 <p>"Haaee...I'll...I'll send it...Shiwoo oppa...n...now..."</p>
 
@@ -146,9 +146,9 @@ chapter = 337
 
 <p>All traces of her previous composure had vanished.</p>
 
-<p>Shiwoo's penis, which was growing inside Soa's body as he watched Seyoung's expression,</p>
+<p>Shiwoo's penis, which was growing inside Sua's body as he watched Seyoung's expression,</p>
 
-<p>Shiwoo's penis grew to the point where it filled Soa's hole, though not as much as during the two ejaculations.</p>
+<p>Shiwoo's penis grew to the point where it filled Sua's hole, though not as much as during the two ejaculations.</p>
 
 <p>-Tti-ring!</p>
 
@@ -158,15 +158,15 @@ chapter = 337
 
 <p>"Haaeeut!"</p>
 
-<p>Soa reflexively arched her back again as Shiwoo's penis grew inside her body.</p>
+<p>Sua reflexively arched her back again as Shiwoo's penis grew inside her body.</p>
 
-<p>The video had arrived, and Shiwoo's penis was completely engorged inside Soa's body, but Shiwoo seemed to have no energy left to move his waist.</p>
+<p>The video had arrived, and Shiwoo's penis was completely engorged inside Sua's body, but Shiwoo seemed to have no energy left to move his waist.</p>
 
-<p>Shiwoo caressed Soa's chest through her clothes, leaning back against the chair as if to recover his strength.</p>
+<p>Shiwoo caressed Sua's chest through her clothes, leaning back against the chair as if to recover his strength.</p>
 
 <p>And Shiwoo gazed at the scenery outside with a relaxed expression, just as Seyoung had done earlier.</p>
 
-<p>The scenery visible from the contraption on the department store ceiling with his fully erect penis buried inside Soa's body...</p>
+<p>The scenery visible from the contraption on the department store ceiling with his fully erect penis buried inside Sua's body...</p>
 
 <p>Shiwoo's heart was at peace, as if he had obtained everything in the world.</p>
 
@@ -182,19 +182,19 @@ chapter = 337
 
 <p>As if settling the karma of a previous life, he slowly raised the vibrator's vibration to the highest level, causing Seyoung to moan even louder.</p>
 
-<p>Shiwoo's penis tightly filled Soa's vagina.</p>
+<p>Shiwoo's penis tightly filled Sua's vagina.</p>
 
 <p>However, there was no movement of his waist or pelvis.</p>
 
 <p>He simply relaxed all the muscles in his body except for his penis and gazed at the scenery with a serene expression.</p>
 
-<p>Soa seemed slightly flustered by the fact that his fully engorged penis was buried inside her vagina hole and was not moving.</p>
+<p>Sua seemed slightly flustered by the fact that his fully engorged penis was buried inside her vagina hole and was not moving.</p>
 
-<p>Soa moved her pelvis back and forth, as if struggling to maintain her balance.</p>
+<p>Sua moved her pelvis back and forth, as if struggling to maintain her balance.</p>
 
-<p>Soa's vaginal walls were rubbing against Shiwoo's penis as she moved her pelvis.</p>
+<p>Sua's vaginal walls were rubbing against Shiwoo's penis as she moved her pelvis.</p>
 
-<p>Soa writhed and moaned again from the pleasure emanating from her crotch.</p>
+<p>Sua writhed and moaned again from the pleasure emanating from her crotch.</p>
 
 <p>A chain reaction of pleasure hell.</p>
 
@@ -204,4 +204,4 @@ chapter = 337
 
 <p>As the contraption was nearing the starting point, Shiwoo used his smartphone to stop the vibrator vibrating in Seyoung's crotch.</p>
 
-<p>He pulled his penis out of Soa's cave, briefly stood Soa in front of him, pulled up his pants, and tidied his clothes.</p>
+<p>He pulled his penis out of Sua's cave, briefly stood Sua in front of him, pulled up his pants, and tidied his clothes.</p>

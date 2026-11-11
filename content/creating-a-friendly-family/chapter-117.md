@@ -78,11 +78,11 @@ chapter = 117
 
 <p>Seonju Imo, while answering as if obeying Shiwoo, was playfully continuing the conversation.</p>
 
-<p>'Yeah You listened well today, so I'll do it for you next time. In front of Soa! Hehehe'</p>
+<p>'Yeah You listened well today, so I'll do it for you next time. In front of Sua! Hehehe'</p>
 
-<p>Shiwoo, accepting Imo's joke, mentioned Soa's name and spoke slyly.</p>
+<p>Shiwoo, accepting Imo's joke, mentioned Sua's name and spoke slyly.</p>
 
-<p>'Kya Really? But thinking about being subjected to that in front of Soa makes me so embarrassed?'</p>
+<p>'Kya Really? But thinking about being subjected to that in front of Sua makes me so embarrassed?'</p>
 
 <p>Seonju Imo, unlike her usual self, was speaking shyly.</p>
 
@@ -90,15 +90,15 @@ chapter = 117
 
 <p>Shiwoo said, deliberately provoking her.</p>
 
-<p>'No Do it Please do it! Soa also needs to know who her new Dad and owner is! Right?'</p>
+<p>'No Do it Please do it! Sua also needs to know who her new Dad and owner is! Right?'</p>
 
 <p>Seonju Imo immediately responded to Shiwoo as if acting cute.</p>
 
-<p>'Yeah I'll cherish Soa and Seonju a lot together later! But I think I need to sleep now, it seems like I overdid it. I'm a bit tired.'</p>
+<p>'Yeah I'll cherish Sua and Seonju a lot together later! But I think I need to sleep now, it seems like I overdid it. I'm a bit tired.'</p>
 
 <p>Shiwoo found it difficult to keep his eyes open any longer due to the overwhelming fatigue.</p>
 
-<p>'Tired? Aigoo Okay You worked hard today Honey! I'll be looking forward to it with Soa next time!'</p>
+<p>'Tired? Aigoo Okay You worked hard today Honey! I'll be looking forward to it with Sua next time!'</p>
 
 <p>Seonju Imo was texting Shiwoo with a feeling as if she was completely subordinate to him.</p>
 

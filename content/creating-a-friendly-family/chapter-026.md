@@ -104,7 +104,7 @@ chapter = 26
 
 <p>Mom, a little drunk, became harsh in her tone.</p>
 
-<p>"What fun is it to get a massage from Soa? It's nice to feel a man's touch once in a while at times like this, hehe, right Shiwoo?!!"</p>
+<p>"What fun is it to get a massage from Sua? It's nice to feel a man's touch once in a while at times like this, hehe, right Shiwoo?!!"</p>
 
 <p>Imo, also drunk, made an ajumma-like joke and approached the living room sofa where Shiwoo was.</p>
 

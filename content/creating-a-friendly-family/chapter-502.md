@@ -52,7 +52,7 @@ chapter = 502
 
 <p>Then, he raises his smartphone over Seyoung's shoulder and checks the messages in the group chat that just arrived.</p>
 
-<p>A group chat with Mom, Seonju Imo, Sehee Nuna, Soa, and Seyoung.</p>
+<p>A group chat with Mom, Seonju Imo, Sehee Nuna, Sua, and Seyoung.</p>
 
 <p>The number next to the text and photo uploaded to the chat room had decreased to 1 before he knew it.</p>
 
@@ -62,7 +62,7 @@ chapter = 502
 
 <p>Shiwoo uses his finger to scroll down the screen, checking each message one by one, starting from the first message that arrived.</p>
 
-<p>At the top of the group chat room, texts from Seonju Imo and Soa have arrived in succession.</p>
+<p>At the top of the group chat room, texts from Seonju Imo and Sua have arrived in succession.</p>
 
 <p>Seonju Imo's texts, filled with congratulatory messages and teasing Mom, were filling the screen.</p>
 
@@ -74,7 +74,7 @@ chapter = 502
 
 <p>After reading all the texts that Seonju Imo sent to Mom and scrolling down the chat screen, lewd photos followed.</p>
 
-<p>Nude photos of Seonju Imo herself and Soa were uploaded to the chat room.</p>
+<p>Nude photos of Seonju Imo herself and Sua were uploaded to the chat room.</p>
 
 <p>Photos of the two mothers and daughters, as if they had taken each other's secret appearances.</p>
 
@@ -82,7 +82,7 @@ chapter = 502
 
 <p>The very time when he told the enslaved family members to take off their clothes, take nude photos, and report them every day before going to bed.</p>
 
-<p>Seonju Imo and Soa each had the dog collar that Shiwoo had bought for them around their necks.</p>
+<p>Seonju Imo and Sua each had the dog collar that Shiwoo had bought for them around their necks.</p>
 
 <p>Below the collar, the alluring curves of their bodies, luscious flesh, and glossy skin are revealed.</p>
 
@@ -90,7 +90,7 @@ chapter = 502
 
 <p>Below that, Sehee Nuna's photo also arrived immediately after.</p>
 
-<p>Perhaps after seeing the photos of Seonju Imo and Soa, Sehee Nuna immediately took her own nude photo and uploaded it right after.</p>
+<p>Perhaps after seeing the photos of Seonju Imo and Sua, Sehee Nuna immediately took her own nude photo and uploaded it right after.</p>
 
 <p>Sehee Nuna is lying down with her back against the head of the bed in Shiwoo's room.</p>
 

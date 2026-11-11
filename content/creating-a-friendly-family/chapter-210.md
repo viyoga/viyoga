@@ -14,7 +14,7 @@ chapter = 210
 
 <p>It seemed Mom, Seyoung, and other guests were also at home.</p>
 
-<p>It was probably Seonju Imo and Soa.</p>
+<p>It was probably Seonju Imo and Sua.</p>
 
 <p>Shiwoo had been expecting a serious three-way conversation between himself, Sehee Nuna, and Mom.</p>
 
@@ -54,7 +54,7 @@ chapter = 210
 
 <p>"Oppa's here? Hehehe"</p>
 
-<p>Seyoung, who was playing in front of the living room TV with Soa, also greeted Shiwoo warmly.</p>
+<p>Seyoung, who was playing in front of the living room TV with Sua, also greeted Shiwoo warmly.</p>
 
 <p>Perhaps because Mom was there, Seyoung didn't run to Shiwoo and hug him as before.</p>
 
@@ -62,7 +62,7 @@ chapter = 210
 
 <p>"Sh-Shiwoo Oppa Sehee Unnie Hello!?"</p>
 
-<p>Soa, who was playing next to Seyoung, also greeted Shiwoo and Sehee Nuna shyly.</p>
+<p>Sua, who was playing next to Seyoung, also greeted Shiwoo and Sehee Nuna shyly.</p>
 
 <p>"But Shiwoo, what's wrong with your face? Did you get into a fight with someone?"</p>
 
@@ -136,7 +136,7 @@ chapter = 210
 
 <p>Then she went to the dressing table, opened a drawer, and took out a household first-aid kit containing disinfectant, bandages, and ointment.</p>
 
-<p>Through the half-open door, the faint sounds of Sehee Nuna and Seonju Imo's conversation in the kitchen, and Seyoung and Soa's voices in the living room, could be heard.</p>
+<p>Through the half-open door, the faint sounds of Sehee Nuna and Seonju Imo's conversation in the kitchen, and Seyoung and Sua's voices in the living room, could be heard.</p>
 
 <p>"Why weren't you more careful? Did you get into a fight? What happened"</p>
 

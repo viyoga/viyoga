@@ -48,7 +48,7 @@ chapter = 694
 
 <p>Sejin Nuna replied without any further protest.</p>
 
-<p>Thinking about it, Shiwoo's entire family—including Aunt Seonju and Soa—were currently naked in their respective places, either soothing or unleashing their pleasure and desires.</p>
+<p>Thinking about it, Shiwoo's entire family—including Aunt Seonju and Sua—were currently naked in their respective places, either soothing or unleashing their pleasure and desires.</p>
 
 <p>Mom would be in her room, naked and getting ready to come out, while Sehee Nuna and Seyoung were currently on their knees, licking his penis.</p>
 

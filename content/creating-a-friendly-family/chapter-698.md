@@ -8,7 +8,7 @@ chapter = 698
 
 <p>"Ha-ang, ha-aaa... Master ha-ang, ha-eung... Master... Ha-at, ha-eut, ha-aaaa-at!"</p>
 
-<p>Mom acted as if she was no longer conscious of the fact that her daughters were watching her have sex... And as if she had completely forgotten the fact that Aunt Seonju and Soa were asleep in Sejin Nuna's room... She was screaming out unrestrained, obscene moaning sounds. Strangely, contrary to the arousal rising within Shiwoo and the violently vibrating pleasure, the resonance of the peak spreading through the penis buried inside Mom's vagina hole was subsiding quietly, like a receding wave.</p>
+<p>Mom acted as if she was no longer conscious of the fact that her daughters were watching her have sex... And as if she had completely forgotten the fact that Aunt Seonju and Sua were asleep in Sejin Nuna's room... She was screaming out unrestrained, obscene moaning sounds. Strangely, contrary to the arousal rising within Shiwoo and the violently vibrating pleasure, the resonance of the peak spreading through the penis buried inside Mom's vagina hole was subsiding quietly, like a receding wave.</p>
 
 <p class="scene-break">· · ·</p>
 

@@ -148,7 +148,7 @@ chapter = 499
 
 <p>A loud notification sound, indicating a new message, rang from Mom's smartphone.</p>
 
-<p>The obscene act that Mom and Seyoung were performing together was now being shown to Seonju Imo, Sehee Nuna, and Soa.</p>
+<p>The obscene act that Mom and Seyoung were performing together was now being shown to Seonju Imo, Sehee Nuna, and Sua.</p>
 
 <p>Shiwoo returned his smartphone to standby mode and tossed it onto the bed.</p>
 

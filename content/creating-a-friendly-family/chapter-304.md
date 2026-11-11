@@ -1,10 +1,10 @@
 +++
-title = "Chapter 304: [Incest] Creating a Close Family 304 (Sun-ju, Se-young, Soa)"
+title = "Chapter 304: [Incest] Creating a Close Family 304 (Sun-ju, Se-young, Su-a)"
 weight = 304
 [extra]
 chapter = 304
 +++
-<p>Seonju Imo releases her arms from hugging Soa and Seyoung, and approaches as if to hug Shiwoo this time.</p>
+<p>Seonju Imo releases her arms from hugging Sua and Seyoung, and approaches as if to hug Shiwoo this time.</p>
 
 <p>,Shiwoo too Have fun and be careful!,</p>
 
@@ -30,7 +30,7 @@ chapter = 304
 
 <p>Seonju Imo didn't seem to care at all that Shiwoo's penis was touching her body.</p>
 
-<p>Or rather, it seems that she doesn't care now about showing Seyoung and Soa the scene of her hugging Shiwoo in a massively erect state.</p>
+<p>Or rather, it seems that she doesn't care now about showing Seyoung and Sua the scene of her hugging Shiwoo in a massively erect state.</p>
 
 <p>Perhaps, even more than Shiwoo thought, these things may have become familiar in the relationship between Seonju Imo and his younger sisters.</p>
 
@@ -74,7 +74,7 @@ chapter = 304
 
 <p>For a while in front of his younger sisters, the hug with Seonju Imo continues like a caress.</p>
 
-<p>The hug is getting longer, but Seyoung and Soa couldn't say a word of complaint.</p>
+<p>The hug is getting longer, but Seyoung and Sua couldn't say a word of complaint.</p>
 
 <p>Or rather, while watching the two people's sexual act out of the corner of their eyes, with their faces flushed, aren't they stimulating their excitement?</p>
 
@@ -120,7 +120,7 @@ chapter = 304
 
 <p>Seonju Imo takes a deep breath and calms her quickened breathing, and then brings her lips to Shiwoo's ear.</p>
 
-<p>,You can violate Soa as much as you want all day long, Master,</p>
+<p>,You can violate Sua as much as you want all day long, Master,</p>
 
 <p>Seonju Imo says, whispering as if tickling Shiwoo's ear.</p>
 
@@ -130,7 +130,7 @@ chapter = 304
 
 <p>Shiwoo's thing reacts much faster than the flow of thoughts in his disorganized mind.</p>
 
-<p>,I charged the vibrator I received from Master and attached it to Soa's clitoris It seems to last for two hours, so you can turn it on whenever you feel like it, Master,</p>
+<p>,I charged the vibrator I received from Master and attached it to Sua's clitoris It seems to last for two hours, so you can turn it on whenever you feel like it, Master,</p>
 
 <p>Seonju Imo continues to convey lewd words to Shiwoo's ear.</p>
 
@@ -150,13 +150,13 @@ chapter = 304
 
 <p>,Ah, and when you turn on the vibrator, I also prepared a fan to turn on together. Because people might look strangely at the vibrator's vibration sound.,</p>
 
-<p>While her body is trembling, Seonju Imo finally explains in detail the identity of the mini fan hanging around Soa's neck, as if trying to resolve the doubts Shiwoo had.</p>
+<p>While her body is trembling, Seonju Imo finally explains in detail the identity of the mini fan hanging around Sua's neck, as if trying to resolve the doubts Shiwoo had.</p>
 
 <p>Shiwoo's mind was going blank again.</p>
 
-<p>When he shifts his gaze to the fan hanging around Soa's neck, Soa avoids his eyes and twists her body as if embarrassed.</p>
+<p>When he shifts his gaze to the fan hanging around Sua's neck, Sua avoids his eyes and twists her body as if embarrassed.</p>
 
-<p>,Ah Soa will take care of that, so Master doesn't have to worry about it! Master, just enjoy my daughter!,</p>
+<p>,Ah Sua will take care of that, so Master doesn't have to worry about it! Master, just enjoy my daughter!,</p>
 
 <p>Just as Seonju Imo's words, which had been flowing confusedly in his head, were being organized, Seonju Imo said that to Shiwoo as if she had just remembered it.</p>
 
@@ -172,7 +172,7 @@ chapter = 304
 
 <p>Shiwoo says urgently to his younger sisters with a rough breath, as if he is finally about to explode his excitement.</p>
 
-<p>The honorifics for Seonju Imo were omitted and called as if he was treating her casually in front of Seyoung and Soa.</p>
+<p>The honorifics for Seonju Imo were omitted and called as if he was treating her casually in front of Seyoung and Sua.</p>
 
 <p>His younger sisters were pressed by Shiwoo's momentum full of lust and were embarrassed, unable to answer properly, and turned their gazes to the other side as if avoiding him.</p>
 

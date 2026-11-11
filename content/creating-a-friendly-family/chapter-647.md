@@ -1,5 +1,5 @@
 +++
-title = "Chapter 647: [Incest] Making a Friendly Family 647 (Se-young, Sex, Soa, Sex) (Cafe)"
+title = "Chapter 647: [Incest] Making a Friendly Family 647 (Se-young, Sex, Su-ah, Sex) (Cafe)"
 weight = 647
 [extra]
 chapter = 647
@@ -62,43 +62,43 @@ chapter = 647
 
 <p>Making eye contact with Siwoo, Seyeong pointed her index finger at her lips and the dripping stream of semen as if to show him.</p>
 
-<p>Seyeong abruptly looked over at Soa, who was sitting across from them, then stood up and approached her.</p>
+<p>Seyeong abruptly looked over at Sua, who was sitting across from them, then stood up and approached her.</p>
 
-<p>Soa looked up at Seyeong with a flushed face and moist, unfocused eyes, as if she already knew what Seyeong was about to do to her.</p>
+<p>Sua looked up at Seyeong with a flushed face and moist, unfocused eyes, as if she already knew what Seyeong was about to do to her.</p>
 
-<p>Seyeong sat next to Soa and looked down at her.</p>
+<p>Seyeong sat next to Sua and looked down at her.</p>
 
-<p>Then, she thrust her chin forward as if demanding something from Soa...</p>
+<p>Then, she thrust her chin forward as if demanding something from Sua...</p>
 
-<p>Soa glanced at Siwoo and the surroundings before sticking out her tongue and licking up the stream of semen dripping from Seyeong's chin.</p>
+<p>Sua glanced at Siwoo and the surroundings before sticking out her tongue and licking up the stream of semen dripping from Seyeong's chin.</p>
 
-<p>Like a puppy obeying its master, Soa licked Seyeong's face clean as if she were tidying up...</p>
+<p>Like a puppy obeying its master, Sua licked Seyeong's face clean as if she were tidying up...</p>
 
-<p>Seyeong pulled her face back and placed her hand on Soa's chin with a satisfied expression.</p>
+<p>Seyeong pulled her face back and placed her hand on Sua's chin with a satisfied expression.</p>
 
-<p>After tilting Soa's head back slightly, Seyeong leaned forward and slowly brought her lips to Soa's.</p>
+<p>After tilting Sua's head back slightly, Seyeong leaned forward and slowly brought her lips to Sua's.</p>
 
-<p>Soa opened her mouth with her eyes half-closed as if to welcome Seyeong's lips.</p>
+<p>Sua opened her mouth with her eyes half-closed as if to welcome Seyeong's lips.</p>
 
-<p>Soon, their lips overlapped, and the semen in Seyeong's mouth was transferred to Soa's lips.</p>
+<p>Soon, their lips overlapped, and the semen in Seyeong's mouth was transferred to Sua's lips.</p>
 
-<p>Soa was accepting all of Siwoo's semen from Seyeong's mouth.</p>
+<p>Sua was accepting all of Siwoo's semen from Seyeong's mouth.</p>
 
-<p>The hand Seyeong had on Soa's chin naturally moved down to cover Soa's breast.</p>
+<p>The hand Seyeong had on Sua's chin naturally moved down to cover Sua's breast.</p>
 
-<p>As if to show off to Siwoo, Seyeong firmly grasped Soa's breast and began to knead it.</p>
+<p>As if to show off to Siwoo, Seyeong firmly grasped Sua's breast and began to knead it.</p>
 
 <p>"Aum! Am... haum..."</p>
 
-<p>As Seyeong gripped her breast tightly, rough breathing leaked from Soa's mouth.</p>
+<p>As Seyeong gripped her breast tightly, rough breathing leaked from Sua's mouth.</p>
 
-<p>The semen she couldn't fully contain trickled down around Soa's lips.</p>
+<p>The semen she couldn't fully contain trickled down around Sua's lips.</p>
 
-<p>Seyeong pulled her lips away for a moment and, just as Soa had done for her, stuck out her tongue to lick up the semen that had dripped down below Soa's chin.</p>
+<p>Seyeong pulled her lips away for a moment and, just as Sua had done for her, stuck out her tongue to lick up the semen that had dripped down below Sua's chin.</p>
 
-<p>Seyeong pushed the remaining licked-up semen into Soa's mouth...</p>
+<p>Seyeong pushed the remaining licked-up semen into Sua's mouth...</p>
 
-<p>Then she pressed her lips against Soa's once more and continued the kiss.</p>
+<p>Then she pressed her lips against Sua's once more and continued the kiss.</p>
 
 <p>"Chu-up! Chu-ap chyu-uu-up!"</p>
 
@@ -106,29 +106,29 @@ chapter = 647
 
 <p>"Gulp, gulp, gulp!"</p>
 
-<p>Soa swallowed the semen that had been in her mouth.</p>
+<p>Sua swallowed the semen that had been in her mouth.</p>
 
-<p>The lower part of Soa's tilted throat rippled gently, and her skin shivered as if a tremor were being transmitted through a thin membrane.</p>
+<p>The lower part of Sua's tilted throat rippled gently, and her skin shivered as if a tremor were being transmitted through a thin membrane.</p>
 
-<p>Siwoo watched them with his nerves on edge, anxious that the sounds and smells being produced by Seyeong and Soa might spread to the people around them.</p>
+<p>Siwoo watched them with his nerves on edge, anxious that the sounds and smells being produced by Seyeong and Sua might spread to the people around them.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>A moment later, Seyeong's lips pulled away from Soa's.</p>
+<p>A moment later, Seyeong's lips pulled away from Sua's.</p>
 
 <p>Seyeong looked back at Siwoo with a triumphant expression.</p>
 
 <p>Licking her wet lips with her protruding tongue, Seyeong gave a bright smile as if to say it was finished.</p>
 
-<p>Soa looked exhausted, panting for breath and lingering in the afterglow with a small tremor.</p>
+<p>Sua looked exhausted, panting for breath and lingering in the afterglow with a small tremor.</p>
 
-<p>Seyeong wiped the area around Soa's lips with a napkin and returned to her seat next to Siwoo, leaving her behind.</p>
+<p>Seyeong wiped the area around Sua's lips with a napkin and returned to her seat next to Siwoo, leaving her behind.</p>
 
-<p>Making her perform fellatio under the blanket was one thing, but Seyeong's behavior—kissing Soa immediately after with semen still in her mouth—was something else entirely.</p>
+<p>Making her perform fellatio under the blanket was one thing, but Seyeong's behavior—kissing Sua immediately after with semen still in her mouth—was something else entirely.</p>
 
 <p>In the lingering afterglow of the subsiding excitement, Siwoo blinked his eyes, not knowing what to do with the mixture of bewilderment and thrill he felt.</p>
 
-<p>Fortunately, the people in the cafe didn't seem to notice Seyeong and Soa's actions beyond the bookshelf that acted as a partition.</p>
+<p>Fortunately, the people in the cafe didn't seem to notice Seyeong and Sua's actions beyond the bookshelf that acted as a partition.</p>
 
 <p>Along with the relief, the afterglow of a strange excitement seemed to tickle every corner of Siwoo's body.</p>
 
@@ -136,7 +136,7 @@ chapter = 647
 
 <p>She put the large scoop of ice cream in her mouth, puffed out her cheeks, and melted it as if rinsing her mouth...</p>
 
-<p>After a moment, Soa also picked up her spoon and began to eat ice cream, following Seyeong's lead.</p>
+<p>After a moment, Sua also picked up her spoon and began to eat ice cream, following Seyeong's lead.</p>
 
 <p>Seeing the two of them act as if nothing had happened, Siwoo felt an awkward flutter and a strange tension.</p>
 

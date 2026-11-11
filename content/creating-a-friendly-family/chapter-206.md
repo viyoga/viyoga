@@ -112,7 +112,7 @@ chapter = 206
 
 <p>What was Seonju Imo thinking that day when she did that?</p>
 
-<p>Imo herself had had sexual relations with Dad and given birth to Soa...</p>
+<p>Imo herself had had sexual relations with Dad and given birth to Sua...</p>
 
 <p>Could Seonju Imo be regretting the past events?</p>
 
@@ -150,7 +150,7 @@ chapter = 206
 
 <p>And he brought to mind, one by one, the faces of his family and close acquaintances.</p>
 
-<p>Mom, Sejin Nuna, Sehee Nuna, youngest Seyoung, Seonju Imo and cousin sister Soa...</p>
+<p>Mom, Sejin Nuna, Sehee Nuna, youngest Seyoung, Seonju Imo and cousin sister Sua...</p>
 
 <p>Mom's friend, Gyuri Ajumma...</p>
 

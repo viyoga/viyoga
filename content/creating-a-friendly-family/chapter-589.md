@@ -1,5 +1,5 @@
 +++
-title = "Chapter 589: [Incest] Making a Friendly Family 589 (Gyuri, Mom, Sun-ju, Se-hee, Se-young, Soa) (Way Home) (New Family)"
+title = "Chapter 589: [Incest] Making a Friendly Family 589 (Gyuri, Mom, Sun-ju, Se-hee, Se-young, Su-ah) (Way Home) (New Family)"
 weight = 589
 [extra]
 chapter = 589
@@ -116,7 +116,7 @@ chapter = 589
 
 <p>After writing the message, Shiwoo presses the back button to exit the chat window with Gyuri Ajumma.</p>
 
-<p>Then, he opened the family group chat room where all the family members, including Seonju Imo and Soa, were gathered.</p>
+<p>Then, he opened the family group chat room where all the family members, including Seonju Imo and Sua, were gathered.</p>
 
 <p>Shiwoo invites Gyuri Ajumma, who was just having a separate conversation in the 1:1 chat room, to the group room.</p>
 
@@ -176,9 +176,9 @@ chapter = 589
 
 <p>Mom's sigh seemed to be mixed with lamentation for her own situation.</p>
 
-<p>[Okay! Seyoung and Soa should also say hello to Gyuri Ajumma! ]</p>
+<p>[Okay! Seyoung and Sua should also say hello to Gyuri Ajumma! ]</p>
 
-<p>Shiwoo then speaks to Seyoung and Soa.</p>
+<p>Shiwoo then speaks to Seyoung and Sua.</p>
 
 <p>[Please take care of me, Gyuri Ajumma Hehe I was wondering when you were coming in Our cute Gyuri]</p>
 
@@ -188,7 +188,7 @@ chapter = 589
 
 <p>[Hello... Gyuri Ajumma...]</p>
 
-<p>Soa shyly greets Gyuri Ajumma, following Seyoung...</p>
+<p>Sua shyly greets Gyuri Ajumma, following Seyoung...</p>
 
 <p>[Sehee is watching too, right? Sehee, you should also say hello to Gyuri Ajumma]</p>
 

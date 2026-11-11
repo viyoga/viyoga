@@ -50,13 +50,13 @@ chapter = 184
 
 <p>Several messages had arrived for Seonju Imo as well.</p>
 
-<p>The chat room where Seonju Imo and Soa were together.</p>
+<p>The chat room where Seonju Imo and Sua were together.</p>
 
 <p>Seonju Imo's nude photo, taken completely naked, was uploaded.</p>
 
-<p>And Soa and Seyoung, clinging and sucking on Seonju Imo's nipples from both sides of her breasts.</p>
+<p>And Sua and Seyoung, clinging and sucking on Seonju Imo's nipples from both sides of her breasts.</p>
 
-<p>Soa and Seyoung were sucking on Seonju Imo's breasts, not asleep, with their eyes wide open.</p>
+<p>Sua and Seyoung were sucking on Seonju Imo's breasts, not asleep, with their eyes wide open.</p>
 
 <p>A decadent arousal, contrasting with his younger sisters' innocent expressions, surged over Shiwoo.</p>
 
@@ -70,9 +70,9 @@ chapter = 184
 
 <p>Shiwoo sent the penis photo he had just taken to Mom.</p>
 
-<p>Immediately, he uploaded that photo to the chat room where Seonju Imo and Soa were together as well.</p>
+<p>Immediately, he uploaded that photo to the chat room where Seonju Imo and Sua were together as well.</p>
 
-<p>Shiwoo had sent a photo of his genitals to Mom, Seonju Imo, and Soa, as if signaling his reaction to Mom's and Seonju Imo's photos.</p>
+<p>Shiwoo had sent a photo of his genitals to Mom, Seonju Imo, and Sua, as if signaling his reaction to Mom's and Seonju Imo's photos.</p>
 
 <p>Shiwoo's actions continued without hesitation, as if handling a fixed daily routine.</p>
 
@@ -114,7 +114,7 @@ chapter = 184
 
 <p>Somehow, all the objects in the room felt unfamiliar to Shiwoo.</p>
 
-<p>Glancing at the desk, he saw the perfume he had received as a gift from Seyoung and Soa yesterday.</p>
+<p>Glancing at the desk, he saw the perfume he had received as a gift from Seyoung and Sua yesterday.</p>
 
 <p>Approaching the desk, Shiwoo picked up the heart-shaped glass bottle of perfume containing pink liquid and lightly sprayed it on his body.</p>
 
@@ -228,7 +228,7 @@ chapter = 184
 
 <p>Shiwoo recalled Seyoung's words that he should spray it once every three hours.</p>
 
-<p>The heart-shaped perfume, made by Seyoung and Soa, with an impressively sharp fragrance.</p>
+<p>The heart-shaped perfume, made by Seyoung and Sua, with an impressively sharp fragrance.</p>
 
 <p>Shiwoo put that heart-shaped perfume bottle in the outer pocket of the navy suit jacket hanging on the hanger.</p>
 

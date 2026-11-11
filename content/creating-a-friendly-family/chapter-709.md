@@ -128,7 +128,7 @@ chapter = 709
 
 <p>Shiwoo asked Seyoung, just in case.</p>
 
-<p>"Ah! No she's wearing clothes! There's what we talked about yesterday... and Aunt Seonju and Soa are still in the house too."</p>
+<p>"Ah! No she's wearing clothes! There's what we talked about yesterday... and Aunt Seonju and Sua are still in the house too."</p>
 
 <p>Seyoung answered with an expression that suggested she finally understood what Shiwoo was asking regarding Mom.</p>
 
@@ -136,7 +136,7 @@ chapter = 709
 
 <p>The policy where they would maintain a clear master-servant relationship at night, following the system and order of domination, but return to a normal family relationship in the morning...</p>
 
-<p>Furthermore, she slyly mentioned Aunt Seonju and Soa, with whom they had shared sex, clearly explaining the current situation and her intentions.</p>
+<p>Furthermore, she slyly mentioned Aunt Seonju and Sua, with whom they had shared sex, clearly explaining the current situation and her intentions.</p>
 
 <p>Seyoung intended to continue her act of deception, pretending to follow the policy of returning to being a family in the morning.</p>
 

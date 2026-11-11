@@ -122,11 +122,11 @@ chapter = 445
 
 <p>A spine-chilling sensation of friction that makes the back of his ears tingle.</p>
 
-<p>He suddenly recalls the scene where Soa applied ice cream to her genitals and had the dog lick it.</p>
+<p>He suddenly recalls the scene where Sua applied ice cream to her genitals and had the dog lick it.</p>
 
 <p>Of course, it was ice cream made for dogs to eat.</p>
 
-<p>A scene from the video Soa sent him, directly filming her reflection in the shower room window.</p>
+<p>A scene from the video Sua sent him, directly filming her reflection in the shower room window.</p>
 
 <p>A fresh sensation, different from a person licking, runs through Shiwoo's hand, arm, and shoulder, tickling the back of his neck.</p>
 
@@ -134,7 +134,7 @@ chapter = 445
 
 <p>Could he really endure having his penis sucked like that?</p>
 
-<p>Shiwoo is newly impressed by Soa, who endured having her genitals in front of the dog's tongue.</p>
+<p>Shiwoo is newly impressed by Sua, who endured having her genitals in front of the dog's tongue.</p>
 
 <p>How long could Mom endure it?</p>
 

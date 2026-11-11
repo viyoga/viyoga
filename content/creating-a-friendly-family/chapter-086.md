@@ -98,15 +98,15 @@ chapter = 86
 
 <p>Now, impatient, lewd moans of a wanton woman were leaking from Seonju Imo's lips.</p>
 
-<p>"I went to pick up Soa and Seyoung during the day!"</p>
+<p>"I went to pick up Sua and Seyoung during the day!"</p>
 
 <p>Shiwoo's obscene talk began again.</p>
 
 <p>"Heueuk!!!"</p>
 
-<p>As Soa's name came from Shiwoo's lips, Seonju Imo tensed up, shrinking her body.</p>
+<p>As Sua's name came from Shiwoo's lips, Seonju Imo tensed up, shrinking her body.</p>
 
-<p>"On the way to the academy, Soa walked with her arm linked through mine, you know? Her breast brushed my arm, but she pretended not to notice!? I was going crazy trying to hold back my cock from getting hard then, huh!? A lewd mother and a lewd daughter, aren't you!? Right?"</p>
+<p>"On the way to the academy, Sua walked with her arm linked through mine, you know? Her breast brushed my arm, but she pretended not to notice!? I was going crazy trying to hold back my cock from getting hard then, huh!? A lewd mother and a lewd daughter, aren't you!? Right?"</p>
 
 <p>Shiwoo kept moving his hips, bringing his lips close to Seonju Imo's ear to speak, making sure the sensation was stimulating.</p>
 
@@ -114,13 +114,13 @@ chapter = 86
 
 <p>Seonju Imo, as if guessing what Shiwoo's next line would be, sobbed pitifully and buried her head deep in her crossed arms.</p>
 
-<p>"Soa has grown a lot, hasn't she? Can I fuck your daughter Soa?!"</p>
+<p>"Sua has grown a lot, hasn't she? Can I fuck your daughter Sua?!"</p>
 
 <p>Shiwoo thrust his penis deep, asking, immersed as if looking down on Seonju Imo.</p>
 
-<p>"Can I ram my cock into Soa's pussy just like I'm doing to you now, Seonju?!"</p>
+<p>"Can I ram my cock into Sua's pussy just like I'm doing to you now, Seonju?!"</p>
 
-<p>Shiwoo himself was confused whether the words he just uttered were merely an act to stimulate Seonju Imo, or if they were a genuine expression of his desire to fuck Soa. It seemed the same for Seonju Imo. Even if it was obscene talk meant for sexual stimulation, having her own young daughter used as a subject seemed to create resistance.</p>
+<p>Shiwoo himself was confused whether the words he just uttered were merely an act to stimulate Seonju Imo, or if they were a genuine expression of his desire to fuck Sua. It seemed the same for Seonju Imo. Even if it was obscene talk meant for sexual stimulation, having her own young daughter used as a subject seemed to create resistance.</p>
 
 <p>"Eueueu...eue"</p>
 

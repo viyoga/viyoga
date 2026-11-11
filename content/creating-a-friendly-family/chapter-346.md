@@ -1,5 +1,5 @@
 +++
-title = "Chapter 346: [Incest] Creating a Close Family 346 (Se-young, Soa [Explicit])"
+title = "Chapter 346: [Incest] Creating a Close Family 346 (Se-young, Su-a [Explicit])"
 weight = 346
 [extra]
 chapter = 346
@@ -16,7 +16,7 @@ chapter = 346
 
 <p>Only the light coming from the driver's and passenger seats, and the light seeping in through the gaps in the closed curtains, remained dimly inside the vehicle.</p>
 
-<p>Then, Shiwoo sat in the middle seat in the very back of the vehicle, with Seyoung and Soa on either side of him.</p>
+<p>Then, Shiwoo sat in the middle seat in the very back of the vehicle, with Seyoung and Sua on either side of him.</p>
 
 <p>Shiwoo unfolded the auxiliary seat in the front and placed the shopping bag containing Mom's swimsuit and pet supplies on it.</p>
 
@@ -28,9 +28,9 @@ chapter = 346
 
 <p>Seyoung, peeking out the window through the slightly opened curtains, pretended not to notice Shiwoo's actions.</p>
 
-<p>Soa, hiding her expression in the darkness, squeezed her eyes shut and hunched her body tightly.</p>
+<p>Sua, hiding her expression in the darkness, squeezed her eyes shut and hunched her body tightly.</p>
 
-<p>Soa and Seyoung suppressed moaning sounds, accepting Shiwoo's molestation in their own ways.</p>
+<p>Sua and Seyoung suppressed moaning sounds, accepting Shiwoo's molestation in their own ways.</p>
 
 <p>Shiwoo felt quite pleased with the increasingly familiar and bold lewd acts with his sisters.</p>
 
@@ -56,7 +56,7 @@ chapter = 346
 
 <p>Without stopping, Shiwoo grabbed the skirts of his sisters' dresses around their buttocks and pelvis, bunched them up in his hands, and pulled them up to their waists as if folding them.</p>
 
-<p>Soa and Seyoung's dresses lost their original function as clothing and hung around their waists like ornaments, completely exposing their breasts and crotch areas.</p>
+<p>Sua and Seyoung's dresses lost their original function as clothing and hung around their waists like ornaments, completely exposing their breasts and crotch areas.</p>
 
 <p>Following the haunted house, the sisters were now sitting in the vehicle in a semi-nude state once again.</p>
 
@@ -88,55 +88,55 @@ chapter = 346
 
 <p class="scene-break">· · ·</p>
 
-<p>With his sisters' private parts and his own genitals exposed in that way, Shiwoo turned his body towards Soa.</p>
+<p>With his sisters' private parts and his own genitals exposed in that way, Shiwoo turned his body towards Sua.</p>
 
-<p>Soa's lusciously swelling breasts and her red, swollen crotch were visible to Shiwoo at a glance.</p>
+<p>Sua's lusciously swelling breasts and her red, swollen crotch were visible to Shiwoo at a glance.</p>
 
-<p>Shiwoo pulled Soa's wine-colored dog collar, which was hanging awkwardly, and tied it to the back handle of the front seat.</p>
+<p>Shiwoo pulled Sua's wine-colored dog collar, which was hanging awkwardly, and tied it to the back handle of the front seat.</p>
 
-<p>Thanks to the shortened leash, Soa's upper body was uncomfortably bent forward, making her buttocks almost lift off the seat.</p>
+<p>Thanks to the shortened leash, Sua's upper body was uncomfortably bent forward, making her buttocks almost lift off the seat.</p>
 
-<p>Soa's reddish-brown panties, hanging awkwardly halfway down her thighs, added to her alluring figure.</p>
+<p>Sua's reddish-brown panties, hanging awkwardly halfway down her thighs, added to her alluring figure.</p>
 
 <p>Shiwoo reached out and grabbed the panties on her thigh with his hand.</p>
 
 <p>Shiwoo pushed her panties down to her ankles.</p>
 
-<p>Shiwoo lifted one of Soa's feet, making her take it out of the hole in her panties.</p>
+<p>Shiwoo lifted one of Sua's feet, making her take it out of the hole in her panties.</p>
 
-<p>Soa's wine-colored panties hung around one of her ankles as if clinging to it.</p>
+<p>Sua's wine-colored panties hung around one of her ankles as if clinging to it.</p>
 
-<p>Shiwoo rolled up the side of the panties that had come off Soa's leg like a Möbius strip and hung it back on her ankle.</p>
+<p>Shiwoo rolled up the side of the panties that had come off Sua's leg like a Möbius strip and hung it back on her ankle.</p>
 
-<p>Soa's panties, rolled up in a slightly comical way like a bracelet on her wrist or leg.</p>
+<p>Sua's panties, rolled up in a slightly comical way like a bracelet on her wrist or leg.</p>
 
-<p>Shiwoo rolled up Soa's panties that way, up to her thigh above her knee.</p>
+<p>Shiwoo rolled up Sua's panties that way, up to her thigh above her knee.</p>
 
 <p>It was probably in a position where it would be visible even if she properly put on her dress and covered it with her skirt again.</p>
 
 <p>,Now, stay like this until we get home!,"</p>
 
-<p>Shiwoo positioned Soa's panties halfway up her thigh on one leg and issued a new command to her, who was sitting in an awkward position.</p>
+<p>Shiwoo positioned Sua's panties halfway up her thigh on one leg and issued a new command to her, who was sitting in an awkward position.</p>
 
 <p>,U-uh...,"</p>
 
-<p>Soa slightly opened her eyes, which had been tightly closed, watched what Shiwoo had done to her, and answered.</p>
+<p>Sua slightly opened her eyes, which had been tightly closed, watched what Shiwoo had done to her, and answered.</p>
 
-<p>Shiwoo lightly patted Soa's lifted buttocks with his palm.</p>
+<p>Shiwoo lightly patted Sua's lifted buttocks with his palm.</p>
 
-<p>Soa's body flinched as she put strength into her buttocks.</p>
+<p>Sua's body flinched as she put strength into her buttocks.</p>
 
 <p>Then, Shiwoo turned his body towards Seyoung on the opposite side.</p>
 
 <p>Seyoung's body was also exposed, with only her waist covered by the rolled-up dress fabric.</p>
 
-<p>Seyoung's small breasts, which were still less developed than Soa's, protruded with a beautifully curved shape.</p>
+<p>Seyoung's small breasts, which were still less developed than Sua's, protruded with a beautifully curved shape.</p>
 
-<p>Shiwoo pulled her orange dog collar and tied it to the handle on the back of the front seat, just like Soa.</p>
+<p>Shiwoo pulled her orange dog collar and tied it to the handle on the back of the front seat, just like Sua.</p>
 
 <p>Seyoung, who had been ignoring the events happening inside the vehicle and peeking out the window through the slightly opened curtains, was forced to turn her gaze inward by Shiwoo, who was pulling her leash short.</p>
 
-<p>Like Soa, Seyoung's upper body was bent forward and her buttocks were slightly lifted due to the shortened leash.</p>
+<p>Like Sua, Seyoung's upper body was bent forward and her buttocks were slightly lifted due to the shortened leash.</p>
 
 <p>A pink vibrator was attached to Seyoung's clitoris with waterproof bandages.</p>
 
@@ -182,7 +182,7 @@ chapter = 346
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo slipped his hand under the lifted buttocks of Seyoung and Soa and checked their condition.</p>
+<p>Shiwoo slipped his hand under the lifted buttocks of Seyoung and Sua and checked their condition.</p>
 
 <p>The crotches and thighs of his sisters, who were holding their legs together, were soaked with water flowing out of the valley.</p>
 

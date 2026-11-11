@@ -108,7 +108,7 @@ chapter = 292
 
 <p>Mom, as if anticipating the actions Shiwoo will take towards Seyoung, retorts to Shiwoo's words as if she's burning inside with concern.</p>
 
-<p>'Who knows, maybe not! Soa is here too...and who knows? Like Mom, maybe Seyoung is putting on an act in front of the other family members?'</p>
+<p>'Who knows, maybe not! Sua is here too...and who knows? Like Mom, maybe Seyoung is putting on an act in front of the other family members?'</p>
 
 <p>Shiwoo throws out a meaningful remark casually, as if joking.</p>
 

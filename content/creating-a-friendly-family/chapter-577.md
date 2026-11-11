@@ -134,7 +134,7 @@ chapter = 577
 
 <p>The cafe in the basement of the magic academy that Seyoung attends was definitely a place that Shiwoo had never been to, but he had often heard about it from Seyoung in passing.</p>
 
-<p>And the place where Shiwoo had promised to buy ice cream for Soa and Seyoung someday...</p>
+<p>And the place where Shiwoo had promised to buy ice cream for Sua and Seyoung someday...</p>
 
 <p>"Why is your Mom filming this here? And what are these sounds? It's not just one or two people?"</p>
 

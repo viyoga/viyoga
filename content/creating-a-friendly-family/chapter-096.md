@@ -60,27 +60,27 @@ chapter = 96
 
 <p>There was only one person Shiwoo could think of right away.</p>
 
-<p>Soa...</p>
+<p>Sua...</p>
 
-<p>Soa was filming the scene of her own mother breastfeeding Seyoung right in front of her eyes.</p>
+<p>Sua was filming the scene of her own mother breastfeeding Seyoung right in front of her eyes.</p>
 
 <p>Shiwoo's cock, which had been swelling in his pants, expanded once again and became so hard that it felt like it would burst.</p>
 
-<p>Does Soa also look at the scene of her own mother breastfeeding Seyoung with sexual feelings?</p>
+<p>Does Sua also look at the scene of her own mother breastfeeding Seyoung with sexual feelings?</p>
 
-<p>The shocking photo of Soa that Imo sent yesterday.</p>
+<p>The shocking photo of Sua that Imo sent yesterday.</p>
 
-<p>In that photo, Soa was kneeling with her legs spread open and her hands behind her head.</p>
+<p>In that photo, Sua was kneeling with her legs spread open and her hands behind her head.</p>
 
 <p>Bound in restraints...</p>
 
 <p>Her eyes were covered with an eye patch, and she had a sign around her neck.</p>
 
-<p>The sign around Soa's neck clearly stated that she was looking for a new owner.</p>
+<p>The sign around Sua's neck clearly stated that she was looking for a new owner.</p>
 
 <p>On top of that, Seonju Imo said that Shiwoo could do whatever he wanted.</p>
 
-<p>Is Seonju Imo really going to hand over Soa to Shiwoo as a slave whenever Shiwoo wants?</p>
+<p>Is Seonju Imo really going to hand over Sua to Shiwoo as a slave whenever Shiwoo wants?</p>
 
 <p>Could it really be true?</p>
 
@@ -118,7 +118,7 @@ chapter = 96
 
 <p>"I kept my panties constantly soaked with your semen so it wouldn't dry out You'll forgive me, right?"</p>
 
-<p>Seonju Imo brings the orange panties she just took off to the camera that Soa is holding.</p>
+<p>Seonju Imo brings the orange panties she just took off to the camera that Sua is holding.</p>
 
 <p>-With a pitiful expression and a coquettish tone...-</p>
 

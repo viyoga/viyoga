@@ -184,13 +184,13 @@ chapter = 168
 
 <p>"I came too, Oppa"</p>
 
-<p>Seyoung's and Soa's voices were heard along with the sound of the front door opening.</p>
+<p>Seyoung's and Sua's voices were heard along with the sound of the front door opening.</p>
 
-<p>"Uh! Uh? Se...Seyoung and Soa are here?"</p>
+<p>"Uh! Uh? Se...Seyoung and Sua are here?"</p>
 
 <p>Shiwoo, who had been sitting on the sofa, engrossed in his thoughts while looking at his smartphone, oblivious to the passage of time.</p>
 
-<p>Shiwoo reacted as if flustered by Seyoung's and Soa's voices.</p>
+<p>Shiwoo reacted as if flustered by Seyoung's and Sua's voices.</p>
 
 <p>Shiwoo's penis, which had been reading the slave contract, was erect with such force that it seemed it would burst through the front of his pants.</p>
 
@@ -204,7 +204,7 @@ chapter = 168
 
 <p>"Shiwoo, how have you been? I heard Sehee is sleeping over at a friend's house tonight Won't you be lonely tonight, Shiwoo? kikik"</p>
 
-<p>From behind Seyoung and Soa, who were squatting down to take off their shoes, Seonju Imo greeted Shiwoo with a smile, as if joking, in her usual manner.</p>
+<p>From behind Seyoung and Sua, who were squatting down to take off their shoes, Seonju Imo greeted Shiwoo with a smile, as if joking, in her usual manner.</p>
 
 <p>-As if last night's events had never happened-</p>
 
@@ -216,7 +216,7 @@ chapter = 168
 
 <p>Shiwoo bent his waist a little more, trying to hide the even more distinct outline of his cock on his belly.</p>
 
-<p>Shiwoo cautiously watched Seyoung and Soa, trying not to be caught.</p>
+<p>Shiwoo cautiously watched Seyoung and Sua, trying not to be caught.</p>
 
 <p>But then! As soon as she took off her shoes, Seyoung rushed towards Shiwoo first.</p>
 

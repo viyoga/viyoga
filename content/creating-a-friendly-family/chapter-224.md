@@ -122,9 +122,9 @@ chapter = 224
 
 <p>At that time, a new notification sound rang on Shiwoo's smartphone.</p>
 
-<p>It was a message from Seonju Imo in the chat room where Seonju Imo and Soa were together.</p>
+<p>It was a message from Seonju Imo in the chat room where Seonju Imo and Sua were together.</p>
 
-<p>Shiwoo touched the message notification window and opened the chat room with Seonju Imo and his cousin Soa.</p>
+<p>Shiwoo touched the message notification window and opened the chat room with Seonju Imo and his cousin Sua.</p>
 
 <p>There was a video that Seonju Imo had uploaded in the chat room.</p>
 
@@ -150,53 +150,53 @@ chapter = 224
 
 <p>The place where the strand of Shiwoo's semen, which was contained in Seonju Imo's mouth, was falling and heading towards...</p>
 
-<p>There was Soa, with her red lips wide open and her tongue sticking out towards Seonju Imo's face, receiving Shiwoo's semen.</p>
+<p>There was Sua, with her red lips wide open and her tongue sticking out towards Seonju Imo's face, receiving Shiwoo's semen.</p>
 
-<p>Soa was opening her mouth and taking Shiwoo's semen into her mouth, as if begging a mother bird for food.</p>
+<p>Sua was opening her mouth and taking Shiwoo's semen into her mouth, as if begging a mother bird for food.</p>
 
 <p>Shiwoo's semen, which had fallen from Seonju Imo's mouth, was mixed with Seonju Imo's saliva and had become a little diluted.</p>
 
-<p>The moment Shiwoo's semen touched the tongue that Soa was sticking out, a dizzying sense of depravity swept down Shiwoo's spine.</p>
+<p>The moment Shiwoo's semen touched the tongue that Sua was sticking out, a dizzying sense of depravity swept down Shiwoo's spine.</p>
 
-<p>Soa's mouth was gradually being filled with Shiwoo's semen.</p>
+<p>Sua's mouth was gradually being filled with Shiwoo's semen.</p>
 
-<p>Soon, the strand of semen was cut off, and Soa's lips were closed.</p>
+<p>Soon, the strand of semen was cut off, and Sua's lips were closed.</p>
 
-<p>Seonju Imo's lips were covering Soa's closed lips.</p>
+<p>Seonju Imo's lips were covering Sua's closed lips.</p>
 
-<p>There was still semen that had not been completely transferred to Soa in Seonju Imo's mouth.</p>
+<p>There was still semen that had not been completely transferred to Sua in Seonju Imo's mouth.</p>
 
-<p>Seonju Imo was licking around Soa's lips with her tongue.</p>
+<p>Seonju Imo was licking around Sua's lips with her tongue.</p>
 
-<p>Seonju Imo's tongue was sliding over Soa's cheeks, cheekbones, and temples.</p>
+<p>Seonju Imo's tongue was sliding over Sua's cheeks, cheekbones, and temples.</p>
 
 <p>Seonju Imo's tongue, coming down again over her eyelids, between her eyebrows, and over her nose.</p>
 
-<p>The saliva and Shiwoo's semen that had been contained in Seonju Imo's mouth were spread widely over Soa's face.</p>
+<p>The saliva and Shiwoo's semen that had been contained in Seonju Imo's mouth were spread widely over Sua's face.</p>
 
-<p>Seonju Imo's tongue, which had returned to Soa's lips, was parting Soa's closed lips to the side and beginning to penetrate.</p>
+<p>Seonju Imo's tongue, which had returned to Sua's lips, was parting Sua's closed lips to the side and beginning to penetrate.</p>
 
-<p>Seonju Imo's tongue was being shoved into Soa's parted lips, and Soa's lips were gradually opening wider.</p>
+<p>Seonju Imo's tongue was being shoved into Sua's parted lips, and Sua's lips were gradually opening wider.</p>
 
-<p>Seonju Imo was sucking in the liquid contained in Soa's mouth as if inhaling it.</p>
+<p>Seonju Imo was sucking in the liquid contained in Sua's mouth as if inhaling it.</p>
 
-<p>The semen contained in Seonju Imo's mouth was being sent back into Soa's mouth.</p>
+<p>The semen contained in Seonju Imo's mouth was being sent back into Sua's mouth.</p>
 
 <p>The two mother and daughter were exchanging the male's liquid in that way, as if giving and receiving it between their mouths.</p>
 
-<p>Shiwoo's semen, little by little, was passing into Soa and Seonju Imo's throats during the exchange.</p>
+<p>Shiwoo's semen, little by little, was passing into Sua and Seonju Imo's throats during the exchange.</p>
 
 <p>The mother and daughter's kiss continued for a long time.</p>
 
-<p>The smartphone camera that Seonju Imo was holding was still filming Seonju Imo and Soa's touching faces.</p>
+<p>The smartphone camera that Seonju Imo was holding was still filming Seonju Imo and Sua's touching faces.</p>
 
-<p>Finally, after swallowing all the semen in their mouths, Soa and Seonju Imo parted their lips.</p>
+<p>Finally, after swallowing all the semen in their mouths, Sua and Seonju Imo parted their lips.</p>
 
-<p>And then, Seonju Imo and Soa were opening their mouths and showing the state of their mouths to the camera.</p>
+<p>And then, Seonju Imo and Sua were opening their mouths and showing the state of their mouths to the camera.</p>
 
 <p>The video ended like that.</p>
 
-<p>Shiwoo's semen, which he had put in Seonju Imo's mouth, was going into Soa's stomach...</p>
+<p>Shiwoo's semen, which he had put in Seonju Imo's mouth, was going into Sua's stomach...</p>
 
 <p>Shiwoo could only be stunned for a while by the shock, which was not a shock.</p>
 
@@ -206,9 +206,9 @@ chapter = 224
 
 <p>After some time had passed, Shiwoo was calming down.</p>
 
-<p>'Seonju, you fucking bitch! Who told you to share my semen with Soa without my permission?'</p>
+<p>'Seonju, you fucking bitch! Who told you to share my semen with Sua without my permission?'</p>
 
-<p>Shiwoo was cursing and writing a text in the chat room where Seonju Imo and Soa were.</p>
+<p>Shiwoo was cursing and writing a text in the chat room where Seonju Imo and Sua were.</p>
 
 <p>'I thought Master would like it, so I did it Hying'</p>
 
@@ -220,7 +220,7 @@ chapter = 224
 
 <p>'That's not really it I was just trying to make Master happy I'm sorry, Master Hying'</p>
 
-<p>Seonju Imo was making an apology in the chat room where Soa was with her, without caring about her dignity as a mother anymore, whether it was sincere or not.</p>
+<p>Seonju Imo was making an apology in the chat room where Sua was with her, without caring about her dignity as a mother anymore, whether it was sincere or not.</p>
 
 <p>'Mom and Seyoung are back, so there are only two of you at your house now, right?'</p>
 

@@ -30,7 +30,7 @@ chapter = 82
 
 <p>,Where's Mom?,</p>
 
-<p>,Your Mom went straight home after eating. She has to take care of Soa and Seyoung too Here, take this\!\!,</p>
+<p>,Your Mom went straight home after eating. She has to take care of Sua and Seyoung too Here, take this\!\!,</p>
 
 <p>Seonju Imo handed one of the plastic bags to Shiwoo.</p>
 
@@ -72,7 +72,7 @@ chapter = 82
 
 <p>,Ah I wish I had given birth to a son like Shiwoo instead of a daughter,</p>
 
-<p>,Aww Soa would be sad if she heard that.,</p>
+<p>,Aww Sua would be sad if she heard that.,</p>
 
 <p>,Can't be helped, I guess Who told her to be born a girl? Kikik\! You have to wear stuff like this in front of boys who smell like males to really get excited, you know\! ,</p>
 

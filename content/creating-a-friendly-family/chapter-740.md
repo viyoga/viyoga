@@ -14,7 +14,7 @@ chapter = 740
 
 <p>Shiwoo used the passage inside the subway station to enter the department store building, as if swept along by the crowd. A mega-department store equipped with not only an amusement park, aquarium, movie theater, and exhibition halls, but also various auxiliary facilities...</p>
 
-<p>Not much time had passed since he had come here with Seyoung and Soa to buy supplies for the puppy, Sae-a, but the noise inside the department store and the movement of the people still felt unfamiliar to Shiwoo.</p>
+<p>Not much time had passed since he had come here with Seyoung and Sua to buy supplies for the puppy, Sae-a, but the noise inside the department store and the movement of the people still felt unfamiliar to Shiwoo.</p>
 
 <p>Shiwoo first headed to the fashion hall, where famous brand stores were lined up, to purchase clothes.</p>
 

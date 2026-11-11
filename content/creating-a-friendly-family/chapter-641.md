@@ -56,7 +56,7 @@ chapter = 641
 
 <p>A text from Seyoung arrived just then...</p>
 
-<p>"Our class just ended! You're inside the cafe, right? Soa and I are coming down now"</p>
+<p>"Our class just ended! You're inside the cafe, right? Sua and I are coming down now"</p>
 
 <p>It was a text from Seyoung saying she was coming down to the cafe after finishing class. Her energetic tone was vividly conveyed even through the screen.</p>
 
@@ -66,7 +66,7 @@ chapter = 641
 
 <p>By now, the students and the teacher who had been practicing were also preparing to leave, tidying up. Since the tarot reading was being done as part of the class, it seemed to operate in sync with the academy schedule. The things he had just experienced in the cafe felt as distant as a dream.</p>
 
-<p>While waiting for Seyoung and Soa, Shiwoo re-checked the photo sent to Sehee-nuna's chat window. Looking at the photo of the two of them kissing that had been sent to Sehee-nuna's chat, he felt a mix of anxiety and a strangely excited mood.</p>
+<p>While waiting for Seyoung and Sua, Shiwoo re-checked the photo sent to Sehee-nuna's chat window. Looking at the photo of the two of them kissing that had been sent to Sehee-nuna's chat, he felt a mix of anxiety and a strangely excited mood.</p>
 
 <p>'Are Sehee-nuna and Mom shopping and having dinner right now?'</p>
 

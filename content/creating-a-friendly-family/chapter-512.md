@@ -18,9 +18,9 @@ chapter = 512
 
 <p>Mom is still kneeling and has Shiwoo's penis in her mouth, gazing up at Shiwoo's face with a faint expression.</p>
 
-<p>,I might get Seonju Imo and Soa pregnant right away. I'm not using a condom when I do it, and it seems like neither of them are taking any pills."</p>
+<p>,I might get Seonju Imo and Sua pregnant right away. I'm not using a condom when I do it, and it seems like neither of them are taking any pills."</p>
 
-<p>Shiwoo mentions the possibility of getting Seonju Imo and Soa pregnant, as if foreseeing the future situation.</p>
+<p>Shiwoo mentions the possibility of getting Seonju Imo and Sua pregnant, as if foreseeing the future situation.</p>
 
 <p>Mom's tongue continues to sweep Shiwoo's shaft inside her mouth from side to side.</p>
 
@@ -76,9 +76,9 @@ chapter = 512
 
 <p>At that moment, Sae-a's figure crouching in the corner of the living room catches Shiwoo's eye again.</p>
 
-<p>The scene of Soa's private parts being greedily sucked in the dressing room last time comes to his mind.</p>
+<p>The scene of Sua's private parts being greedily sucked in the dressing room last time comes to his mind.</p>
 
-<p>The image of Soa that came to his mind is soon replaced by the image of Mom.</p>
+<p>The image of Sua that came to his mind is soon replaced by the image of Mom.</p>
 
 <p>Shiwoo's penis, dripping with pre-cum and throbbing.</p>
 

@@ -82,13 +82,13 @@ chapter = 173
 
 <p>He didn't know what she was thinking about that made her hesitate for a moment, but it seemed that Seonju Imo had not been forced to write the slave contract.</p>
 
-<p>"Mom also knows, right? That Soa is Dad's daughter!"</p>
+<p>"Mom also knows, right? That Sua is Dad's daughter!"</p>
 
 <p>To move the story forward, Shiwoo asked Seonju Imo as if confirming the fact that he vaguely knew.</p>
 
 <p>Seonju Imo smiled and nodded as if agreeing with Shiwoo's words.</p>
 
-<p>"Does Soa know? That her uncle is her dad?"</p>
+<p>"Does Sua know? That her uncle is her dad?"</p>
 
 <p>Shiwoo began to ask Seonju Imo about the facts related to his younger sisters.</p>
 
@@ -96,53 +96,53 @@ chapter = 173
 
 <p>Seonju Imo answered Shiwoo as if it were natural.</p>
 
-<p>Shiwoo had thought that Soa would know the secrets related to her birth since before.</p>
+<p>Shiwoo had thought that Sua would know the secrets related to her birth since before.</p>
 
 <p>Even so, when he directly heard such a story through Seonju Imo, the vague imaginations that came to mind pierced Shiwoo's chest like the stimulation of reality.</p>
 
-<p>"Did Dad and Soa fuck? Did they also write a slave contract?"</p>
+<p>"Did Dad and Sua fuck? Did they also write a slave contract?"</p>
 
 <p>Shiwoo was trying to confirm the specific facts by using explicit words.</p>
 
-<p>"No Soa didn't do that with her dad! She hasn't written a slave contract yet either!"</p>
+<p>"No Sua didn't do that with her dad! She hasn't written a slave contract yet either!"</p>
 
 <p>An answer different from Shiwoo's expectations was coming from Seonju Imo's mouth.</p>
 
-<p>"The video taken at the pension last year, Imo sent it to me, right!? What was that? Wasn't Soa offered to Dad as a gift on Dad's birthday?"</p>
+<p>"The video taken at the pension last year, Imo sent it to me, right!? What was that? Wasn't Sua offered to Dad as a gift on Dad's birthday?"</p>
 
 <p>Shiwoo brought up the story of what happened at the pension last year, which he had inferred based on the data Seonju Imo had sent him, and asked Seonju Imo as if he were questioning her.</p>
 
-<p>"That's what I was going to do But it didn't happen! Your dad said he would wait until Soa started her period."</p>
+<p>"That's what I was going to do But it didn't happen! Your dad said he would wait until Sua started her period."</p>
 
 <p>Seonju Imo was answering Shiwoo's question with her eyes tightly closed.</p>
 
 <p>Seonju Imo's hands, gathered demurely between her knees, did not leave the floor.</p>
 
-<p>Was Dad waiting for Soa and Seyoung to have the bodies of definite women?</p>
+<p>Was Dad waiting for Sua and Seyoung to have the bodies of definite women?</p>
 
 <p>Shiwoo felt a sense of relief as soon as he heard Seonju Imo's story.</p>
 
 <p>It felt like the tension in the muscles knotted in the back of Shiwoo's neck was loosening.</p>
 
-<p>"Then what about the photos of Soa with a placard around her neck, posing? Soa was being trained by Seonju Imo, right?"</p>
+<p>"Then what about the photos of Sua with a placard around her neck, posing? Sua was being trained by Seonju Imo, right?"</p>
 
 <p>Shiwoo asked Seonju Imo as if he were pressing her to leave no doubts.</p>
 
-<p>"She didn't write a slave contract! Soa has been doing that kind of thing since she was younger."</p>
+<p>"She didn't write a slave contract! Sua has been doing that kind of thing since she was younger."</p>
 
-<p>Seonju Imo explained the things related to Soa as if confessing the truth to Shiwoo's questioning.</p>
+<p>Seonju Imo explained the things related to Sua as if confessing the truth to Shiwoo's questioning.</p>
 
 <p>"Did you perhaps do it to Seyoung too?"</p>
 
 <p>Shiwoo asked Seonju Imo about the thing he was most concerned about with a trembling heart.</p>
 
-<p>-Whether Seonju Imo had done that kind of training play to Seyoung as she had done to Soa...-</p>
+<p>-Whether Seonju Imo had done that kind of training play to Seyoung as she had done to Sua...-</p>
 
 <p>"Did what?"</p>
 
 <p>This time, Seonju Imo asked back as if she hadn't understood Shiwoo's words.</p>
 
-<p>"What Seonju Imo did to Soa! Lately, Seyoung has been whispering strange things to me, and all those strange actions, didn't Seonju Imo order her to do them!?"</p>
+<p>"What Seonju Imo did to Sua! Lately, Seyoung has been whispering strange things to me, and all those strange actions, didn't Seonju Imo order her to do them!?"</p>
 
 <p>Shiwoo asked about Seyoung's strange actions and attitude towards him that he had been doing all along.</p>
 
@@ -192,9 +192,9 @@ chapter = 173
 
 <p class="scene-break">· · ·</p>
 
-<p>Fortunately, according to Seonju Imo's words, it seemed that Soa and Seyoung had not yet had sexual relations with other men.</p>
+<p>Fortunately, according to Seonju Imo's words, it seemed that Sua and Seyoung had not yet had sexual relations with other men.</p>
 
-<p>And unlike Soa, it seemed that Seyoung had not received any sexual training or abuse from Seonju Imo.</p>
+<p>And unlike Sua, it seemed that Seyoung had not received any sexual training or abuse from Seonju Imo.</p>
 
 <p>But if so, how can Seyoung's recent strange behavior and attitude be explained?</p>
 

@@ -78,11 +78,11 @@ chapter = 81
 
 <p>"What?"</p>
 
-<p>"Kekekek, oh my stomach kekek Magic starts even before you get on stage! They probably got information about us from Seyoung and Soa beforehand and even assigned them the role of hyping things up Didn't you see them sticking close and guiding us like assistants?"</p>
+<p>"Kekekek, oh my stomach kekek Magic starts even before you get on stage! They probably got information about us from Seyoung and Sua beforehand and even assigned them the role of hyping things up Didn't you see them sticking close and guiding us like assistants?"</p>
 
 <p>Cheoljin was explaining to Shiwoo, suppressing his laughter internally.</p>
 
-<p>Seyoung and Soa playing the role of hypemen, he said...</p>
+<p>Seyoung and Sua playing the role of hypemen, he said...</p>
 
 <p>"Th-that's... im...impossible!!!"</p>
 
@@ -236,7 +236,7 @@ chapter = 81
 
 <p>If he had asked a different question, would she have given a different answer?</p>
 
-<p>Did Seyoung and Soa also know about Shiwoo's secret?</p>
+<p>Did Seyoung and Sua also know about Shiwoo's secret?</p>
 
 <p>Perhaps everything that happened there was all just Shiwoo's own delusion and premature assumption.</p>
 

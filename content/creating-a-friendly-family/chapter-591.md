@@ -18,7 +18,7 @@ chapter = 591
 
 <p>Mom, reacting as if embarrassed, and Gyuri Ajumma, feeling shy but subtly responding to it...</p>
 
-<p>Even young Soa and Sehee Nuna, watching all of that shyly...</p>
+<p>Even young Sua and Sehee Nuna, watching all of that shyly...</p>
 
 <p>The family group chat room, led by Seonju Imo and Seyoung, was filled with lewd vitality, with cheerful laughter and jokes being exchanged.</p>
 

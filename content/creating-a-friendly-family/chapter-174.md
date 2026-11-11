@@ -122,7 +122,7 @@ chapter = 174
 
 <p>The younger sisters downstairs were perhaps trying to ignore what was happening on the second floor, waiting for Shiwoo and Seonju Imo to come down.</p>
 
-<p>Didn't Seyoung and Soa hear the rough breaths and moaning sounds that Seonju Imo had made a moment ago?</p>
+<p>Didn't Seyoung and Sua hear the rough breaths and moaning sounds that Seonju Imo had made a moment ago?</p>
 
 <p>Were the younger sisters also imagining the situation upstairs and getting excited?</p>
 
@@ -132,9 +132,9 @@ chapter = 174
 
 <p>Shiwoo was about to start a new game of teasing Seonju Imo.</p>
 
-<p>"What did you whisper to Soa earlier?"</p>
+<p>"What did you whisper to Sua earlier?"</p>
 
-<p>Shiwoo asked about the content of the whisper that Seonju Imo had said to Soa before Soa went to the bathroom.</p>
+<p>Shiwoo asked about the content of the whisper that Seonju Imo had said to Sua before Sua went to the bathroom.</p>
 
 <p>Shiwoo was asking Seonju Imo, who was barely regaining her senses.</p>
 
@@ -196,7 +196,7 @@ chapter = 174
 
 <p>The sound of the TV and the voices of the younger sisters in the living room on the first floor seemed to be faintly heard through the stairs and hallway.</p>
 
-<p>Shiwoo imagined Seyoung and Soa coming up to the second floor and witnessing the act that he and Seonju Imo were doing.</p>
+<p>Shiwoo imagined Seyoung and Sua coming up to the second floor and witnessing the act that he and Seonju Imo were doing.</p>
 
 <p>A scene where the secret secrets that they had been hiding from each other were openly shared.</p>
 
@@ -224,7 +224,7 @@ chapter = 174
 
 <p>Seonju Imo, with nothing on, was standing in the middle of the hallway with Shiwoo.</p>
 
-<p>The voices of Seyoung and Soa were occasionally heard from below.</p>
+<p>The voices of Seyoung and Sua were occasionally heard from below.</p>
 
 <p>Seonju Imo looked at Shiwoo with a flustered expression.</p>
 

@@ -146,7 +146,7 @@ chapter = 211
 
 <p>Mom, Seonju Aunt, and Sehee Nuna knew about the fact that they had each had a relationship with Shiwoo.</p>
 
-<p>Seyoung and Soa, who hadn't had a relationship with Shiwoo yet, were in a state of having some level of sexual rapport with Shiwoo after the visit with Seonju Aunt last time.</p>
+<p>Seyoung and Sua, who hadn't had a relationship with Shiwoo yet, were in a state of having some level of sexual rapport with Shiwoo after the visit with Seonju Aunt last time.</p>
 
 <p>There was no one in the house right now who would be shocked to see Shiwoo's erect penis.</p>
 

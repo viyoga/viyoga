@@ -4,7 +4,7 @@ weight = 178
 [extra]
 chapter = 178
 +++
-<p>Soa was just as Shiwoo knew her to be.</p>
+<p>Sua was just as Shiwoo knew her to be.</p>
 
 <p>"Oppa Are you done talking with Seonju Imo? Come here and have some ice cream cake I took it out so Shiwoo Oppa and Seonju Imo can eat it together, hehe"</p>
 
@@ -16,7 +16,7 @@ chapter = 178
 
 <p>It felt as if a sweet and tingling sensation of pleasure was spreading throughout his body from the tip of his penis.</p>
 
-<p>Shiwoo, exuding the lewd heat remaining on his body and the faint, sour scent of chestnut flowers, approaches the kitchen table where Soa and Seyoung are.</p>
+<p>Shiwoo, exuding the lewd heat remaining on his body and the faint, sour scent of chestnut flowers, approaches the kitchen table where Sua and Seyoung are.</p>
 
 <p>The younger sisters were tasting the ice cream cake as if nothing had happened, wearing expressions of pure bliss.</p>
 
@@ -64,7 +64,7 @@ chapter = 178
 
 <p>The small tremor is transmitted to Shiwoo's sensitive penis.</p>
 
-<p>"Yeah I like that I want to go with Soa and try everything Oppa buys me!"</p>
+<p>"Yeah I like that I want to go with Sua and try everything Oppa buys me!"</p>
 
 <p>Seyoung, knowing or not knowing Shiwoo's feelings, leans back slightly without changing her expression, speaking while leaning back.</p>
 
@@ -78,33 +78,33 @@ chapter = 178
 
 <p>Worried that Seyoung might show an uncomfortable reaction, Shiwoo removes his cock from Seyoung's neck.</p>
 
-<p>Shiwoo moves away from Seyoung and approaches Soa's side.</p>
+<p>Shiwoo moves away from Seyoung and approaches Sua's side.</p>
 
-<p>"Soa, are you enjoying the ice cream cake?"</p>
+<p>"Sua, are you enjoying the ice cream cake?"</p>
 
-<p>Shiwoo asks, reaching out and stroking Soa's hair.</p>
+<p>Shiwoo asks, reaching out and stroking Sua's hair.</p>
 
 <p>"Yeah... it's delicious... How about you, Oppa?"</p>
 
-<p>Soa's shy answer and question.</p>
+<p>Sua's shy answer and question.</p>
 
-<p>While Shiwoo was having sex with Seonju Imo in the hallway on the second floor, Soa was masturbating in the dressing room, smelling Shiwoo's semen.</p>
+<p>While Shiwoo was having sex with Seonju Imo in the hallway on the second floor, Sua was masturbating in the dressing room, smelling Shiwoo's semen.</p>
 
-<p>Shiwoo felt that Soa in front of him was feeling foreign.</p>
+<p>Shiwoo felt that Sua in front of him was feeling foreign.</p>
 
 <p>"Yeah! It's delicious too I wish I could taste all the different kinds if possible"</p>
 
-<p>Shiwoo sits next to Soa, nonchalantly talking to Soa as well.</p>
+<p>Shiwoo sits next to Sua, nonchalantly talking to Sua as well.</p>
 
 <p>Shiwoo was no longer worried about how his erect penis might be protruding and visible to his younger sisters.</p>
 
-<p>Rather, he was pushing the thing inside his clothes forward, wondering if Soa or Seyoung might be looking at it with different thoughts in mind.</p>
+<p>Rather, he was pushing the thing inside his clothes forward, wondering if Sua or Seyoung might be looking at it with different thoughts in mind.</p>
 
-<p>Shiwoo stares at Soa's smartphone placed on the table.</p>
+<p>Shiwoo stares at Sua's smartphone placed on the table.</p>
 
-<p>That very smartphone that exchanged lewd photos of Seonju Imo and Soa's masturbation videos.</p>
+<p>That very smartphone that exchanged lewd photos of Seonju Imo and Sua's masturbation videos.</p>
 
-<p>Soa's smartphone contains evidence of the secret and secretive communication between Shiwoo and Soa.</p>
+<p>Sua's smartphone contains evidence of the secret and secretive communication between Shiwoo and Sua.</p>
 
 <p>Could there be more lewd and erotic photos or videos inside that small rectangular device that Shiwoo doesn't know about?</p>
 
@@ -120,49 +120,49 @@ chapter = 178
 
 <p>Seeing Seyoung's smile, intense excitement and guilt simultaneously bloomed in Shiwoo's chest.</p>
 
-<p>Soon, Shiwoo turns to look at Soa.</p>
+<p>Soon, Shiwoo turns to look at Sua.</p>
 
-<p>Soa, looking down and not looking at Shiwoo as if embarrassed, is silently eating ice cream cake.</p>
+<p>Sua, looking down and not looking at Shiwoo as if embarrassed, is silently eating ice cream cake.</p>
 
-<p>Shiwoo takes a small deep breath and sends the provocative photo of Seyoung with his cock in her mouth to Soa.</p>
+<p>Shiwoo takes a small deep breath and sends the provocative photo of Seyoung with his cock in her mouth to Sua.</p>
 
 <p>-Tti-ring!</p>
 
-<p>Soa's smartphone rings with a text message notification.</p>
+<p>Sua's smartphone rings with a text message notification.</p>
 
-<p>Soa is startled and looks back at Shiwoo, then picks up her smartphone and checks the received text message under the table.</p>
+<p>Sua is startled and looks back at Shiwoo, then picks up her smartphone and checks the received text message under the table.</p>
 
-<p>Soa's luscious thighs, checking the text message, come into Shiwoo's view.</p>
+<p>Sua's luscious thighs, checking the text message, come into Shiwoo's view.</p>
 
-<p>Shiwoo instantly recalls Soa's masturbation video, in which her entire lower body was exposed.</p>
+<p>Shiwoo instantly recalls Sua's masturbation video, in which her entire lower body was exposed.</p>
 
-<p>Soa's smooth and coolly stretched thighs and calves.</p>
+<p>Sua's smooth and coolly stretched thighs and calves.</p>
 
 <p>And the plump mound and crevice between them.</p>
 
-<p>Soa checks the text message Shiwoo sent and is startled, covering the smartphone screen with her hand as if to hide it.</p>
+<p>Sua checks the text message Shiwoo sent and is startled, covering the smartphone screen with her hand as if to hide it.</p>
 
 <p>-Her face flushed red...-</p>
 
-<p>Shiwoo subtly brings the back of his hand to brush against Soa's thigh, which is exposed in white.</p>
+<p>Shiwoo subtly brings the back of his hand to brush against Sua's thigh, which is exposed in white.</p>
 
-<p>Soa lowers her head and only gives an awkward smile with a flushed face.</p>
+<p>Sua lowers her head and only gives an awkward smile with a flushed face.</p>
 
-<p>Shiwoo watches Soa's reaction and covers the flesh of Soa's thigh above her knee with his palm.</p>
+<p>Shiwoo watches Sua's reaction and covers the flesh of Sua's thigh above her knee with his palm.</p>
 
-<p>Soa's smooth thigh flesh, without a single blemish, softly touches Shiwoo's palm.</p>
+<p>Sua's smooth thigh flesh, without a single blemish, softly touches Shiwoo's palm.</p>
 
-<p>"Are you okay with Oppa doing that, Soa?"</p>
+<p>"Are you okay with Oppa doing that, Sua?"</p>
 
-<p>Shiwoo asks carefully, stroking Soa's thigh.</p>
+<p>Shiwoo asks carefully, stroking Sua's thigh.</p>
 
 <p>"U... Uh... I... I think I'm okay with it"</p>
 
-<p>Soa answers Shiwoo in a barely audible voice.</p>
+<p>Sua answers Shiwoo in a barely audible voice.</p>
 
 <p>"Don't worry. Oppa! I'll make sure you can eat Shiwoo Oppa all up! Because I like doing that with Oppa Ahem"</p>
 
-<p>Suddenly, Seyoung, who was sitting across from Shiwoo and listening to Shiwoo and Soa's conversation, smiles arrogantly and answers Shiwoo on Soa's behalf, as if deliberately joking.</p>
+<p>Suddenly, Seyoung, who was sitting across from Shiwoo and listening to Shiwoo and Sua's conversation, smiles arrogantly and answers Shiwoo on Sua's behalf, as if deliberately joking.</p>
 
 <p>"Uh... uh?"</p>
 
@@ -172,7 +172,7 @@ chapter = 178
 
 <p>That wordplay was nothing more than a game Shiwoo was playing alone to heighten his excitement.</p>
 
-<p>In fact, Shiwoo himself, after uttering the words, was thinking over how Seyoung or Soa would interpret the meaning, a double meaning expression.</p>
+<p>In fact, Shiwoo himself, after uttering the words, was thinking over how Seyoung or Sua would interpret the meaning, a double meaning expression.</p>
 
 <p>Shiwoo's double meaning wordplay, which would sound like an extremely ordinary everyday conversation to someone who didn't know.</p>
 
@@ -184,11 +184,11 @@ chapter = 178
 
 <p>"Th... that's right... Let's definitely go to the 'cafe' and eat next time!"</p>
 
-<p>Shiwoo answers Seyoung, subtly removing his hand from Soa's thigh.</p>
+<p>Shiwoo answers Seyoung, subtly removing his hand from Sua's thigh.</p>
 
 <p>Shiwoo tries to gloss over the lewd and obscene wordplay he was doing by inserting the word 'cafe' into the sentence as if emphasizing it.</p>
 
-<p>"Yeah with Soa! Hehehe"</p>
+<p>"Yeah with Sua! Hehehe"</p>
 
 <p>Seyoung answers Shiwoo's words, playfully laughing as if nothing were wrong.</p>
 
@@ -200,16 +200,16 @@ chapter = 178
 
 <p>"I'm going to take a shower"</p>
 
-<p>Shiwoo, who had been eating a few spoonfuls of ice cream cake and watching Seyoung and Soa's reactions, says as he gets up from his seat.</p>
+<p>Shiwoo, who had been eating a few spoonfuls of ice cream cake and watching Seyoung and Sua's reactions, says as he gets up from his seat.</p>
 
 <p>Shiwoo, displaying his bulging penis impressively, gets up from his seat.</p>
 
-<p>Shiwoo no longer thought about hiding his erection in front of Seyoung and Soa.</p>
+<p>Shiwoo no longer thought about hiding his erection in front of Seyoung and Sua.</p>
 
 <p>Shiwoo stands there for a moment, watching their expressions.</p>
 
 <p>Seyoung pretends not to see Shiwoo's erection and strokes the puppy's belly for no reason.</p>
 
-<p>Soa has her head bowed deeply, holding her smartphone in her hands as if to hide it.</p>
+<p>Sua has her head bowed deeply, holding her smartphone in her hands as if to hide it.</p>
 
 <p>A strange sense of elation and conquest was filling Shiwoo's chest.</p>

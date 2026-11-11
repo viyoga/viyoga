@@ -56,7 +56,7 @@ chapter = 221
 
 <p>A short time, not enough for the languor after ejaculation to fade.</p>
 
-<p>Shiwoo laid his languid body on the sofa and carefully observed Sehee Nuna's, Seyoung's, and Soa's faces.</p>
+<p>Shiwoo laid his languid body on the sofa and carefully observed Sehee Nuna's, Seyoung's, and Sua's faces.</p>
 
 <p>Shiwoo's semen scent, wafting from the kitchen, seemed to be faintly carried all the way to the living room.</p>
 
@@ -80,9 +80,9 @@ chapter = 221
 
 <p>Shiwoo asked, watching the puppy sucking Seyoung's finger.</p>
 
-<p>That tiny puppy's pink tongue, which had been licking Soa's pussy the previous day, was flicking and licking Seyoung's finger.</p>
+<p>That tiny puppy's pink tongue, which had been licking Sua's pussy the previous day, was flicking and licking Seyoung's finger.</p>
 
-<p>,I think we'll have to do that for now, Shiwoo Oppa But we do need to buy everything Originally, we planned to prepare it while we were at Soa's house, but because we suddenly came back home Hehe,</p>
+<p>,I think we'll have to do that for now, Shiwoo Oppa But we do need to buy everything Originally, we planned to prepare it while we were at Sua's house, but because we suddenly came back home Hehe,</p>
 
 <p>Seyoung was explaining in detail to Shiwoo why the puppy supplies weren't ready.</p>
 
@@ -124,7 +124,7 @@ chapter = 221
 
 <p>Shiwoo took his hand off Seyoung's head and asked her.</p>
 
-<p>,Tomorrow, Soa and I are going to the department store to buy puppy supplies like food, bowls, and potty pads We could have the cage delivered, but that would take too long So I was hoping Oppa could help us Hehe,</p>
+<p>,Tomorrow, Sua and I are going to the department store to buy puppy supplies like food, bowls, and potty pads We could have the cage delivered, but that would take too long So I was hoping Oppa could help us Hehe,</p>
 
 <p>Seyoung, with a crescent-eyed smile, was charming Shiwoo and asking for a favor.</p>
 
@@ -134,15 +134,15 @@ chapter = 221
 
 <p>,Great Hehe Then tomorrow, we should get ready early and leave,</p>
 
-<p>Seyoung, seemingly in a good mood, looked back at Soa and said.</p>
+<p>Seyoung, seemingly in a good mood, looked back at Sua and said.</p>
 
-<p>Soa, watching Shiwoo's expression, shyly nodded her head.</p>
+<p>Sua, watching Shiwoo's expression, shyly nodded her head.</p>
 
 <p>,Ah What time were you originally planning to leave?,</p>
 
 <p>Shiwoo asked, as if confirming, to coordinate with his younger sisters.</p>
 
-<p>,We were going to go after lunch in the afternoon But if we're going to the amusement park and aquarium tomorrow too, I think we'll have to leave right after breakfast Since Soa's house is close to the station, we can go pick her up at Soa's house Is that okay?,</p>
+<p>,We were going to go after lunch in the afternoon But if we're going to the amusement park and aquarium tomorrow too, I think we'll have to leave right after breakfast Since Sua's house is close to the station, we can go pick her up at Sua's house Is that okay?,</p>
 
 <p>Seyoung was asking Shiwoo, as if confirming the schedule for tomorrow morning.</p>
 
@@ -166,7 +166,7 @@ chapter = 221
 
 <p>Seyoung's last words bothered Shiwoo somewhat, but he reacted as if it were nothing.</p>
 
-<p>And so, Shiwoo decided to go shopping at the pet supply store the next day with Seyoung and Soa.</p>
+<p>And so, Shiwoo decided to go shopping at the pet supply store the next day with Seyoung and Sua.</p>
 
 <p class="scene-break">· · ·</p>
 

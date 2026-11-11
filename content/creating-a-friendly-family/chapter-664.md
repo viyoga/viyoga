@@ -1,5 +1,5 @@
 +++
-title = "Chapter 664: [Incest] Making a Friendly Family 664 (Se-young, Sex, Soa, Aunt Sun-ju) (Kitchen)"
+title = "Chapter 664: [Incest] Making a Friendly Family 664 (Se-young, Sex, Su-ah, Aunt Sun-ju) (Kitchen)"
 weight = 664
 [extra]
 chapter = 664
@@ -26,15 +26,15 @@ chapter = 664
 
 <p>"Stay like that for just a moment!"</p>
 
-<p>Shiwoo abruptly stopped her as she tried to adjust her posture. Shiwoo gently pushed her back again, forcing her to lean forward and place both hands on the table. Though she looked dazed, she offered no resistance to Shiwoo's touch, leaning her body toward the table once more. Shiwoo flipped the cat tail hanging from her anal back up onto her waist. He took a step toward the table and picked up an egg sushi he had placed on Soa's belly.</p>
+<p>Shiwoo abruptly stopped her as she tried to adjust her posture. Shiwoo gently pushed her back again, forcing her to lean forward and place both hands on the table. Though she looked dazed, she offered no resistance to Shiwoo's touch, leaning her body toward the table once more. Shiwoo flipped the cat tail hanging from her anal back up onto her waist. He took a step toward the table and picked up an egg sushi he had placed on Sua's belly.</p>
 
-<p>Naturally, the egg sushi was evenly coated with Shiwoo's semen... Shiwoo lightly dipped the egg sushi into the soy sauce and wasabi he had squeezed into Soa's navel, letting it soak. He brought the egg sushi, now smeared with soy sauce and wasabi, beneath Seyoung's thrust-out buttocks. Into the gap of Seyoung's groin that had not yet closed, Shiwoo carefully wedged the egg sushi held in his hand. While the sushi was being inserted into the space between her flesh, Shiwoo took meticulous care to ensure the grains of rice did not crumble or break apart.</p>
+<p>Naturally, the egg sushi was evenly coated with Shiwoo's semen... Shiwoo lightly dipped the egg sushi into the soy sauce and wasabi he had squeezed into Sua's navel, letting it soak. He brought the egg sushi, now smeared with soy sauce and wasabi, beneath Seyoung's thrust-out buttocks. Into the gap of Seyoung's groin that had not yet closed, Shiwoo carefully wedged the egg sushi held in his hand. While the sushi was being inserted into the space between her flesh, Shiwoo took meticulous care to ensure the grains of rice did not crumble or break apart.</p>
 
 <p>Seyoung also tried her best not to tense her muscles, holding her breath as her entire body went rigid. Finally, the egg sushi Shiwoo was holding was fully wedged into the interior of Seyoung's groin. Shiwoo pressed his thumb firmly against the egg sushi that had entered Seyoung's vaginal opening.</p>
 
 <p>"Huuu-eut!"</p>
 
-<p>In an instant, Soa's sensitive labia narrowed the gap, biting down on Shiwoo's thumb. Between the folds of her pussy that bit his thumb, a transparent, slippery fluid surged out. Shiwoo wiggled his thumb as if rummaging through the tightened slit of her flesh.</p>
+<p>In an instant, Sua's sensitive labia narrowed the gap, biting down on Shiwoo's thumb. Between the folds of her pussy that bit his thumb, a transparent, slippery fluid surged out. Shiwoo wiggled his thumb as if rummaging through the tightened slit of her flesh.</p>
 
 <p>"Haah...."</p>
 
@@ -70,11 +70,11 @@ chapter = 664
 
 <p>With a shy smile, Seyoung answered, her current demeanor making the way she had looked up at him provocatively while sucking his penis just moments ago seem like a distant memory. It seemed Seyoung was adjusting her own reactions to match Shiwoo's attitude. A strange sense of fluttering excitement seemed to tickle Shiwoo's chest. Perhaps due to the foreign sensation in her groin, she moved with an unnatural gait, slowly walking toward her room. Ttiring! Those images were captured perfectly within the smartphone Shiwoo was holding.</p>
 
-<p>Shiwoo walked to the table, pulled out a chair, and sat down. His penis was still standing rock-hard. ** Soa lay naked on the table, her eyes covered by a blindfold. With the sushi still placed on her body, Soa lay there without any major movement. She was simply performing the role Shiwoo had assigned her, lying naked on the table like a piece of background scenery. Even while Seyoung had come out of the shower room to suck Shiwoo's penis...</p>
+<p>Shiwoo walked to the table, pulled out a chair, and sat down. His penis was still standing rock-hard. ** Sua lay naked on the table, her eyes covered by a blindfold. With the sushi still placed on her body, Sua lay there without any major movement. She was simply performing the role Shiwoo had assigned her, lying naked on the table like a piece of background scenery. Even while Seyoung had come out of the shower room to suck Shiwoo's penis...</p>
 
-<p>Even while Shiwoo was briefly inserting himself into Seyoung's vaginal opening as if venting an impulse... Soa had been breathing heavily while listening to the obscene sounds created by Shiwoo and Seyoung, yet she made no attempt to peek from behind the blindfold or say anything, simply suppressing herself in silence. Shiwoo and Seyoung had been acutely aware of her presence, yet they acted as if Soa weren't even there. In that spot, she was merely fulfilling her role as the vessel holding the sushi.</p>
+<p>Even while Shiwoo was briefly inserting himself into Seyoung's vaginal opening as if venting an impulse... Sua had been breathing heavily while listening to the obscene sounds created by Shiwoo and Seyoung, yet she made no attempt to peek from behind the blindfold or say anything, simply suppressing herself in silence. Shiwoo and Seyoung had been acutely aware of her presence, yet they acted as if Sua weren't even there. In that spot, she was merely fulfilling her role as the vessel holding the sushi.</p>
 
-<p>Watching Soa, who seemed to have lost her sense of self and dignity, a strange sense of urgency along with an unknown, forbidden sensation began to spread through the pores of Shiwoo's skin. It felt as though a terrifyingly sweet pleasure was precariously blooming amidst the ruins of crumbling humanity... Shiwoo's penis had already reached its limit, rising up hotter and harder than ever before. It was a feeling and sensation that went beyond a simple desire to violate or dominate her, craving something deeper and more inexplicable.</p>
+<p>Watching Sua, who seemed to have lost her sense of self and dignity, a strange sense of urgency along with an unknown, forbidden sensation began to spread through the pores of Shiwoo's skin. It felt as though a terrifyingly sweet pleasure was precariously blooming amidst the ruins of crumbling humanity... Shiwoo's penis had already reached its limit, rising up hotter and harder than ever before. It was a feeling and sensation that went beyond a simple desire to violate or dominate her, craving something deeper and more inexplicable.</p>
 
 <p>A sinister and bizarre sadistic impulse to drive her further behind the wall of the forbidden through total disregard and abandonment, leaving her unable to move. On the blurred boundary between pleasure and the forbidden, Shiwoo savored all those impulses, desires, and agonies. ** From Seyoung's room, the loud sound of a hairdryer echoed. It was a sound that refreshed the atmosphere, ringing out like everyday background noise. Shiwoo felt that sound was like sweet music as he picked up his smartphone and opened the one-on-one chatroom with Aunt Seonju.</p>
 

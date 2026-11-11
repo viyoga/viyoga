@@ -22,7 +22,7 @@ chapter = 714
 
 <p class="scene-break">· · ·</p>
 
-<p>Seyoung and Soa were in their rooms getting ready for their academies, and Mom and Sehee-nuna were in the master bedroom to disinfect their tattoos and wounds.</p>
+<p>Seyoung and Sua were in their rooms getting ready for their academies, and Mom and Sehee-nuna were in the master bedroom to disinfect their tattoos and wounds.</p>
 
 <p>In the wide-open living room and kitchen on the first floor, only Shiwoo and Aunt Seonju remained.</p>
 

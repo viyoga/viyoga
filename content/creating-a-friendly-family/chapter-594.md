@@ -34,9 +34,9 @@ chapter = 594
 
 <p>Mom answered as if she was slightly upset by Shiwoo's teasing tone, sounding a bit agitated.</p>
 
-<p>"But Soa and Seyoung were walking around the department store like that during the day too, weren't they? You should stop exaggerating How can you be a Mom and not be able to do what the kids can do?"</p>
+<p>"But Sua and Seyoung were walking around the department store like that during the day too, weren't they? You should stop exaggerating How can you be a Mom and not be able to do what the kids can do?"</p>
 
-<p>Shiwoo didn't care about Mom's attitude and mischievously retorted as if scolding her, comparing her to Soa and Seyoung.</p>
+<p>Shiwoo didn't care about Mom's attitude and mischievously retorted as if scolding her, comparing her to Sua and Seyoung.</p>
 
 <p>Mom was silent for a moment...</p>
 

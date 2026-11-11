@@ -36,7 +36,7 @@ chapter = 271
 
 <p>Shiwoo learned about the affair between Dad and Sejin Nuna from the video he received from Seonju Imo.</p>
 
-<p>A short video of about 15 seconds featuring Sejin Nuna, Seonju Imo, and Soa.</p>
+<p>A short video of about 15 seconds featuring Sejin Nuna, Seonju Imo, and Sua.</p>
 
 <p>At the time, Shiwoo was so flustered that he didn't know how to accept the video.</p>
 

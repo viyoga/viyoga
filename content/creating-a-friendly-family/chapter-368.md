@@ -1,5 +1,5 @@
 +++
-title = "Chapter 368: [Incest] Creating a Close Family 368 (Sun-ju, Se-young, Soa [Explicit])"
+title = "Chapter 368: [Incest] Creating a Close Family 368 (Sun-ju, Se-young, Su-a [Explicit])"
 weight = 368
 [extra]
 chapter = 368
@@ -116,7 +116,7 @@ chapter = 368
 
 <p>Seyoung whispers in a small voice that Seonju Imo-nim wouldn't be able to hear.</p>
 
-<p>"With Soa!"</p>
+<p>"With Sua!"</p>
 
 <p>Seyoung whispers in Shiwoo's ear, as if confirming to Shiwoo again the words she had just said without making a sound.</p>
 
@@ -136,25 +136,25 @@ chapter = 368
 
 <p>Seyoung hands the handle of her leash to Shiwoo's hand, which is lying on top of Seonju Imo-nim's body, with her elbow on the bed mattress.</p>
 
-<p>Then, Seyoung grabs Seonju Imo-nim's leash, which is lying scattered on the bed, and hands it to Soa on the other side.</p>
+<p>Then, Seyoung grabs Seonju Imo-nim's leash, which is lying scattered on the bed, and hands it to Sua on the other side.</p>
 
-<p>Soa receives Seonju Imo-nim's leash from Seyoung and clutches it with both hands.</p>
+<p>Sua receives Seonju Imo-nim's leash from Seyoung and clutches it with both hands.</p>
 
-<p>Next, Seyoung grabs Soa's dog collar leash handle.</p>
+<p>Next, Seyoung grabs Sua's dog collar leash handle.</p>
 
 <p>A bizarre sight as if the leashes of the dog collars worn by each of them were connected.</p>
 
 <p>Shiwoo, not knowing what was going on, was watching Seyoung's actions as they were for a moment.</p>
 
-<p>Seyoung grabs Soa's leash, holding it short, and suddenly pulls it down.</p>
+<p>Seyoung grabs Sua's leash, holding it short, and suddenly pulls it down.</p>
 
-<p>Soa's body, which was sitting across from Seyoung with Seonju Imo-nim's body in between, suddenly leans forward and falls over.</p>
+<p>Sua's body, which was sitting across from Seyoung with Seonju Imo-nim's body in between, suddenly leans forward and falls over.</p>
 
-<p>Soa's face falls forward as Seyoung intended, sticking to Shiwoo's buttocks.</p>
+<p>Sua's face falls forward as Seyoung intended, sticking to Shiwoo's buttocks.</p>
 
 <p>"Haaaeueueueueut!"</p>
 
-<p>Soa was letting out a short moaning sound, as if momentarily surprised by Seyoung's sudden action of pulling the leash.</p>
+<p>Sua was letting out a short moaning sound, as if momentarily surprised by Seyoung's sudden action of pulling the leash.</p>
 
 <p>Seyoung swirls her middle finger, which had been inserted into Shiwoo's asshole, in a circle.</p>
 
@@ -166,25 +166,25 @@ chapter = 368
 
 <p>Seyoung wipes the filth on her middle finger on Seonju Imo-nim's apricot-colored silk slip, which is folded over her waist.</p>
 
-<p>Then, Seyoung grabs the hair of Soa, who had brought her face over Shiwoo's buttocks.</p>
+<p>Then, Seyoung grabs the hair of Sua, who had brought her face over Shiwoo's buttocks.</p>
 
-<p>Seyoung brings Soa's face to Shiwoo's asshole, which she had just stirred with her finger.</p>
+<p>Seyoung brings Sua's face to Shiwoo's asshole, which she had just stirred with her finger.</p>
 
-<p>"You have to stick your tongue out, Soa! Like you did to Seonju before!"</p>
+<p>"You have to stick your tongue out, Sua! Like you did to Seonju before!"</p>
 
-<p>Seyoung orders Soa, making a sound as if to be heard by everyone in the room this time, with a playful voice.</p>
+<p>Seyoung orders Sua, making a sound as if to be heard by everyone in the room this time, with a playful voice.</p>
 
 <p>She had already roughly guessed, but Seonju Imo-nim is also feeling ashamed, perhaps because Seyoung directly mentioned her and her daughter's actions in front of Shiwoo?</p>
 
 <p>Seonju Imo-nim's vagina hole, which was wrapping around Shiwoo's thing, was twitching at Seyoung's words.</p>
 
-<p>Following Seyoung's command, Soa's tongue, which was immediately stuck out, touches Shiwoo's asshole.</p>
+<p>Following Seyoung's command, Sua's tongue, which was immediately stuck out, touches Shiwoo's asshole.</p>
 
-<p>Soa's saliva wets Shiwoo's asshole.</p>
+<p>Sua's saliva wets Shiwoo's asshole.</p>
 
-<p>Soa is licking each wrinkle of his asshole with her wriggling tongue.</p>
+<p>Sua is licking each wrinkle of his asshole with her wriggling tongue.</p>
 
-<p>Shiwoo, as Soa licked his asshole familiarly, suddenly felt an intense sensation of ejaculation rushing in.</p>
+<p>Shiwoo, as Sua licked his asshole familiarly, suddenly felt an intense sensation of ejaculation rushing in.</p>
 
 <p>And without warning, the sensation of a tongue additionally touching Shiwoo's buttocks.</p>
 
@@ -194,33 +194,33 @@ chapter = 368
 
 <p>"Seonju, you fucking bitch! Because of you, your fucking daughter is sucking my cock like this right now, so what are you doing?!"</p>
 
-<p>Shiwoo, as Soa sucked his cock, spoke as if chiding Seonju Imo-nim.</p>
+<p>Shiwoo, as Sua sucked his cock, spoke as if chiding Seonju Imo-nim.</p>
 
 <p>"Haat... Yes... Heut... I'm sorry, Juinin-nim! I'll suck it right now!"</p>
 
 <p>Seonju Imo-nim, unable to properly open her eyes, groped Shiwoo's thigh with her hand and spoke guiltily.</p>
 
-<p>Seonju Imo-nim also soon brought her tongue to Shiwoo's penis and began sweeping up Shiwoo's penis from Soa's opposite side.</p>
+<p>Seonju Imo-nim also soon brought her tongue to Shiwoo's penis and began sweeping up Shiwoo's penis from Sua's opposite side.</p>
 
 <p>With the fellatio received simultaneously from mother and daughter, Shiwoo's mind seemed to grow distant.</p>
 
-<p>Seonju Imo-nim's and Soa's tongue play, sweeping across the skin on both sides of the shaft, facing each other.</p>
+<p>Seonju Imo-nim's and Sua's tongue play, sweeping across the skin on both sides of the shaft, facing each other.</p>
 
 <p>The sensation of pleasure was ecstatically filling Shiwoo's body and mind.</p>
 
-<p>Shiwoo looked down at Seonju Imo-nim's and Soa's faces, who were sucking his penis.</p>
+<p>Shiwoo looked down at Seonju Imo-nim's and Sua's faces, who were sucking his penis.</p>
 
-<p>Placing a hand on each of Soa's and Seonju Imo-nim's heads, Shiwoo fully savored the feeling of conquest.</p>
+<p>Placing a hand on each of Sua's and Seonju Imo-nim's heads, Shiwoo fully savored the feeling of conquest.</p>
 
 <p>Shiwoo's lips were curved upwards as if very satisfied.</p>
 
 <p>He moved the hands that had been placed on the two women's heads downwards, to the vicinity of their fastened leashes.</p>
 
-<p>Then, grabbing Soa's and Seonju Imo-nim's leashes, Shiwoo pulled them upwards.</p>
+<p>Then, grabbing Sua's and Seonju Imo-nim's leashes, Shiwoo pulled them upwards.</p>
 
-<p>Seonju Imo-nim's dog collar leash handle, held in Soa's hand, slipped weakly from Soa's hand.</p>
+<p>Seonju Imo-nim's dog collar leash handle, held in Sua's hand, slipped weakly from Sua's hand.</p>
 
-<p>Soa's leash handle, which had been hanging downwards, also came into Shiwoo's hand.</p>
+<p>Sua's leash handle, which had been hanging downwards, also came into Shiwoo's hand.</p>
 
 <p>Shiwoo coiled the two women's leash handles in one hand and snapped them hard, inducing the two women to lick his penis even more fiercely.</p>
 
@@ -230,7 +230,7 @@ chapter = 368
 
 <p>'If only Seyoung's mouth were added here...'</p>
 
-<p>Shiwoo suddenly recalled a scene of Seyoung, Soa, and Seonju Imo-nim simultaneously sucking his penis.</p>
+<p>Shiwoo suddenly recalled a scene of Seyoung, Sua, and Seonju Imo-nim simultaneously sucking his penis.</p>
 
 <p>As he imagined that scene, pre-ejaculate gushed, seeming to pour from the slit at the tip of his glans.</p>
 

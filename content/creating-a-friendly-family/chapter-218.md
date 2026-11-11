@@ -70,7 +70,7 @@ chapter = 218
 
 <p>Shiwoo asked Mom in a calm tone, as if momentarily suppressing his rising excitement. "Th-the kids..."</p>
 
-<p>Mom seemed concerned about Seyoung and Soa in the living room. "Mmm..."</p>
+<p>Mom seemed concerned about Seyoung and Sua in the living room. "Mmm..."</p>
 
 <p>Shiwoo replied to her as if he knew what Mom was worried about. "P-please be gentle... I-I beg you..."</p>
 

@@ -1,16 +1,16 @@
 +++
-title = "Chapter 323: [Incest] Creating a Close Family 323 (Mom, Se-hee, Se-young, Soa)"
+title = "Chapter 323: [Incest] Creating a Close Family 323 (Mom, Se-hee, Se-young, Su-a)"
 weight = 323
 [extra]
 chapter = 323
 +++
 <p>The number next to the text in the chat room disappeared.</p>
 
-<p>Seyoung and Soa had checked Shiwoo's text on their respective smartphones.</p>
+<p>Seyoung and Sua had checked Shiwoo's text on their respective smartphones.</p>
 
-<p>Even though they were probably looking at Shiwoo's text at the same time, Shiwoo was ordering Seyoung to convey the lewd act he was going to make Soa do, as if giving an order.</p>
+<p>Even though they were probably looking at Shiwoo's text at the same time, Shiwoo was ordering Seyoung to convey the lewd act he was going to make Sua do, as if giving an order.</p>
 
-<p>'Okay I'll tell Soa that'</p>
+<p>'Okay I'll tell Sua that'</p>
 
 <p>Seyoung answered Shiwoo's command obediently, as if she had heard nothing of importance.</p>
 
@@ -32,7 +32,7 @@ chapter = 323
 
 <p>Shiwoo's heart pounded at the thought of Seyoung walking around the department store in that state.</p>
 
-<p>And Shiwoo was planning to turn Seyoung's discarded panties inside out and put them in Soa's bag.</p>
+<p>And Shiwoo was planning to turn Seyoung's discarded panties inside out and put them in Sua's bag.</p>
 
 <p>Shiwoo's plan was to make Seyoung wear the panties that were full of his semen again.</p>
 
@@ -52,7 +52,7 @@ chapter = 323
 
 <p>But when he actually tried to order Seyoung to do something perverted directly, a sense of depraved sinfulness filled Shiwoo's heart like a shiver.</p>
 
-<p>'Take off the panties you're wearing now and put them in Soa's bag!'</p>
+<p>'Take off the panties you're wearing now and put them in Sua's bag!'</p>
 
 <p>Shiwoo writes the text and seems to hesitate for a moment before touching the send button in the chat window with his finger.</p>
 
@@ -62,7 +62,7 @@ chapter = 323
 
 <p>Seyoung was asking as if trying to confirm the order Shiwoo had given.</p>
 
-<p>'Yes! Turn them inside out and put them in! The semen in Soa's bag! Make sure it gets smeared well on the pussy part of your panties, Seyoung!'</p>
+<p>'Yes! Turn them inside out and put them in! The semen in Sua's bag! Make sure it gets smeared well on the pussy part of your panties, Seyoung!'</p>
 
 <p>Shiwoo deliberately uses words like semen and pussy explicitly, giving Seyoung additional instructions.</p>
 
@@ -74,9 +74,9 @@ chapter = 323
 
 <p>Did she understand that Shiwoo was thinking of making her wear her panties, which were dirtied with his semen, again?</p>
 
-<p>Seyoung turning her orange striped panties inside out and pushing them into Soa's bag, which was covered in semen,</p>
+<p>Seyoung turning her orange striped panties inside out and pushing them into Sua's bag, which was covered in semen,</p>
 
-<p>And Soa lowering her panties to her knees and replacing them with the panty liner in the bag that was covered in semen.</p>
+<p>And Sua lowering her panties to her knees and replacing them with the panty liner in the bag that was covered in semen.</p>
 
 <p>Just imagining the sight of his two younger sisters following Shiwoo's orders made Shiwoo's breathing quicken.</p>
 
@@ -88,7 +88,7 @@ chapter = 323
 
 <p>The text messages with his sisters stopped after Shiwoo's order and Seyoung's reply.</p>
 
-<p>Shiwoo was waiting in case Seyoung would take a video of herself taking off her panties or Soa changing her panty liner and send it to him on her own.</p>
+<p>Shiwoo was waiting in case Seyoung would take a video of herself taking off her panties or Sua changing her panty liner and send it to him on her own.</p>
 
 <p>He didn't have the certainty that Seyoung would take such a video and send it because he hadn't ordered her to do so separately, but Shiwoo was still secretly hoping for it.</p>
 
@@ -98,19 +98,19 @@ chapter = 323
 
 <p>Shiwoo's smartphone was still vibrating strongly.</p>
 
-<p>The vibrator that Soa was wearing must also be vibrating at its highest intensity.</p>
+<p>The vibrator that Sua was wearing must also be vibrating at its highest intensity.</p>
 
 <p>Shiwoo switches the screen to the vibrator operation app and checks the remaining battery level.</p>
 
 <p>The number indicating the remaining battery level, written as 1 percent in the status bar on the screen, is flashing wildly.</p>
 
-<p>Soon, the vibrator will stop vibrating and Soa will be freed from the pain of pleasure.</p>
+<p>Soon, the vibrator will stop vibrating and Sua will be freed from the pain of pleasure.</p>
 
 <p>With various complicated feelings and a sense of regret, Shiwoo touches the screen to adjust the intensity of the vibrator up and down.</p>
 
 <p>The vibration intensity of the smartphone is changing according to Shiwoo's finger movements.</p>
 
-<p>Shiwoo was thinking of giving Soa a final, fluctuating pleasure by moving his finger up and down from the weakest intensity to the strongest.</p>
+<p>Shiwoo was thinking of giving Sua a final, fluctuating pleasure by moving his finger up and down from the weakest intensity to the strongest.</p>
 
 <p>While he was moving his finger up and down on the screen several times, the vibration of the smartphone stops.</p>
 
@@ -126,7 +126,7 @@ chapter = 323
 
 <p>Will he be able to break through his sisters' hymens today and stir the inside of their vagina holes with this huge penis?</p>
 
-<p>Shiwoo imagines the sensation of the secret mucous membranes inside Soa and Seyoung's vagina holes and strokes the shaft of his penis, which is once again soaked with Cowper's fluid, with his hand.</p>
+<p>Shiwoo imagines the sensation of the secret mucous membranes inside Sua and Seyoung's vagina holes and strokes the shaft of his penis, which is once again soaked with Cowper's fluid, with his hand.</p>
 
 <p>A tingling pleasure and a maddening, depraved excitement make Shiwoo's body tremble.</p>
 

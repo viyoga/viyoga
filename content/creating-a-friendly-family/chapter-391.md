@@ -228,6 +228,6 @@ chapter = 391
 
 <p>Overwhelmed by pain, Sinbi Nuna answers, mixing in respectful speech, as if spitting out the truth.</p>
 
-<p>For a moment, Shiwoo recalls Soa's appearance, who was said to have been trained by Seonju Imo since childhood.</p>
+<p>For a moment, Shiwoo recalls Sua's appearance, who was said to have been trained by Seonju Imo since childhood.</p>
 
 <p>As expected, Sinbi Nuna seemed to know in detail about Shiwoo and his family's secrets.</p>

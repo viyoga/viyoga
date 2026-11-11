@@ -34,7 +34,7 @@ chapter = 90
 
 <p>Seonju Imo poured a mouthful of beer into her mouth.</p>
 
-<p>"Kyaa That's refreshing Shiwoo gave me a proper massage today, so I feel even better Should I bring Soa and Seyoung next time and we can all get one together? Would that be a little too stimulating for the kids? Kikik."</p>
+<p>"Kyaa That's refreshing Shiwoo gave me a proper massage today, so I feel even better Should I bring Sua and Seyoung next time and we can all get one together? Would that be a little too stimulating for the kids? Kikik."</p>
 
 <p>Seonju Imo's provocative lewd talk, starting again as if for Sehee Nuna to hear.</p>
 

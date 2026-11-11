@@ -1,5 +1,5 @@
 +++
-title = "Chapter 642: [Incest] Making a Friendly Family 642 (Cafe, Motel) (Mom, Se-hee, Se-young, Soa)"
+title = "Chapter 642: [Incest] Making a Friendly Family 642 (Cafe, Motel) (Mom, Se-hee, Se-young, Su-ah)"
 weight = 642
 [extra]
 chapter = 642
@@ -124,15 +124,15 @@ chapter = 642
 
 <p>"Shiwoo-oppa, we're here"</p>
 
-<p>Before he knew it, Seyoung and Soa had come down to the cafe and approached the seat where Shiwoo was.</p>
+<p>Before he knew it, Seyoung and Sua had come down to the cafe and approached the seat where Shiwoo was.</p>
 
-<p>"Oh Soa, Seyoung you're here? Did you finish your classes well?"</p>
+<p>"Oh Sua, Seyoung you're here? Did you finish your classes well?"</p>
 
 <p>Shiwoo greeted the two girls while still unable to escape the tingling sensations he felt. His penis was still standing tall...</p>
 
 <p>Seyoung walked over, wearing the same clothes she had on this morning, carrying a seductive atmosphere that didn't suit her age. The illusion of seeing a scene walking out from somewhere between reality and a dream faintly echoed in Shiwoo's chest.</p>
 
-<p>Soa was wearing a fluttering skirt and a light blouse that slightly revealed her skin. The immature sensuality contained within it similarly gave Shiwoo a strange sense of déjà vu, enough to make him lose his sense of reality.</p>
+<p>Sua was wearing a fluttering skirt and a light blouse that slightly revealed her skin. The immature sensuality contained within it similarly gave Shiwoo a strange sense of déjà vu, enough to make him lose his sense of reality.</p>
 
 <p>"Yeah! What about you, Shiwoo-oppa? Did you have a good talk with Sejin-eonni?"</p>
 

@@ -36,7 +36,7 @@ chapter = 60
 
 <p>Even though Imo's flesh was gradually being covered by clothes, it felt much more sexually suggestive than a scene of an actress undressing in any pornographic video.</p>
 
-<p>"So, after the academy, I pick up Soa and Seyoung from Seonju Imo's house and then go to the magic academy together, right?"</p>
+<p>"So, after the academy, I pick up Sua and Seyoung from Seonju Imo's house and then go to the magic academy together, right?"</p>
 
 <p>Shiwoo's penis, becoming erect, was being raised towards Seonju Imo and Seyoung, who were getting dressed.</p>
 

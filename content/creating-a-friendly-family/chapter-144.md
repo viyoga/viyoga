@@ -240,7 +240,7 @@ chapter = 144
 
 <p>Seonju Imo's text message comes back without any playfulness, sensing Shiwoo's cautious atmosphere.</p>
 
-<p>'Soa's Dad, you know?'</p>
+<p>'Sua's Dad, you know?'</p>
 
 <p>Shiwoo slowly writes and sends a text message.</p>
 
@@ -256,7 +256,7 @@ chapter = 144
 
 <p>'The person I'm thinking of?'</p>
 
-<p>Shiwoo was indirectly asking about the identity of Soa's Dad.</p>
+<p>Shiwoo was indirectly asking about the identity of Sua's Dad.</p>
 
 <p>'Yeah. It's probably right.'</p>
 

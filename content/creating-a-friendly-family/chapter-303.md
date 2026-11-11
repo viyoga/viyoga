@@ -1,50 +1,50 @@
 +++
-title = "Chapter 303: [Incest] Creating a Close Family 303 (Sun-ju, Se-young, Soa)"
+title = "Chapter 303: [Incest] Creating a Close Family 303 (Sun-ju, Se-young, Su-a)"
 weight = 303
 [extra]
 chapter = 303
 +++
 <p>,Are you all ready?,</p>
 
-<p>Shiwoo asks Soa, still presenting his erect penis.</p>
+<p>Shiwoo asks Sua, still presenting his erect penis.</p>
 
 <p>,Yes... I'm... all ready...,</p>
 
-<p>Soa answers Shiwoo's question in a small, almost inaudible voice.</p>
+<p>Sua answers Shiwoo's question in a small, almost inaudible voice.</p>
 
-<p>Soa avoids Shiwoo's eyes, wearing a shy smile.</p>
+<p>Sua avoids Shiwoo's eyes, wearing a shy smile.</p>
 
-<p>Soa is wearing a fluttering reddish-brown camisole dress that looks like an apron.</p>
+<p>Sua is wearing a fluttering reddish-brown camisole dress that looks like an apron.</p>
 
 <p>The dress's skirt is almost mid-thigh in length.</p>
 
-<p>The red fabric covers the upper part of Soa's long and alluring thighs.</p>
+<p>The red fabric covers the upper part of Sua's long and alluring thighs.</p>
 
-<p>Below that, Soa's long legs are covered in snow-white over-the-knee socks.</p>
+<p>Below that, Sua's long legs are covered in snow-white over-the-knee socks.</p>
 
 <p>As if matching her coordination with Seyoung, the top part of the camisole dress reveals her bare skin, with nothing worn underneath.</p>
 
-<p>Soa's fair and white skin, coolly exposing her shoulders and collarbones above her breasts, makes Shiwoo's heart flutter.</p>
+<p>Sua's fair and white skin, coolly exposing her shoulders and collarbones above her breasts, makes Shiwoo's heart flutter.</p>
 
-<p>A mini crossbody bag strap is diagonally connected from one exposed shoulder of Soa to the opposite hip.</p>
+<p>A mini crossbody bag strap is diagonally connected from one exposed shoulder of Sua to the opposite hip.</p>
 
 <p>A red mini crossbody bag with a rabbit picture on it, just big enough to fit a smartphone.</p>
 
 <p>Except for the fact that she isn't wearing a T-shirt under her dress, it's a common outfit for a junior academy student.</p>
 
-<p>Shiwoo notices an unfamiliar item on Soa's body.</p>
+<p>Shiwoo notices an unfamiliar item on Sua's body.</p>
 
-<p>It's a portable mini fan hanging around Soa's neck like a necklace with a white string.</p>
+<p>It's a portable mini fan hanging around Sua's neck like a necklace with a white string.</p>
 
 <p>Even though the weather is still cool, is she going out with a portable fan around her neck?</p>
 
-<p>Shiwoo, feeling slightly doubtful, stares at the fan hanging around Soa's neck for a moment.</p>
+<p>Shiwoo, feeling slightly doubtful, stares at the fan hanging around Sua's neck for a moment.</p>
 
-<p>Shiwoo was about to ask Soa something, but he thought that carrying a mini fan might be a popular fashion trend among junior academy students these days, so he tried to brush it off as if it were nothing.</p>
+<p>Shiwoo was about to ask Sua something, but he thought that carrying a mini fan might be a popular fashion trend among junior academy students these days, so he tried to brush it off as if it were nothing.</p>
 
 <p>,I brought it because I thought I might need it when I go outside today!,</p>
 
-<p>Seonju-imo says to Shiwoo, who was looking at the fan around Soa's neck with a doubtful expression, as if explaining the situation on Soa's behalf.</p>
+<p>Seonju-imo says to Shiwoo, who was looking at the fan around Sua's neck with a doubtful expression, as if explaining the situation on Sua's behalf.</p>
 
 <p>,What?,</p>
 
@@ -54,27 +54,27 @@ chapter = 303
 
 <p>Seonju-imo says, laughing as if joking, repeating the same incomprehensible explanation as before.</p>
 
-<p>Shiwoo shifts his gaze to the portable mini fan around Soa's neck and stares at it as if observing it carefully.</p>
+<p>Shiwoo shifts his gaze to the portable mini fan around Sua's neck and stares at it as if observing it carefully.</p>
 
 <p>Shiwoo felt a strange, uncomfortable feeling that he couldn't understand about the awkwardness he felt in Seonju-imo's words.</p>
 
-<p>The plump breasts and skin of Soa, on which the mini fan is placed, easily stimulate Shiwoo's excitement/arousal.</p>
+<p>The plump breasts and skin of Sua, on which the mini fan is placed, easily stimulate Shiwoo's excitement/arousal.</p>
 
-<p>Shiwoo carelessly reaches out and grabs the fan located on Soa's chest.</p>
+<p>Shiwoo carelessly reaches out and grabs the fan located on Sua's chest.</p>
 
-<p>Shiwoo's hand, holding the fan, was pressing down on Soa's swollen breasts.</p>
+<p>Shiwoo's hand, holding the fan, was pressing down on Sua's swollen breasts.</p>
 
-<p>When Shiwoo's hand touched her, Soa blushed, looked at Seonju-imo, and twisted her body slightly with an expression of not knowing what to do.</p>
+<p>When Shiwoo's hand touched her, Sua blushed, looked at Seonju-imo, and twisted her body slightly with an expression of not knowing what to do.</p>
 
-<p>Soa's slender body, wrapped in a reddish-brown dress, was twisting from side to side, moving as if it was trembling slightly.</p>
+<p>Sua's slender body, wrapped in a reddish-brown dress, was twisting from side to side, moving as if it was trembling slightly.</p>
 
-<p>Shiwoo feels the sensation of Soa's breasts being pressed against the back of his hand, changing positions as if he was deliberately acting out.</p>
+<p>Shiwoo feels the sensation of Sua's breasts being pressed against the back of his hand, changing positions as if he was deliberately acting out.</p>
 
 <p>,She needs it in crowded places?,</p>
 
-<p>Ignoring Soa's reaction, Shiwoo still asks Seonju-imo's words, repeating them as if he still doesn't understand.</p>
+<p>Ignoring Sua's reaction, Shiwoo still asks Seonju-imo's words, repeating them as if he still doesn't understand.</p>
 
-<p>Seeing Shiwoo rubbing his hand on Soa's chest while asking the question, Seonju-imo only smiled as if trying to tease him, without answering anything.</p>
+<p>Seeing Shiwoo rubbing his hand on Sua's chest while asking the question, Seonju-imo only smiled as if trying to tease him, without answering anything.</p>
 
 <p>Seyoung, who is sitting next to him, still looks at Shiwoo with a bright smile, as if she doesn't know anything.</p>
 
@@ -94,7 +94,7 @@ chapter = 303
 
 <p>,...S...Shall we get going?,</p>
 
-<p>Shiwoo says to Seyoung and Soa in a restless and awkward mood.</p>
+<p>Shiwoo says to Seyoung and Sua in a restless and awkward mood.</p>
 
 <p>,Already? Are you leaving like that?,</p>
 
@@ -116,9 +116,9 @@ chapter = 303
 
 <p>Seyoung, knowing or not knowing Shiwoo's mood, answers Seonju-imo's words with a bright smile.</p>
 
-<p>,Okay Seyoung and Soa You have to listen to Oppa well while walking around the department store today!? Stick close to Oppa so you don't get separated!,</p>
+<p>,Okay Seyoung and Sua You have to listen to Oppa well while walking around the department store today!? Stick close to Oppa so you don't get separated!,</p>
 
-<p>Seonju-imo says as if giving a warning to Seyoung and Soa.</p>
+<p>Seonju-imo says as if giving a warning to Seyoung and Sua.</p>
 
 <p>,Don't worry, Seonju-imo! I'll listen well and stick right next to him!,</p>
 
@@ -126,7 +126,7 @@ chapter = 303
 
 <p>,Yes... I'll do that...,</p>
 
-<p>Soa, watching Shiwoo's reaction, follows Seyoung and answers Seonju-imo.</p>
+<p>Sua, watching Shiwoo's reaction, follows Seyoung and answers Seonju-imo.</p>
 
 <p>If someone who didn't know the situation heard Seonju-imo's words and the younger sisters' answers, they might think it was a request and answer to follow the leader's instructions well.</p>
 
@@ -138,7 +138,7 @@ chapter = 303
 
 <p>Seyoung comes right next to Shiwoo, as if she is about to follow him.</p>
 
-<p>Soa also soon approached Shiwoo, preparing to leave the house, as if trying to follow Seonju-imo's words.</p>
+<p>Sua also soon approached Shiwoo, preparing to leave the house, as if trying to follow Seonju-imo's words.</p>
 
 <p>Shiwoo and his younger sisters, who had finished preparing to go to the department store.</p>
 
@@ -182,27 +182,27 @@ chapter = 303
 
 <p>Seyoung, as if Seonju-imo's touch was nothing, hugged Seonju-imo's body back and greeted her in response.</p>
 
-<p>,Soa, have a safe trip too!</p>
+<p>,Sua, have a safe trip too!</p>
 
-<p>Seonju-imo, following Seyoung, also hugs Soa into her arms and greets her.</p>
+<p>Seonju-imo, following Seyoung, also hugs Sua into her arms and greets her.</p>
 
 <p>All of his younger sisters were being held in Seonju-imo's arms.</p>
 
-<p>Similarly, Seonju-imo strokes Soa's back, pats her buttocks, and then spreads her palms wide and strokes Soa's buttocks.</p>
+<p>Similarly, Seonju-imo strokes Sua's back, pats her buttocks, and then spreads her palms wide and strokes Sua's buttocks.</p>
 
-<p>Seonju-imo was looking at Shiwoo over the shoulders of Soa and Seyoung, who were hugging her at the same time, and making eye contact.</p>
+<p>Seonju-imo was looking at Shiwoo over the shoulders of Sua and Seyoung, who were hugging her at the same time, and making eye contact.</p>
 
 <p>With a seductive smile on her face, as if showing Shiwoo an example...</p>
 
 <p>,Ugh..uuung...,</p>
 
-<p>A small sound, whether it was an answer or a moan, flowed from Soa's mouth.</p>
+<p>A small sound, whether it was an answer or a moan, flowed from Sua's mouth.</p>
 
 <p>Along with the desire for an unbearable ejaculation, a feeling of heartbreaking excitement/arousal was pressing down on Shiwoo's chest.</p>
 
 <p>Seyoung stands right next to Shiwoo, as if she is about to follow him.</p>
 
-<p>Soa also soon approached Shiwoo, preparing to leave the house, as if trying to follow Seonju-imo's words.</p>
+<p>Sua also soon approached Shiwoo, preparing to leave the house, as if trying to follow Seonju-imo's words.</p>
 
 <p>Shiwoo and his younger sisters, who had finished preparing to go to the department store.</p>
 
@@ -246,20 +246,20 @@ chapter = 303
 
 <p>Seyoung, as if Seonju-imo's touch was nothing, hugged Seonju-imo's body back and greeted her in response.</p>
 
-<p>,Soa, have a safe trip too!</p>
+<p>,Sua, have a safe trip too!</p>
 
-<p>Seonju-imo, following Seyoung, also hugs Soa into her arms and greets her.</p>
+<p>Seonju-imo, following Seyoung, also hugs Sua into her arms and greets her.</p>
 
 <p>All of his younger sisters were being held in Seonju-imo's arms.</p>
 
-<p>Similarly, Seonju-imo strokes Soa's back, pats her buttocks, and then spreads her palms wide and strokes Soa's buttocks.</p>
+<p>Similarly, Seonju-imo strokes Sua's back, pats her buttocks, and then spreads her palms wide and strokes Sua's buttocks.</p>
 
-<p>Seonju-imo was looking at Shiwoo over the shoulders of Soa and Seyoung, who were hugging her at the same time, and making eye contact.</p>
+<p>Seonju-imo was looking at Shiwoo over the shoulders of Sua and Seyoung, who were hugging her at the same time, and making eye contact.</p>
 
 <p>With a seductive smile on her face, as if showing Shiwoo an example...</p>
 
 <p>,Ugh..uuung...,</p>
 
-<p>A small sound, whether it was an answer or a moan, flowed from Soa's mouth.</p>
+<p>A small sound, whether it was an answer or a moan, flowed from Sua's mouth.</p>
 
 <p>Along with the desire for an unbearable ejaculation, a feeling of heartbreaking excitement/arousal was pressing down on Shiwoo's chest.</p>

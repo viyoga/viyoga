@@ -8,7 +8,7 @@ chapter = 613
 
 <p>Shiwoo's words, mixed with impatience and dissatisfaction, seemed to echo and spread through the air.</p>
 
-<p>,Seonmi too! Seonju too! Sehee too! Seyoung too! Soa too! They're all mine! I'm the master, I'm telling you!"</p>
+<p>,Seonmi too! Seonju too! Sehee too! Seyoung too! Sua too! They're all mine! I'm the master, I'm telling you!"</p>
 
 <p>Shiwoo continued, calling out the names of his family members as if listing them, then declaring in front of Sejin Nuna that he was the master.</p>
 

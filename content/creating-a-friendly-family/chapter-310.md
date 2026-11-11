@@ -1,5 +1,5 @@
 +++
-title = "Chapter 310: [Incest] Creating a Close Family 310 (Sun-ju, Se-young, Soa)"
+title = "Chapter 310: [Incest] Creating a Close Family 310 (Sun-ju, Se-young, Su-a)"
 weight = 310
 [extra]
 chapter = 310
@@ -56,7 +56,7 @@ chapter = 310
 
 <p>Shiwoo suddenly feels very fond of Seonju Imo, as if she has become his baby.</p>
 
-<p>,I won't do anything as harsh to Soa as I did to you, Seonju, so don't worry.,</p>
+<p>,I won't do anything as harsh to Sua as I did to you, Seonju, so don't worry.,</p>
 
 <p>Shiwoo says, putting the water cup on the table next to the sofa after making Seonju Imo empty a cup of water.</p>
 
@@ -78,7 +78,7 @@ chapter = 310
 
 <p>Listening to Seonju Imo's answer, which is difficult to distinguish whether it is a sincere statement or a joke, Shiwoo closes his mouth for a moment as if lost in thought.</p>
 
-<p>,But what are you going to do if you really get pregnant? Can Soa continue to go to school?,</p>
+<p>,But what are you going to do if you really get pregnant? Can Sua continue to go to school?,</p>
 
 <p>Shiwoo was asking Seonju Imo as if he was trying to consider the realistic problem only now.</p>
 
@@ -90,7 +90,7 @@ chapter = 310
 
 <p>Shiwoo was reacting as if he was embarrassed by Seonju Imo's words teasing him.</p>
 
-<p>,If I get pregnant I can just take Soa abroad for a while and come back, so don't worry When I come back, I'll just insist to people that it's my child Kikik.,</p>
+<p>,If I get pregnant I can just take Sua abroad for a while and come back, so don't worry When I come back, I'll just insist to people that it's my child Kikik.,</p>
 
 <p>It was Seonju Imo who was reassuring Shiwoo, presenting a specific solution even though she still had a playful tone.</p>
 
@@ -126,13 +126,13 @@ chapter = 310
 
 <p>Seonju Imo, as if she realized what Shiwoo was thinking and why he was touching her breasts like that, deliberately lets out a long, sobbing moan.</p>
 
-<p>,I...I hope it's a son who looks like Master-nim ...I don't mind if it's a daughter either!\ But if it's a daughter, will she have to serve Master-nim like Soa? Kikik!,</p>
+<p>,I...I hope it's a son who looks like Master-nim ...I don't mind if it's a daughter either!\ But if it's a daughter, will she have to serve Master-nim like Sua? Kikik!,</p>
 
 <p>Seonju Imo leans her face gently on Shiwoo's shoulder and says playfully as if whispering.</p>
 
 <p>Shiwoo imagines Seonju Imo, who will one day receive his seed and become pregnant, and then even produce breast milk.</p>
 
-<p>And even Soa, who is swelling her belly at the same time as Seonju Imo...</p>
+<p>And even Sua, who is swelling her belly at the same time as Seonju Imo...</p>
 
 <p>Shiwoo's thing swells up so massively as if it will burst, and begins to writhe as if performing reproductive acts of delusion in the air.</p>
 
@@ -140,7 +140,7 @@ chapter = 310
 
 <p>Shiwoo finishes talking with Seonju Imo and leaves the house.</p>
 
-<p>Shiwoo now knows for sure what Seonju Imo is thinking about him getting himself and Soa pregnant.</p>
+<p>Shiwoo now knows for sure what Seonju Imo is thinking about him getting himself and Sua pregnant.</p>
 
 <p>Is Seonju Imo doing this because of the master-slave bond established by the slave contract?</p>
 
@@ -158,7 +158,7 @@ chapter = 310
 
 <p>The younger sisters were watching their smartphones and waiting for Shiwoo.</p>
 
-<p>As Shiwoo opened the door and came out, Seyoung and Soa, who were watching the smartphone, took their eyes off it and turned to Shiwoo.</p>
+<p>As Shiwoo opened the door and came out, Seyoung and Sua, who were watching the smartphone, took their eyes off it and turned to Shiwoo.</p>
 
 <p>,Did you finish talking well with Seonju Imo? Hehe,</p>
 
@@ -198,6 +198,6 @@ chapter = 310
 
 <p>The gate of Seonju Imo's house closes with a kwang sound.</p>
 
-<p>Shiwoo walks, following behind Seyoung and Soa, who are going ahead as if urging him.</p>
+<p>Shiwoo walks, following behind Seyoung and Sua, who are going ahead as if urging him.</p>
 
 <p>Shiwoo's thing, which is still stiffly erect, was still in a state of erection, walking while watching and admiring the younger sisters' backs.</p>

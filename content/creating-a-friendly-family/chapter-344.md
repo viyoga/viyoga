@@ -1,10 +1,10 @@
 +++
-title = "Chapter 344: [Incest] Creating a Close Family 344 (Se-young, Soa [Explicit])"
+title = "Chapter 344: [Incest] Creating a Close Family 344 (Se-young, Su-a [Explicit])"
 weight = 344
 [extra]
 chapter = 344
 +++
-<p>Shiwoo tickles Soa and Seyoung's delicate flower petals with his fingers.</p>
+<p>Shiwoo tickles Sua and Seyoung's delicate flower petals with his fingers.</p>
 
 <p>"Huum... tchu-up heueu... tchu-ap... ha-up."</p>
 
@@ -26,41 +26,41 @@ chapter = 344
 
 <p>The sisters also seem to have noticed the sounds and presence from behind, and they are moving busily as if hastily fixing their clothes.</p>
 
-<p>Shiwoo gropes around, touching Soa and Seyoung's bodies.</p>
+<p>Shiwoo gropes around, touching Sua and Seyoung's bodies.</p>
 
 <p>The sisters seem to be pulling down the dresses that Shiwoo had draped over their heads, putting their arms through the sleeves, and getting dressed again.</p>
 
-<p>Shiwoo reaches out towards Soa's calves.</p>
+<p>Shiwoo reaches out towards Sua's calves.</p>
 
-<p>Soa's panties, which had been around her ankles, have already been pulled up.</p>
+<p>Sua's panties, which had been around her ankles, have already been pulled up.</p>
 
-<p>With a hopeful thought, Shiwoo reaches his hand inside Soa's skirt.</p>
+<p>With a hopeful thought, Shiwoo reaches his hand inside Sua's skirt.</p>
 
 <p>Just a thin piece of fabric hanging between her legs under the skirt, halfway down her thighs.</p>
 
-<p>As Shiwoo had ordered before undressing her, Soa did not pull her panties all the way up to her hips, but left them hanging halfway down her thighs.</p>
+<p>As Shiwoo had ordered before undressing her, Sua did not pull her panties all the way up to her hips, but left them hanging halfway down her thighs.</p>
 
-<p>Shiwoo pats Soa's bare skin buttocks as if praising her.</p>
+<p>Shiwoo pats Sua's bare skin buttocks as if praising her.</p>
 
-<p>"Soa listens well, huh? That bitch Seonju always tries to do whatever she wants, so I scold her and punish her..."</p>
+<p>"Sua listens well, huh? That bitch Seonju always tries to do whatever she wants, so I scold her and punish her..."</p>
 
 <p>Shiwoo whispers insults about her aunt into her ear in a small voice.</p>
 
 <p>Was it because he was cursing and speaking disrespectfully about her Mom, Seonju Imo-nim, or was it because Shiwoo's voice whispering in her ear tickled her?</p>
 
-<p>Soa takes a long, unnatural, trembling breath.</p>
+<p>Sua takes a long, unnatural, trembling breath.</p>
 
-<p>"Since you listened so well, from now on, Soa will have to take all of Seonju's punishments instead."</p>
+<p>"Since you listened so well, from now on, Sua will have to take all of Seonju's punishments instead."</p>
 
-<p>Shiwoo spreads out the hand he had been patting with, covers Soa's buttocks, and rubs them gently as he speaks in a low voice.</p>
+<p>Shiwoo spreads out the hand he had been patting with, covers Sua's buttocks, and rubs them gently as he speaks in a low voice.</p>
 
-<p>Soa listens to Shiwoo's words, taking several ragged breaths as if she is feeling sorry for herself.</p>
+<p>Sua listens to Shiwoo's words, taking several ragged breaths as if she is feeling sorry for herself.</p>
 
-<p>Shiwoo squeezes Soa's buttocks tightly once with his hand, then removes his hand from under her skirt.</p>
+<p>Shiwoo squeezes Sua's buttocks tightly once with his hand, then removes his hand from under her skirt.</p>
 
 <p>Then, Shiwoo immediately pulls his sisters to their feet.</p>
 
-<p>Shiwoo grabs Soa and Seyoung's arms and pulls them to his sides, hugging them close to him again.</p>
+<p>Shiwoo grabs Sua and Seyoung's arms and pulls them to his sides, hugging them close to him again.</p>
 
 <p>The sisters follow Shiwoo's lead, entrusting their bodies to him.</p>
 
@@ -84,11 +84,11 @@ chapter = 344
 
 <p>Shiwoo is overly conscious of the camera and reaches his hands inside his sisters' dresses, where their shoulders are exposed.</p>
 
-<p>Shiwoo's hands, which brush against their armpits, cover Soa and Seyoung's bulging breasts.</p>
+<p>Shiwoo's hands, which brush against their armpits, cover Sua and Seyoung's bulging breasts.</p>
 
 <p>The soft, supple flesh, soaked with saliva and semen, comes into Shiwoo's hands.</p>
 
-<p>Shiwoo squeezes Soa and Seyoung's breasts tightly with the hands inside their dresses.</p>
+<p>Shiwoo squeezes Sua and Seyoung's breasts tightly with the hands inside their dresses.</p>
 
 <p>The sisters walk without even moaning, as if ashamed in front of the CCTV camera.</p>
 
@@ -98,7 +98,7 @@ chapter = 344
 
 <p>"Heu-eut."</p>
 
-<p>Soa and Seyoung let out short moans at the stimulation felt in their nipples.</p>
+<p>Sua and Seyoung let out short moans at the stimulation felt in their nipples.</p>
 
 <p>Shiwoo gently rolls his sisters' nipples, occasionally squeezing and pressing them with force, as if pinching them.</p>
 
@@ -106,7 +106,7 @@ chapter = 344
 
 <p>The sisters let out long groans, seemingly feeling both pain and excitement from Shiwoo's fingers, which strongly press down on their nipples like a hydraulic press.</p>
 
-<p>Shiwoo pushes and pulls Soa and Seyoung's nipples forward alternately, as if milking a cow.</p>
+<p>Shiwoo pushes and pulls Sua and Seyoung's nipples forward alternately, as if milking a cow.</p>
 
 <p>Before long, the thought that breast milk for Shiwoo and Shiwoo's baby will one day come from these soft, supple breasts and nipples fills Shiwoo's chest with a strange stirring.</p>
 
@@ -120,9 +120,9 @@ chapter = 344
 
 <p>Occasionally, actors in makeup would pop out and startle Shiwoo and his sisters.</p>
 
-<p>Each time, Shiwoo would take his hands out from inside Soa and Seyoung's clothes and pretend not to notice, wrapping his arms around their waists.</p>
+<p>Each time, Shiwoo would take his hands out from inside Sua and Seyoung's clothes and pretend not to notice, wrapping his arms around their waists.</p>
 
-<p>After the actors in makeup passed by, he would calm Soa and Seyoung, who were trembling as if startled while being held by Shiwoo.</p>
+<p>After the actors in makeup passed by, he would calm Sua and Seyoung, who were trembling as if startled while being held by Shiwoo.</p>
 
 <p>After the sisters calmed down, Shiwoo would invariably put his hands back inside their clothes and naturally grasp their bare breasts.</p>
 
@@ -142,7 +142,7 @@ chapter = 344
 
 <p>But as soon as they came outside, they were tidying their clothes as if nothing had happened, pretending that nothing was wrong.</p>
 
-<p>Shiwoo didn't dislike the attitude that Soa and Seyoung were showing.</p>
+<p>Shiwoo didn't dislike the attitude that Sua and Seyoung were showing.</p>
 
 <p>Mom, Seonju Imo, and everyone else connected to the secrets of Shiwoo's family had previously shown each other a vague and strange attitude.</p>
 
@@ -158,7 +158,7 @@ chapter = 344
 
 <p>"Eueu... eung..."</p>
 
-<p>Soa and Seyoung answered as if reacting reflexively to Shiwoo's words.</p>
+<p>Sua and Seyoung answered as if reacting reflexively to Shiwoo's words.</p>
 
 <p>On his sisters' faces and the skin above their chests, there were traces of saliva left from licking off the semen, like sweat.</p>
 
@@ -166,21 +166,21 @@ chapter = 344
 
 <p>Shiwoo's semen was mixed with the saliva marks and spread thinly, making it difficult to notice easily.</p>
 
-<p>Soa discovers the semen marks on Seyoung and takes out a wet wipe from her pocket, looking startled.</p>
+<p>Sua discovers the semen marks on Seyoung and takes out a wet wipe from her pocket, looking startled.</p>
 
-<p>Soa pulls out a wet wipe and brings it to Seyoung's face, trying to wipe off the moisture on her.</p>
+<p>Sua pulls out a wet wipe and brings it to Seyoung's face, trying to wipe off the moisture on her.</p>
 
-<p>Shiwoo instantly reaches out his arm and stops Soa's hand holding the wet wipe.</p>
+<p>Shiwoo instantly reaches out his arm and stops Sua's hand holding the wet wipe.</p>
 
-<p>Soa looks at Shiwoo, seemingly flustered.</p>
+<p>Sua looks at Shiwoo, seemingly flustered.</p>
 
 <p>"I think it's okay to just leave it?"</p>
 
-<p>Shiwoo said to Soa in a soft but firm tone, as if giving an order.</p>
+<p>Shiwoo said to Sua in a soft but firm tone, as if giving an order.</p>
 
-<p>A sense of shame, as if she had been pointed out for doing something wrong, seemed to flash in Soa's eyes for a moment.</p>
+<p>A sense of shame, as if she had been pointed out for doing something wrong, seemed to flash in Sua's eyes for a moment.</p>
 
-<p>Soa, as if she had understood, blushed and dropped the hand holding the wet wipe.</p>
+<p>Sua, as if she had understood, blushed and dropped the hand holding the wet wipe.</p>
 
 <p>A faint smile spreads across Seyoung's lips as she watches that scene.</p>
 

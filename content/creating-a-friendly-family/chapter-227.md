@@ -4,23 +4,23 @@ weight = 227
 [extra]
 chapter = 227
 +++
-<p>In the video, Seonju Imo-nim and Soa were clinging to each other, enjoying the afterglow shivers as if completely exhausted.</p>
+<p>In the video, Seonju Imo-nim and Sua were clinging to each other, enjoying the afterglow shivers as if completely exhausted.</p>
 
-<p>The vibrator that had been attached to Soa's clitoris, thanks to Seonju Imo-nim roughly rubbing their private parts together, was now barely hanging on by tattered skin tape and had fallen onto the bed, tickling Soa's buttocks.</p>
+<p>The vibrator that had been attached to Sua's clitoris, thanks to Seonju Imo-nim roughly rubbing their private parts together, was now barely hanging on by tattered skin tape and had fallen onto the bed, tickling Sua's buttocks.</p>
 
 <p>The bed sheets in Seonju Imo-nim's room were soaked with moisture.</p>
 
 <p>Mother and daughter lay side by side on the bed with their backs against it, legs spread in an M shape, panting heavily.</p>
 
-<p>Seonju Imo-nim and Soa's breasts were rising and falling rapidly as if they were out of breath.</p>
+<p>Seonju Imo-nim and Sua's breasts were rising and falling rapidly as if they were out of breath.</p>
 
-<p>Seonju Imo-nim, who had been panting, barely managed to calm her breathing and regain her senses. She sat up and swept the hair clinging to Soa's face to the side.</p>
+<p>Seonju Imo-nim, who had been panting, barely managed to calm her breathing and regain her senses. She sat up and swept the hair clinging to Sua's face to the side.</p>
 
-<p>Then, she slowly licked the beads of sweat on Soa's body, gradually moving downwards.</p>
+<p>Then, she slowly licked the beads of sweat on Sua's body, gradually moving downwards.</p>
 
-<p>Seonju Imo-nim reached Soa's swelling breasts, bit down on the adorable pink nipples that were sticking out, and began to suck on them like a newborn baby.</p>
+<p>Seonju Imo-nim reached Sua's swelling breasts, bit down on the adorable pink nipples that were sticking out, and began to suck on them like a newborn baby.</p>
 
-<p>Soa's hand rested on Seonju Imo-nim's head and stroked it downwards.</p>
+<p>Sua's hand rested on Seonju Imo-nim's head and stroked it downwards.</p>
 
 <p>A wanton and lewd afterplay between mother and daughter, as if their roles had been reversed.</p>
 

@@ -1,5 +1,5 @@
 +++
-title = "Chapter 676: [Incest] Making a Friendly Family 676 (Aunt Sun-ju, Sex, Se-young, Soa) (Dining Table)"
+title = "Chapter 676: [Incest] Making a Friendly Family 676 (Aunt Sun-ju, Sex, Se-young, Su-ah) (Dining Table)"
 weight = 676
 [extra]
 chapter = 676
@@ -14,11 +14,11 @@ chapter = 676
 
 <p>"Huuuut haam.. haaaa... haaaaang!"</p>
 
-<p>The space above the neatly set dining table had, at some point, transformed into a stage for only Seyoung and Soa. Erotic, wet sounds of sucking and intense, pained moans flowed from the small bodies of Seyoung and Soa. Seyoung gently parted the folds of Soa's flesh and thrust her tongue deep inside. With her lips overlapping the mound of flesh, Seyoung indulged herself, sucking as if to inhale the crushed rice grains remaining inside her hole. Similarly, Soa parted the clitoral flesh of Seyoung and thrust her tongue in, covering the entirety of her soft pussy flesh with her lips, sucking as if to vacuum up the rice grains tucked inside.</p>
+<p>The space above the neatly set dining table had, at some point, transformed into a stage for only Seyoung and Sua. Erotic, wet sounds of sucking and intense, pained moans flowed from the small bodies of Seyoung and Sua. Seyoung gently parted the folds of Sua's flesh and thrust her tongue deep inside. With her lips overlapping the mound of flesh, Seyoung indulged herself, sucking as if to inhale the crushed rice grains remaining inside her hole. Similarly, Sua parted the clitoral flesh of Seyoung and thrust her tongue in, covering the entirety of her soft pussy flesh with her lips, sucking as if to vacuum up the rice grains tucked inside.</p>
 
 <p>"Haum haam haaaaam... gulgeok golgak golkkeok."</p>
 
-<p>Seyoung and Soa, with their lips covering each other's crotches, were swallowing the food they had gathered in their mouths. The sight of sushi, moistened into a porridge-like consistency by love juice, sliding down their throats... Through the minute movements of their neck lines, Shiwoo could clearly feel that erotic sensation of swallowing.</p>
+<p>Seyoung and Sua, with their lips covering each other's crotches, were swallowing the food they had gathered in their mouths. The sight of sushi, moistened into a porridge-like consistency by love juice, sliding down their throats... Through the minute movements of their neck lines, Shiwoo could clearly feel that erotic sensation of swallowing.</p>
 
 <p>"Chuup haap chuut paap pyururup churyup!"</p>
 
@@ -26,7 +26,7 @@ chapter = 676
 
 <p>"Huum.. harup... hauung.. hup suup... chuup..."</p>
 
-<p>Those sounds mixed chaotically with their moans, continuing breathlessly as if they might snap. As if determined not to leave a single grain of sushi hidden inside each other's slick vaginal holes, Soa and Seyoung sucked and inhaled powerfully. Watching the two of them violently sucking each other's pussies, Shiwoo's arousal and lust seemed to soar uncontrollably.</p>
+<p>Those sounds mixed chaotically with their moans, continuing breathlessly as if they might snap. As if determined not to leave a single grain of sushi hidden inside each other's slick vaginal holes, Sua and Seyoung sucked and inhaled powerfully. Watching the two of them violently sucking each other's pussies, Shiwoo's arousal and lust seemed to soar uncontrollably.</p>
 
 <p>Shiwoo glanced over at Seonju-imo, who was sitting across from him. In that moment, Seonju-imo's eyes met Shiwoo's. The moment their eyes met, Seonju-imo flinched and shrunk back, her body trembling. Her eyes were becoming hazy and unfocused, and her face was shrouded in a flushed, burning heat. Traces of the saliva she had exchanged with Seyoung until just moments ago remained thick around her mouth and cheeks. Seonju-imo, too, seemed to be feeling a precarious excitement from watching the erotic acts of her daughter and young nephew.</p>
 
@@ -38,7 +38,7 @@ chapter = 676
 
 <p>Seonju-imo sat there dazed as if she had lost her mind, then stood up as Shiwoo commanded, her face filled with uncertainty. Shiwoo grabbed Seonju-imo's hips and shoulders, forcing her to lean her upper body forward. He made her grip the table with her hands and pulled her buttocks back, making her take a position similar to the one Seyoung had been in earlier. Shiwoo flipped up Seonju-imo's skirt, exposing her lower body to the outside. Her snow-white thigh flesh, her flushed red buttocks, and the orange fox tail-plug stuck in her anal came into view.</p>
 
-<p>Shiwoo picked up a piece of sushi from Soa's thigh. As if Seonju-imo knew exactly what Shiwoo was going to do to her, she spread her legs slightly and pushed her ass out. Shiwoo brought the hand holding the sushi toward her crack. First, he extended his middle finger and gently parted the gap of her flesh. Just the touch of Shiwoo's fingertip made her labia ripple like waves. Her slick vulva, already soaked to the limit, accepted Shiwoo's finger easily without any resistance.</p>
+<p>Shiwoo picked up a piece of sushi from Sua's thigh. As if Seonju-imo knew exactly what Shiwoo was going to do to her, she spread her legs slightly and pushed her ass out. Shiwoo brought the hand holding the sushi toward her crack. First, he extended his middle finger and gently parted the gap of her flesh. Just the touch of Shiwoo's fingertip made her labia ripple like waves. Her slick vulva, already soaked to the limit, accepted Shiwoo's finger easily without any resistance.</p>
 
 <p>Shiwoo rubbed the sushi softly between her parted labia.</p>
 
@@ -52,7 +52,7 @@ chapter = 676
 
 <p>"Haut..."</p>
 
-<p>At the tingling stimulation brushing against her inner flesh, Seonju-imo let out a short, collapsing moan. As if tamping down the sushi by pressing his thumb in firmly, Shiwoo pulled his hand away and immediately took a second piece of sushi from Soa's thigh. Shiwoo pushed the additional sushi into Seonju-imo's parted gap... The mass of rice grains wrapped in fish flesh endured the heavy pressure, being crushed as it was forced into Seonju-imo's hole. Shiwoo then picked up a third piece of sushi and shoved it into Seonju-imo's hole.</p>
+<p>At the tingling stimulation brushing against her inner flesh, Seonju-imo let out a short, collapsing moan. As if tamping down the sushi by pressing his thumb in firmly, Shiwoo pulled his hand away and immediately took a second piece of sushi from Sua's thigh. Shiwoo pushed the additional sushi into Seonju-imo's parted gap... The mass of rice grains wrapped in fish flesh endured the heavy pressure, being crushed as it was forced into Seonju-imo's hole. Shiwoo then picked up a third piece of sushi and shoved it into Seonju-imo's hole.</p>
 
 <p>The third piece of sushi pushed up the existing rice grains, settling heavily inside Seonju-imo's hole.</p>
 
@@ -98,7 +98,7 @@ chapter = 676
 
 <p>Shiwoo reached down to check Seonju-imo's crotch. He felt the sushi that had slightly peeked out from Seonju-imo's vagina because of her twisting body at his fingertips. Shiwoo pulled his hand away from Seonju-imo's crotch and brought the filth smeared on his fingertips to Seonju-imo's face. Then, he spread the filth mixed with love juice around her parted lips. Seonju-imo's tongue poked out, licking around her own lips along with Shiwoo's finger. The slick sensation of her tongue and lips tickled Shiwoo's hand, wiping away all the filth smeared around.</p>
 
-<p>Shiwoo then made Seonju-imo lie face down on the table and picked up two pieces of sushi at once from Soa's thigh. After clumping the two pieces of sushi together, Shiwoo brought them between Seonju-imo's parted labia and shoved them in firmly. Once he confirmed the rice grains were settled stably inside Seonju-imo's hole, Shiwoo moved to stand directly behind her. Shiwoo gripped his heavily swollen penis and wedged it into Seonju-imo's hole, which was filled with sushi.</p>
+<p>Shiwoo then made Seonju-imo lie face down on the table and picked up two pieces of sushi at once from Sua's thigh. After clumping the two pieces of sushi together, Shiwoo brought them between Seonju-imo's parted labia and shoved them in firmly. Once he confirmed the rice grains were settled stably inside Seonju-imo's hole, Shiwoo moved to stand directly behind her. Shiwoo gripped his heavily swollen penis and wedged it into Seonju-imo's hole, which was filled with sushi.</p>
 
 <p>Jyul-geok!</p>
 

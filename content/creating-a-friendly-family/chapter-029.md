@@ -1,5 +1,5 @@
 +++
-title = "Chapter 29: Creating a Close Family 29 (Se-hee, Mom, Auntie Gyu-ri, Sun-ju, Soa, Se-young) (Si-woo's House)"
+title = "Chapter 29: Creating a Close Family 29 (Se-hee, Mom, Auntie Gyu-ri, Sun-ju, Su-a, Se-young) (Si-woo's House)"
 weight = 29
 [extra]
 chapter = 29
@@ -106,7 +106,7 @@ chapter = 29
 
 <p>"Okay, okay, Unnie is really too strict about this kind of thing in front of the kids Anyway, thanks to Unnie and Shiwoo, I ate well and had a good time today!!"</p>
 
-<p>After Imo's long, drawn-out greeting like a monologue ended, Gyuri Ajumma and Soa also greeted them in turn.</p>
+<p>After Imo's long, drawn-out greeting like a monologue ended, Gyuri Ajumma and Sua also greeted them in turn.</p>
 
 <p>That was how the guests who had visited for lunch that day went back home.</p>
 

@@ -1,24 +1,24 @@
 +++
-title = "Chapter 353: [Incest] Creating a Close Family 353 (Se-young, Soa [Explicit])"
+title = "Chapter 353: [Incest] Creating a Close Family 353 (Se-young, Su-a [Explicit])"
 weight = 353
 [extra]
 chapter = 353
 +++
-<p>Shiwoo pulls down Soa's skirt, which was draped around her waist, to cover her crotch and thighs.</p>
+<p>Shiwoo pulls down Sua's skirt, which was draped around her waist, to cover her crotch and thighs.</p>
 
-<p>Other than the knee-high socks and the reddish-brown panties, rolled up like a Mobius strip and hooked onto one foot, Soa's bare skin of her crotch and thighs had been starkly exposed.</p>
+<p>Other than the knee-high socks and the reddish-brown panties, rolled up like a Mobius strip and hooked onto one foot, Sua's bare skin of her crotch and thighs had been starkly exposed.</p>
 
-<p>That bare skin of Soa's crotch and thighs was exquisitely concealed by the piece of fabric that had been pulled down.</p>
+<p>That bare skin of Sua's crotch and thighs was exquisitely concealed by the piece of fabric that had been pulled down.</p>
 
-<p>Shiwoo pulled down the skirt that had ridden up even under Soa's lifted buttocks, ensuring her shameful hole was no longer visible.</p>
+<p>Shiwoo pulled down the skirt that had ridden up even under Sua's lifted buttocks, ensuring her shameful hole was no longer visible.</p>
 
-<p>Regardless of her wet thighs and the fabric pieces beneath them, Shiwoo first properly adjusted the disheveled wine-colored dress to Soa's body.</p>
+<p>Regardless of her wet thighs and the fabric pieces beneath them, Shiwoo first properly adjusted the disheveled wine-colored dress to Sua's body.</p>
 
-<p>Soa's attire seemed roughly tidied, save for the orange dog collar leash.</p>
+<p>Sua's attire seemed roughly tidied, save for the orange dog collar leash.</p>
 
-<p>Shiwoo held Soa's leash, which hung outside her dress along her cleavage, and hesitated as he was about to tuck it back inside the dress, out of sight.</p>
+<p>Shiwoo held Sua's leash, which hung outside her dress along her cleavage, and hesitated as he was about to tuck it back inside the dress, out of sight.</p>
 
-<p>Shiwoo suddenly imagined Soa walking down the street with the leash exposed.</p>
+<p>Shiwoo suddenly imagined Sua walking down the street with the leash exposed.</p>
 
 <p>In a crowded department store, at least, attention was dispersed, so even if someone noticed the collar, it wouldn't be a major issue.</p>
 
@@ -26,11 +26,11 @@ chapter = 353
 
 <p>But what about on the alleys and roads near home, where neighbors and acquaintances could pass by at any moment?</p>
 
-<p>Shiwoo recalled Soa walking on the road in front of their house, with the orange leash exposed.</p>
+<p>Shiwoo recalled Sua walking on the road in front of their house, with the orange leash exposed.</p>
 
-<p>Shiwoo pulled the leash taut outside the dress and placed it over the crotch area of Soa's skirt.</p>
+<p>Shiwoo pulled the leash taut outside the dress and placed it over the crotch area of Sua's skirt.</p>
 
-<p>Imagining Soa trembling with shame, intensely stared at every time she encountered an acquaintance or neighbor, Shiwoo's cock surged as if it would burst.</p>
+<p>Imagining Sua trembling with shame, intensely stared at every time she encountered an acquaintance or neighbor, Shiwoo's cock surged as if it would burst.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -38,13 +38,13 @@ chapter = 353
 
 <p>Shiwoo, as he usually did, was about to tuck his penis inside his clothes and cover his erect state, but he paused his movement.</p>
 
-<p>Shiwoo's enormous penis had been inside Soa's body just moments before, so it was thoroughly drenched with vaginal fluid.</p>
+<p>Shiwoo's enormous penis had been inside Sua's body just moments before, so it was thoroughly drenched with vaginal fluid.</p>
 
 <p>If he were to tuck his damp penis inside his clothes as it was, it would obviously drench his crotch and the front of his T-shirt.</p>
 
 <p>Shiwoo looked for something to wipe the filth from his penis.</p>
 
-<p>He could have wiped the clinging filth from his penis onto the buttock area of Soa's skirt, which was right in front of him, but Shiwoo wanted to deal with it in a more special way.</p>
+<p>He could have wiped the clinging filth from his penis onto the buttock area of Sua's skirt, which was right in front of him, but Shiwoo wanted to deal with it in a more special way.</p>
 
 <p>Shiwoo turned to look at Seyoung, checking her condition.</p>
 
@@ -52,21 +52,21 @@ chapter = 353
 
 <p>While wiping the filth from his penis onto Seyoung's face, Shiwoo also planned to properly adjust her dress, which had slipped down to her waist.</p>
 
-<p>However, Seyoung, having already seen Shiwoo tidying Soa's clothes, seemed to have already put her own attire in order.</p>
+<p>However, Seyoung, having already seen Shiwoo tidying Sua's clothes, seemed to have already put her own attire in order.</p>
 
-<p>Had she realized, seeing Soa, that she too would face the same fate?</p>
+<p>Had she realized, seeing Sua, that she too would face the same fate?</p>
 
 <p>Seyoung's dog collar leash hung forward from the chest area of her denim dress, along with a portable mini fan.</p>
 
 <p>Shiwoo stroked Seyoung's head, as if finding her commendable.</p>
 
-<p>Shiwoo shifted his buttocks to the center, then sat Soa down beside him.</p>
+<p>Shiwoo shifted his buttocks to the center, then sat Sua down beside him.</p>
 
 <p>Then, leaning back against the chair's backrest, he thrust his pelvis forward, making his wet penis stand proudly erect.</p>
 
 <p>Shiwoo grasped the handle of Seyoung's dog collar, which hung over her thigh, and coiled it in one hand.</p>
 
-<p>Shiwoo simultaneously coiled the leash that hung between Soa's crotch.</p>
+<p>Shiwoo simultaneously coiled the leash that hung between Sua's crotch.</p>
 
 <p>He pulled the leashes, connected on both sides, strongly, bringing his sisters' upper bodies close to his penis.</p>
 
@@ -74,7 +74,7 @@ chapter = 353
 
 <p>Shiwoo placed a hand on each of his sisters' back of heads and pressed their faces against his fully swollen penis.</p>
 
-<p>Soa's and Seyoung's faces, their cheeks slightly puffed out with semen held in their mouths, began to rub against his penis.</p>
+<p>Sua's and Seyoung's faces, their cheeks slightly puffed out with semen held in their mouths, began to rub against his penis.</p>
 
 <p>The filth clinging to the shaft of his cock transferred onto his sisters' puffed-out cheeks and lips.</p>
 
@@ -88,17 +88,17 @@ chapter = 353
 
 <p>Under the pressure from both sides, a squeezing pleasure intensely radiated from the tip of his penis, traveling up its shaft.</p>
 
-<p>"When we get home, Soa, first transfer everything in your mouth into Seonju's mouth! Every last drop!"</p>
+<p>"When we get home, Sua, first transfer everything in your mouth into Seonju's mouth! Every last drop!"</p>
 
 <p>Shiwoo commanded, pressing his sisters' faces against his enormous penis as if wantonly crushing them.</p>
 
 <p>"Ooh-mm...mm"</p>
 
-<p>Soa, with Shiwoo's semen in her mouth, her hair gripped.</p>
+<p>Sua, with Shiwoo's semen in her mouth, her hair gripped.</p>
 
-<p>Instead of answering, Soa blinked and let out a small, guttural moaning sound.</p>
+<p>Instead of answering, Sua blinked and let out a small, guttural moaning sound.</p>
 
-<p>"Seyoung, after Soa does that, spit everything in your mouth onto Seonju's face! Make sure it's spread everywhere! It doesn't matter if it gets on her clothes!"</p>
+<p>"Seyoung, after Sua does that, spit everything in your mouth onto Seonju's face! Make sure it's spread everywhere! It doesn't matter if it gets on her clothes!"</p>
 
 <p>Shiwoo then instructed Seyoung on what she had to do once they entered Seonju Imo-nim's house.</p>
 
@@ -112,11 +112,11 @@ chapter = 353
 
 <p>Seonju Imo-nim, kneeling before Shiwoo and his sisters, her mouth and face smeared with semen.</p>
 
-<p>He intended to have Soa put on the last leash.</p>
+<p>He intended to have Sua put on the last leash.</p>
 
 <p>Shiwoo intended to completely degrade Seonju Imo-nim into a bottom-tier slave, lower in rank than his sisters.</p>
 
-<p>Shiwoo finished wiping the remaining moisture onto Soa's and Seyoung's hair.</p>
+<p>Shiwoo finished wiping the remaining moisture onto Sua's and Seyoung's hair.</p>
 
 <p>The filth clinging to Shiwoo's penis was absorbed into his sisters' faces and hair, as if they were applying cosmetic cream.</p>
 
@@ -174,7 +174,7 @@ chapter = 353
 
 <p>"Heup", "Ha-eum"</p>
 
-<p>Soa and Seyoung made sounds as if reacting to Shiwoo, and began to walk ahead.</p>
+<p>Sua and Seyoung made sounds as if reacting to Shiwoo, and began to walk ahead.</p>
 
 <p>Was it because his sisters had their mouths full of semen and couldn't speak?</p>
 

@@ -86,19 +86,19 @@ chapter = 244
 
 <p>Seonju Imo answered, fawning.</p>
 
-<p>"What about Soa?"</p>
+<p>"What about Sua?"</p>
 
 <p>Shiwoo's next question.</p>
 
 <p>"She's naked right next to meo"</p>
 
-<p>Seonju Imo answered Shiwoo's question as if she had been waiting for it, emphasizing that Soa was naked.</p>
+<p>Seonju Imo answered Shiwoo's question as if she had been waiting for it, emphasizing that Sua was naked.</p>
 
-<p>"Tell Soa to suck your clitoris right now! Until I tell her to stop! And report exactly how many times you came here!"</p>
+<p>"Tell Sua to suck your clitoris right now! Until I tell her to stop! And report exactly how many times you came here!"</p>
 
-<p>Shiwoo instructed Seonju Imo to receive cunnilingus from her daughter, Soa, in a situation where the conversation content was exposed to Mom and Sehee Nuna.</p>
+<p>Shiwoo instructed Seonju Imo to receive cunnilingus from her daughter, Sua, in a situation where the conversation content was exposed to Mom and Sehee Nuna.</p>
 
-<p>"Yes Master-nim, I will tell Soa to suck my clitoris as you commanded!"</p>
+<p>"Yes Master-nim, I will tell Sua to suck my clitoris as you commanded!"</p>
 
 <p>Seonju Imo also replied to Shiwoo's instruction, knowing that it was being revealed to Mom and Sehee Nuna. As if directly announcing and publicizing the lewd act between mother and daughter to Mom and Sehee Nuna...</p>
 

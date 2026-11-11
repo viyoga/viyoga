@@ -126,9 +126,9 @@ chapter = 298
 
 <p>Shiwoo feels Seyoung's breasts being pressed against his arm and answers awkwardly.</p>
 
-<p>,Then I should send a text to Soa right now, saying that I'm on my way And tell Seonju Imo to take good care of the house too! Hehe\,</p>
+<p>,Then I should send a text to Sua right now, saying that I'm on my way And tell Seonju Imo to take good care of the house too! Hehe\,</p>
 
-<p>After saying that, Seyoung takes out her smartphone and writes a text to Soa and Seonju Imo.</p>
+<p>After saying that, Seyoung takes out her smartphone and writes a text to Sua and Seonju Imo.</p>
 
 <p>Seyoung clearly knew not only about the relationship between Mom and Sehee Nuna, who had a relationship with Shiwoo, but also about Seonju Imo's situation.</p>
 
@@ -164,7 +164,7 @@ chapter = 298
 
 <p>,Shiwoo Oppa, are you cold? Why are you shaking so much?\,</p>
 
-<p>Seyoung looks at Shiwoo, who is shaking, with a puzzled expression and asks after texting Soa and Seonju Imo.</p>
+<p>Seyoung looks at Shiwoo, who is shaking, with a puzzled expression and asks after texting Sua and Seonju Imo.</p>
 
 <p>,Ah... No... It's just... I guess my muscles are tight because I used a lot of strength yesterday,\</p>
 

@@ -226,7 +226,7 @@ chapter = 95
 
 <p>The swimsuit photos taken at the pension.</p>
 
-<p>And the video of Seonju Imo, Sejin Nuna, and Soa.</p>
+<p>And the video of Seonju Imo, Sejin Nuna, and Sua.</p>
 
 <p>Shocking materials, even upon re-watching.</p>
 

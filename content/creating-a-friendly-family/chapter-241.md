@@ -206,7 +206,7 @@ chapter = 241
 
 <p>Shiwoo asked, sounding slightly puzzled.</p>
 
-<p>"Yeah We often did it at Soa's house Because I'm close with Mom too Hehe"</p>
+<p>"Yeah We often did it at Sua's house Because I'm close with Mom too Hehe"</p>
 
 <p>Seyoung answered nonchalantly, taking Shiwoo's joke from the dining table earlier.</p>
 

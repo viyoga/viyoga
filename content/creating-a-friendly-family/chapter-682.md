@@ -66,7 +66,7 @@ chapter = 682
 
 <p>But what on earth did it mean that it was long before she had a 'legal marriage' with Grandpa?</p>
 
-<p>In an instant, Shiwoo recalled the marriage contract with Soa that he had drafted with Sejin-nuna.</p>
+<p>In an instant, Shiwoo recalled the marriage contract with Sua that he had drafted with Sejin-nuna.</p>
 
 <p>And the marriage contract with Gyuri-ajumma drafted before Shiwoo was born...</p>
 

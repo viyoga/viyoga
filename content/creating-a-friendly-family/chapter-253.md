@@ -66,7 +66,7 @@ chapter = 253
 
 <p>Mom is making a small, crying-like moaning sound to Shiwoo's light thrusting.</p>
 
-<p>,We have to stop by Soa's house tomorrow and go to the department store together So we have to sleep early You said you get sleepy when I touch you, so I'll have to touch you more,"</p>
+<p>,We have to stop by Sua's house tomorrow and go to the department store together So we have to sleep early You said you get sleepy when I touch you, so I'll have to touch you more,"</p>
 
 <p>Shiwoo says to Seyoung, nonchalantly, as if covering up Mom's moaning sound.</p>
 

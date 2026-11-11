@@ -20,7 +20,7 @@ chapter = 93
 
 <p>They seemed to be family photos taken at the swimming pool of a pension they had visited with Dad when he was still alive.</p>
 
-<p>Seyoung, Soa, Sehee Nuna, and Sejin Nuna, along with Shiwoo, were pictured in a harmonious atmosphere, all in their swimsuits.</p>
+<p>Seyoung, Sua, Sehee Nuna, and Sejin Nuna, along with Shiwoo, were pictured in a harmonious atmosphere, all in their swimsuits.</p>
 
 <p>Mom, Seonju Imo, Gyuri Ajumma, and Cheoljin were also visible.</p>
 
@@ -34,7 +34,7 @@ chapter = 93
 
 <p>And then, several more photos of Sejin Nuna in a revealing red bikini were sent.</p>
 
-<p>Finally, there was Soa, with her slender body in an adorable yellow frilly one-piece swimsuit...</p>
+<p>Finally, there was Sua, with her slender body in an adorable yellow frilly one-piece swimsuit...</p>
 
 <p>Their body curves were all different, but each one was full of sex appeal.</p>
 
@@ -64,9 +64,9 @@ chapter = 93
 
 <p>The camera slowly moved vertically, showing the bed.</p>
 
-<p>On the bed, Soa was lying naked, her legs spread wide.</p>
+<p>On the bed, Sua was lying naked, her legs spread wide.</p>
 
-<p>A soft green silk cloth was tied around Soa's neck in a ribbon knot.</p>
+<p>A soft green silk cloth was tied around Sua's neck in a ribbon knot.</p>
 
 <p>Two women were positioned naked on the bed around her small, white body.</p>
 
@@ -74,11 +74,11 @@ chapter = 93
 
 <p>Shiwoo felt as if sharp needles were piercing through his spine.</p>
 
-<p>Seonju Imo was kneeling and lying face down between Soa's spread legs, making filthy sounds as she licked the sensitive, unopened flower bud.</p>
+<p>Seonju Imo was kneeling and lying face down between Sua's spread legs, making filthy sounds as she licked the sensitive, unopened flower bud.</p>
 
-<p>Sejin Nuna was using her tongue with vulgar movements to wet and roll over the pink tip of Soa's bare breasts, which were just beginning to take shape and swell.</p>
+<p>Sejin Nuna was using her tongue with vulgar movements to wet and roll over the pink tip of Sua's bare breasts, which were just beginning to take shape and swell.</p>
 
-<p>A moan, as if in pain, escaped from Soa's lips...</p>
+<p>A moan, as if in pain, escaped from Sua's lips...</p>
 
 <p>And the video returned to the beginning, showing the bedroom floor again and again.</p>
 
@@ -102,7 +102,7 @@ chapter = 93
 
 <p>And they were planning to move to a nearby water leisure facility to ride wakeboards or other attractions together...</p>
 
-<p>But Soa said she wasn't feeling well and stayed at the pension with Seonju Imo, and Sejin Nuna also had something to do and acted separately.</p>
+<p>But Sua said she wasn't feeling well and stayed at the pension with Seonju Imo, and Sejin Nuna also had something to do and acted separately.</p>
 
 <p>Shiwoo's Dad also stayed at the accommodation, saying that there had to be at least one man as a guardian.</p>
 
@@ -118,7 +118,7 @@ chapter = 93
 
 <p>Seonju Imo and Sejin Nuna seemed accustomed to each other's actions.</p>
 
-<p>They were licking Soa's body as if naturally showing off, conscious of their images being captured by the camera.</p>
+<p>They were licking Sua's body as if naturally showing off, conscious of their images being captured by the camera.</p>
 
 <p>Shiwoo's Dad was holding the filming equipment.</p>
 
@@ -126,7 +126,7 @@ chapter = 93
 
 <p>Shiwoo's Dad was having an affair not only with Gyuri Ajumma but also with his sister-in-law, Seonju Imo, and his own daughter, Sejin Nuna.</p>
 
-<p>On top of that, he was even dragging in his niece, Soa.</p>
+<p>On top of that, he was even dragging in his niece, Sua.</p>
 
 <p>A mother and daughter, and a father and daughter, who seemed to have far surpassed the forbidden.</p>
 
@@ -136,21 +136,21 @@ chapter = 93
 
 <p>Then, a new message from Seonju Imo arrived again.</p>
 
-<p>A photo of Soa.</p>
+<p>A photo of Sua.</p>
 
-<p>Soa's eyes were covered with an eye patch.</p>
+<p>Sua's eyes were covered with an eye patch.</p>
 
 <p>Her hands were behind her head...</p>
 
 <p>-Tied up by something like bondage equipment...-</p>
 
-<p>Soa was kneeling, her legs spread apart.</p>
+<p>Sua was kneeling, her legs spread apart.</p>
 
 <p>Her bare breasts and smooth, hairless genitals were captured explicitly in the photo.</p>
 
 <p>Judging by her long pigtails, it seemed to be a recently taken photo.</p>
 
-<p>A sign was hanging around Soa's neck, reaching down to her abdomen.</p>
+<p>A sign was hanging around Sua's neck, reaching down to her abdomen.</p>
 
 <p>'Tamed Virgin Slave Seeking New Master'</p>
 
@@ -172,9 +172,9 @@ chapter = 93
 
 <p>-Thwack! Thwack!! Thwack! Thwack!! Thwack!!!</p>
 
-<p>He would lay Soa face down in front of Seonju Imo and thrust into her from behind.</p>
+<p>He would lay Sua face down in front of Seonju Imo and thrust into her from behind.</p>
 
-<p>He would pull on her pigtails and rape his daughter Soa right in front of Seonju Imo.</p>
+<p>He would pull on her pigtails and rape his daughter Sua right in front of Seonju Imo.</p>
 
 <p>A parricidal fantasy spiraling to the extreme.</p>
 
@@ -200,7 +200,7 @@ chapter = 93
 
 <p>Seonju Imo and Sejin Nuna.</p>
 
-<p>And even Seonju Imo's daughter, Soa...</p>
+<p>And even Seonju Imo's daughter, Sua...</p>
 
 <p>The video sent by Seonju Imo seemed to have resolved the question of why the women close to Mom had similar tendencies.</p>
 
@@ -220,11 +220,11 @@ chapter = 93
 
 <p>Perhaps Dad and Seonju Imo's relationship had been established much earlier.</p>
 
-<p>Shiwoo was especially bothered by the words on the sign that Soa was wearing in the last photo.</p>
+<p>Shiwoo was especially bothered by the words on the sign that Sua was wearing in the last photo.</p>
 
 <p>'Tamed Virgin Slave Seeking New Master'</p>
 
-<p>Had Soa been tamed as a slave by Dad?</p>
+<p>Had Sua been tamed as a slave by Dad?</p>
 
 <p>If so, had she written a slave contract like Gyuri Ajumma?</p>
 

@@ -68,13 +68,13 @@ chapter = 666
 
 <p>'I, Yu Seyoung, as a child of the decedent Yu Jin-seong, hereby renounce all inheritance rights.'</p>
 
-<p>And on the back page, a document with the same title written by Soa appeared.</p>
+<p>And on the back page, a document with the same title written by Sua appeared.</p>
 
-<p>'I, Shin Soa, as a child of the decedent Yu Jin-seong, hereby renounce all inheritance rights.'</p>
+<p>'I, Shin Sua, as a child of the decedent Yu Jin-seong, hereby renounce all inheritance rights.'</p>
 
-<p>Shiwoo dropped his gaze onto the documents with a hollow expression, looking down as if he had lost the thread of his emotions. Come to think of it, if it was a will written by Dad several years ago, it was long before Sejin Nuna became pregnant with Sae-a. At that time, the person who met the condition of the heir was Seyoung. And when Seyoung renounced the inheritance, the next person to meet that condition was Soa.</p>
+<p>Shiwoo dropped his gaze onto the documents with a hollow expression, looking down as if he had lost the thread of his emotions. Come to think of it, if it was a will written by Dad several years ago, it was long before Sejin Nuna became pregnant with Sae-a. At that time, the person who met the condition of the heir was Seyoung. And when Seyoung renounced the inheritance, the next person to meet that condition was Sua.</p>
 
-<p>The fact that Seyoung and Soa wrote the confirmation of renunciation almost immediately after Dad passed away... What on earth was going on? Why did Seyoung and Soa renounce the inheritance? What was Dad thinking? Was there intervention from the Academy? Or was there some undisclosed circumstance?</p>
+<p>The fact that Seyoung and Sua wrote the confirmation of renunciation almost immediately after Dad passed away... What on earth was going on? Why did Seyoung and Sua renounce the inheritance? What was Dad thinking? Was there intervention from the Academy? Or was there some undisclosed circumstance?</p>
 
 <p>With this unexpected information and the jumbled chronological order, Shiwoo's mind became as tangled as a knotted ball of thread. He had no choice but to stare blankly at the documents for a long while.</p>
 

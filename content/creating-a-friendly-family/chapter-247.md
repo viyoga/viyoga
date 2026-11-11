@@ -4,7 +4,7 @@ weight = 247
 [extra]
 chapter = 247
 +++
-<p>'Seonmi! Then you too, starting from 9 PM, call me Master and use formal speech, just like Seonju Imo does to Soa! Got it?!'</p>
+<p>'Seonmi! Then you too, starting from 9 PM, call me Master and use formal speech, just like Seonju Imo does to Sua! Got it?!'</p>
 
 <p>This time, Shiwoo issues a command to Mom with a dignified attitude as a master.</p>
 
@@ -178,7 +178,7 @@ chapter = 247
 
 <p>Shiwoo promises, as if obediently responding to Mom's request.</p>
 
-<p>Seonju Imo, Soa, and Seyoung were not included in Mom's requirements.</p>
+<p>Seonju Imo, Sua, and Seyoung were not included in Mom's requirements.</p>
 
 <p>Shiwoo feels a sense of guilt for deceiving Mom, having made a promise without mentioning Seonju Imo or Seyoung.</p>
 

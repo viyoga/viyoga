@@ -1,5 +1,5 @@
 +++
-title = "Chapter 329: [Incest] Creating a Close Family 329 (Se-young, Soa)"
+title = "Chapter 329: [Incest] Creating a Close Family 329 (Se-young, Su-a)"
 weight = 329
 [extra]
 chapter = 329
@@ -18,7 +18,7 @@ chapter = 329
 
 <p>They were having a seemingly normal conversation, but Shiwoo knew very well that his words were being taken as commands by his younger sisters.</p>
 
-<p>"Yeah! It seems like that's the only one available right now. Seyoung and Soa, finish eating everything and quickly go to the bathroom to get ready!"</p>
+<p>"Yeah! It seems like that's the only one available right now. Seyoung and Sua, finish eating everything and quickly go to the bathroom to get ready!"</p>
 
 <p>Shiwoo commands his younger sisters.</p>
 
@@ -30,17 +30,17 @@ chapter = 329
 
 <p>Seyoung carefully chews the food in her mouth and swallows it down her throat.</p>
 
-<p>"Soa is okay with it too, right? Riding the amusement ride! Let's go get ready now"</p>
+<p>"Sua is okay with it too, right? Riding the amusement ride! Let's go get ready now"</p>
 
-<p>After finishing all the food on the tray, Seyoung gestures to Soa.</p>
+<p>After finishing all the food on the tray, Seyoung gestures to Sua.</p>
 
 <p>"Yeah..."</p>
 
-<p>Soa answers shyly, as if reacting to Seyoung's gesture.</p>
+<p>Sua answers shyly, as if reacting to Seyoung's gesture.</p>
 
-<p>Soa takes out the charging cable from her bag and hands it to Shiwoo.</p>
+<p>Sua takes out the charging cable from her bag and hands it to Shiwoo.</p>
 
-<p>Soa then picks up her bag and gets up from her seat.</p>
+<p>Sua then picks up her bag and gets up from her seat.</p>
 
 <p>At that moment, Seyoung suddenly leans towards Shiwoo and brings her mouth to Shiwoo's ear.</p>
 
@@ -58,11 +58,11 @@ chapter = 329
 
 <p>Shiwoo stares at Seyoung with a slightly dazed expression.</p>
 
-<p>"Then wait a moment, Oppa! I'll go with Soa Hehe."</p>
+<p>"Then wait a moment, Oppa! I'll go with Sua Hehe."</p>
 
 <p>Seyoung says to Shiwoo, putting on the usual tone and expression she uses.</p>
 
-<p>Seyoung and Soa head towards the bathroom in the store.</p>
+<p>Seyoung and Sua head towards the bathroom in the store.</p>
 
 <p>The two younger sisters' hands were clasped together as they headed to the bathroom.</p>
 
@@ -74,9 +74,9 @@ chapter = 329
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo was holding the charging cable that Soa had handed him.</p>
+<p>Shiwoo was holding the charging cable that Sua had handed him.</p>
 
-<p>Come to think of it, his smartphone battery must have been quite drained from operating the vibrator that Soa had been wearing all morning.</p>
+<p>Come to think of it, his smartphone battery must have been quite drained from operating the vibrator that Sua had been wearing all morning.</p>
 
 <p>Shiwoo was thinking of charging his smartphone for a while while his younger sisters were in the bathroom.</p>
 
@@ -94,7 +94,7 @@ chapter = 329
 
 <p>And now, he is preparing to ride an amusement ride that looks like a basket hanging from the department store ceiling and have sex with one of his two younger sisters.</p>
 
-<p>Seyoung's clitoris will have a vibrator attached to it, smeared with Soa's vaginal fluid and Shiwoo's semen.</p>
+<p>Seyoung's clitoris will have a vibrator attached to it, smeared with Sua's vaginal fluid and Shiwoo's semen.</p>
 
 <p>While going to the basket-like observation ride, and throughout the ride, Shiwoo was planning to relentlessly torment Seyoung with the vibrator.</p>
 
@@ -106,7 +106,7 @@ chapter = 329
 
 <p>A signal appears on the smartphone placed on the table, indicating that the vibrator is connected.</p>
 
-<p>Just now, in the bathroom stall inside the store, his younger sisters had taken out the vibrator that had been in Soa's bag and turned it on.</p>
+<p>Just now, in the bathroom stall inside the store, his younger sisters had taken out the vibrator that had been in Sua's bag and turned it on.</p>
 
 <p>Perhaps at this very moment, they are lifting Seyoung's skirt and attaching the vibrator with Shiwoo's semen on it to her clitoris.</p>
 
@@ -138,13 +138,13 @@ chapter = 329
 
 <p>Shiwoo immediately picks up his smartphone and checks the text message.</p>
 
-<p>This time, it was a video from Soa, not Seyoung.</p>
+<p>This time, it was a video from Sua, not Seyoung.</p>
 
-<p>A thumbnail with the vibrator vaguely visible inside Soa's open bag was uploaded in the chat window.</p>
+<p>A thumbnail with the vibrator vaguely visible inside Sua's open bag was uploaded in the chat window.</p>
 
 <p>Shiwoo turns down the smartphone volume slightly and carefully looks around.</p>
 
-<p>Then, he touches the square thumbnail of the video that Soa sent.</p>
+<p>Then, he touches the square thumbnail of the video that Sua sent.</p>
 
 <p>The video is instantly downloaded to Shiwoo's smartphone.</p>
 
@@ -152,15 +152,15 @@ chapter = 329
 
 <p>Shiwoo brings his face close to the smartphone and watches the video, concentrating on the barely audible sound.</p>
 
-<p>The video starts with a shot looking down at Soa's open bag.</p>
+<p>The video starts with a shot looking down at Sua's open bag.</p>
 
 <p>Inside the bag is a light pink egg-shaped vibrator.</p>
 
-<p>Soa, who is holding the smartphone and filming, reaches out with her other hand and picks up the vibrator in the bag.</p>
+<p>Sua, who is holding the smartphone and filming, reaches out with her other hand and picks up the vibrator in the bag.</p>
 
 <p>As expected, the vibrator is somewhat soaked and covered with semen that had been in the bag.</p>
 
-<p>Soa picks up the vibrator with her thumb and forefinger and takes it out of the bag.</p>
+<p>Sua picks up the vibrator with her thumb and forefinger and takes it out of the bag.</p>
 
 <p>Then, she slowly points the smartphone camera lens towards the toilet where Seyoung is sitting.</p>
 
@@ -182,7 +182,7 @@ chapter = 329
 
 <p>It was happening almost in real time in a place that was not even a few meters away.</p>
 
-<p>In the video, Soa brings the vibrator she was holding to Seyoung's crotch.</p>
+<p>In the video, Sua brings the vibrator she was holding to Seyoung's crotch.</p>
 
 <p>And she presses down on Seyoung's clitoris as if fitting the vibrator into place.</p>
 
@@ -192,20 +192,20 @@ chapter = 329
 
 <p>"Wait a minute... hold this for a second..."</p>
 
-<p>Soa says shyly, with the vibrator pressed firmly against Seyoung's crotch.</p>
+<p>Sua says shyly, with the vibrator pressed firmly against Seyoung's crotch.</p>
 
-<p>One of Seyoung's hands, which had been lifting the skirt of her dress with both hands, immediately comes down as directed by Soa.</p>
+<p>One of Seyoung's hands, which had been lifting the skirt of her dress with both hands, immediately comes down as directed by Sua.</p>
 
-<p>For a moment, the camera that Soa is holding moves to the side, showing Seyoung's thigh.</p>
+<p>For a moment, the camera that Sua is holding moves to the side, showing Seyoung's thigh.</p>
 
 <p>On Seyoung's white, glossy thigh, waterproof bandages that had been unwrapped were placed in a row.</p>
 
 <p>The bandages seemed to have been prepared in advance to be easily attached before filming.</p>
 
-<p>Soa picks up one of the bandages and skillfully removes the protective paper with one hand.</p>
+<p>Sua picks up one of the bandages and skillfully removes the protective paper with one hand.</p>
 
 <p>Then, she brings the adhesive side of the bandage to the edge of the vibrator, which is firmly fixed on top of the clitoris by Seyoung's hand.</p>
 
-<p>Soa removes the protective paper from the opposite adhesive side of the bandage and this time attaches it to Seyoung's groin flesh.</p>
+<p>Sua removes the protective paper from the opposite adhesive side of the bandage and this time attaches it to Seyoung's groin flesh.</p>
 
 <p>In that way, the work of fixing the vibrator to Seyoung's clitoris using the bandages placed on Seyoung's thigh was repeated several times.</p>

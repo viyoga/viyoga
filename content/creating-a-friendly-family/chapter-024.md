@@ -1,5 +1,5 @@
 +++
-title = "Chapter 24: Family Gathering (Mom, Sun-ju, Gyu-ri, Se-hee, Se-young, Soa)"
+title = "Chapter 24: Family Gathering (Mom, Sun-ju, Gyu-ri, Se-hee, Se-young, Su-a)"
 weight = 24
 [extra]
 chapter = 24
@@ -50,19 +50,19 @@ chapter = 24
 
 <p>Disorderly voices were heard from downstairs.</p>
 
-<p>It seemed Seonju Imo and Soa had arrived.</p>
+<p>It seemed Seonju Imo and Sua had arrived.</p>
 
 <p>Shiwoo goes downstairs to the first floor to greet them.</p>
 
-<p>Seonju Imo and Soa were standing at the front door.</p>
+<p>Seonju Imo and Sua were standing at the front door.</p>
 
-<p>"Seonju Imo is here? Soa, hello"</p>
+<p>"Seonju Imo is here? Sua, hello"</p>
 
-<p>Shiwoo greeted Seonju Imo and his cousin Soa with pleasure.</p>
+<p>Shiwoo greeted Seonju Imo and his cousin Sua with pleasure.</p>
 
-<p>Soa smiled bashfully, waving her hand at Shiwoo.</p>
+<p>Sua smiled bashfully, waving her hand at Shiwoo.</p>
 
-<p>The shy Soa had pigtails that reached her waist.</p>
+<p>The shy Sua had pigtails that reached her waist.</p>
 
 <p>Her well-balanced body strongly conveyed the genes of her youngest Imo.</p>
 
@@ -120,7 +120,7 @@ chapter = 24
 
 <p>-Leaving behind Imo's regret of wanting to get thoroughly drunk-</p>
 
-<p>As greetings, jokes, and agreements were exchanged, Mom had returned to her usual self in front of Seonju Imo and Soa.</p>
+<p>As greetings, jokes, and agreements were exchanged, Mom had returned to her usual self in front of Seonju Imo and Sua.</p>
 
 <p>Shiwoo somehow felt pleased with Mom's appearance.</p>
 
@@ -128,9 +128,9 @@ chapter = 24
 
 <p>At that time, Sehee Nuna came down from the second floor.</p>
 
-<p>"Ah, Seonju Imo Soa, you're here?"</p>
+<p>"Ah, Seonju Imo Sua, you're here?"</p>
 
-<p>As soon as she saw Seonju Imo and Soa, Sehee Nuna greeted them as she came down.</p>
+<p>As soon as she saw Seonju Imo and Sua, Sehee Nuna greeted them as she came down.</p>
 
 <p>"Oh, Sehee-ya I heard your Mom had another outburst? There's really no one like my sister!?"</p>
 
@@ -140,11 +140,11 @@ chapter = 24
 
 <p>Mom said to Imo as if she was reminded of what she had been angry about.</p>
 
-<p>"You should wear what you want at home comfortably. Our house isn't like that, right Soa?"</p>
+<p>"You should wear what you want at home comfortably. Our house isn't like that, right Sua?"</p>
 
-<p>Soa, who was watching Mom's expression at Seonju Imo's words, only smiled shyly.</p>
+<p>Sua, who was watching Mom's expression at Seonju Imo's words, only smiled shyly.</p>
 
-<p>Shiwoo suddenly imagined Seonju Imo and Soa, mother and daughter, in their underwear.</p>
+<p>Shiwoo suddenly imagined Seonju Imo and Sua, mother and daughter, in their underwear.</p>
 
 <p>"Your house only has the two of you!!"</p>
 

@@ -86,7 +86,7 @@ chapter = 681
 
 <p>When the anxiety had subsided to some extent, Siwoo stopped his waist and caught his breath for a long time.</p>
 
-<p>"Then were Mom and Aunt Sunju educated as slaves within the family even before meeting Dad? Like Soa?"</p>
+<p>"Then were Mom and Aunt Sunju educated as slaves within the family even before meeting Dad? Like Sua?"</p>
 
 <p>Siwoo asked Aunt Sunju in a calm tone, as if cautiously confirming the truth.</p>
 
@@ -152,7 +152,7 @@ chapter = 681
 
 <p>Or even much later?</p>
 
-<p>The fact that Soa, Seyeong, and most of the women related to the slave contracts mostly maintained their virginity until their early or mid-100s somehow felt consistent with that flow.</p>
+<p>The fact that Sua, Seyeong, and most of the women related to the slave contracts mostly maintained their virginity until their early or mid-100s somehow felt consistent with that flow.</p>
 
 <p>Was the partner for those women's first sexual experience his dad? Or numerous sponsors and participants?</p>
 

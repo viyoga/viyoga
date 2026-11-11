@@ -1,5 +1,5 @@
 +++
-title = "Chapter 325: [Incest] Creating a Close Family 325 (Mom, Se-hee, Se-young, Soa)"
+title = "Chapter 325: [Incest] Creating a Close Family 325 (Mom, Se-hee, Se-young, Su-a)"
 weight = 325
 [extra]
 chapter = 325
@@ -124,15 +124,15 @@ chapter = 325
 
 <p>His younger sisters, having finished their business, are already out of the bathroom and waiting for Shiwoo.</p>
 
-<p>Seyoung and Soa are standing near a flower bed, a little away from the bathroom entrance, waiting for Shiwoo.</p>
+<p>Seyoung and Sua are standing near a flower bed, a little away from the bathroom entrance, waiting for Shiwoo.</p>
 
 <p>Seyoung is wearing a light blue casual denim dress.</p>
 
-<p>And Soa is wearing a flowing reddish-brown camisole dress.</p>
+<p>And Sua is wearing a flowing reddish-brown camisole dress.</p>
 
 <p>They don't seem much different from when they first left the house, but Shiwoo knows about the changes in his younger sisters that other people don't know.</p>
 
-<p>Soa is wearing the panty liner with Shiwoo's semen on it, attached to the panties she's wearing.</p>
+<p>Sua is wearing the panty liner with Shiwoo's semen on it, attached to the panties she's wearing.</p>
 
 <p>She's probably conscious of Shiwoo's thick semen touching and rubbing against her pussy mound.</p>
 
@@ -144,13 +144,13 @@ chapter = 325
 
 <p>Shiwoo approaches his younger sisters.</p>
 
-<p>Seyoung and Soa, upon discovering Shiwoo coming out of the bathroom, approach Shiwoo with quick steps.</p>
+<p>Seyoung and Sua, upon discovering Shiwoo coming out of the bathroom, approach Shiwoo with quick steps.</p>
 
 <p>The young sisters, shining brightly as they approach, their bare skin and hair catching the sunlight.</p>
 
-<p>Soa, conscious of the panties with Shiwoo's semen on them, is blushing and hanging her head low.</p>
+<p>Sua, conscious of the panties with Shiwoo's semen on them, is blushing and hanging her head low.</p>
 
-<p>Seyoung, next to Soa, is pretending to be calm and wearing a bright expression, but she doesn't seem to be able to completely hide her flushed cheeks and the subtle trembling of her body.</p>
+<p>Seyoung, next to Sua, is pretending to be calm and wearing a bright expression, but she doesn't seem to be able to completely hide her flushed cheeks and the subtle trembling of her body.</p>
 
 <p>Seeing the shy yet seductive appearance of his younger sisters, Shiwoo has the thought of wanting to violate them right away in a place where there are no people.</p>
 
@@ -166,7 +166,7 @@ chapter = 325
 
 <p>Shiwoo slightly lowers his hands that were on his younger sisters' waists towards their buttocks.</p>
 
-<p>It was a touch that wasn't much different from what he did before entering the bathroom, but just being conscious of Soa having his semen smeared on her pussy mound and Seyoung wearing nothing under her denim dress makes him feel completely different.</p>
+<p>It was a touch that wasn't much different from what he did before entering the bathroom, but just being conscious of Sua having his semen smeared on her pussy mound and Seyoung wearing nothing under her denim dress makes him feel completely different.</p>
 
 <p>Shiwoo, fully feeling the sensation of his penis being rubbed, walks towards the food court he had gone to with Sehee last time, with his hands wrapped around his younger sisters' buttocks.</p>
 
@@ -174,17 +174,17 @@ chapter = 325
 
 <p>While heading towards the food court, Shiwoo's smartphone, which he had put in his pocket, vibrates with a notification sound.</p>
 
-<p>Soa flinches, twitching her body like a reflexive reaction caused by a vibrator.</p>
+<p>Sua flinches, twitching her body like a reflexive reaction caused by a vibrator.</p>
 
-<p>Soa must have put the vibrator she was wearing, as per Shiwoo's order, inside the bag she's carrying.</p>
+<p>Sua must have put the vibrator she was wearing, as per Shiwoo's order, inside the bag she's carrying.</p>
 
-<p>Remembering the vibration of the vibrator that couldn't possibly be ringing because the power was turned off, Soa probably twitched her body reflexively at the vibration sound of the smartphone.</p>
+<p>Remembering the vibration of the vibrator that couldn't possibly be ringing because the power was turned off, Sua probably twitched her body reflexively at the vibration sound of the smartphone.</p>
 
-<p>Shiwoo, as if calming Soa, gently squeezes the buttocks above her pelvis that he had placed his hand on, then slowly releases it.</p>
+<p>Shiwoo, as if calming Sua, gently squeezes the buttocks above her pelvis that he had placed his hand on, then slowly releases it.</p>
 
-<p>Soa's butt muscles naturally tense and relax in response to Shiwoo's grip.</p>
+<p>Sua's butt muscles naturally tense and relax in response to Shiwoo's grip.</p>
 
-<p>Shiwoo, as if finding such Soa cute, pats her buttocks lightly.</p>
+<p>Shiwoo, as if finding such Sua cute, pats her buttocks lightly.</p>
 
 <p>Shiwoo releases his hands that were covering his younger sisters' buttocks, takes out the smartphone that had just rung from his pocket, and checks the screen.</p>
 

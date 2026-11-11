@@ -1,5 +1,5 @@
 +++
-title = "Chapter 349: [Incest] Creating a Close Family 349 (Se-young, Soa [Explicit])"
+title = "Chapter 349: [Incest] Creating a Close Family 349 (Se-young, Su-a [Explicit])"
 weight = 349
 [extra]
 chapter = 349
@@ -48,35 +48,35 @@ chapter = 349
 
 <p>Even though he had just ejaculated, as if squeezing everything out, his meat pillar, still standing stiffly, jerked violently, contracting as if to expel the semen.</p>
 
-<p>Shiwoo finished wiping the semen from his penis onto Seyoung's face, then brought his penis back to Soa's crotch.</p>
+<p>Shiwoo finished wiping the semen from his penis onto Seyoung's face, then brought his penis back to Sua's crotch.</p>
 
-<p>Shiwoo gently lifted and supported Soa's buttocks, then, holding his still-unspent meat pillar in one hand, fitted it into her crevice.</p>
+<p>Shiwoo gently lifted and supported Sua's buttocks, then, holding his still-unspent meat pillar in one hand, fitted it into her crevice.</p>
 
-<p>Soa's vulva parted under Shiwoo's member.</p>
+<p>Sua's vulva parted under Shiwoo's member.</p>
 
-<p>Shiwoo wrapped his arms around Soa's bent waist, as if embracing her.</p>
+<p>Shiwoo wrapped his arms around Sua's bent waist, as if embracing her.</p>
 
-<p>As Shiwoo put strength into his waist and pushed his member upwards, Soa's vulva opened to the left and right, beginning to swallow his member.</p>
+<p>As Shiwoo put strength into his waist and pushed his member upwards, Sua's vulva opened to the left and right, beginning to swallow his member.</p>
 
 <p>-Jjugeoeok!</p>
 
-<p>Shiwoo's member was soon sucked into Soa's deep cave.</p>
+<p>Shiwoo's member was soon sucked into Sua's deep cave.</p>
 
 <p>,Haaeeeuup!,</p>
 
-<p>Soa, still burying her face in the back of the front seat, struggled to suppress the moans that were erupting.</p>
+<p>Sua, still burying her face in the back of the front seat, struggled to suppress the moans that were erupting.</p>
 
-<p>Soa's vaginal walls were strongly constricting around Shiwoo's penis, which was still highly sensitive after ejaculation.</p>
+<p>Sua's vaginal walls were strongly constricting around Shiwoo's penis, which was still highly sensitive after ejaculation.</p>
 
 <p>Shiwoo's sensitive penis skin fully sensed the bumpy protrusions inside her vagina.</p>
 
-<p>Soa's vaginal protrusions created a tingling pain, gripping, constricting, and scraping against Shiwoo's penis.</p>
+<p>Sua's vaginal protrusions created a tingling pain, gripping, constricting, and scraping against Shiwoo's penis.</p>
 
-<p>Shiwoo felt a strange sense of stability from Soa's pussy, which was constantly constricting and creating pain on his penis.</p>
+<p>Shiwoo felt a strange sense of stability from Sua's pussy, which was constantly constricting and creating pain on his penis.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo looked back at Seyoung with his penis still inside Soa's vagina hole.</p>
+<p>Shiwoo looked back at Seyoung with his penis still inside Sua's vagina hole.</p>
 
 <p>Seyoung, her eyes unfocused as if waiting for a command, was obediently looking up at Shiwoo, her mouth full of Shiwoo's semen.</p>
 
@@ -88,29 +88,29 @@ chapter = 349
 
 <p>Shiwoo continued to spread the semen across Seyoung's face until the traces of semen had dried transparently and were almost invisible, then removed his hand from Seyoung's face.</p>
 
-<p>Shiwoo, after removing his hand from Seyoung's face, immediately untied the leash he had tied around Soa's neck from the front seat.</p>
+<p>Shiwoo, after removing his hand from Seyoung's face, immediately untied the leash he had tied around Sua's neck from the front seat.</p>
 
-<p>As the briefly tied leash was released, Soa's body, having gained freedom, tilted towards Shiwoo.</p>
+<p>As the briefly tied leash was released, Sua's body, having gained freedom, tilted towards Shiwoo.</p>
 
-<p>Soa, with Shiwoo's member inside her body, leaned back, completely relying on Shiwoo.</p>
+<p>Sua, with Shiwoo's member inside her body, leaned back, completely relying on Shiwoo.</p>
 
-<p>Shiwoo looked at Soa's face, which had her head against his shoulder and was leaning limply on him.</p>
+<p>Shiwoo looked at Sua's face, which had her head against his shoulder and was leaning limply on him.</p>
 
-<p>Soa was breathing heavily, seemingly unable to regain her senses, but her flushed face slightly revealed an expression as if she was enjoying the afterglow.</p>
+<p>Sua was breathing heavily, seemingly unable to regain her senses, but her flushed face slightly revealed an expression as if she was enjoying the afterglow.</p>
 
-<p>Soa caught her breath and cautiously looked up at Shiwoo, who was still piercing her body.</p>
+<p>Sua caught her breath and cautiously looked up at Shiwoo, who was still piercing her body.</p>
 
-<p>Soa's gaze seemed to somehow betray a strange jealousy.</p>
+<p>Sua's gaze seemed to somehow betray a strange jealousy.</p>
 
-<p>Wondering if it was just his imagination, Shiwoo carefully examined Soa's expression.</p>
+<p>Wondering if it was just his imagination, Shiwoo carefully examined Sua's expression.</p>
 
-<p>Soa's eyes clearly held jealousy mixed with resentment, regret, and wistfulness.</p>
+<p>Sua's eyes clearly held jealousy mixed with resentment, regret, and wistfulness.</p>
 
-<p>Could it be that Soa, even though she had received all of Shiwoo's penis into her small body, was feeling jealous that Shiwoo had ejaculated into Seyoung's mouth when he reached his climax?</p>
+<p>Could it be that Sua, even though she had received all of Shiwoo's penis into her small body, was feeling jealous that Shiwoo had ejaculated into Seyoung's mouth when he reached his climax?</p>
 
-<p>Shiwoo's face broke into a smile as he looked down at Soa.</p>
+<p>Shiwoo's face broke into a smile as he looked down at Sua.</p>
 
-<p>Soa, seeing Shiwoo's expression, turned her head away shyly.</p>
+<p>Sua, seeing Shiwoo's expression, turned her head away shyly.</p>
 
 <p>,Uuheup-,</p>
 
@@ -134,7 +134,7 @@ chapter = 349
 
 <p>That excitement momentarily made Shiwoo's member hard again.</p>
 
-<p>Soa, startled by Shiwoo's member growing inside her again, arched her back and trembled.</p>
+<p>Sua, startled by Shiwoo's member growing inside her again, arched her back and trembled.</p>
 
 <p>,Eut! Haaeeeu...,</p>
 
@@ -142,43 +142,43 @@ chapter = 349
 
 <p>But the sensation of a heavy penis pushing against her vaginal walls and uterus, filling her pussy.</p>
 
-<p>That sensation didn't seem to be familiar to Soa at all.</p>
+<p>That sensation didn't seem to be familiar to Sua at all.</p>
 
-<p>Shiwoo, feeling Soa's trembling pussy, suddenly thought of Soa's mother, Seonju.</p>
+<p>Shiwoo, feeling Sua's trembling pussy, suddenly thought of Sua's mother, Seonju.</p>
 
 <p>Shiwoo imagined himself one day simultaneously teasing the two women, mother and daughter, who were struggling with his member.</p>
 
 <p>Shiwoo suddenly smiled playfully, as if a certain scene had flashed into his mind.</p>
 
-<p>Shiwoo imagined the expression Seonju Imo-nim would make when she saw her daughter Soa holding semen in her mouth.</p>
+<p>Shiwoo imagined the expression Seonju Imo-nim would make when she saw her daughter Sua holding semen in her mouth.</p>
 
-<p>Seonju Imo receiving the semen from Soa's mouth and swallowing it as is.</p>
+<p>Seonju Imo receiving the semen from Sua's mouth and swallowing it as is.</p>
 
-<p>Shiwoo, with his penis pushed into Soa's pussy, looked at Seyoung in the camera's angle.</p>
+<p>Shiwoo, with his penis pushed into Sua's pussy, looked at Seyoung in the camera's angle.</p>
 
 <p>,Seyoung, come over here for a second!,</p>
 
 <p>Seyoung, tilting her head slightly, looked at Shiwoo with a puzzled expression at Shiwoo's voice.</p>
 
-<p>Seyoung stared at Shiwoo like that for a moment, then lifted her buttocks and approached where Shiwoo and Soa were joined.</p>
+<p>Seyoung stared at Shiwoo like that for a moment, then lifted her buttocks and approached where Shiwoo and Sua were joined.</p>
 
-<p>Shiwoo grabbed Seyoung's leash and pulled it sharply, positioning Seyoung's face in front of Soa's face.</p>
+<p>Shiwoo grabbed Seyoung's leash and pulled it sharply, positioning Seyoung's face in front of Sua's face.</p>
 
-<p>Soa, still breathing heavily and leaning on Shiwoo, turned her head away from the scent of chestnut blossoms wafting from Seyoung's face.</p>
+<p>Sua, still breathing heavily and leaning on Shiwoo, turned her head away from the scent of chestnut blossoms wafting from Seyoung's face.</p>
 
-<p>In front of Soa's eyes was Seyoung's face, her cheeks full and swollen with semen in her mouth.</p>
+<p>In front of Sua's eyes was Seyoung's face, her cheeks full and swollen with semen in her mouth.</p>
 
-<p>Seyoung and Soa, their faces flushed, looked at each other with an awkward expression.</p>
+<p>Seyoung and Sua, their faces flushed, looked at each other with an awkward expression.</p>
 
-<p>,Seyoung, divide the semen in your mouth in half and pass it to Soa!,</p>
+<p>,Seyoung, divide the semen in your mouth in half and pass it to Sua!,</p>
 
 <p>Shiwoo looked at his younger sisters with an endearing gaze and spoke softly, as if whispering.</p>
 
-<p>Soa, startled by Shiwoo's words, flinched.</p>
+<p>Sua, startled by Shiwoo's words, flinched.</p>
 
-<p>Soa's flinching was fully transmitted to Shiwoo's penis.</p>
+<p>Sua's flinching was fully transmitted to Shiwoo's penis.</p>
 
-<p>Seyoung hesitated for a moment, then brought her hands to her mouth as if to spit out the semen and hand it to Soa.</p>
+<p>Seyoung hesitated for a moment, then brought her hands to her mouth as if to spit out the semen and hand it to Sua.</p>
 
 <p>Shiwoo grabbed Seyoung's wrists and pushed them away, as if striking them downwards.</p>
 
@@ -188,18 +188,18 @@ chapter = 349
 
 <p>Shiwoo looked down at Seyoung and commanded in a firm voice.</p>
 
-<p>Seyoung soon seemed to understand the act Shiwoo was trying to make her do, and brought her lips to Soa's lips.</p>
+<p>Seyoung soon seemed to understand the act Shiwoo was trying to make her do, and brought her lips to Sua's lips.</p>
 
-<p>Seyoung spread her lips, which she had brought to Soa's closed lips, and covered them.</p>
+<p>Seyoung spread her lips, which she had brought to Sua's closed lips, and covered them.</p>
 
-<p>Soa also seemed to have realized Shiwoo's intention and tried to open her lips that were touching Seyoung's.</p>
+<p>Sua also seemed to have realized Shiwoo's intention and tried to open her lips that were touching Seyoung's.</p>
 
-<p>Seyoung, with her mouth full of semen, let Shiwoo's semen flow into Soa's mouth.</p>
+<p>Seyoung, with her mouth full of semen, let Shiwoo's semen flow into Sua's mouth.</p>
 
-<p>Soon, a liquid with a familiar texture infiltrated Soa's mouth.</p>
+<p>Soon, a liquid with a familiar texture infiltrated Sua's mouth.</p>
 
 <p>,Uueueup...,</p>
 
-<p>Soa, whose attention had been focused on Shiwoo's penis, which was filling her pussy until just now.</p>
+<p>Sua, whose attention had been focused on Shiwoo's penis, which was filling her pussy until just now.</p>
 
-<p>Soa was accepting Shiwoo's semen, which had a bland and fishy taste, into her mouth along with Seyoung's tongue.</p>
+<p>Sua was accepting Shiwoo's semen, which had a bland and fishy taste, into her mouth along with Seyoung's tongue.</p>

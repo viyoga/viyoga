@@ -14,7 +14,7 @@ chapter = 28
 
 <p class="scene-break">· · ·</p>
 
-<p>When Shiwoo washed his hands and Cock roughly in the Restroom and came out, Mom was hurriedly opening windows here and there to ventilate the air. The scent of Shiwoo's Semen was subtly lingering in the living room. She had to be careful because Sehee, Seyoung, or Soa might notice if they came out of their Rooms. Gyuri Ajumma, perhaps too embarrassed to face Mom right away, had raised one arm over her face to cover her eyes and was sprawled out as if she had fallen asleep from exhaustion.</p>
+<p>When Shiwoo washed his hands and Cock roughly in the Restroom and came out, Mom was hurriedly opening windows here and there to ventilate the air. The scent of Shiwoo's Semen was subtly lingering in the living room. She had to be careful because Sehee, Seyoung, or Sua might notice if they came out of their Rooms. Gyuri Ajumma, perhaps too embarrassed to face Mom right away, had raised one arm over her face to cover her eyes and was sprawled out as if she had fallen asleep from exhaustion.</p>
 
 <p>Mom saw Shiwoo coming out of the dressing room, approached him, and, with a fed-up expression, made a fist and tapped him on the Head as if playfully hitting him. It was a playful gesture that didn't feel painful at all.</p>
 
@@ -44,7 +44,7 @@ chapter = 28
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo bought hangover cures at the convenience store and returned home. Seyoung and Soa were out in the living room playing, and Aunt was sitting on the sofa with her back against it, holding a glass of water, looking as if she had just woken up. Gyuri Ajumma was also sitting at the dining table with Mom, drinking water, her makeup was gone, as if she had washed her face. Mom and Gyuri Ajumma had calmed down a lot in the time that Shiwoo had gone to the convenience store.</p>
+<p>Shiwoo bought hangover cures at the convenience store and returned home. Seyoung and Sua were out in the living room playing, and Aunt was sitting on the sofa with her back against it, holding a glass of water, looking as if she had just woken up. Gyuri Ajumma was also sitting at the dining table with Mom, drinking water, her makeup was gone, as if she had washed her face. Mom and Gyuri Ajumma had calmed down a lot in the time that Shiwoo had gone to the convenience store.</p>
 
 <p>"Are you feeling a little better, Gyuri Ajumma?"</p>
 

@@ -1,10 +1,10 @@
 +++
-title = "Chapter 655: [Incest] Making a Friendly Family 655 (Kitchen, Se-young's Room) (Se-jin, Soa, Sex)"
+title = "Chapter 655: [Incest] Making a Friendly Family 655 (Kitchen, Se-young's Room) (Se-jin, Su-ah, Sex)"
 weight = 655
 [extra]
 chapter = 655
 +++
-<p>Thinking that he wanted to record Soa like that, Shiwoo looked around for his smartphone.</p>
+<p>Thinking that he wanted to record Sua like that, Shiwoo looked around for his smartphone.</p>
 
 <p>After a quick scan of the room, he realized that he had left it in the kitchen when he was stripping off his clothes before coming in.</p>
 
@@ -12,7 +12,7 @@ chapter = 655
 
 <p>Shiwoo commanded her authoritatively as she lay there with her legs spread.</p>
 
-<p>Soa didn't answer, her face and breasts still covered, but she remained in position, her body trembling slightly just as he ordered.</p>
+<p>Sua didn't answer, her face and breasts still covered, but she remained in position, her body trembling slightly just as he ordered.</p>
 
 <p>Shiwoo got off the bed and headed to the kitchen to grab his phone.</p>
 
@@ -38,7 +38,7 @@ chapter = 655
 
 <p>Feeling that this alien sensation was becoming a part of him, Shiwoo felt both fear and a strange flutter of excitement at the same time.</p>
 
-<p>His cousin Soa was lying on the bed with her knees up and legs spread, having stuffed sushi into her pussy according to his orders.</p>
+<p>His cousin Sua was lying on the bed with her knees up and legs spread, having stuffed sushi into her pussy according to his orders.</p>
 
 <p>Mom and Sehee were also in a 69 position with food stuffed in their holes, being trained by a strange woman under his silent permission and neglect.</p>
 
@@ -98,7 +98,7 @@ chapter = 655
 
 <p>A piece of squid sushi with firm, springy flesh, and a piece of salmon sushi with a beautiful, glossy sheen.</p>
 
-<p>The ingredients Shiwoo chose were things that would feel even better when crushed inside Soa's pussy and wrapped around his penis.</p>
+<p>The ingredients Shiwoo chose were things that would feel even better when crushed inside Sua's pussy and wrapped around his penis.</p>
 
 <p>He raised his phone and took a photo of the squid and salmon sushi sitting in his palm.</p>
 
@@ -116,9 +116,9 @@ chapter = 655
 
 <p>Something clicked in his mind, and he raised the phone again to type.</p>
 
-<p>[Yeah! I'm home with Soa and Seyoung! Seonmi and Sehee are still out...]</p>
+<p>[Yeah! I'm home with Sua and Seyoung! Seonmi and Sehee are still out...]</p>
 
-<p>[Seyoung just went in to shower, and I was getting ready to have sex with Soa in the meantime.]</p>
+<p>[Seyoung just went in to shower, and I was getting ready to have sex with Sua in the meantime.]</p>
 
 <p>Shiwoo spoke as if reporting the situation calmly, just like Sejin Nuna had done.</p>
 
@@ -160,11 +160,11 @@ chapter = 655
 
 <p>Seeing her comply so easily with a request he had just thrown out to test her, Shiwoo felt his penis throb as if it were about to burst...</p>
 
-<p>Satisfied, he grabbed the squid and salmon sushi along with his phone and headed back to Seyoung's room where Soa was lying.</p>
+<p>Satisfied, he grabbed the squid and salmon sushi along with his phone and headed back to Seyoung's room where Sua was lying.</p>
 
 <p class="scene-break">· · ·</p>
 
-<p>Soa was still lying on the bed with her knees up and legs spread, just like before...</p>
+<p>Sua was still lying on the bed with her knees up and legs spread, just like before...</p>
 
 <p>Her arms were still covering her breasts and face.</p>
 
@@ -192,7 +192,7 @@ chapter = 655
 
 <p>The inner flesh of her vaginal opening shimmered softly, as if steam were rising from it.</p>
 
-<p>Shiwoo picked up the piece of squid sushi from Soa's belly and carefully pushed it into her vagina.</p>
+<p>Shiwoo picked up the piece of squid sushi from Sua's belly and carefully pushed it into her vagina.</p>
 
 <p>Jyu-guck!</p>
 
@@ -214,7 +214,7 @@ chapter = 655
 
 <p>He stirred her pussy with the tip of his cock, digging through the flattened grains of rice.</p>
 
-<p>Then he began to move his waist in earnest, plunging into Soa's pussy that was packed with crushed sushi.</p>
+<p>Then he began to move his waist in earnest, plunging into Sua's pussy that was packed with crushed sushi.</p>
 
 <p>Jyu-guck!</p>
 

@@ -92,11 +92,11 @@ chapter = 597
 
 <p>Shiwoo continued to ask his curious questions.</p>
 
-<p>"Yeah. When Mom and Seonju Imo gave birth to Seyoung and Soa, a lot came out then too, you know?"</p>
+<p>"Yeah. When Mom and Seonju Imo gave birth to Seyoung and Sua, a lot came out then too, you know?"</p>
 
 <p>"It seems the women in our family tend to produce a lot Even though the container is small, I seem to fill one bottle completely a day."</p>
 
-<p>Sejin Nuna provided Shiwoo with additional information, talking about when Mom and Seonju Imo gave birth to Seyoung and Soa.</p>
+<p>Sejin Nuna provided Shiwoo with additional information, talking about when Mom and Seonju Imo gave birth to Seyoung and Sua.</p>
 
 <p>Sejin Nuna answered Shiwoo's questions with utmost sincerity, showing no sign of annoyance.</p>
 

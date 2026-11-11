@@ -176,7 +176,7 @@ chapter = 299
 
 <p>Seyoung, who had arrived a few steps ahead, pressed the doorbell for a long time as if she was familiar with it.</p>
 
-<p>,Oh! Seyoung and Shiwoo are already here? Just a moment! Soa is doing something right now,</p>
+<p>,Oh! Seyoung and Shiwoo are already here? Just a moment! Sua is doing something right now,</p>
 
 <p>Before long, Seonju Imo greeted her nephews and nieces with a bright voice through the intercom.</p>
 
@@ -184,7 +184,7 @@ chapter = 299
 
 <p>And soon the iron door of the entrance opened.</p>
 
-<p>,It seems like Soa isn't ready yet Let's go in and wait Shiwoo Oppa!,</p>
+<p>,It seems like Sua isn't ready yet Let's go in and wait Shiwoo Oppa!,</p>
 
 <p>Seyoung turned to Shiwoo and smiled slightly, then entered through the open door.</p>
 

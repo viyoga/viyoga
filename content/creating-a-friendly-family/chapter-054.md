@@ -104,7 +104,7 @@ chapter = 54
 
 <p>,I'm out at the mart with the kids for a bit,</p>
 
-<p>,Seyoung and Soa?,</p>
+<p>,Seyoung and Sua?,</p>
 
 <p>,Yeah, Seonju is here with us too... Why again?,</p>
 

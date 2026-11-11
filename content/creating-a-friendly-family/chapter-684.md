@@ -18,7 +18,7 @@ chapter = 684
 
 <p>Seeing her flowing tears and that bitter smile, Shiwoo's penis expanded without limit... Shiwoo thrusts his penis deep into her hole and pulls her neck and shoulders into a sudden, tight embrace with both arms.</p>
 
-<p>"I won't give you up! I won't give you to anyone! Not Soa, not Seonju-imo, not a single member of our family!"</p>
+<p>"I won't give you up! I won't give you to anyone! Not Sua, not Seonju-imo, not a single member of our family!"</p>
 
 <p>"I won't let it happen! Just watch! I'm going to protect everyone! I'll protect every single one of you!"</p>
 
@@ -100,9 +100,9 @@ chapter = 684
 
 <p>After leaving Seonju-imo on the bed and coming out to the living room... the younger sisters were nowhere to be seen.</p>
 
-<p>Instead, the loud sound of a shower running could be heard from the bathroom. It seemed Seyoung had taken Soa, who was exhausted from the play during dinner, into the shower to wash her.</p>
+<p>Instead, the loud sound of a shower running could be heard from the bathroom. It seemed Seyoung had taken Sua, who was exhausted from the play during dinner, into the shower to wash her.</p>
 
-<p>Looking at the corner of the living room, the puppy Sae-a was licking ice cream from a bowl. Next to it, a dog bowl filled with feed and water was also visible.</p>
+<p>Looking at the corner of the living room, the puppy Sua was licking ice cream from a bowl. Next to it, a dog bowl filled with feed and water was also visible.</p>
 
 <p>The kitchen and dining table had been neatly tidied up. The clothes that had been discarded on the floor were all cleared away as well...</p>
 
@@ -110,7 +110,7 @@ chapter = 684
 
 <p>The strange scenery of the house, where everything was organized before the dizzying heat had even faded...</p>
 
-<p>Shiwoo sat on a dining chair, drifting through the remnants of memories that had not yet cooled. The images of Seonju-imo, Soa, and Seyoung remained in his memory as scenes so vivid they were hard to believe, as if they had stepped out of a dream's mist into reality.</p>
+<p>Shiwoo sat on a dining chair, drifting through the remnants of memories that had not yet cooled. The images of Seonju-imo, Sua, and Seyoung remained in his memory as scenes so vivid they were hard to believe, as if they had stepped out of a dream's mist into reality.</p>
 
 <p>That intense vividness seemed to make the current reality feel as hazy as a fog. Shiwoo absentmindedly looked at his smartphone screen, which contained the records and evidence of reality.</p>
 

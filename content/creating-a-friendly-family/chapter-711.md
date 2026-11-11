@@ -1,5 +1,5 @@
 +++
-title = "Chapter 711: [Incest] Making a Friendly Family 711 (Se-young, Mom, Aunt Sun-ju, Se-young, Soa)"
+title = "Chapter 711: [Incest] Making a Friendly Family 711 (Se-young, Mom, Aunt Sun-ju, Se-young, Su-ah)"
 weight = 711
 [extra]
 chapter = 711
@@ -86,7 +86,7 @@ chapter = 711
 
 <p>Once he finished this shower, he had to get dressed immediately, go downstairs, and face his family's faces as usual.</p>
 
-<p>Moreover, today Seonju-imo and Soa were with them.</p>
+<p>Moreover, today Seonju-imo and Sua were with them.</p>
 
 <p>Those facts seemed to stimulate and amplify Shiwoo's remaining arousal even more, making his penis harden again.</p>
 
@@ -112,7 +112,7 @@ chapter = 711
 
 <p>Chatting voices were coming from around the kitchen and dining table.</p>
 
-<p>Seonju-imo and Sehee-nuna's voices were dominant, occasionally mixed with sounds of Seyoung and Soa chiming in.</p>
+<p>Seonju-imo and Sehee-nuna's voices were dominant, occasionally mixed with sounds of Seyoung and Sua chiming in.</p>
 
 <p>The chattering of those women filled the first-floor space, brightly shaking the morning air.</p>
 
@@ -122,9 +122,9 @@ chapter = 711
 
 <p>Seonju-imo, who was sitting in a dining chair, was the first to greet Shiwoo with a smile as he came down from the second floor.</p>
 
-<p>"Yeah. Seonju-imo Did you sleep well with Soa yesterday?"</p>
+<p>"Yeah. Seonju-imo Did you sleep well with Sua yesterday?"</p>
 
-<p>Shiwoo raised the hand holding his smartphone and gave a light greeting to Seonju-imo and Soa.</p>
+<p>Shiwoo raised the hand holding his smartphone and gave a light greeting to Seonju-imo and Sua.</p>
 
 <p>Seonju-imo was dressed normally.</p>
 
@@ -136,11 +136,11 @@ chapter = 711
 
 <p>Seonju-imo asked Shiwoo with a playful smile, subtly bringing up last night's story.</p>
 
-<p>"Ah I was awake until late but thanks to Seonju-imo and Soa, I ended up sleeping well too I guess"</p>
+<p>"Ah I was awake until late but thanks to Seonju-imo and Sua, I ended up sleeping well too I guess"</p>
 
 <p>Shiwoo spoke nonchalantly, turning the atmosphere light like a pointless joke.</p>
 
-<p>Soa, with a flushed face, kept her head down and was shoveling the rice in front of her with a spoon.</p>
+<p>Sua, with a flushed face, kept her head down and was shoveling the rice in front of her with a spoon.</p>
 
 <p>"You should have let our Shiwoo sleep a bit more since he must be tired. Eonni, what's the big deal about breakfast! We could just buy bread or gimbap!"</p>
 

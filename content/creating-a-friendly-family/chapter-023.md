@@ -248,9 +248,9 @@ chapter = 23
 
 <p>Morning</p>
 
-<p>Seyoung was excitedly telling Shiwoo about the magic academy she had gone to with her aunt and Soa yesterday.</p>
+<p>Seyoung was excitedly telling Shiwoo about the magic academy she had gone to with her aunt and Sua yesterday.</p>
 
-<p>"I liked the astrology magic and hypnosis magic! Soa likes illusion magic hehe."</p>
+<p>"I liked the astrology magic and hypnosis magic! Sua likes illusion magic hehe."</p>
 
 <p>Listening to Seyoung, it seemed that magic was quite subdivided by type.</p>
 
@@ -266,9 +266,9 @@ chapter = 23
 
 <p>It also had well-developed scholarship, study abroad information, and entertainment management-like support programs, so many people who dreamed of becoming professional magicians or entertainers were registering.</p>
 
-<p>Seyoung and Soa had faithfully inherited the maternal talent and had faces that someone had said were 'enough to be used as a tool for business'.</p>
+<p>Seyoung and Sua had faithfully inherited the maternal talent and had faces that someone had said were 'enough to be used as a tool for business'.</p>
 
-<p>If Seyoung and Soa were dreaming of becoming magical girls, Shiwoo could sincerely support and cheer them on.</p>
+<p>If Seyoung and Sua were dreaming of becoming magical girls, Shiwoo could sincerely support and cheer them on.</p>
 
 <p>"Yu Yena Teacher was there too hehehe"</p>
 
@@ -276,7 +276,7 @@ chapter = 23
 
 <p>At the fall school arts festival, there was a joint performance by the magic class teacher and students, and the name of the magic teacher who was in charge of the stage at that time was Yu Yena Teacher, she said.</p>
 
-<p>Seyoung and Soa had applied for the magic class for this semester's after-school classes, but unfortunately, they couldn't get in because the class was full.</p>
+<p>Seyoung and Sua had applied for the magic class for this semester's after-school classes, but unfortunately, they couldn't get in because the class was full.</p>
 
 <p>Yu Yena Teacher was also said to be the head teacher of that magic academy.</p>
 

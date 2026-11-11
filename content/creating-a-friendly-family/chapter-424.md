@@ -52,7 +52,7 @@ chapter = 424
 
 <p>However, she didn't close her mouth or turn her face away to reject Shiwoo's lewd act.</p>
 
-<p>Shiwoo momentarily wondered if he could make Mom dispose of his urine in her mouth, like he had done with Seonju Imo or Soa.</p>
+<p>Shiwoo momentarily wondered if he could make Mom dispose of his urine in her mouth, like he had done with Seonju Imo or Sua.</p>
 
 <p>Shiwoo brought the finger that had been circling her lips back to Mom's back and began to write letters.</p>
 

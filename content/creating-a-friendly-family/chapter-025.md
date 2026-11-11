@@ -1,5 +1,5 @@
 +++
-title = "Chapter 25: Lunch (Mom, Sun-ju, Gyu-ri, Se-hee, Se-young, Soa)"
+title = "Chapter 25: Lunch (Mom, Sun-ju, Gyu-ri, Se-hee, Se-young, Su-a)"
 weight = 25
 [extra]
 chapter = 25
@@ -136,7 +136,7 @@ chapter = 25
 
 <p>"Oppa, what are you doing after intermediate academy on Monday?"</p>
 
-<p>Seyoung, who was sitting next to Shiwoo, eating fruit alongside Soa, asked Shiwoo.</p>
+<p>Seyoung, who was sitting next to Shiwoo, eating fruit alongside Sua, asked Shiwoo.</p>
 
 <p>"Huh? Monday?"</p>
 
@@ -170,7 +170,7 @@ chapter = 25
 
 <p>A gesture that was virtually the same as giving up her time.</p>
 
-<p>"On Monday, after I come back from elementary academy, I'll be at Soa's house, so Oppa, you can pick us up right after intermediate academy, okay?"</p>
+<p>"On Monday, after I come back from elementary academy, I'll be at Sua's house, so Oppa, you can pick us up right after intermediate academy, okay?"</p>
 
 <p>Thus, at Seyoung's request, Shiwoo ended up having a guardian interview at the magic academy on Monday.</p>
 
@@ -178,7 +178,7 @@ chapter = 25
 
 <p>A considerable amount of time passed.</p>
 
-<p>Seyoung and Soa had gone into the room to play.</p>
+<p>Seyoung and Sua had gone into the room to play.</p>
 
 <p>Nuna also lay on the sofa, looked at her smartphone for a bit, then went into her room.</p>
 

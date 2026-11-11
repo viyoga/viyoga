@@ -1,5 +1,5 @@
 +++
-title = "Chapter 330: [Incest] Creating a Close Family 330 (Se-young, Soa)"
+title = "Chapter 330: [Incest] Creating a Close Family 330 (Se-young, Su-a)"
 weight = 330
 [extra]
 chapter = 330
@@ -10,21 +10,21 @@ chapter = 330
 
 <p>-Of course, he had no intention of selling it at all...-</p>
 
-<p>Once his younger sisters emerged from the restroom, it wouldn't be long, perhaps not even a few tens of minutes, before Shiwoo's penis would be piercing Soa's body.</p>
+<p>Once his younger sisters emerged from the restroom, it wouldn't be long, perhaps not even a few tens of minutes, before Shiwoo's penis would be piercing Sua's body.</p>
 
 <p>Inside the space of the basket-shaped amusement ride suspended from the ceiling...</p>
 
-<p>What kind of moaning sound would Soa make while receiving Shiwoo's penis?</p>
+<p>What kind of moaning sound would Sua make while receiving Shiwoo's penis?</p>
 
 <p>What expression would Seyoung wear, watching that scene right before her eyes?</p>
 
-<p>The sensation of being enveloped within Soa's vagina hole, and Seyoung's body, which would writhe differently depending on the vibrator's intensity...</p>
+<p>The sensation of being enveloped within Sua's vagina hole, and Seyoung's body, which would writhe differently depending on the vibrator's intensity...</p>
 
 <p>And just imagining their voices breaking, Shiwoo's penis throbbed violently, as if he would ejaculate.</p>
 
 <p>After the task of securing the vibrator with bandages was completed, Seyoung lowered her skirt and adjusted her clothing.</p>
 
-<p>The sight of Seyoung and Soa was so unfamiliar it warped his sense of reality.</p>
+<p>The sight of Seyoung and Sua was so unfamiliar it warped his sense of reality.</p>
 
 <p>The video cut off after Seyoung's entire body, along with her face, was captured within the frame...</p>
 
@@ -50,13 +50,13 @@ chapter = 330
 
 <p>Upon seeing Seyoung's face, Shiwoo felt a sense of relief.</p>
 
-<p>Following her, Soa emerged from the restroom with an awkward gesture, as if being led by Seyoung's hand.</p>
+<p>Following her, Sua emerged from the restroom with an awkward gesture, as if being led by Seyoung's hand.</p>
 
-<p>Seyoung and Soa strode back to the table where Shiwoo was sitting.</p>
+<p>Seyoung and Sua strode back to the table where Shiwoo was sitting.</p>
 
-<p>Soa and Seyoung were holding hands, just as they had when they entered the restroom.</p>
+<p>Sua and Seyoung were holding hands, just as they had when they entered the restroom.</p>
 
-<p>For some reason, Soa's entire body was flushed, as if flushed with heat.</p>
+<p>For some reason, Sua's entire body was flushed, as if flushed with heat.</p>
 
 <p>'Had they been doing something together in the restroom without his knowledge?'</p>
 
@@ -80,7 +80,7 @@ chapter = 330
 
 <p>But upon seeing Seyoung's innocent expression, a feeling of guilt took precedence, and he kept his mouth shut about it.</p>
 
-<p>Shiwoo convinced himself, thinking that Seyoung and Soa must have needed some time to mentally prepare themselves.</p>
+<p>Shiwoo convinced himself, thinking that Seyoung and Sua must have needed some time to mentally prepare themselves.</p>
 
 <p>"Shall we go now?"</p>
 
@@ -90,7 +90,7 @@ chapter = 330
 
 <p>"Mm..."</p>
 
-<p>Seyoung and Soa replied as if nothing was amiss, just like usual.</p>
+<p>Seyoung and Sua replied as if nothing was amiss, just like usual.</p>
 
 <p>Shiwoo felt as if he had returned to everyday life in an instant, and left the store with his younger sisters.</p>
 
@@ -124,9 +124,9 @@ chapter = 330
 
 <p>To an outsider, Seyoung and Shiwoo's conversation would seem utterly ordinary.</p>
 
-<p>But to Soa, the two's conversation seemed like a lewd joke filled with sexual innuendo.</p>
+<p>But to Sua, the two's conversation seemed like a lewd joke filled with sexual innuendo.</p>
 
-<p>Moreover, Seyoung had been openly calling Seonju Imo-nim by her first name in front of Soa and Shiwoo since earlier.</p>
+<p>Moreover, Seyoung had been openly calling Seonju Imo-nim by her first name in front of Sua and Shiwoo since earlier.</p>
 
 <p>At Seyoung's audacious lewd remarks, a thrill, like an electric current, surged through Shiwoo's spine, making it throb.</p>
 
@@ -142,39 +142,39 @@ chapter = 330
 
 <p>The line snaked several times along a narrow railing.</p>
 
-<p>Seyoung was at the very front, then Soa, and then Shiwoo.</p>
+<p>Seyoung was at the very front, then Sua, and then Shiwoo.</p>
 
 <p>The waiting time in line seemed to be about 10 minutes from where Shiwoo was standing.</p>
 
-<p>Shiwoo, now standing in line with his younger sisters, moved his bag aside and pressed close to Soa's back.</p>
+<p>Shiwoo, now standing in line with his younger sisters, moved his bag aside and pressed close to Sua's back.</p>
 
-<p>His erect penis pressed against Soa's waist and back, crushing against her.</p>
+<p>His erect penis pressed against Sua's waist and back, crushing against her.</p>
 
-<p>Soa straightened her back, tensing as if stiffening.</p>
+<p>Sua straightened her back, tensing as if stiffening.</p>
 
-<p>Shiwoo placed his hand on Soa's shoulder, pressing his penis against her more steadily.</p>
+<p>Shiwoo placed his hand on Sua's shoulder, pressing his penis against her more steadily.</p>
 
-<p>As if confirming that his massive penis would soon enter Soa's body, Shiwoo slowly rubbed his hard shaft against the flesh of Soa's back, moving it left and right.</p>
+<p>As if confirming that his massive penis would soon enter Sua's body, Shiwoo slowly rubbed his hard shaft against the flesh of Sua's back, moving it left and right.</p>
 
-<p>Soa's quickened breath and rapidly beating heart were transmitted through his penis to Shiwoo's body.</p>
+<p>Sua's quickened breath and rapidly beating heart were transmitted through his penis to Shiwoo's body.</p>
 
 <p>The line began to extend behind Shiwoo as well.</p>
 
 <p>Most of the customers were grouped as families or couples.</p>
 
-<p>Seyoung, who was standing in line directly ahead, turned around and gave Shiwoo and Soa a strange smile.</p>
+<p>Seyoung, who was standing in line directly ahead, turned around and gave Shiwoo and Sua a strange smile.</p>
 
-<p>Then she fully turned her body towards Shiwoo and Soa, laughing playfully.</p>
+<p>Then she fully turned her body towards Shiwoo and Sua, laughing playfully.</p>
 
 <p>Shiwoo had already ejaculated in front of his younger sisters on the way to the department store.</p>
 
-<p>Even if Seyoung caught him standing with his penis pressed against Soa's back, it wasn't really something to hide at this point...</p>
+<p>Even if Seyoung caught him standing with his penis pressed against Sua's back, it wasn't really something to hide at this point...</p>
 
 <p>Yet, Shiwoo felt unnecessarily embarrassed, as if he had been caught by Seyoung doing something he shouldn't.</p>
 
 <p>"You two, hold still! I need to take a commemorative photo"</p>
 
-<p>Seyoung raised her smartphone towards Shiwoo, capturing a photo of Shiwoo and Soa standing close together.</p>
+<p>Seyoung raised her smartphone towards Shiwoo, capturing a photo of Shiwoo and Sua standing close together.</p>
 
 <p>-Chalkak! Chalkak! Chalkak!</p>
 
@@ -202,7 +202,7 @@ chapter = 330
 
 <p>Seyoung said to Shiwoo as if giving a warning, then walked forward, following the shortening line.</p>
 
-<p>Shiwoo placed his hand on Soa's shoulder and walked, pressing his body close to hers, following Seyoung.</p>
+<p>Shiwoo placed his hand on Sua's shoulder and walked, pressing his body close to hers, following Seyoung.</p>
 
 <p>Shiwoo felt as if he were completely enchanted by Seyoung.</p>
 

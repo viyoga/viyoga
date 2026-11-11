@@ -1,5 +1,5 @@
 +++
-title = "Chapter 713: [Incest] Making a Friendly Family 713 (Kitchen, Living Room) (Mom, Sun-ju, Se-hee, Se-young, Soa)"
+title = "Chapter 713: [Incest] Making a Friendly Family 713 (Kitchen, Living Room) (Mom, Sun-ju, Se-hee, Se-young, Su-ah)"
 weight = 713
 [extra]
 chapter = 713
@@ -12,7 +12,7 @@ chapter = 713
 
 <p>"I'll handle the dishes and the cleanup, so if you girls are done eating, hurry up and get ready for your academies!"</p>
 
-<p>"You're all done eating, so why are you just sitting there staring blankly?! Come on, move! Shiwoo, Seyoung! Soa and Sehee too!"</p>
+<p>"You're all done eating, so why are you just sitting there staring blankly?! Come on, move! Shiwoo, Seyoung! Sua and Sehee too!"</p>
 
 <p>Mom raised her voice, prodding and rushing the children remaining at the table.</p>
 
@@ -22,13 +22,13 @@ chapter = 713
 
 <p>"I... I ate well... Sunmi-imo."</p>
 
-<p>Following Seyoung's lead, Soa also picked up her own bowls and utensils, standing up and offering her voice to Mom.</p>
+<p>Following Seyoung's lead, Sua also picked up her own bowls and utensils, standing up and offering her voice to Mom.</p>
 
 <p>"...Right..."</p>
 
-<p>Still seated at the table, Mom awkwardly accepted the greetings from Seyoung and Soa.</p>
+<p>Still seated at the table, Mom awkwardly accepted the greetings from Seyoung and Sua.</p>
 
-<p>Seyoung moved her used dishes to the kitchen sink and turned on the water slightly to soak them. Soa followed Seyoung, carefully repeating the same motions.</p>
+<p>Seyoung moved her used dishes to the kitchen sink and turned on the water slightly to soak them. Sua followed Seyoung, carefully repeating the same motions.</p>
 
 <p>Then, Seyoung approached the spot where Mom was sitting once again.</p>
 
@@ -54,7 +54,7 @@ chapter = 713
 
 <p>Mom's voice was laced with a small tremor and a hint of excitement. Between the awkwardness and anxiety, there seemed to be an underlying sense of expectation and relief bleeding through.</p>
 
-<p>Seyoung immediately flashed a satisfied smile. She pulled her hand away from Mom's breasts and moved her cheek from her neck before grabbing Soa's hand and dashing into the room. Their footsteps followed one another in a soft, light, and rhythmic bounce.</p>
+<p>Seyoung immediately flashed a satisfied smile. She pulled her hand away from Mom's breasts and moved her cheek from her neck before grabbing Sua's hand and dashing into the room. Their footsteps followed one another in a soft, light, and rhythmic bounce.</p>
 
 <p class="scene-break">· · ·</p>
 

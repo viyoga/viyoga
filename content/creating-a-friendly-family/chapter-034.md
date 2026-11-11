@@ -132,7 +132,7 @@ chapter = 34
 
 <p>Seeing Seyoung like that, Shiwoo's thing was slightly hardening.</p>
 
-<p>"Hehe, Soa's birthday is later than mine, but she's been doing this kind of thing for much longer."</p>
+<p>"Hehe, Sua's birthday is later than mine, but she's been doing this kind of thing for much longer."</p>
 
 <p>"Ah, is that so? Well, it's good if you can do it now, I guess"</p>
 

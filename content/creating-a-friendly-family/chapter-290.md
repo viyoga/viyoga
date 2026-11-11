@@ -4,7 +4,7 @@ weight = 290
 [extra]
 chapter = 290
 +++
-<p>,There are even cages for large dogs Soa bought one for her house a while ago Haven't you seen it yet? Should I show you?\,</p>
+<p>,There are even cages for large dogs Sua bought one for her house a while ago Haven't you seen it yet? Should I show you?\,</p>
 
 <p>Seyoung asks Shiwoo, as if she's about to find another picture and show it to him.</p>
 
@@ -30,7 +30,7 @@ chapter = 290
 
 <p>Shiwoo casually touches the screen to open the text message conversation window.</p>
 
-<p>A photo of an iron cage for a large dog, seemingly taken at Soa's house, was uploaded on the conversation window screen.</p>
+<p>A photo of an iron cage for a large dog, seemingly taken at Sua's house, was uploaded on the conversation window screen.</p>
 
 <p>A really trivial, simple photo of an iron cage that siblings could routinely exchange...</p>
 
@@ -68,7 +68,7 @@ chapter = 290
 
 <p>Shiwoo says, touching the screen of the conversation window with Seyoung up and down as if trying to calm his mind.</p>
 
-<p>,Right? I went in with Soa and it was huge And sturdy too! There are even curtains on the outside? You can cover it so you can't see inside from the outside Hehe\,</p>
+<p>,Right? I went in with Sua and it was huge And sturdy too! There are even curtains on the outside? You can cover it so you can't see inside from the outside Hehe\,</p>
 
 <p>Seyoung explains to Shiwoo about the functions of the cage as if she was boasting about them, as if she was enjoying it.</p>
 

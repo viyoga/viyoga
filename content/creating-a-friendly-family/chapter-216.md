@@ -236,7 +236,7 @@ chapter = 216
 
 <p>Shiwoo fixed his thing in that position and started shaking it to ejaculate.</p>
 
-<p>"If I cum in your mouth right now, you're going to keep it in there until we get home! Until we get home with Soa! Got it?"</p>
+<p>"If I cum in your mouth right now, you're going to keep it in there until we get home! Until we get home with Sua! Got it?"</p>
 
 <p>Shiwoo commanded Seonju Imo, shaking his thing.</p>
 

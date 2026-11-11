@@ -96,7 +96,7 @@ chapter = 197
 
 <p>But at the same time, at the thought of meeting Sejin Nuna after a long time, he also felt excited. Shiwoo recalled the short video from the pension that Seonju Imo had sent him.</p>
 
-<p>Sejin Nuna, who was licking Soa's breasts and private parts. Sejin Nuna also must have been one of the people who knew Mom's past or the family's secrets. And through Seonju Imo, she might have already heard about the matters between Shiwoo and the other family members.</p>
+<p>Sejin Nuna, who was licking Sua's breasts and private parts. Sejin Nuna also must have been one of the people who knew Mom's past or the family's secrets. And through Seonju Imo, she might have already heard about the matters between Shiwoo and the other family members.</p>
 
 <p>Was it because he had gone through a major incident and his tension had completely dissipated? Shiwoo, already imagining the sex he would share with Sejin Nuna, stiffened the object in his pants.</p>
 

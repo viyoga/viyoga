@@ -70,11 +70,11 @@ chapter = 565
 
 <p>Shiwoo nods, trying to hide his awkwardness while looking at Seyoung's expression.</p>
 
-<p>"Soa will probably come down with me! We talked about going together before! Is that okay?"</p>
+<p>"Sua will probably come down with me! We talked about going together before! Is that okay?"</p>
 
-<p>Seyoung tells Shiwoo as if informing him in advance that she is coming with Soa.</p>
+<p>Seyoung tells Shiwoo as if informing him in advance that she is coming with Sua.</p>
 
-<p>When Seyoung mentions Soa, Shiwoo recalls the scene where Seonju Imo, Soa, and Seyoung sucked his penis at the same time.</p>
+<p>When Seyoung mentions Sua, Shiwoo recalls the scene where Seonju Imo, Sua, and Seyoung sucked his penis at the same time.</p>
 
 <p>Shiwoo was already treating all the family members except Sejin Nuna like slaves.</p>
 

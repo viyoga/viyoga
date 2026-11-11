@@ -102,7 +102,7 @@ chapter = 722
 
 <p>Toward Cheoljin, who was laughing and joking from behind, Shiwoo extended his middle finger without a word. Shiwoo felt a bit anxious and troubled, unable to guess why the Class Teacher had called for him. Usually, even if he was late, the teacher wouldn't specifically call him to the gyomushil ...</p>
 
-<p>Was it because of the time he went to the police station with the hyung -deul on the day of the meeting? If so, Cheoljin should have been called in as well for it to make sense... Had he finally been caught for going into an unmanned motel with Sehee late at night as an academy student? Or what if someone had belatedly reported the strange pranks he committed while going to the department store with Seyoung and Soa? Surely someone who recognized him and Mom when they did the exposure play hadn't contacted the academy, right?</p>
+<p>Was it because of the time he went to the police station with the hyung -deul on the day of the meeting? If so, Cheoljin should have been called in as well for it to make sense... Had he finally been caught for going into an unmanned motel with Sehee late at night as an academy student? Or what if someone had belatedly reported the strange pranks he committed while going to the department store with Seyoung and Sua? Surely someone who recognized him and Mom when they did the exposure play hadn't contacted the academy, right?</p>
 
 <p>All the way to the gyomushil , Shiwoo was feeling troubled, his mind racing with all sorts of thoughts. At first, it was just a level of nervousness from not knowing the reason, but as various possibilities surfaced one by one, his anxiety grew darker. As Cheoljin said, the things Shiwoo had committed in the meantime were not just one or two things.</p>
 

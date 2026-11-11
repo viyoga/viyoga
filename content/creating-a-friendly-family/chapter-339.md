@@ -1,5 +1,5 @@
 +++
-title = "Chapter 339: [Incest] Creating a Close Family 339 (Se-young, Soa)"
+title = "Chapter 339: [Incest] Creating a Close Family 339 (Se-young, Su-a)"
 weight = 339
 [extra]
 chapter = 339
@@ -70,13 +70,13 @@ chapter = 339
 
 <p>Shiwoo, pretending nothing was amiss, put the chain dog collar he had received from Seyoung into the basket.</p>
 
-<p>"Then, is it just Seonju's and Sehee's left to choose? I'll pick Sehee's, so Soa, would you like to pick Seonju's?"</p>
+<p>"Then, is it just Seonju's and Sehee's left to choose? I'll pick Sehee's, so Sua, would you like to pick Seonju's?"</p>
 
-<p>Shiwoo said to Soa, as if trying to change the mood.</p>
+<p>Shiwoo said to Sua, as if trying to change the mood.</p>
 
-<p>"Mm..." Soa nodded shyly in response.</p>
+<p>"Mm..." Sua nodded shyly in response.</p>
 
-<p>After looking around the display for a moment, Soa chose a black leather collar. It was a leather collar with a double buckle, like a belt.</p>
+<p>After looking around the display for a moment, Sua chose a black leather collar. It was a leather collar with a double buckle, like a belt.</p>
 
 <p>It somehow seemed to suit Seonju Imo-nim, who had an extraordinary sense of style and dressed elegantly.</p>
 
@@ -84,7 +84,7 @@ chapter = 339
 
 <p>"That would suit her really well too" Seyoung said, her expression satisfied and excited.</p>
 
-<p>"Oppa! Oppa! This! The one at Soa's house!"</p>
+<p>"Oppa! Oppa! This! The one at Sua's house!"</p>
 
 <p>Seyoung then called out to Shiwoo, pointing at something a few steps away.</p>
 
@@ -130,7 +130,7 @@ chapter = 339
 
 <p>Shiwoo showed the clerk the items he had chosen with his sisters, the name tags, and photos of the iron cage, then paid for everything with Mom's card. He requested delivery for the bulky items.</p>
 
-<p>After payment, he received papers from the clerk, one for each name tag. Seonmi, Seonju, Seyoung, Soa, Sehee, Sejin, Sae-a</p>
+<p>After payment, he received papers from the clerk, one for each name tag. Seonmi, Seonju, Seyoung, Sua, Sehee, Sejin, Sae-a</p>
 
 <p>Shiwoo first wrote down the names to be engraved on the front on seven separate papers. In the owner information section to be engraved on the back, he commonly wrote his own initials, SWY.</p>
 

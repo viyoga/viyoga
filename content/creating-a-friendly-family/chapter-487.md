@@ -114,7 +114,7 @@ chapter = 487
 
 <p>Perhaps the pension owner had taken a separate order, but...</p>
 
-<p>That was the first and last time that the entire family, including Seonju Imo, Soa, and Gyuri Ajumma, had slept in a bed in one room.</p>
+<p>That was the first and last time that the entire family, including Seonju Imo, Sua, and Gyuri Ajumma, had slept in a bed in one room.</p>
 
 <p>At that time, he had no idea about the relationship between Dad, Mom, and the other family members.</p>
 

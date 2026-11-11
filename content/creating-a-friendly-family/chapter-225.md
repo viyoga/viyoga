@@ -10,15 +10,15 @@ chapter = 225
 
 <p>'Then today, both of you will live at home naked! Got it?!'</p>
 
-<p>Shiwoo commanded, as if trying to punish not only Seonju Imo-nim but also Soa as a set.</p>
+<p>Shiwoo commanded, as if trying to punish not only Seonju Imo-nim but also Sua as a set.</p>
 
 <p>'Naked? All of it?'</p>
 
 <p>Seonju Imo-nim asked, seemingly a little embarrassed by Shiwoo's audacious command.</p>
 
-<p>'Yes, all the way down to your panties! I'm telling you to stay in your house with Soa today without a single thread on!'</p>
+<p>'Yes, all the way down to your panties! I'm telling you to stay in your house with Sua today without a single thread on!'</p>
 
-<p>Shiwoo was ordering Seonju Imo-nim and Soa in an overbearing tone.</p>
+<p>Shiwoo was ordering Seonju Imo-nim and Sua in an overbearing tone.</p>
 
 <p>Seonju Imo-nim was silent for a moment.</p>
 
@@ -46,27 +46,27 @@ chapter = 225
 
 <p>Seonju Imo-nim answered, acting cute as if she knew.</p>
 
-<p>'Then, since it's come to this, today Soa will also take off all her clothes and stay naked all night following Seonju!'</p>
+<p>'Then, since it's come to this, today Sua will also take off all her clothes and stay naked all night following Seonju!'</p>
 
-<p>Shiwoo ordered Soa to take off all her clothes and panties all night and sleep.</p>
+<p>Shiwoo ordered Sua to take off all her clothes and panties all night and sleep.</p>
 
-<p>'Yes I'll strip Soa naked too Don't worry!'</p>
+<p>'Yes I'll strip Sua naked too Don't worry!'</p>
 
-<p>Seonju Imo-nim was answering like a slave faithful to Shiwoo's orders instead of Soa.</p>
+<p>Seonju Imo-nim was answering like a slave faithful to Shiwoo's orders instead of Sua.</p>
 
 <p>'Take off all your clothes right now and take a picture each and send it!'</p>
 
-<p>Shiwoo instructed to check Seonju Imo-nim and Soa's naked bodies.</p>
+<p>Shiwoo instructed to check Seonju Imo-nim and Sua's naked bodies.</p>
 
-<p>Soon after, naked photos of Seonju Imo-nim and Soa were sent.</p>
+<p>Soon after, naked photos of Seonju Imo-nim and Sua were sent.</p>
 
 <p>Seonju Imo-nim took off all her clothes and stood with her waist bent seductively, covering her chest with her arms and sticking it out as if emphasizing it.</p>
 
 <p>It was Seonju Imo-nim's body that he had already checked several times, but every time he saw Seonju Imo-nim's voluminous and sexy body curves, Shiwoo's penis automatically gained strength and became hard.</p>
 
-<p>And then Soa's nude photo came.</p>
+<p>And then Sua's nude photo came.</p>
 
-<p>Soa's nude photo, which he was fully checking for the first time since she was a child.</p>
+<p>Sua's nude photo, which he was fully checking for the first time since she was a child.</p>
 
 <p>Long arms and legs, slender neck and waist.</p>
 
@@ -76,15 +76,15 @@ chapter = 225
 
 <p>The photo contained a freshness and energetic vitality without any flaws.</p>
 
-<p>Sparse pubic hair that seemed to have recently started growing was visible near Soa's groin.</p>
+<p>Sparse pubic hair that seemed to have recently started growing was visible near Sua's groin.</p>
 
 <p>A pink vibrator was applied and attached to the clitoris protruding between the split gaps with skin tape.</p>
 
 <p>Shiwoo had never even thought about the vibrator.</p>
 
-<p>After Shiwoo and Sehee Nuna arrived home, while eating, Soa's groin had been wearing the pink vibrator she had received from Gyuri Ajumma.</p>
+<p>After Shiwoo and Sehee Nuna arrived home, while eating, Sua's groin had been wearing the pink vibrator she had received from Gyuri Ajumma.</p>
 
-<p>Soa's photo excites Shiwoo with a different feeling than Seonju Imo-nim's photo.</p>
+<p>Sua's photo excites Shiwoo with a different feeling than Seonju Imo-nim's photo.</p>
 
 <p>Shiwoo's penis, which was stuck in the waistline of his pants, was wriggling as if it would burst at any moment.</p>
 
@@ -94,13 +94,13 @@ chapter = 225
 
 <p>Shiwoo plays the video again and checks the unbelievable scene from just now.</p>
 
-<p>A video of Shiwoo's semen contained in Seonju Imo-nim's mouth being transferred to Soa's mouth.</p>
+<p>A video of Shiwoo's semen contained in Seonju Imo-nim's mouth being transferred to Sua's mouth.</p>
 
 <p>A deep kiss between mother and daughter exchanging semen.</p>
 
 <p>The semen in their mouths, which had been exchanged several times with each other's mouths, began to be divided little by little into the two mothers' and daughters' throats.</p>
 
-<p>And even the scene where Seonju Imo-nim and Soa opened their mouths to confirm that they had swallowed the semen...</p>
+<p>And even the scene where Seonju Imo-nim and Sua opened their mouths to confirm that they had swallowed the semen...</p>
 
 <p>Was Mom also watching the video Shiwoo sent, reducing the volume while working in the kitchen?</p>
 

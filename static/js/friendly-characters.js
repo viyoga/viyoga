@@ -63,13 +63,13 @@
       "n": "Seonju",
       "aka": "Sun-ju; Sunju; Seonju-imo; Aunt Seonju; Aunt Sun-ju",
       "g": "relatives",
-      "role": "Seonmi's younger sister; Soa's mother",
-      "rel": "A single mother and one of Seonmi's oldest confidantes. She visits the house often with Soa and later explains much of the family's past.",
+      "role": "Seonmi's younger sister; Sua's mother",
+      "rel": "A single mother and one of Seonmi's oldest confidantes. She visits the house often with Sua and later explains much of the family's past.",
       "s": "alive"
     },
     {
-      "n": "Soa",
-      "aka": "So-a; So-ah",
+      "n": "Sua",
+      "aka": "Su-a; Su-ah; Sua",
       "g": "relatives",
       "role": "Seonju's daughter; Seyoung's cousin",
       "rel": "Same age as Seyoung and a frequent companion. Quiet and reserved on the surface, but more mischievous and observant than she first appears.",
@@ -96,7 +96,7 @@
       "aka": "Yoo Ye-na; Yena Teacher; Yena-seonsaengnim; Gomo",
       "g": "relatives",
       "role": "Magic-academy director; Shiwoo's paternal aunt",
-      "rel": "Seyoung and Soa's magic teacher and the academy's head teacher. She is later revealed to be Dad's younger sister, making her Shiwoo's aunt; her legal marriage to Shiwoo's grandfather is another late reveal.",
+      "rel": "Seyoung and Sua's magic teacher and the academy's head teacher. She is later revealed to be Dad's younger sister, making her Shiwoo's aunt; her legal marriage to Shiwoo's grandfather is another late reveal.",
       "s": "alive"
     },
     {

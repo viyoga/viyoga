@@ -1,10 +1,10 @@
 +++
-title = "Chapter 648: [Incest] Making a Friendly Family 648 (Se-young, Soa, Aunt Sun-ju, Female Clerk 1, 2) (Cafe)"
+title = "Chapter 648: [Incest] Making a Friendly Family 648 (Se-young, Su-ah, Aunt Sun-ju, Female Clerk 1, 2) (Cafe)"
 weight = 648
 [extra]
 chapter = 648
 +++
-<p>Seyoung and Soa each took a disposable gargle stick from the bag, as if they were reclaiming items they had ordered themselves.</p>
+<p>Seyoung and Sua each took a disposable gargle stick from the bag, as if they were reclaiming items they had ordered themselves.</p>
 
 <p>Shiwoo pulled out a wet wipe from the bag and, beneath the blanket, began to wipe down his penis, which was soaked in saliva and filth.</p>
 
@@ -30,15 +30,15 @@ chapter = 648
 
 <p>Seyoung spoke to Shiwoo in a voice thick with aegyo .</p>
 
-<p>Her expression and tone were so bright and innocent that it was almost impossible to believe that, only a few minutes ago, she had been sucking Shiwoo's penis and passing the semen she caught in her mouth over to Soa...</p>
+<p>Her expression and tone were so bright and innocent that it was almost impossible to believe that, only a few minutes ago, she had been sucking Shiwoo's penis and passing the semen she caught in her mouth over to Sua...</p>
 
-<p>"Uh... sushi sounds good... What about you, Soa? Is sushi okay with you?"</p>
+<p>"Uh... sushi sounds good... What about you, Sua? Is sushi okay with you?"</p>
 
-<p>Shiwoo answered while trying to hide his flustered state, turning to ask Soa, who was sitting across from him.</p>
+<p>Shiwoo answered while trying to hide his flustered state, turning to ask Sua, who was sitting across from him.</p>
 
 <p>"Yeah... I like it too... sushi..."</p>
 
-<p>Soa answered shyly, catching her breath.</p>
+<p>Sua answered shyly, catching her breath.</p>
 
 <p>"Then I'll search for a sushi place nearby... and tell Seonju to meet us there..."</p>
 
@@ -86,7 +86,7 @@ chapter = 648
 
 <p>Seonju-imo replied to Shiwoo, sounding as if she were diligently preparing for their outing.</p>
 
-<p>[Seyoung, Soa, and I decided to eat sushi, but we thought it would be better to be at home if we want to have sex comfortably afterward, so we decided to buy some from the shop and head to our house!]</p>
+<p>[Seyoung, Sua, and I decided to eat sushi, but we thought it would be better to be at home if we want to have sex comfortably afterward, so we decided to buy some from the shop and head to our house!]</p>
 
 <p>Shiwoo informed Seonju-imo of the decision to buy sushi and head home.</p>
 

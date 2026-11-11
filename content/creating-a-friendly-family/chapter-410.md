@@ -132,7 +132,7 @@ chapter = 410
 
 <p>"And Sehee seems to think that you're really her master, not just for play!"</p>
 
-<p>"Since you invited Seyoung and Soa to the group chat, it's like all the family members except me are serious, so I can't even say anything now!"</p>
+<p>"Since you invited Seyoung and Sua to the group chat, it's like all the family members except me are serious, so I can't even say anything now!"</p>
 
 <p>Mom was speaking as if explaining the situation in the house and her circumstances with a truly desperate attitude.</p>
 

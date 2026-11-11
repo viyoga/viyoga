@@ -144,7 +144,7 @@ chapter = 166
 
 <p>Shiwoo, suddenly anxious, glared and asked Cheoljin, almost growling.</p>
 
-<p>To Shiwoo, Cheoljin's words felt like a threat or blackmail against Seyoung and Soa.</p>
+<p>To Shiwoo, Cheoljin's words felt like a threat or blackmail against Seyoung and Sua.</p>
 
 <p>Having confirmed the name of the 'management organization' written on the marriage vow document, Shiwoo could no longer dismiss those words lightly.</p>
 

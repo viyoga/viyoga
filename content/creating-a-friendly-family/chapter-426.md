@@ -56,7 +56,7 @@ chapter = 426
 
 <p>Mom seemed curious about the item in the shopping bag that Shiwoo had placed on the karaoke floor.</p>
 
-<p>[It's a present Seyoung and Soa picked it out together at the department store today to give to Mom! To make you wear it when we go to a pension in the summer!]</p>
+<p>[It's a present Seyoung and Sua picked it out together at the department store today to give to Mom! To make you wear it when we go to a pension in the summer!]</p>
 
 <p>[Seyoung sent a picture of it earlier, right? The card statement should have gone to you by text too, didn't you see it?]</p>
 

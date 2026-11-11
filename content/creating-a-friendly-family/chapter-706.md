@@ -20,7 +20,7 @@ chapter = 706
 
 <p>As her racing heart and the heat gradually began to settle, Seyoung started to speak to Shiwoo in a low voice.</p>
 
-<p>"It's true that Soa and I... haaaa ... handed the succession rights over to you, Oppa... But if I could have, I probably... would have done it all myself."</p>
+<p>"It's true that Sua and I... haaaa ... handed the succession rights over to you, Oppa... But if I could have, I probably... would have done it all myself."</p>
 
 <p>"I definitely would have chosen either Shiwoo-oppa or Mom and had them get me pregnant... hauuu ... because I like Shiwoo-oppa just as much as I like Mom Hehet !"</p>
 

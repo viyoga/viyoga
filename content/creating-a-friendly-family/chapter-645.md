@@ -1,5 +1,5 @@
 +++
-title = "Chapter 645: [Incest] Making a Friendly Family 645 (Se-young, Soa) (Cafe)"
+title = "Chapter 645: [Incest] Making a Friendly Family 645 (Se-young, Su-ah) (Cafe)"
 weight = 645
 [extra]
 chapter = 645
@@ -12,11 +12,11 @@ chapter = 645
 
 <p>"Uh... yeah... I, I saw..."</p>
 
-<p>Shiwoo stammered, looking flustered, and glanced at Soa. Soa's face was dyed a deep crimson as she avoided Shiwoo's eyes. He recalled what Seyoung had said just moments ago on her way to order.</p>
+<p>Shiwoo stammered, looking flustered, and glanced at Sua. Sua's face was dyed a deep crimson as she avoided Shiwoo's eyes. He recalled what Seyoung had said just moments ago on her way to order.</p>
 
-<p>'I wonder if one day is still too much?' Seyoung had said while pressing her hand against Shiwoo's penis... Was she talking about the anal plug that Soa was wearing right now?</p>
+<p>'I wonder if one day is still too much?' Seyoung had said while pressing her hand against Shiwoo's penis... Was she talking about the anal plug that Sua was wearing right now?</p>
 
-<p>For a moment, Shiwoo imagined thrusting his massive item into Soa's tiny anus. The image of Soa wailing as her anus was pierced by his giant penis filled his mind. Every time he buried his massive penis to the root into Soa's anus, she would let out moans that were almost screams, her body convulsing in a frantic tremor. A dizzying sensation of bliss, enough to blur his vision for a moment, seemed to scrape against Shiwoo's brain.</p>
+<p>For a moment, Shiwoo imagined thrusting his massive item into Sua's tiny anus. The image of Sua wailing as her anus was pierced by his giant penis filled his mind. Every time he buried his massive penis to the root into Sua's anus, she would let out moans that were almost screams, her body convulsing in a frantic tremor. A dizzying sensation of bliss, enough to blur his vision for a moment, seemed to scrape against Shiwoo's brain.</p>
 
 <p>Seyoung, who was sitting next to him, leaned in and brought her lips to Shiwoo's ear.</p>
 
@@ -50,7 +50,7 @@ chapter = 645
 
 <p>Shiwoo asked Seyoung while looking elsewhere with feigned indifference.</p>
 
-<p>"Since... the morning... I got it from Soa... Soa's been wearing hers since before she went to the academy..."</p>
+<p>"Since... the morning... I got it from Sua... Sua's been wearing hers since before she went to the academy..."</p>
 
 <p>Seyoung answered in an awkwardly trembling voice.</p>
 
@@ -68,9 +68,9 @@ chapter = 645
 
 <p>Shiwoo lowered the blanket again and, just as he had when he masturbated earlier, exposed his penis under the blanket. Seyoung's arm was resting on the table. Shiwoo took Seyoung's arm from the table and pulled it under the blanket. Shiwoo made Seyoung's hand grip his erect penis bare.</p>
 
-<p>Shiwoo pulled the tail plugged into her anus with a precarious amount of force. Every time he tried to pull the tail out, her thighs squeezed inward and her body stiffened. The hand Seyoung used to grip Shiwoo's penis also tightened in response. Soa, sitting across from them, watched Seyoung's expression and breathed heavily, her body twitching in sync.</p>
+<p>Shiwoo pulled the tail plugged into her anus with a precarious amount of force. Every time he tried to pull the tail out, her thighs squeezed inward and her body stiffened. The hand Seyoung used to grip Shiwoo's penis also tightened in response. Sua, sitting across from them, watched Seyoung's expression and breathed heavily, her body twitching in sync.</p>
 
-<p>Shiwoo extended his foot to touch Soa's leg across from him. As soon as Shiwoo's foot touched her leg, Soa nudged her leg forward slightly to make it easier for Shiwoo to caress her with his foot. Within the sense of solidarity that seemed to connect them all, Shiwoo slowly savored the pleasure that spread gently through him.</p>
+<p>Shiwoo extended his foot to touch Sua's leg across from him. As soon as Shiwoo's foot touched her leg, Sua nudged her leg forward slightly to make it easier for Shiwoo to caress her with his foot. Within the sense of solidarity that seemed to connect them all, Shiwoo slowly savored the pleasure that spread gently through him.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -80,9 +80,9 @@ chapter = 645
 
 <p>The female clerk placed the tray containing the ice cream on the table with a bright smile. She served each person's ice cream in glass bowls along with disposable napkins. As she set Shiwoo and Seyoung's ice cream down, she cast a suspicious glance at the blanket the two were sharing.</p>
 
-<p>Shiwoo intentionally applied force and pulled Seyoung's tail hard. In that instant, a short, heavy ppok sound echoed from beneath Seyoung's hips. Seyoung froze, her thighs pressed together and her back straightened, even her breath stopping. Both the clerk and Soa looked toward the source of the sound with startled expressions.</p>
+<p>Shiwoo intentionally applied force and pulled Seyoung's tail hard. In that instant, a short, heavy ppok sound echoed from beneath Seyoung's hips. Seyoung froze, her thighs pressed together and her back straightened, even her breath stopping. Both the clerk and Sua looked toward the source of the sound with startled expressions.</p>
 
-<p>Unlike her usual cheerful expression, Seyoung's face was flushed red as if stained with shame. The hand gripping Shiwoo's penis was filled with strength. The clerk hesitated for a moment but soon began to move smoothly again as if nothing had happened, placing the ice cream in front of Soa.</p>
+<p>Unlike her usual cheerful expression, Seyoung's face was flushed red as if stained with shame. The hand gripping Shiwoo's penis was filled with strength. The clerk hesitated for a moment but soon began to move smoothly again as if nothing had happened, placing the ice cream in front of Sua.</p>
 
 <p>"Then, please enjoy Hu-hu!"</p>
 
@@ -120,4 +120,4 @@ chapter = 645
 
 <p>"Yeah..."</p>
 
-<p>Soa also picked up her spoon and followed Shiwoo in eating the ice cream. Seyoung soon picked up her spoon and began to eat the ice cream as well.</p>
+<p>Sua also picked up her spoon and followed Shiwoo in eating the ice cream. Seyoung soon picked up her spoon and began to eat the ice cream as well.</p>

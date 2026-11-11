@@ -60,7 +60,7 @@ chapter = 181
 
 <p>,Ah... ah? Yo... younger sister?"</p>
 
-<p>Shiwoo looks back and forth between the puppy on the table and Soa for a moment at the word Seonju Imo's daughter.</p>
+<p>Shiwoo looks back and forth between the puppy on the table and Sua for a moment at the word Seonju Imo's daughter.</p>
 
 <p>Even in a situation where he doesn't fully understand Seyoung's words, Shiwoo's thing is twitching and gaining strength at his younger sister's pure and innocent voice.</p>
 
@@ -88,11 +88,11 @@ chapter = 181
 
 <p>Shiwoo's face, turned to the side to put his ear to Seyoung.</p>
 
-<p>Shiwoo suddenly makes eye contact with Soa sitting in her chair.</p>
+<p>Shiwoo suddenly makes eye contact with Sua sitting in her chair.</p>
 
-<p>A blush quickly begins to bloom on Soa's soft, snow-white face.</p>
+<p>A blush quickly begins to bloom on Sua's soft, snow-white face.</p>
 
-<p>Soa, startled by Shiwoo's sudden gaze, blushed and lowered her head shyly.</p>
+<p>Sua, startled by Shiwoo's sudden gaze, blushed and lowered her head shyly.</p>
 
 <p>Shiwoo feels a jolt of electricity running through his body at the awkward reaction.</p>
 
@@ -116,7 +116,7 @@ chapter = 181
 
 <p>Shiwoo, standing with his penis barely covered with the towel he was holding.</p>
 
-<p>Shiwoo awkwardly walks to Soa's side and sits down.</p>
+<p>Shiwoo awkwardly walks to Sua's side and sits down.</p>
 
 <p>Shiwoo sits down and gently presses down on the tightly raised meat pillar with one hand.</p>
 
@@ -134,19 +134,19 @@ chapter = 181
 
 <p>Considering the mischievous words Seyoung usually whispers when she comes to him, Seyoung's whisper just now was definitely not something Shiwoo could easily dismiss.</p>
 
-<p>Shiwoo glances at Soa for a moment, and lewd lust fills him.</p>
+<p>Shiwoo glances at Sua for a moment, and lewd lust fills him.</p>
 
-<p>Soa's long and cool body is well-balanced.</p>
+<p>Sua's long and cool body is well-balanced.</p>
 
-<p>Soa's breasts and buttocks, which are starting to swell, are shaking Shiwoo's heart.</p>
+<p>Sua's breasts and buttocks, which are starting to swell, are shaking Shiwoo's heart.</p>
 
-<p>Soa's smooth and fair thighs are visible under her skirt.</p>
+<p>Sua's smooth and fair thighs are visible under her skirt.</p>
 
-<p>Soa is not wearing underwear right now.</p>
+<p>Sua is not wearing underwear right now.</p>
 
-<p>If he stroked Soa's skirt over her smooth thighs, her secret area without a barrier would be exposed.</p>
+<p>If he stroked Sua's skirt over her smooth thighs, her secret area without a barrier would be exposed.</p>
 
-<p>Imagining Soa, who will soon be living with Shiwoo's family without underwear, Shiwoo's penis was gaining strength.</p>
+<p>Imagining Sua, who will soon be living with Shiwoo's family without underwear, Shiwoo's penis was gaining strength.</p>
 
 <p>Shiwoo thinks about the meaning of the relationship Seyoung mentioned again.</p>
 
@@ -154,7 +154,7 @@ chapter = 181
 
 <p>'Daughter'...</p>
 
-<p>For example, if Soa, Seonju Imo's child, is adopted into Shiwoo's house, could it mean that Soa could become Shiwoo's daughter?</p>
+<p>For example, if Sua, Seonju Imo's child, is adopted into Shiwoo's house, could it mean that Sua could become Shiwoo's daughter?</p>
 
 <p>And could Shiwoo choose that?</p>
 
@@ -168,11 +168,11 @@ chapter = 181
 
 <p>,When should we put on the leash?"</p>
 
-<p>Seyoung asks Soa, who is sitting across the table, in an excited voice.</p>
+<p>Seyoung asks Sua, who is sitting across the table, in an excited voice.</p>
 
 <p>,It seems better to train her to get used to it from a young age,"</p>
 
-<p>Soa tells Seyoung in a calm voice.</p>
+<p>Sua tells Seyoung in a calm voice.</p>
 
 <p>,Then should we buy a small one?"</p>
 
@@ -180,43 +180,43 @@ chapter = 181
 
 <p>,A... a medium size would be fine... But I have to ask Mom about that,"</p>
 
-<p>Soa answered, watching Shiwoo's reaction.</p>
+<p>Sua answered, watching Shiwoo's reaction.</p>
 
-<p>Shiwoo feels bolder seeing Soa watching his reaction.</p>
+<p>Shiwoo feels bolder seeing Sua watching his reaction.</p>
 
-<p>Shiwoo puts his finger on Soa's thigh next to him.</p>
+<p>Shiwoo puts his finger on Sua's thigh next to him.</p>
 
-<p>Soa flinches and trembles slightly during the conversation.</p>
+<p>Sua flinches and trembles slightly during the conversation.</p>
 
-<p>After that, there was no other reaction from Soa.</p>
+<p>After that, there was no other reaction from Sua.</p>
 
-<p>Soon, Shiwoo's finger was moving in a straight line along the outside of Soa's thigh, heading towards her hip.</p>
+<p>Soon, Shiwoo's finger was moving in a straight line along the outside of Sua's thigh, heading towards her hip.</p>
 
-<p>Soa's skirt, which was wrinkled and rolled up as if it was dug.</p>
+<p>Sua's skirt, which was wrinkled and rolled up as if it was dug.</p>
 
-<p>Shiwoo feels Soa's bare skin on his finger touching her hip.</p>
+<p>Shiwoo feels Sua's bare skin on his finger touching her hip.</p>
 
-<p>As Shiwoo knows, Soa was not wearing panties.</p>
+<p>As Shiwoo knows, Sua was not wearing panties.</p>
 
-<p>Soa was sitting without any resistance to Shiwoo's touch.</p>
+<p>Sua was sitting without any resistance to Shiwoo's touch.</p>
 
 <p>Shiwoo's thrilling excitement increases with the soft sensation coming from his finger.</p>
 
 <p>,But is it okay to feed a puppy ice cream cake?"</p>
 
-<p>Shiwoo asks as if curious, gently rubbing Soa's hip with his finger.</p>
+<p>Shiwoo asks as if curious, gently rubbing Sua's hip with his finger.</p>
 
-<p>-Imagining Soa's lewd crotch and bumps, licked by the puppy and covered in ice cream-</p>
+<p>-Imagining Sua's lewd crotch and bumps, licked by the puppy and covered in ice cream-</p>
 
 <p>,If there's too much sugar... it's not good, but this one is less sweet, so it's probably okay,"</p>
 
-<p>Soa was answering Shiwoo's question with a slightly trembling voice.</p>
+<p>Sua was answering Shiwoo's question with a slightly trembling voice.</p>
 
 <p class="scene-break">· · ·</p>
 
 <p>Seonju Imo's presence is felt in the dressing room.</p>
 
-<p>Shiwoo quickly takes his hand off Soa's thigh and turns to the dressing room.</p>
+<p>Shiwoo quickly takes his hand off Sua's thigh and turns to the dressing room.</p>
 
 <p>,Ah, that's refreshing! What are you guys talking about?"</p>
 

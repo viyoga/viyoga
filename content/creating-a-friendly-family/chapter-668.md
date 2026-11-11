@@ -60,7 +60,7 @@ chapter = 668
 
 <p>[You guys are all naked, aren't you? I was wondering if I should take my clothes off as soon as I go in or not! I'm asking what I should do about my clothes when I get in...]</p>
 
-<p>Seonju Imo was seeking an answer from Shiwoo as if she were seriously agonizing over it. Seeing the images of Soa lying on the dining table and the materials of Shiwoo having sex with Seyoung in front of the table, it seemed Seonju Imo's worries had deepened the whole way home.</p>
+<p>Seonju Imo was seeking an answer from Shiwoo as if she were seriously agonizing over it. Seeing the images of Sua lying on the dining table and the materials of Shiwoo having sex with Seyoung in front of the table, it seemed Seonju Imo's worries had deepened the whole way home.</p>
 
 <p>[Why are you asking that? Just do whatever! Usually, you just stripped without even asking me, didn't you?]</p>
 

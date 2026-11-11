@@ -1,50 +1,50 @@
 +++
-title = "Chapter 342: [Incest] Creating a Close Family 342 (Se-young, Soa [Explicit])"
+title = "Chapter 342: [Incest] Creating a Close Family 342 (Se-young, Su-a [Explicit])"
 weight = 342
 [extra]
 chapter = 342
 +++
-<p>Soa, seemingly very startled by Shiwoo's sudden action, momentarily stiffened her body.</p>
+<p>Sua, seemingly very startled by Shiwoo's sudden action, momentarily stiffened her body.</p>
 
 <p>However, she soon relaxed and entrusted her body to Shiwoo's lead once again.</p>
 
-<p>From the panties caught around her ankles to beneath the reddish-brown wrap dress pulled off her shoulders, Soa was revealing her bare skin completely.</p>
+<p>From the panties caught around her ankles to beneath the reddish-brown wrap dress pulled off her shoulders, Sua was revealing her bare skin completely.</p>
 
-<p>Soa's blurred body outline was drawn seductively in the darkness between the aisles.</p>
+<p>Sua's blurred body outline was drawn seductively in the darkness between the aisles.</p>
 
-<p>Shiwoo reached out and grabbed Soa's breast.</p>
+<p>Shiwoo reached out and grabbed Sua's breast.</p>
 
-<p>Soa's vaguely visible breast was grasped in his hand with a soft sensation.</p>
+<p>Sua's vaguely visible breast was grasped in his hand with a soft sensation.</p>
 
-<p>Shiwoo stroked down Soa's body with the hand that was holding her breast.</p>
+<p>Shiwoo stroked down Sua's body with the hand that was holding her breast.</p>
 
-<p>Soa's tender skin was gently brushed by his palm, and the seductive contours and shape of her body were imprinted in Shiwoo's mind.</p>
+<p>Sua's tender skin was gently brushed by his palm, and the seductive contours and shape of her body were imprinted in Shiwoo's mind.</p>
 
-<p>Shiwoo's hand stroked Soa's breasts, stomach, pelvis, sides, back, buttocks, and thighs, heading towards her core.</p>
+<p>Shiwoo's hand stroked Sua's breasts, stomach, pelvis, sides, back, buttocks, and thighs, heading towards her core.</p>
 
 <p>Shiwoo inserted his fingers, fitting them into the split crevice.</p>
 
-<p>Shiwoo's fingers were sucked into Soa's vagina hole, where her virginity had been lost.</p>
+<p>Shiwoo's fingers were sucked into Sua's vagina hole, where her virginity had been lost.</p>
 
 <p>"Haaaaa..."</p>
 
-<p>Rough breaths escaped from Soa's mouth.</p>
+<p>Rough breaths escaped from Sua's mouth.</p>
 
-<p>Shiwoo was rubbing the inside of Soa's vagina hole with his fingers, as if savoring the sensation.</p>
+<p>Shiwoo was rubbing the inside of Sua's vagina hole with his fingers, as if savoring the sensation.</p>
 
-<p>Traces of her hymen remained on Soa's soft, moist vaginal walls.</p>
+<p>Traces of her hymen remained on Sua's soft, moist vaginal walls.</p>
 
-<p>Soa arched her body as if in pain whenever the traces of her virginity inside her vagina hole were touched.</p>
+<p>Sua arched her body as if in pain whenever the traces of her virginity inside her vagina hole were touched.</p>
 
 <p>"Haat...heu-eut..."</p>
 
 <p>Her suppressed moaning sound reached Shiwoo's ears.</p>
 
-<p>Shiwoo took his fingers out of Soa's vagina hole.</p>
+<p>Shiwoo took his fingers out of Sua's vagina hole.</p>
 
-<p>White, viscous fluid dripped from the fingertips that had just been inside Soa's body.</p>
+<p>White, viscous fluid dripped from the fingertips that had just been inside Sua's body.</p>
 
-<p>It was the semen that Shiwoo had poured deep inside Soa's body.</p>
+<p>It was the semen that Shiwoo had poured deep inside Sua's body.</p>
 
 <p>With that viscous fluid smeared on his fingers, Shiwoo approached Seyoung next.</p>
 
@@ -76,35 +76,35 @@ chapter = 342
 
 <p>Shiwoo released the pressure on the finger that was pressing on Seyoung's hymen.</p>
 
-<p>After removing his finger from Seyoung's vagina hole, Shiwoo pushed her wrap dress up to her neck, just like he did with Soa.</p>
+<p>After removing his finger from Seyoung's vagina hole, Shiwoo pushed her wrap dress up to her neck, just like he did with Sua.</p>
 
 <p>Shiwoo took out Seyoung's arms one by one and draped the wrap dress over the back of her neck like a cape.</p>
 
-<p>Both Soa and Seyoung were now almost naked, hiding their bodies in the darkness.</p>
+<p>Both Sua and Seyoung were now almost naked, hiding their bodies in the darkness.</p>
 
 <p>The contours of their bodies, the volume of their breasts, buttocks, and thighs, were vaguely visible under the dim shadows.</p>
 
-<p>Although their forms were not clearly visible, Shiwoo was able to fully ravage Soa and Seyoung's bodies.</p>
+<p>Although their forms were not clearly visible, Shiwoo was able to fully ravage Sua and Seyoung's bodies.</p>
 
 <p>Shiwoo let go of the leashes of his younger sisters, which he was holding in his hand, and walked back a few steps.</p>
 
-<p>Shiwoo lifted his smartphone camera and took pictures of Soa and Seyoung.</p>
+<p>Shiwoo lifted his smartphone camera and took pictures of Sua and Seyoung.</p>
 
 <p>-Chalkak chalkak chalkak!-</p>
 
 <p>Each time the camera shutter sounded, the flash automatically set on the smartphone went off.</p>
 
-<p>Instantly, Soa and Seyoung's lewd naked bodies revealed clear outlines and shapes in the darkness.</p>
+<p>Instantly, Sua and Seyoung's lewd naked bodies revealed clear outlines and shapes in the darkness.</p>
 
 <p>The leashes dangling from the rings of their dog collars were clearly drawn over their pure white bodies.</p>
 
-<p>Soa was standing with her legs spread apart at a moderate width so that the panties around her ankles wouldn't fall to the ground.</p>
+<p>Sua was standing with her legs spread apart at a moderate width so that the panties around her ankles wouldn't fall to the ground.</p>
 
 <p>Her knees were slightly bent, and her pelvis was pulled back.</p>
 
-<p>Soa's arms, covering her body as if shy and embarrassed,</p>
+<p>Sua's arms, covering her body as if shy and embarrassed,</p>
 
-<p>Soa was standing in such an awkward pose, turning her head away as if avoiding the camera that Shiwoo was pointing at her.</p>
+<p>Sua was standing in such an awkward pose, turning her head away as if avoiding the camera that Shiwoo was pointing at her.</p>
 
 <p>Seyoung was wearing nothing but the dress draped over her neck.</p>
 
@@ -128,7 +128,7 @@ chapter = 342
 
 <p>"Heu-eut..."</p>
 
-<p>Soa and Seyoung awkwardly knelt on the floor as Shiwoo led them.</p>
+<p>Sua and Seyoung awkwardly knelt on the floor as Shiwoo led them.</p>
 
 <p>Shiwoo lowered his pants to his knees and completely took out his penis, which had been exposed to the air.</p>
 
@@ -138,17 +138,17 @@ chapter = 342
 
 <p>Shiwoo pushed his hips forward, bringing his penis to his younger sisters' lips.</p>
 
-<p>The sensation of Seyoung and Soa's soft lips brushing against the outside of his hardened shaft could be felt.</p>
+<p>The sensation of Seyoung and Sua's soft lips brushing against the outside of his hardened shaft could be felt.</p>
 
 <p>Shiwoo slowly moved his hips back and forth, rubbing his penis against his younger sisters' lips and faces.</p>
 
 <p>His younger sisters' lips, as if caressing Shiwoo's penis, repeatedly opened and closed, wriggling.</p>
 
-<p>Then, Seyoung and Soa would occasionally stick out their tongues and stroke Shiwoo's shaft.</p>
+<p>Then, Seyoung and Sua would occasionally stick out their tongues and stroke Shiwoo's shaft.</p>
 
 <p>The electrifying sensation clinging to his penis shaft seemed to spread like goosebumps throughout Shiwoo's entire body.</p>
 
-<p>Shiwoo felt like he was going out of his mind from the simultaneous oral sex he was receiving from Soa and Seyoung for the first time.</p>
+<p>Shiwoo felt like he was going out of his mind from the simultaneous oral sex he was receiving from Sua and Seyoung for the first time.</p>
 
 <p>-Chalkak! Chalkak! Chalkak!-</p>
 
@@ -158,45 +158,45 @@ chapter = 342
 
 <p>The figures of his younger sisters, exposed starkly by the flash,</p>
 
-<p>Soa and Seyoung were licking Shiwoo's penis in a position where they were kneeling and looking up at Shiwoo.</p>
+<p>Sua and Seyoung were licking Shiwoo's penis in a position where they were kneeling and looking up at Shiwoo.</p>
 
 <p>Due to the uncontrollable excitement, viscous precum was flowing down from the tip of Shiwoo's penis, drawing a long line.</p>
 
-<p>Shiwoo pulled his hips back and brought his cock head to Soa's mouth.</p>
+<p>Shiwoo pulled his hips back and brought his cock head to Sua's mouth.</p>
 
-<p>Soa's mouth opened, and Shiwoo's massive penis was accepted.</p>
+<p>Sua's mouth opened, and Shiwoo's massive penis was accepted.</p>
 
 <p>Shiwoo's penis was pushed into her mouth, suuk.</p>
 
-<p>Shiwoo grabbed the back of Soa's head with the hand that was holding the leash.</p>
+<p>Shiwoo grabbed the back of Sua's head with the hand that was holding the leash.</p>
 
 <p>The cock head that reached her throat retreated backward before being forcefully pushed in as if stabbing forward.</p>
 
-<p>Soa's throat opened, and the cock head was pushed into Soa's throat, suuk.</p>
+<p>Sua's throat opened, and the cock head was pushed into Sua's throat, suuk.</p>
 
 <p>"Uu-uuk! Huk! Haup! Hau-uuk!!"</p>
 
-<p>Soa was making a series of gagging sounds.</p>
+<p>Sua was making a series of gagging sounds.</p>
 
-<p>It seemed to be the first time Shiwoo had pushed his penis into Soa's mouth and throat.</p>
+<p>It seemed to be the first time Shiwoo had pushed his penis into Sua's mouth and throat.</p>
 
 <p>The pleasure and exhilarating joy of conquering both the virgin above and below pressed down on Shiwoo's cock head.</p>
 
-<p>Soa, as if suffocating, was trembling and pushing Shiwoo's thigh,</p>
+<p>Sua, as if suffocating, was trembling and pushing Shiwoo's thigh,</p>
 
-<p>Soa thrashed violently from side to side, as if struggling to pull out the penis stuck in her throat.</p>
+<p>Sua thrashed violently from side to side, as if struggling to pull out the penis stuck in her throat.</p>
 
 <p>-Chalkak! Chalkak! Chalkak!-</p>
 
-<p>Shiwoo, while holding Soa's head in place, photographed Soa's face as she swallowed his penis into her throat with his smartphone.</p>
+<p>Shiwoo, while holding Sua's head in place, photographed Sua's face as she swallowed his penis into her throat with his smartphone.</p>
 
-<p>Only after taking the pictures did Shiwoo pull his hips back and take his penis out of Soa's mouth.</p>
+<p>Only after taking the pictures did Shiwoo pull his hips back and take his penis out of Sua's mouth.</p>
 
 <p>"Kollok! Kulleok! Huaaa Kulleok! Heueueueu Uk!"</p>
 
-<p>Soa was making a series of sounds, roughly inhaling air along with coughs close to vomiting.</p>
+<p>Sua was making a series of sounds, roughly inhaling air along with coughs close to vomiting.</p>
 
-<p>After taking his penis out of Soa's mouth, Shiwoo pushed his penis into Seyoung's mouth this time.</p>
+<p>After taking his penis out of Sua's mouth, Shiwoo pushed his penis into Seyoung's mouth this time.</p>
 
 <p>Seyoung accepted Shiwoo's penis as if enveloping it in her open mouth.</p>
 

@@ -12,15 +12,15 @@ chapter = 226
 
 <p>And the stimulating videos and nude photos sent by Seonju Imo-nim flashed through his mind as Shiwoo continued to masturbate.</p>
 
-<p>By Shiwoo's command, Soa, who was naked after taking off her clothes, had a pink egg-shaped vibrator attached to her crotch, obtained from Gyuri Ajumma.</p>
+<p>By Shiwoo's command, Sua, who was naked after taking off her clothes, had a pink egg-shaped vibrator attached to her crotch, obtained from Gyuri Ajumma.</p>
 
-<p>Had Soa been continuously attaching the vibrator there since last time?</p>
+<p>Had Sua been continuously attaching the vibrator there since last time?</p>
 
 <p>Was the vibrator attached to her crotch charged?</p>
 
 <p>As Shiwoo thought of it, he briefly minimized the chat screen where he was talking with Mom on his smartphone.</p>
 
-<p>Then, he turned on the app that controlled the vibrator Soa was wearing and displayed it on the screen.</p>
+<p>Then, he turned on the app that controlled the vibrator Sua was wearing and displayed it on the screen.</p>
 
 <p>Shiwoo touched the settings menu to check the connection status.</p>
 
@@ -32,9 +32,9 @@ chapter = 226
 
 <p>Soon, the smartphone vibrated loudly with a strong buzzing sound.</p>
 
-<p>Shiwoo imagined Soa and Seonju Imo-nim undressing at Seonju Imo-nim's house.</p>
+<p>Shiwoo imagined Sua and Seonju Imo-nim undressing at Seonju Imo-nim's house.</p>
 
-<p>When the vibrator attached to Soa's clitoris vibrated strongly and rapidly, Shiwoo's cock felt like it would burst as he imagined Soa's moans and reactions.</p>
+<p>When the vibrator attached to Sua's clitoris vibrated strongly and rapidly, Shiwoo's cock felt like it would burst as he imagined Sua's moans and reactions.</p>
 
 <p>Shiwoo turned on the video recording app after setting the vibrator's intensity to the highest level and holding it.</p>
 
@@ -50,7 +50,7 @@ chapter = 226
 
 <p>Shiwoo imagined the family members lined up naked on their knees, mouths open.</p>
 
-<p>Mom, Seonju Imo-nim, Sehee Nuna, Seyoung, and then Soa...</p>
+<p>Mom, Seonju Imo-nim, Sehee Nuna, Seyoung, and then Sua...</p>
 
 <p>In addition, Sejin Nuna, Gyuri Ajumma, Shinbi Nuna, and Seulgi...</p>
 
@@ -90,7 +90,7 @@ chapter = 226
 
 <p>Shiwoo simply wrote a message and commanded Mom.</p>
 
-<p>Following that, Shiwoo uploaded the video he had just taken to the room where Seonju Imo-nim and Soa were.</p>
+<p>Following that, Shiwoo uploaded the video he had just taken to the room where Seonju Imo-nim and Sua were.</p>
 
 <p>Shiwoo closed the door and, without even tidying up his clothes properly, stretched out his arms and legs and lay down on the bed.</p>
 
@@ -98,25 +98,25 @@ chapter = 226
 
 <p>An alert message was ringing from Shiwoo's smartphone, which was vibrating intensely.</p>
 
-<p>It was a video sent by Seonju Imo-nim in the chat room with Seonju Imo-nim and Soa.</p>
+<p>It was a video sent by Seonju Imo-nim in the chat room with Seonju Imo-nim and Sua.</p>
 
 <p>Shiwoo immediately checked the video.</p>
 
-<p>Soa was lying on the bed with her legs spread, fixing her legs with her arms.</p>
+<p>Sua was lying on the bed with her legs spread, fixing her legs with her arms.</p>
 
-<p>Seonju Imo-nim, with her face buried between Soa's spread legs, was ravenously licking her.</p>
+<p>Seonju Imo-nim, with her face buried between Sua's spread legs, was ravenously licking her.</p>
 
-<p>On Soa's clitoris, which was pouring out water, Gyuri Ajumma's vibrator was still attached with skin tape and vibrating.</p>
+<p>On Sua's clitoris, which was pouring out water, Gyuri Ajumma's vibrator was still attached with skin tape and vibrating.</p>
 
 <p>"Haaat! Heut! Heuk! Heueut Heueeung"</p>
 
-<p>Soa was moaning, trembling her body while holding her spread legs as if embracing them with her arms.</p>
+<p>Sua was moaning, trembling her body while holding her spread legs as if embracing them with her arms.</p>
 
 <p>The mother and daughter's cunnilingus felt dizzying.</p>
 
-<p>Shiwoo opened the vibrator control app on his smartphone and raised the intensity of the vibrator Soa was wearing to the maximum.</p>
+<p>Shiwoo opened the vibrator control app on his smartphone and raised the intensity of the vibrator Sua was wearing to the maximum.</p>
 
-<p>Shiwoo imagined Soa's screaming as his smartphone vibrated intensely and rang.</p>
+<p>Shiwoo imagined Sua's screaming as his smartphone vibrated intensely and rang.</p>
 
 <p>Even though he had just ejaculated, Shiwoo's cock was stiffly erected as if preparing for the next ejaculation while exposed outside.</p>
 
@@ -204,21 +204,21 @@ chapter = 226
 
 <p>The vibrator was vibrating loudly.</p>
 
-<p>The vibrator with increased intensity was still attached to Soa's crotch.</p>
+<p>The vibrator with increased intensity was still attached to Sua's crotch.</p>
 
-<p>Soa, who was quickly writhing her body violently, reached climax.</p>
+<p>Sua, who was quickly writhing her body violently, reached climax.</p>
 
-<p>Even after Soa reached climax, the egg-shaped pink vibrator in her center continued to operate.</p>
+<p>Even after Sua reached climax, the egg-shaped pink vibrator in her center continued to operate.</p>
 
-<p>Soa was groaning, twisting her body as if in pain.</p>
+<p>Sua was groaning, twisting her body as if in pain.</p>
 
-<p>Seonju Imo-nim, who had been filming Soa's appearance for a long time, placed the camera she was filming on the table and fixed it to face the bed.</p>
+<p>Seonju Imo-nim, who had been filming Sua's appearance for a long time, placed the camera she was filming on the table and fixed it to face the bed.</p>
 
-<p>Seonju Imo-nim brought her center between Soa's spread legs.</p>
+<p>Seonju Imo-nim brought her center between Sua's spread legs.</p>
 
 <p>The mother and daughter, facing the vibrating vibrator, crossed their legs and pressed their clitorises together.</p>
 
-<p>Soon, Seonju Imo-nim's body also twisted like Soa's body, creating a fierce and intense tremor.</p>
+<p>Soon, Seonju Imo-nim's body also twisted like Sua's body, creating a fierce and intense tremor.</p>
 
 <p>"Haaang Haeung Haaaaa Haeung"</p>
 

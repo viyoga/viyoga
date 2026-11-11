@@ -58,17 +58,17 @@ chapter = 170
 
 <p>Shiwoo was feeling displeasure at Seonju Imo's presumptuous and arrogant attitude.</p>
 
-<p>,Uh...I should. Seyoung-ah! Soa-ah! Thank you I'll really use this well,</p>
+<p>,Uh...I should. Seyoung-ah! Sua-ah! Thank you I'll really use this well,</p>
 
 <p>After answering Seonju Imo, Shiwoo thanks his younger sisters and brings the perfume in front of him.</p>
 
-<p>Shiwoo seems to be lost in thought for a moment, then asks Seyoung and Soa.</p>
+<p>Shiwoo seems to be lost in thought for a moment, then asks Seyoung and Sua.</p>
 
-<p>,I'd feel bad just receiving Is there anything you guys want? I want to give Seyoung and Soa something as a gift too!,</p>
+<p>,I'd feel bad just receiving Is there anything you guys want? I want to give Seyoung and Sua something as a gift too!,</p>
 
-<p>Although Seonju Imo's attitude was annoying, it was true that he was grateful for Seyoung and Soa's hearts.</p>
+<p>Although Seonju Imo's attitude was annoying, it was true that he was grateful for Seyoung and Sua's hearts.</p>
 
-<p>,Shiwoo Oppa, then I I want to go eat ice cream cake with Shiwoo Oppa! At the cafe under the academy! With Soa! Hehe Can you buy it for me?,</p>
+<p>,Shiwoo Oppa, then I I want to go eat ice cream cake with Shiwoo Oppa! At the cafe under the academy! With Sua! Hehe Can you buy it for me?,</p>
 
 <p>Seyoung says to Shiwoo, her eyes sparkling as if she had been waiting for it.</p>
 
@@ -84,7 +84,7 @@ chapter = 170
 
 <p>Shiwoo seemed to feel like he definitely wanted to repay Seyoung for the perfume.</p>
 
-<p>Seyoung hesitates for a moment, then glances at Soa once before turning her gaze to Seonju Imo.</p>
+<p>Seyoung hesitates for a moment, then glances at Sua once before turning her gaze to Seonju Imo.</p>
 
 <p>,Then how about Shiwoo taking the kids to the mall around the weekend and buying them some clothes to wear in the spring? Watch a movie and ride the Ferris wheel too! And look around the aquarium Kikik!,</p>
 
@@ -170,13 +170,13 @@ chapter = 170
 
 <p>,Haaeeuuut,</p>
 
-<p>Soa, who was sitting next to Seonju Imo, that is, diagonally across from Shiwoo, was curling her body forward and making a moaning sound.</p>
+<p>Sua, who was sitting next to Seonju Imo, that is, diagonally across from Shiwoo, was curling her body forward and making a moaning sound.</p>
 
 <p>A situation that cannot be understood right away.</p>
 
 <p>Shiwoo feels a bewildered feeling and quickly takes his finger off the smartphone.</p>
 
-<p>Soa, who is about to cry, is making a face as if she is about to drop the puppy she was holding, leaning forward halfway.</p>
+<p>Sua, who is about to cry, is making a face as if she is about to drop the puppy she was holding, leaning forward halfway.</p>
 
 <p class="scene-break">· · ·</p>
 
@@ -184,7 +184,7 @@ chapter = 170
 
 <p>Seonju Imo asks Shiwoo slyly and mischievously.</p>
 
-<p>In that moment, Shiwoo began to understand all these situations after seeing Seonju Imo's nonchalant attitude and Soa's reaction.</p>
+<p>In that moment, Shiwoo began to understand all these situations after seeing Seonju Imo's nonchalant attitude and Sua's reaction.</p>
 
 <p>Seonju Imo is teasing Shiwoo with cunning tricks.</p>
 
@@ -194,6 +194,6 @@ chapter = 170
 
 <p>Shiwoo was feeling a strong sense of shame as the owner at Seonju Imo's audacity.</p>
 
-<p>Shiwoo, who had committed an act of molestation against Soa that he did not want and had not even prepared his mind for.</p>
+<p>Shiwoo, who had committed an act of molestation against Sua that he did not want and had not even prepared his mind for.</p>
 
 <p>Along with the bewilderment, a thrilling current of pleasure was sweeping through Shiwoo's spine.</p>

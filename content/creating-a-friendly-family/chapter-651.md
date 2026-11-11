@@ -1,5 +1,5 @@
 +++
-title = "Chapter 651: [Incest] Making a Friendly Family 651 (Se-young, Soa) (Sushi Restaurant, Way Home)"
+title = "Chapter 651: [Incest] Making a Friendly Family 651 (Se-young, Su-ah) (Sushi Restaurant, Way Home)"
 weight = 651
 [extra]
 chapter = 651
@@ -18,11 +18,11 @@ chapter = 651
 
 <p class="scene-break">· · ·</p>
 
-<p>Shiwoo bought the sushi and headed home with his younger sisters. Seyoung and Soa followed behind Shiwoo, each carrying a plastic bag filled with sushi. On the way home, they stopped at a convenience store to buy drinks to go with the sushi and some simple snacks.</p>
+<p>Shiwoo bought the sushi and headed home with his younger sisters. Seyoung and Sua followed behind Shiwoo, each carrying a plastic bag filled with sushi. On the way home, they stopped at a convenience store to buy drinks to go with the sushi and some simple snacks.</p>
 
-<p>Since leaving the cafe, he hadn't spoken to his sisters about what happened there or anything related to the tarot cards. Seyoung and Soa simply chattered about things that happened at the academy or trends among the beginner students. They looked exactly like the beginner students they were, the same younger sisters he always knew.</p>
+<p>Since leaving the cafe, he hadn't spoken to his sisters about what happened there or anything related to the tarot cards. Seyoung and Sua simply chattered about things that happened at the academy or trends among the beginner students. They looked exactly like the beginner students they were, the same younger sisters he always knew.</p>
 
-<p>But only a few dozen minutes ago, Seyoung had sucked his penis in the cafe and shared the ejaculated semen with Soa. Furthermore, anal plugs were currently inserted into their anuses. Even though they had accepted Shiwoo as their absolute Master, they were now nonchalantly acting out their daily lives as if nothing were wrong... Shiwoo smiled faintly at the sight of them, but complex thoughts remained tangled in a corner of his mind.</p>
+<p>But only a few dozen minutes ago, Seyoung had sucked his penis in the cafe and shared the ejaculated semen with Sua. Furthermore, anal plugs were currently inserted into their anuses. Even though they had accepted Shiwoo as their absolute Master, they were now nonchalantly acting out their daily lives as if nothing were wrong... Shiwoo smiled faintly at the sight of them, but complex thoughts remained tangled in a corner of his mind.</p>
 
 <p>According to the girl who read his tarot, Shiwoo had to offer three of his family members as 'sacrifices' to the sponsors in order to reclaim his inheritance rights. Within the word 'sacrifice' lay the heavy shadow of the restraint of slavery, stripped of freedom, and the yoke of dominant sexual relationships with others.</p>
 
@@ -38,41 +38,41 @@ chapter = 651
 
 <p>As if she knew what was on Shiwoo's mind, Seyoung answered with a playful tone and a sly smile. A strange energy that flickered through Seyoung's voice awkwardly brushed against a part of Shiwoo's heart that had returned to its everyday senses.</p>
 
-<p>"What about Soa? Anything happen? If there is, you have to tell me right away!"</p>
+<p>"What about Sua? Anything happen? If there is, you have to tell me right away!"</p>
 
-<p>Shiwoo, somewhat flustered by Seyoung's provocative words, turned his gaze toward Soa and asked cautiously.</p>
+<p>Shiwoo, somewhat flustered by Seyoung's provocative words, turned his gaze toward Sua and asked cautiously.</p>
 
 <p>"Yeah... nothing special happened to me either..."</p>
 
-<p>Soa hesitated for a moment before nodding quietly and answering.</p>
+<p>Sua hesitated for a moment before nodding quietly and answering.</p>
 
 <p>"You don't have to worry, Oppa We'll take care of it... Hehe."</p>
 
-<p>Seyoung approached and linked her arm with Shiwoo's, the one holding the ice cream. Soon, Soa also approached shyly and clung to Shiwoo's other arm. While linked to Shiwoo's arm, Seyoung slyly reached one hand forward and slid it into the gap between the bag he was wearing and his groin.</p>
+<p>Seyoung approached and linked her arm with Shiwoo's, the one holding the ice cream. Soon, Sua also approached shyly and clung to Shiwoo's other arm. While linked to Shiwoo's arm, Seyoung slyly reached one hand forward and slid it into the gap between the bag he was wearing and his groin.</p>
 
 <p>Just as she had when they moved to buy ice cream at the cafe, Seyoung gripped Shiwoo's erect penis through his clothes.</p>
 
 <p>"Uh?... Uh..."</p>
 
-<p>Shiwoo faltered for a moment, then began walking again as if nothing were happening. Seyoung's small hand wrapped around Shiwoo's shaft, pressing it against his belly and beginning to stroke it. A moment later, Soa's hand also moved cautiously along his hip and down toward his groin.</p>
+<p>Shiwoo faltered for a moment, then began walking again as if nothing were happening. Seyoung's small hand wrapped around Shiwoo's shaft, pressing it against his belly and beginning to stroke it. A moment later, Sua's hand also moved cautiously along his hip and down toward his groin.</p>
 
-<p>Then, she gripped Shiwoo's scrotum through his clothes. Soa began to knead Shiwoo's testicles as if she were squeezing a ball in her hand. Amidst all this, an ecstatic pleasure and a hint of pain that felt surreal began to spread from Shiwoo's penis and testicles.</p>
+<p>Then, she gripped Shiwoo's scrotum through his clothes. Sua began to knead Shiwoo's testicles as if she were squeezing a ball in her hand. Amidst all this, an ecstatic pleasure and a hint of pain that felt surreal began to spread from Shiwoo's penis and testicles.</p>
 
 <p>As they turned into the residential alley, the number of people thinned out, though shadows of people could still be seen flickering in the distance. The thought that as soon as they got home, he could have aggressive sex with his two younger sisters to his heart's content, without having to worry about others' eyes, made Shiwoo's penis throb and surge.</p>
 
-<p>Shiwoo moved the arm Soa was holding and wrapped it around her waist, slowly pulling her body toward him. He slid his hand up toward Soa's chest and cautiously gripped her breast. Enveloped in Shiwoo's arm with her breast held in his hand, Soa blushed and let out a feverish breath.</p>
+<p>Shiwoo moved the arm Sua was holding and wrapped it around her waist, slowly pulling her body toward him. He slid his hand up toward Sua's chest and cautiously gripped her breast. Enveloped in Shiwoo's arm with her breast held in his hand, Sua blushed and let out a feverish breath.</p>
 
-<p>Before long, Shiwoo's hand movements seemed to synchronize with the rhythm of Soa kneading and releasing his testicles, moving together as one. With their hand movements tightening in unison, even their breaths seemed to overlap in rhythm.</p>
+<p>Before long, Shiwoo's hand movements seemed to synchronize with the rhythm of Sua kneading and releasing his testicles, moving together as one. With their hand movements tightening in unison, even their breaths seemed to overlap in rhythm.</p>
 
-<p>Seyoung watched the two of them with a satisfied look while twisting Shiwoo's shaft from side to side. The intense pleasure flooding his penis caused Shiwoo's hand to tighten. As Soa's breast was squeezed firmly, Soa's hand gripping Shiwoo's testicles also tightened. The sensory reactions and the pressure from their fingertips seemed to flow through each other's bodies in a chain reaction.</p>
+<p>Seyoung watched the two of them with a satisfied look while twisting Shiwoo's shaft from side to side. The intense pleasure flooding his penis caused Shiwoo's hand to tighten. As Sua's breast was squeezed firmly, Sua's hand gripping Shiwoo's testicles also tightened. The sensory reactions and the pressure from their fingertips seemed to flow through each other's bodies in a chain reaction.</p>
 
-<p>"Shiwoo Oppa As soon as we get home, I'm going to go shower first So Oppa, you and Soa should rest in my room or the living room for a bit! Hihit."</p>
+<p>"Shiwoo Oppa As soon as we get home, I'm going to go shower first So Oppa, you and Sua should rest in my room or the living room for a bit! Hihit."</p>
 
-<p>Seyoung let out a playful laugh at the end of her sentence, speaking as if she were trying to give Shiwoo and Soa some private time together.</p>
+<p>Seyoung let out a playful laugh at the end of her sentence, speaking as if she were trying to give Shiwoo and Sua some private time together.</p>
 
-<p>"Oh... is that so? Then I'll be getting dinner ready with Soa until Seonju arrives, so Seyoung, you take your time washing up. That's okay with you too, right, Soa?"</p>
+<p>"Oh... is that so? Then I'll be getting dinner ready with Sua until Seonju arrives, so Seyoung, you take your time washing up. That's okay with you too, right, Sua?"</p>
 
-<p>Shiwoo answered as if it were nothing, turning his gaze toward Soa. Soa looked down and nodded. Come to think of it, had he ever had sex with Soa alone? It seemed that, somehow, he had only ever had sex with Soa when Seonju Imo or Seyoung were also present.</p>
+<p>Shiwoo answered as if it were nothing, turning his gaze toward Sua. Sua looked down and nodded. Come to think of it, had he ever had sex with Sua alone? It seemed that, somehow, he had only ever had sex with Sua when Seonju Imo or Seyoung were also present.</p>
 
 <p>At that thought, a forbidden desire and pleasure began to slowly boil up from the bottom of Shiwoo's chest.</p>
 

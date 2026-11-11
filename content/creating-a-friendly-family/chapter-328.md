@@ -1,5 +1,5 @@
 +++
-title = "Chapter 328: [Incest] Creating a Close Family 328 (Se-young, Soa)"
+title = "Chapter 328: [Incest] Creating a Close Family 328 (Se-young, Su-a)"
 weight = 328
 [extra]
 chapter = 328
@@ -24,33 +24,33 @@ chapter = 328
 
 <p>Shiwoo was certain he was being watched by his sisters, judging by their twitching reactions to his erect, bare-skinned penis.</p>
 
-<p>Shiwoo stopped fanning himself and placed the connector end of the charging cable into Soa's hand.</p>
+<p>Shiwoo stopped fanning himself and placed the connector end of the charging cable into Sua's hand.</p>
 
-<p>Soa received the charging cable Shiwoo handed her, hesitating for a moment.</p>
+<p>Sua received the charging cable Shiwoo handed her, hesitating for a moment.</p>
 
 <p>Then, as if realizing what she needed to do, she brought the connector of the charging cable to the opening of her bag.</p>
 
-<p>Soa connected the charging cable Shiwoo had just given her to the charging socket of the vibrator facing outward from inside the bag.</p>
+<p>Sua connected the charging cable Shiwoo had just given her to the charging socket of the vibrator facing outward from inside the bag.</p>
 
-<p>Shiwoo stroked Soa's head as if praising her.</p>
+<p>Shiwoo stroked Sua's head as if praising her.</p>
 
 <p>After stroking her head, he lowered his hand to her back.</p>
 
 <p>His hand, descending further, was inserted between her buttocks and the back of the chair she was sitting on.</p>
 
-<p>Soa stiffened her body, straightening her back.</p>
+<p>Sua stiffened her body, straightening her back.</p>
 
-<p>Soa's expression was unfocused, as if she had just woken up.</p>
+<p>Sua's expression was unfocused, as if she had just woken up.</p>
 
-<p>Shiwoo looked at Seyoung, who was sitting on the opposite side of Soa.</p>
+<p>Shiwoo looked at Seyoung, who was sitting on the opposite side of Sua.</p>
 
-<p>Seyoung, watching him and Soa, wore a strange smile.</p>
+<p>Seyoung, watching him and Sua, wore a strange smile.</p>
 
-<p>Shiwoo moved the hand that had been inserted under Soa's back forward, as if showing it to Seyoung.</p>
+<p>Shiwoo moved the hand that had been inserted under Sua's back forward, as if showing it to Seyoung.</p>
 
-<p>Then, Shiwoo stroked Soa's plump thighs over her clothes.</p>
+<p>Then, Shiwoo stroked Sua's plump thighs over her clothes.</p>
 
-<p>A sigh of frustration escaped Soa's lips.</p>
+<p>A sigh of frustration escaped Sua's lips.</p>
 
 <p>Seyoung, even after seeing what Shiwoo was doing, wore a relaxed expression as if nothing was amiss.</p>
 
@@ -58,7 +58,7 @@ chapter = 328
 
 <p>Even after directly confirming his erect, bare-skinned penis just now...</p>
 
-<p>Even while watching his current act of molesting Soa right in front of her...</p>
+<p>Even while watching his current act of molesting Sua right in front of her...</p>
 
 <p>Shiwoo felt a strange sense of displeasure and unease at Seyoung's lack of agitation or tension.</p>
 
@@ -66,9 +66,9 @@ chapter = 328
 
 <p>A good idea came to Shiwoo's mind as he briefly pondered that thought.</p>
 
-<p>Shiwoo stroked Soa's thighs, then reached into the pocket of her reddish-brown dress.</p>
+<p>Shiwoo stroked Sua's thighs, then reached into the pocket of her reddish-brown dress.</p>
 
-<p>The box of waterproof bandages he had bought at the convenience store was grasped in his hand inside the pocket of Soa's reddish-brown dress.</p>
+<p>The box of waterproof bandages he had bought at the convenience store was grasped in his hand inside the pocket of Sua's reddish-brown dress.</p>
 
 <p>Waterproof bandages intended to fix the vibrator in place against her clitoris.</p>
 
@@ -78,13 +78,13 @@ chapter = 328
 
 <p>Seyoung, seeing the box of bandages pushed to her side of the table, looked at Shiwoo with a slightly puzzled expression.</p>
 
-<p>This time, Shiwoo reached towards Soa's neck.</p>
+<p>This time, Shiwoo reached towards Sua's neck.</p>
 
-<p>He grabbed the strap of the portable mini fan Soa was wearing and removed the mini fan from her neck.</p>
+<p>He grabbed the strap of the portable mini fan Sua was wearing and removed the mini fan from her neck.</p>
 
-<p>Without a word, Shiwoo hung the mini fan he had taken from Soa around Seyoung's neck.</p>
+<p>Without a word, Shiwoo hung the mini fan he had taken from Sua around Seyoung's neck.</p>
 
-<p>"After you finish the burger in the bathroom... Soa will help you, so..."</p>
+<p>"After you finish the burger in the bathroom... Sua will help you, so..."</p>
 
 <p>Shiwoo muttered quietly.</p>
 
@@ -92,7 +92,7 @@ chapter = 328
 
 <p>Seyoung nodded, maintaining her smiling expression, and took the box of waterproof bandages Shiwoo had placed on the table, putting it into the pocket on the front of her denim dress.</p>
 
-<p>Shiwoo's one hand went back onto Soa's thigh.</p>
+<p>Shiwoo's one hand went back onto Sua's thigh.</p>
 
 <p>With his other hand, Shiwoo began to fan the t-shirt fabric near his neck again, as if feeling hot.</p>
 
@@ -110,9 +110,9 @@ chapter = 328
 
 <p>Seyoung, looking down at Shiwoo's penis, answered cheerfully as if understanding, and stood up.</p>
 
-<p>Soa also tried to get up, following Seyoung, but Shiwoo grabbed her arm, stopping her.</p>
+<p>Sua also tried to get up, following Seyoung, but Shiwoo grabbed her arm, stopping her.</p>
 
-<p>Soa, whose arm had been grabbed by Shiwoo, seemed momentarily flustered, but then sat back down as if giving up.</p>
+<p>Sua, whose arm had been grabbed by Shiwoo, seemed momentarily flustered, but then sat back down as if giving up.</p>
 
 <p>Seyoung took the order number from Shiwoo and walked towards the counter.</p>
 
@@ -124,7 +124,7 @@ chapter = 328
 
 <p>Seyoung brought the ordered food to the table where Shiwoo was sitting in three trips.</p>
 
-<p>He could have had Soa help or gotten up himself to help carry it, but Shiwoo deliberately didn't do so.</p>
+<p>He could have had Sua help or gotten up himself to help carry it, but Shiwoo deliberately didn't do so.</p>
 
 <p>Because he wanted to watch Seyoung follow his instructions thoroughly...</p>
 
@@ -154,7 +154,7 @@ chapter = 328
 
 <p>Shiwoo asked his sisters, nonchalantly eating the side of french fries.</p>
 
-<p>Soa and Seyoung looked at each other as if puzzled by Shiwoo's sudden question, and shook their heads.</p>
+<p>Sua and Seyoung looked at each other as if puzzled by Shiwoo's sudden question, and shook their heads.</p>
 
 <p>"No... we didn't see it? A strange amusement ride?"</p>
 

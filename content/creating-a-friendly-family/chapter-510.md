@@ -86,7 +86,7 @@ chapter = 510
 
 <p>Shiwoo pointed out Mom's contradictory attitude, speaking as if pressuring and cornering her.</p>
 
-<p>,Be...because...Soa was there too..."</p>
+<p>,Be...because...Sua was there too..."</p>
 
 <p>Mom answered, flustered by Shiwoo's words, as if making excuses.</p>
 

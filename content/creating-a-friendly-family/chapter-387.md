@@ -118,7 +118,7 @@ chapter = 387
 
 <p>It wasn't just Sora Nuna and Sinbi Nuna, who were smiling at him with hypocritical smiles in front of him.</p>
 
-<p>Gyuri Ajumma and Seonju Imo, who had sex with Shiwoo... Even his younger sisters, Soa and Seyoung...</p>
+<p>Gyuri Ajumma and Seonju Imo, who had sex with Shiwoo... Even his younger sisters, Sua and Seyoung...</p>
 
 <p>As if trying to test the limits of Shiwoo's desires and madness, they constantly provoke and tease him, circling around him.</p>
 
