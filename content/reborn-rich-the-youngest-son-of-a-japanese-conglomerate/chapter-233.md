@@ -1,0 +1,62 @@
++++
+title = "Chapter 233"
+weight = 233
+[extra]
+chapter = 233
++++
+
+<p>After the short Villa vacation with Yukiko ended, I, who had returned to the Talent Development Institute Home, just then, a Gun from the Black Market had arrived, so I immediately gave it to Yukiko as a gift. Yukiko opened the box and looked inside, then she was incredibly happy and jumped into my Arms.</p>
+<p>"With this, protect Yukiko-ssi's Body."</p>
+<p>"This is the first time I've received such a romantic gift...!"</p>
+<p>She likes it more than the ring I gave her on this trip? It seemed Yukiko's Character was gradually changing in a slightly strange way. In my mind, Yukiko felt like she had become a somewhat strange person: a Gun enthusiast who liked a smell fetish and enjoyed dressing me in a School Uniform.</p>
+<p>Well, she's pretty, has a good physique, likes me, and I like her too, so I don't really care that much. Isn't this kind of understanding true love?</p>
+<p>"When Ryuta goes to the USA, I'll have to build a Marksmanship range next to the Home in the meantime."</p>
+<p>Yukiko boldly declared that she would undertake Construction for Marksmanship during my last schedule of the vacation, the trip to the USA. Just how obsessed is she with Marksmanship?</p>
+<p>Well, there was quite a large plot of land next to the Home, and with today's technology, even if a Marksmanship range is built inside the Talent Development Institute, there won't be any noise outside. The Marksmanship she did during the vacation must have been incredibly fun. That's fortunate.</p>
+<p>Yukiko said she had to handle building the Marksmanship range and the Talent Development Institute's Work, and as soon as she returned from the Travel, she went to the CEO's Office, and I gathered the remaining Black Market Items and went into my Room.</p>
+<p>The things bought from the Seoul Black Market and Pyongyang Black Market were ancient books that could be called cultural assets and cyber implants that could be used as Weapons, so they had to take a slight detour to arrive, thus arriving later than the liquor and snacks that merely looked like fruit.</p>
+<p>I first checked the Secret Manuals I had bought in Seoul.</p>
+<p>◆Goksan Papung Sword Method (谷山波風劍法) [Unique Swordsmanship Secret Manual] A Swordsmanship created by a Swordsman from Goksan (Valley Mountain). That Swordsman later received the Title of Sword Master.</p>
+<p>A Sword Master from Goksan? I don't know what that means. Wondering where Goksan was, I searched for it, and it was the name of a region in North Hwanghae Province, an old North Korea area.</p>
+<p>Just in case it would appear if I searched, I searched for "Goksan Sword Master," and Cheok Jun-gyeong, famous as the "Sword Master of Goryeo" meme, appeared. Yes, this much is acceptable.</p>
+<p>The Secret Manual itself was good, but the regrettable thing was that there was no one around me who used Swordsmanship.</p>
+<p>The closest thing to Swordsmanship was Katayama Junichi of Seryutai practicing Dagger Swordsmanship, but Katayama Junichi's main was firearms, and Daggers were only a sub, so it would not be very useful for Katayama Junichi either.</p>
+<p>Oh, right! Come to think of it, Alexandra Smirnova used a Sword when she was a mid-Boss in the Game. Then it seemed I could have her learn this. I don't know what Swordsmanship Alexandra Smirnova used when she was a mid-Boss, but since the Goksan Papung Geombeop I bought from the Black Market is also a Unique-grade Swordsmanship, it wouldn't fall behind much.</p>
+<p>◆Palgeuk Seonhyeong Fist (八極仙形拳) [Legacy Fist Technique Secret Manual] A Fist Technique modeled after the forms of eight Immortals who reached the extreme. If one understands and unfolds all forms, it is said that one can reach the Realm of an Immortal.</p>
+<p>Ah~ It's not 'Palgeuk' Seonhyeong Fist derived from Palgukgwon, but 'Palgeukseonhyeong' Fist. Perhaps the Eight Immortals are the Eight Immortals of Taoism (道敎八仙) mentioned in China. It was a Legacy-grade Secret Manual, one level higher than the Goksan Papung Geombeop. Seeing that it says one can reach the Realm of an 'Immortal', it seemed to be a Fist Technique that could lead to the Realm of a Superhuman, transcending humans.</p>
+<p>Fortunately, there were many people to give the Fist Technique to. I could give it to Mimata Chieri, who seemed to have quite a Talent for Fist Technique, or to Kiyohira, who was constantly training to become stronger. I'll read it a bit and give it to the one who suits it better. Since it's in Chinese characters, it might take some Time to translate and read, but these days, translation programs are so good in quality that if I put my mind to it, I could translate it quickly.</p>
+<p>After organizing the Secret Manuals I bought in Seoul, the Centipede Spine SA-A091SGF and Prosthetic Eye R-Z001, as well as the Cyber Prosthetic Hand 40F-5044 and Cyber Prosthetic Leg 甲-092乙77 I got in Pyongyang, I was already familiar with their abilities, so there was no need to examine them individually. I just checked their names and forms to make sure they had arrived correctly and then put them back in the box. One day, there would be work for them.</p>
+<p>After checking all the Items that came from the Black Market, I lay down on the Bed and fell asleep. For 4 nights and 5 days, I had dealt with Yukiko during the day and Evening, and Tang So-hwa and Yang Seol-hui during the night and Dawn, so I had only slept for about two or three hours, and needed to get some Sleep.</p>
+<p>For several days before going to the USA, busy days continued. Most of it was due to Work related to the Mithril mine, I interviewed several mining Experts introduced by Shinone Misano at my Request, recruited two of them and sent them to Daisen-shi, Ehime Prefecture, where the mine was located, and to hire new laborers, I had to send Jinmija Yeosa, the head of Hatake Investment Company, along with the mining Experts.</p>
+<p>Besides the Mithril mine Work, I also prepared for the USA Travel and observed Seryutai's Training. Everyone looked grimy, perhaps because the Training was hard, but perhaps because the Meals were better than when they were under the Slave Trader, their emaciated Appearance had disappeared, and they had gained a little flesh.</p>
+<p>Especially Alexandra Smirnova, despite being 19 years old, past her growth spurt, seemed to have grown somewhat in a short period I hadn't seen her, once she received nutrition. Her Height had increased slightly, and her breasts had become fuller.</p>
+<p>Indeed, in the Game, she was a curvaceous Russian Older Sister, so there was quite a discrepancy with her cute Appearance from a while ago.</p>
+<p>Perhaps because I came and they received a day of Rest, all the Children welcomed me. When I asked what they wanted to eat, everyone had different Answers, so I just took them to a buffet, and they all ate well.</p>
+<p>As an Investor holding most of the Shares in Seryu Military Company, I received a Report from Sawayanagi Azuma, and at Konoe Akina's Request, when I asked about Sawayanagi Sinya, who was not present, she said the Work was not yet finished.</p>
+<p>I wonder how the Konoe Family's Head of family War will turn out. My introduction of Sawayanagi Sinya meant that I could also help militarily using Seryutai, but seeing that there was no particular Contact, it seemed that significant military force was not yet needed.</p>
+<p>After the buffet Meal, everyone gathered and had a heated Discussion about where to hold Seryutai's get-together. The 'hotel stay' faction, the 'Sea' faction, and the 'stream' faction were divided, but I had seen enough of the Sea during my Travel with Yukiko, and there were plenty of Hotels in Korea, so I sided with the stream faction.</p>
+<p>For some reason, when I sided with the stream faction, Sawayanagi Azuma and a few others who were part of the Sea faction switched to the stream faction, so in the end, the 1st Seryutai get-together was decided to be at the stream.</p>
+<p>After spending a day with Seryutai like that, I continued to prepare for my USA Travel along with Work.</p>
+<p>Oh, what happened to Tang So-hwa and Yang Seol-hui? They both immediately returned to Akita Prefecture, took the Prisoners of Kurotsukidoo, and seized all of Kurotsukidoo's Branches throughout Japan.</p>
+<p>And leaving Japan to Yang Seol-hui, Tang So-hwa alone went to Korea, where Kurotsukidoo's Northeast Asia Branch was located, and transferred all property, Buildings, land deeds, etc., into her own name. She was said to have completely brought all the still-intact Korean Kurotsukidoo troops into her own faction with powerful Charisma.</p>
+<p>Only a few days had passed, yet it was amazing how swiftly she acted to seize control of Kurotsukidoo's forces in Korea and Japan.</p>
+<p>According to Tang So-hwa, if it hadn't been resolved quickly, everything would have been absorbed by the newly arrived Branch Chief, so it was a race against Time to see who moved faster.</p>
+<p>While releasing Tang So-hwa and Yang Seol-hui, when I asked how much initial Money they needed, they said they could just take the Money from Kurotsukidoo's Northeast Asia Branch, and only requested a certain amount of operating funds, I didn't expect them to actually divert all of the Northeast Asia Branch's property to themselves.</p>
+<p>Anyway, since they both did well, I could prepare for the trip to the USA without needing to pay special attention to them. If I had been busy with other Work and also had to worry about Kurotsukidoo's Work, I would have had to handle tasks without any Rest, so it was fortunate.</p>
+<p>Nikolai Yang, the Vice-Head of the Black Moon Sect, as his name suggested, was of Russian Mixed Blood. He was a giant, reaching 215 centimeters, a muscular brown-haired Man with forearms as thick as a normal person's waist, his hair cut short and swept up. Unfitting for his Size and Impression, he wore Gold-Rimmed Glasses with thick lenses.</p>
+<p>Although he looked menacing, as if his fist would go out first in any Matter, he was a cautious strategist-style Man who didn't show his Emotions well and used his Brain first.</p>
+<p>"Tang So-hwa does not seem to be dead. I don't know if she escaped while being a Prisoner, or if she was hiding somewhere, recovered, and then reappeared, but she diverted all of our Group's Assets in Japan and Korea and killed the newly dispatched interim Branch Chief."</p>
+<p>Nikolai Yang's Appearance showed no change in Expression even at his subordinate's Report. Nikolai Yang tapped the desk with his large finger and thought for a Moment.</p>
+<p>Tang So-hwa had no backing, and many Enemies within the Black Moon Sect. Even if she returned after being captured as a Prisoner, she would have been Purged using this as an excuse. So it seemed she was making a last desperate struggle.</p>
+<p>Tuk-tuk-tuk.</p>
+<p>For a long Time, Nikolai Yang's regular tapping on the desk was heard. At a certain Moment, Nikolai Yang stopped his finger.</p>
+<p>"Where is the Execution Unit of the Shadowless Ghost now?"</p>
+<p>"They went to deal with the New York Branch Chief. It will probably take a week."</p>
+<p>Nikolai Yang, who had slowly nodded his Head at his subordinate's Answer, immediately opened his Mouth.</p>
+<p>"Then Tang So-hwa's life also has a week left. The Northeast Asia Branch's property can be brought back to us once Tang So-hwa dies."</p>
+<p>Although Nikolai Yang possessed military power among the top few in the Black Moon Sect, his Compatibility with Tang So-hwa, who used Poison, was not good. Therefore, he intended to entrust Tang So-hwa's disposal to the Shadowless Ghost, who had good Compatibility with Tang So-hwa and was originally tasked with eliminating internal Bae-sinja.</p>
+<p>"Understood. I will immediately Contact the Execution Unit."</p>
+<p>"Then let's move on to the next Matter."</p>
+<p>"Yes, the next Matter is about the New York Branch Chief, who was just mentioned...."</p>
+<p>Nikolai Yang, who decided to kill Tang So-hwa, the massive Branch Chief of the Northeast Asia Branch, as if clearing a Trash Can, immediately focused on the next Matter his subordinate spoke of. In Nikolai Yang's Mind, there was no longer any thought of Tang So-hwa. This was because Tang So-hwa was already a dead Person to Nikolai Yang.</p>
+<p>------ Han Yu-gyeong made in 2.8D! Live-action VER with the same prompt Live-action is difficult, perhaps because I don't work with it often ㅠㅠ</p>

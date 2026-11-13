@@ -1,0 +1,53 @@
++++
+title = "Chapter 22"
+weight = 22
+[extra]
+chapter = 22
++++
+
+<p>"Do you think that's all? I know everything about you. Why do you think the Suit you're wearing right now fits you perfectly? Your close classmates, the trashy grades you've received all this time.... There's nothing I don't know about you!"</p>
+<p>No. Grandfather wouldn't know me. I'm not the Hata Ryuta Grandfather knows, but ■■■. I rebutted Taira Danjo's Words internally, but of course, I didn't voice them. Because if I were to say I had been Possession into a game world, it was clear that not just Taira Danjo, but even my mom, would immediately Hospitalize me in a Mental illness ward.</p>
+<p>But looking at the Story's content, it seemed Danjo Grandfather had surprisingly been watching me all along. Considering he knew about my school friends and grades. It's a little creepy, but this must be Taira Danjo's own way of showing Affection.</p>
+<p>"So, what do you want, Grandfather?"</p>
+<p>"From now on, you are Taira Ryuta. You were registered in Saburo's family register since you were born."</p>
+<p>Is that possible? That would mean I have two family registers. There were these two Statuses: Jin Yong-tae, son of Jinmija-ssi, and Taira Ryuta, son of Taira Saburo. Two passports too, then? Before I even had a chance to think about this Information, Taira Danjo continued speaking.</p>
+<p>"I've already contacted that small, dirty company you were going to, telling them you can't go. You were supposed to start Going to Work three weeks from now, right? From three weeks from now, you'll be Going to Work here."</p>
+<p>Saying, 'Yeah, you can't go to the company you were planning to~,' he casually tossed me an employee ID card. Picking it up, I read 'Taira Ryuta, Employee of Taira Group Talent Development Institute' written on the ID card. It was good that my Affiliation changed from a Small-to-Medium enterprise to a megacorp. Still, the fact that I start Going to Work three weeks later hasn't changed.</p>
+<p>"Your father Saburo has no property of his own. If you want to receive anything, you'd better Work hard."</p>
+<p>Ah.... To me, who had been excitedly expecting, 'What could the Legacy be?', it was a thunderclap. Taira Danjo Grandfather left, leaving only the employee ID card. Ah, Saburo-ssi, why did you pass away penniless without saving some Money beforehand?</p>
+<p>There was a bit of a commotion because of Grandfather, but soon a monk came to give a Kaimyo (posthumous Buddhist name), and all eyes turned to him.</p>
+<p>To briefly explain Kaimyo, it's a Buddhist name similar to a Dharma Name, and it's said that a deceased person needs a Buddhist name, a Kaimyo, to achieve Nirvana After Death. In Japan, when a funeral is held in the Buddhist style, a monk comes and bestows a Kaimyo. It's also said that the high Cost of Kaimyo has become a social Problem.... But for this Family/Household, Money is overflowing, so it's probably an irrelevant Story.</p>
+<p>Well, I wasn't interested in that, so I spent the time having a Conversation with my mother.</p>
+<p>According to my mother's Words, she had a brief Fate with my father, Taira Saburo, during their University days, dated for about a year, then broke up, and only later found out she was pregnant with me. On the contrary, Taira Saburo, upon hearing the news, said he would take Responsibility, but my mother refused. She said she disliked a Marriage without Love. Still, since I was half Saburo's child, she said she received Child Support from Saburo. That's how she was able to live without want.</p>
+<p>To my Question, 'Then why couldn't I go to University?', Jinmija-ssi said I had arbitrarily assumed we were a single-parent Family and that our Family/Household was poor.</p>
+<p>So, she said I hadn't even thought about University in the first place, and therefore hadn't Studied. No matter how much Mom said, 'Yong-tae, I have the Money to send you to University,' I didn't believe her.... This Jin Yong-tae bastard.... He was a fool. He should have just believed Mom when she spoke, instead of making his own Assumptions and not Studying.</p>
+<p>As I was talking with my mother, two middle-aged men approached us. One was small but had the sharp, intellectual feel of a man wearing Glasses, and the other was a large-sized man who felt like a modern samurai.</p>
+<p>"You must be Ryuta. I am your eldest paternal uncle, Taira Ichiro. And this is your second paternal uncle, Taira Jiro."</p>
+<p>"Hello."</p>
+<p>"You're handsome, I wonder who you take after."</p>
+<p>"Saburo also had a decent Face."</p>
+<p>The small, intellectual one was Taira Danjo's Eldest son, Ichiro, and the large-sized one was Jiro. Both praised my Face and acted friendly, but their Eyes watching me were cold. That was natural. The vast Empire that was the Taira Group could only be inherited by one Person. They had been pleased that the third son had died, but now that his bastard son had appeared, they certainly couldn't think well of it.</p>
+<p>"I have Words to say to your mother, so why don't you go over there and greet your Cousins?"</p>
+<p>In the direction Ichiro pointed, there were several young people. All of them seemed older than me. Since Taira Danjo had three sons and three Daughters, and Taira Saburo was the Youngest, there was a Possibility that I was the youngest in the Taira Family. If my Hypothesis was true, then I was also the Youngest son of a megacorp, just like in a drama or game title. I wondered if this was a coincidence.</p>
+<p>I approached my Cousins. The oldest one appeared to be in his early thirties, and most were in their mid-to-late twenties. There were also Mixed Blood individuals from Foreign Country, like me, which suggested Taira Danjo's philosophy was that as long as his own Blood flowed, it didn't matter if other Blood was mixed in. Of course, as an East Asian, my Mixed Blood didn't show at all, but among my Cousins, there were Caucasian Mixed Blood and Latin Mixed Blood individuals.</p>
+<p>"You're Ryuta? Since your father passed away, you must have the highest Succession Ranking among us here."</p>
+<p>"What are you talking about? Tabenobu-oppa (為宣) is the best. Do you think I don't know he inherited a small share from our eldest uncle?"</p>
+<p>They're showing an absurd sight, discussing Succession Ranking from the very first meeting. Even though the parent generation hasn't even inherited the Chairman position yet. For reference, Tabenobu, Ichiro's Eldest son, was at a Taira Group branch in the USA, so he couldn't come to the funeral.</p>
+<p>There's no need to discuss serious matters like succession in our first meeting. I am Yuuichi Taira (平 裕市), the eldest son of Jiro Taira.</p>
+<p>Here, Yuuichi, the oldest at thirty-something, introduced himself, and then everyone else began to introduce themselves. For reference, Taira Yuuichi, unlike the son of the large-sized Jiro, had a small Physique and gave off an academic vibe.</p>
+<p>The others also introduced themselves, but honestly, they weren't people I particularly cared about, so I just remembered their Names and moved on. It was also a bit dizzying that all their surnames were Taira, Taira, Taira.</p>
+<p>Excluding Taira Yuuichi, who introduced himself first, there were two people worth remembering. Of course, my criteria for remembering were their Appearance, specifically beautiful Women.</p>
+<p>The first was the woman who raised Tabenobu in the recent conversation, Taira Kisa (平 樹沙), the first child of Taira Kokoro (平 真心) and Taira Danjo's eldest daughter. She was pretty but seemed spirited, and it was said that she was doing well after launching her own clothing brand.</p>
+<p>While in Japan, women usually take their husband's surname upon Marriage, Taira Kokoro, Taira Kisa's mother and Taira Danjo's Eldest daughter, maintained the Taira surname instead of taking her husband's. Instead, her Nampyeon entered as a Son-in-law and took the Taira surname. Thus, gossips were speculating that Taira Kokoro harbored ambitions for the next Chairman position of the Taira Group.</p>
+<p>The second Woman I noticed was Arisu Fitzgerald, who was almost entirely Caucasian Mixed Blood.</p>
+<p>Arisu Fitzgerald, as her surname Fitzgerald suggested, was Caucasian Mixed Blood and seemed to have inherited much of her father's Blood, appearing completely Caucasian at first glance. She was a Woman with blonde Hair, green Pupils, and skin as white as snow. She said she worked as a model; her Height wasn't particularly tall, but her Mommae and Face were flawless. In a word, she was Pretty and had a good Figure. Perhaps because she was a model, she had a slightly slender, lean feel.</p>
+<p>Honestly, there wasn't much to say upon first meeting, and frankly, the Cousins gathered here didn't seem close to each other either. Because their respective fathers and mothers were rivals vying for the Head position of the Taira Group.</p>
+<p>Only Nae Fitzgerald, Arisu Fitzgerald's mother, was a Person who lived in a Foreign Country and didn't aim for the Chairman position, so everyone else merely exchanged fake Smiles, probing each other's weaknesses and strengths.</p>
+<p>Of course, several Conversations took place to find out about me, but perhaps they thought I, who hadn't even gone to University, was a useless bastard, so they didn't speak to me anymore. Only Arisu Fitzgerald, who had no Interest in the Taira Group's Successor, continued to speak to me.</p>
+<p>"You're quite handsome? You look like a Hallyu Idol."</p>
+<p>"You're Pretty too, Older Sister? You look like a Hollywood Actor."</p>
+<p>"Really? I do plan to Work in Hollywood someday."</p>
+<p>Arisu giggled at my cheesy Comment. Isn't she liking this too much? After talking, it turned out Arisu's father was a promising Businessman in the USA, operating a quite solid Enterprise, though not on the scale of a megacorp.</p>
+<p>And since she had lived mostly in the USA from the start, she said she had no Greed for the Taira Group. Recently, she said she was working as a model in Japan and spent most of her time there, so we exchanged Line Addresses and decided to have a Meal Outside.</p>
+<p>As I spent time talking with Arisu Fitzgerald, Taira Saburo's coffin, containing his body, arrived. In Japanese funerals, because of the custom of Tsuya (通夜), where people spend the night beside the coffin, the coffin was brought inside the family home.</p>
+<p>The relatives went to the large Room and took their Seats beside the Coffin. Although I disliked spending time so meaninglessly because of a father whose Face I didn't even know, he had provided Child Support until now, so I suppose I had to endure this much.</p>
