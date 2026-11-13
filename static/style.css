@@ -915,18 +915,16 @@ html.grid-live body:has(#grid-canvas)::before { opacity: 0; }
   text-transform: uppercase; letter-spacing: 0.08em;
   box-shadow: inset 0 1px 0 var(--glass-hi);
 }
-.terminal-secret {
+.terminal-secret,
+.terminal-secret:hover,
+.terminal-secret:active,
+.terminal-secret:focus,
+.terminal-secret:focus-visible {
   color: inherit;
   text-decoration: none;
   cursor: pointer;
-}
-.terminal-secret:hover,
-.terminal-secret:focus-visible {
-  color: var(--accent);
-}
-.terminal-secret:focus-visible {
-  outline: 1px solid var(--focus-ring);
-  outline-offset: 3px;
+  outline: none;
+  -webkit-tap-highlight-color: transparent;
 }
 .terminal-bar::after {
   content: "";
