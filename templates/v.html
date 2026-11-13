@@ -1,0 +1,128 @@
+{% extends "base.html" %}
+
+{% block title %}v — {{ config.title }}{% endblock title %}
+
+{% block content %}
+
+<main>
+
+<div id="hero" class="wrap reveal">
+  <div class="terminal spot">
+    <div class="terminal-bar">
+      <span>tty1</span>
+      <div class="terminal-dots">
+        <span class="dot dot-red"></span>
+        <span class="dot dot-yellow"></span>
+        <span class="dot dot-cyan"></span>
+      </div>
+    </div>
+    <div class="terminal-body">
+      <pre class="ascii-logo">▄▄▄█████▓ ▄▄▄       ▒█████
+▓  ██▒ ▓▒▒████▄    ▒██▒  ██▒
+▒ ▓██░ ▒░▒██  ▀█▄  ▒██░  ██▒
+░ ▓██▓ ░ ░██▄▄▄▄██ ▒██   ██░
+  ▒██▒ ░  ▓█   ▓██▒░ ████▓▒░
+  ▒ ░░    ▒▒   ▓▒█░░ ▒░▒░▒░
+    ░      ▒   ▒▒ ░  ░ ▒ ▒░
+  ░        ░   ▒   ░ ░ ░ ▒
+               ░  ░    ░ ░</pre>
+      <div class="tagline" aria-label="{{ config.description }}">
+        <span class="dollar" aria-hidden="true">$</span>
+        <span class="typewriter" id="typewriter" data-text="{{ config.description }}" aria-hidden="true">{{ config.description }}</span>
+        <span class="cursor" id="cursor" aria-hidden="true"></span>
+        <noscript><style>.typewriter{width:auto!important}</style></noscript>
+      </div>
+      <div class="cursor-row" id="cursor-row" aria-hidden="true"></div>
+    </div>
+  </div>
+</div>
+
+{% set lith = get_section(path="lith's-slice-of-life/_index.md") %}
+{% set hos = get_section(path="herald-of-shalia/_index.md") %}
+{% set shotk = get_section(path="son-of-the-hero-king/_index.md") %}
+{% set hearth = get_section(path="hearthomancy-vol-1/_index.md") %}
+{% set ima = get_section(path="i-am-a-mage-but-with-milf-system/_index.md") %}
+{% set tcdg = get_section(path="the-corruption-dragon-god-lust-system/_index.md") %}
+{% set ptg = get_section(path="path-to-godhood/_index.md") %}
+{% set golden = get_section(path="the-golden-lord-sss-rank-summoning-system/_index.md") %}
+{% set cuck = get_section(path="my-cuckhold-system/_index.md") %}
+{% set asc = get_section(path="ascendant-path-of-a-lustful-vampire/_index.md") %}
+{% set villain = get_section(path="the-lustful-villain-every-milfs-and-gilfs-are-mine/_index.md") %}
+{% set friendly = get_section(path="creating-a-friendly-family/_index.md") %}
+{% set netori = get_section(path="netori-talent-stealing-system-rise-of-the-supreme-milf-hunter/_index.md") %}
+{% set primordial = get_section(path="primordial-chaos-dragon-tower-harem-system/_index.md") %}
+{% set villain_heroines = get_section(path="a-villains-way-of-taming-heroines/_index.md") %}
+{% set system_villain = get_section(path="system-distributing-villain-guide-to-conquering-heroines-hearts/_index.md") %}
+{% set shelves = [lith, hos, shotk, hearth, ima, tcdg, ptg, golden, cuck, asc, villain, friendly, netori, primordial, villain_heroines, system_villain] %}
+
+<section id="notes" class="wrap reveal">
+  <div class="section-header">
+    <h2 class="section-heading"><span class="heading-sym">~/</span>v</h2>
+    <div class="section-line" aria-hidden="true"></div>
+    <span class="section-badge">{{ shelves | length }} books</span>
+  </div>
+  <div class="novels-grid">
+    {% for shelf in shelves %}
+    <a href="{{ shelf.path }}" class="novel-card">
+      <div class="novel-card-top">
+        <div class="novel-title">{{ shelf.title }}</div>
+        <span class="novel-tag">Book {{ shelf.extra.book_number }}</span>
+      </div>
+      {% if shelf.extra.author %}
+      <div class="novel-author-meta">
+        <span class="novel-author">{{ shelf.extra.author }}</span>
+        {% if shelf.extra.year %}<span class="novel-year">· {{ shelf.extra.year }}</span>{% elif shelf.extra.chapters %}<span class="novel-year">· {{ shelf.extra.chapters }}</span>{% endif %}
+      </div>
+      {% endif %}
+      <div class="novel-summary">{{ shelf.extra.summary | default(value="") }}</div>
+    </a>
+    {% endfor %}
+  </div>
+</section>
+
+</main>
+
+<script>
+(function () {
+  var tw = document.getElementById('typewriter');
+  var cursor = document.getElementById('cursor');
+  var tag = document.querySelector('.tagline');
+  if (!tw || !tag) return;
+
+  var chars = Array.from(tw.dataset.text || '');
+  var reduceMotion = window.matchMedia('(prefers-reduced-motion: reduce)').matches;
+
+  function moveCursorBelow() {
+    var row = document.getElementById('cursor-row');
+    if (cursor) {
+      if (row) row.appendChild(cursor);
+      cursor.classList.add('below');
+    }
+  }
+
+  if (reduceMotion || chars.length === 0) {
+    tw.textContent = chars.join('');
+    moveCursorBelow();
+    return;
+  }
+
+  var msPerChar = 45;
+  var i = 0;
+
+  tw.textContent = '';
+
+  function type() {
+    tw.textContent = chars.slice(0, i).join('');
+    if (i < chars.length) {
+      i++;
+      setTimeout(type, msPerChar);
+    } else {
+      moveCursorBelow();
+    }
+  }
+
+  type();
+})();
+</script>
+<script defer src="/js/tao-hover.js"></script>
+{% endblock content %}
