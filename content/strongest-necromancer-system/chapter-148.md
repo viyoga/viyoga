@@ -1,0 +1,36 @@
++++
+title = "Chapter 148: Freak of Nature"
+weight = 148
+[extra]
+chapter = 148
++++
+
+<p>The SMD agent was suddenly cut off by the loud sound of a motorcycle heading towards the building! The moment the motorcycle’s driver came into view, the reporters and guild representatives all turned away from each other and immediately began heading straight for him! It was Jason Marc!</p>
+<p>Jason arrived on his bike and parked it to one side. He was wearing a black hoodie over a pair of jeans and a black T-shirt, and he also had black gloves covering both hands. Jason’s attire and the boots he wore gave him a sort of bad-boy appearance that matched perfectly with his emotionless face, and the teenage superhumans waiting at the entrance couldn’t help but stare in awe as he began walking toward them.</p>
+<p>The reporters were a completely different story! They swarmed towards Jason immediately, and if not for the barricade keeping them away from the entrance, they would have slammed right into him!</p>
+<p>"Mr. Jason! Mr. Jason, what do you think will be the result of your assessment? Do you think you’ll still be an A Rank or will you be stronger?"</p>
+<p>"Mr. Jason, what tactic do you plan to use in the Gate?"</p>
+<p>"Do you think your ocular ability will be enough to help you fight off monsters?"</p>
+<p>"Mr. Jason, give me a moment! Just a moment!"</p>
+<p>"Nya! Jason is here! Say hello to the star nation nya~!"</p>
+<p>The reporters were trying their best to get Jason’s attention by shoving their microphones or cameras in his face, and the guild representatives on the opposite side were also completely focused on Jason as their calls and messaging became more intense. They knew there was no point in trying to recruit Jason until he had actually gotten a proper assessment, but they were already trying to get their bosses and guild leaders to give them an estimated figure to present to Jason so he could join their guild!</p>
+<p>Jason didn’t pay any attention to the crowd around him as his eyes slowly focused on the good-looking woman frowning down at him from the SMD building entrance. It was obvious that she had been giving some sort of speech before he came, and Jason waved at her to apologize for interrupting before he started moving towards the other teenagers.</p>
+<p>"BOSS!"</p>
+<p>A spirited shout came from Darren once Jason was close enough, and Jason raised a brow when he saw the chubby boy standing there! What the hell was this bastard doing here!? Jason watched as Darren ran up to him with his hands wide as if he wanted to give a hug, and Jason just put his hand on Darren’s shoulder and told him to chill.</p>
+<p>"Don’t you dare hug me, you bastard; you’re not my girlfriend. And what the hell are you even doing here? I didn’t know you were coming for the assessment."</p>
+<p>Darren beamed up at Jason!</p>
+<p>"My father agreed to let me go Gate Diving! I’m going to become a proper Superhuman and join your guild!"</p>
+<p>Jason’s brow rose. Why the hell were the people around him always assuming the craziest things about what he would do in the future? Griselda was over there thinking that Jason would join her guild, and Darren was here thinking that Jason was planning on making his own guild! Did any of them ever think that maybe he just wasn’t interested in being part of a guild at all!?</p>
+<p>Jason sighed and gave Darren a small smile while patting him on the shoulder.</p>
+<p>"Come on, let’s get back to the others. I think we might’ve pissed off our guide already. Hey, what’s your Gift? I don’t think I’ve ever heard about it before."</p>
+<p>Jason and Darren began walking back to the crowd of teenagers when Jason asked the last question, and Darren smiled smugly while raising his hand to his lips.</p>
+<p>"It’s a secret, boss! But don’t worry, I already promised to only use it for good, so you can be sure that I won’t do anything bad with it!"</p>
+<p>Jason scoffed at that and decided he wasn’t interested enough to force the truth out of Darren. Besides, they would all see each other’s Gifts when the assessment starts, so he wasn’t in a hurry to find out! As they got closer, Jason saw a pretty-looking blonde boy giving him the stink eye from within the crowd of teenagers, and Jason gave the boy a heavy stare in return! The boy immediately furrowed his brow and turned away.</p>
+<p>Henry had been staring at Jason intensely as he tried to see what was so special about Jason that made everyone so interested in him. But the moment he laid eyes on Jason and felt Jason’s mana, Henry had almost lost his mind! This was definitely not normal! Henry was a relatively good sensor because of his time in Core City. He knew what regular mana was like! The teenagers that had been in Core City with him all had differences in the strength of their mana signatures, but they all still had weak mana signatures since they were only newly awakened superhumans!</p>
+<p>It was like the difference between a black belt and a yellow belt staring you down! No matter how tough a yellow belt might look, they would never have the same intensity as a black belt! Henry was already used to staring down yellow belts since their mana was only still developing and there was no intensity to it! As far as yellow belts went, Henry was one of the strongest in the world!</p>
+<p>But Jason was no yellow belt! Jason had one of the most intense mana signatures that Henry had ever felt before! Henry couldn’t even look at Jason for more than a few seconds without looking away! That was how fucking terrifying it was!</p>
+<p>’There is no way that is a newly awakened superhuman! If he is newly awakened, then I’m nothing but an ant! He has to be lying! Maybe he is from the government?? Is he some freak experiment that they sent out into the real world to pretend to be human? That’s the only way something like this would be possible!’</p>
+<p>Henry was slowly losing his mind as these thoughts ran through his head, and he felt even more tense when Jason came to stand close to him along with Darren! Henry turned to his left slightly to glance at Jason, and when Jason nodded at him, Henry had to force out a small nod of his own so that he wouldn’t look weak.</p>
+<p>Henry decided that he was going to try to stay as far away from Jason as possible. This wasn’t a battle for superiority anymore. There was no way he would be more powerful than this fucking freak of nature! Instead of trying to be better than him, it would be better for him to stay as far away from Jason as possible! According to some of the veteran superhumans who had gone through this assessment before, they were going to be split into various groups, and those groups would be graded based on both the group performance as well as the overall performance.</p>
+<p>Guilds looked at both of those scores when choosing the superhumans they wanted to recruit, so Henry just had to make sure he wasn’t put in the same group as Jason no matter what! If he was put in any other group, then he would be able to overperform and draw attention to himself, but if he was in Jason’s group, then he was certain Jason would outshine him!</p>
+<p>’I’m tired of living in the shadows! I need to get away from this bastard!’</p>

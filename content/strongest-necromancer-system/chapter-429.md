@@ -1,0 +1,41 @@
++++
+title = "Chapter 429: A Better Reputation"
+weight = 429
+[extra]
+chapter = 429
++++
+
+<p>Jason didn’t like being overconfident, but as of right now, Jason knew that he was one of the strongest people in this Primordial Domain.</p>
+<p>’I’ll keep my senses sharp and see if it picks up anything around. I have to finish this meeting with Liam first, so if I feel the Arcane Art user getting closer, I’ll leave Earth and go somewhere else for the battle. I should be able to feel any other Attribute Wielder if they get too close.’</p>
+<p>Jason still didn’t know if the Attribute wielder had been coming to Earth at all or if they were just passing by and happened to use their shadow ability when they were close to him, so Jason would wait and see if he felt them nearby again. Jason shook his head and refocused on the road as he continued to drive. He swerved around another incoming car, and he nodded when a girl who parked her powerbike at the side of the road to take some pictures waved at him. Jason knew he could have gone to any destination he wanted through the shadows, and he didn’t need to drive anymore, but Jason missed the feeling of riding through the city, so he decided to take the bike Gina got him instead.</p>
+<p>Jason drove his bike up to the SMD building, and he parked it at the side before getting off to walk up the stairs towards the building. There were many agents and superhumans walking around the building entrance, but once they saw him, they all stopped and made space for Jason to move freely.</p>
+<p>"Holy shit, it’s Jason. It’s Jason!"</p>
+<p>"Hey, shut up! You just saw him yesterday."</p>
+<p>"I know, I’m just so excited. I can’t believe he went to fight the otherworlders in Radagan and won!"</p>
+<p>"Man, those soldiers from Radagan were insane. I saw some footage from a friend, and they fought like absolute beasts. Jason must be crazy strong since he managed to win against their leader. I’m even thinking of putting up my resignation here and joining his guild."</p>
+<p>"You’re still thinking about it? I already did."</p>
+<p>"Wait, really!?"</p>
+<p>"Of course! Did you see the way he used the dragon to protect those journalists yesterday? Now that’s a good leader. He probably gives his employees a hella benefits. Apparently, the news reports about him are all good now. One of the TV stations even called him the greatest superhero of our time."</p>
+<p>"Ha, I always knew those guys were just chasing clicks. They were just painting Jason as a bad guy cause it was what was popular back then, and now they’ve suddenly turned around since everyone thinks he’s a hero again."</p>
+<p>"Yeah, it’s silly. When Jason killed those Radagan soldiers, they all called him a monster, but—hey, what’s that on Jason’s neck? Looks like a hickey."</p>
+<p>"Huh? Wait, it is a hickey! Squeee! What was he doing before coming here!?"</p>
+<p>"I want him to do that to me! I want to give him a hickey too!"</p>
+<p>A group of girls squealed in excitement as Jason passed them by, and Jason ignored them with absolute calmness. This wasn’t the first time Jason would hear people whispering about him like this, and it sure as hell wouldn’t be the last. But Jason was surprised to hear the people talking about otherworlders and Radagan soldiers so openly, and Jason realised that Cersai must have unlocked the memories like Jason asked him to. Jason didn’t really bother reacting to that, and Jason shrugged internally when he heard how the news channels had changed their tone about him after he saved those journalists. It didn’t matter either way. As long as he and his family were no longer being defamed by the media, then it was alright.</p>
+<p>"I’m here to see the director."</p>
+<p>Jason spoke to a receptionist who had been looking through some documents, and the moment she looked up at Jason, her entire face grew hot as she quickly stood up and dusted her skirt down!</p>
+<p>"Y-Y-Yes! Of course! P-Please, come with me!"</p>
+<p>The receptionist smiled at Jason like he was her long-lost lover, and Jason just gave her a small smile and a nod as he followed behind her. The woman kept glancing back at Jason even as they walked, and every time she caught Jason’s eye, she would blush and look away. Jason was already used to women being attracted to him, but this was the first time someone would trip over themselves so badly while trying to draw his attention. Jason felt like laughing from how cute it was, but he figured that doing that would only make things worse, so he didn’t say a word until they got to the office. The woman knocked and announced Jason, and once they heard Liam telling Jason to come in, the woman opened the door for Jason. Jason thanked her for helping out, and the woman’s face grew even hotter.</p>
+<p>"You can use me anytime—I-I mean, you can count on me anytime!"</p>
+<p>Jason watched as the woman quickly left with a very red face, and he smiled before turning to the people in the room. Liam was sitting behind the large director’s table with a welcome smile on his face, but there was another woman sitting on a couch at the side. Jason recognized her as the same woman who had been with Liam after the Radagan soldiers came down to destroy New Hampshire a few days ago.</p>
+<p>"You’re Florence, right? The head of superhuman relations at New Hampshire. Nice to see that you’re doing better."</p>
+<p>Jason remembered meeting Florence after the battle a few days ago, and she had been pretty weak and injured back then, so he was glad that she looked okay now. But Jason was surprised when Liam put his hand up to his mouth and scoffed when Jason read out Florence’s title. Florence turned to Liam with a heavy glare when she heard him scoff, and her eyes almost pierced a hole into him as she saw his shoulders shaking. Jason wondered what was going on for a moment, but it wasn’t long before Liam finally burst out in laughter! Florence’s entire face grew red from embarrassment when she saw him laughing, and she shouted!</p>
+<p>"Shut your face, you bastard! You think you’re better than me because you got promoted first!? I’ll become a director soon as well, you just watch! You... ugh!"</p>
+<p>Florence huffed and turned away as Liam continued laughing, and Jason couldn’t help but enjoy the small moment of peace as he watched the two friends. It was obvious that there was some sort of competition for promotion between them, and now that Liam was director, he had surpassed her in the organization. Jason shook his head at these antics before he spoke to Liam.</p>
+<p>"Can we get down to business? I have other things to do today."</p>
+<p>Liam finally calmed his laughter, and he nodded to Jason before speaking calmly.</p>
+<p>"Yes, I had Florence look into some details in the SMD. Her father works in a high executive position, so she was able to find information about the New Order group easily."</p>
+<p>Jason turned to Florence, and Florence nodded to him with a small scowl before she continued from where Liam had stopped.</p>
+<p>"My father accessed the file and saw that the New Order has been an issue in Australia for a long time. In fact, the government secretly tagged them as a terrorist organization, and they’ve been trying to deal with them without allowing the public to know about it."</p>
+<p>Jason nodded and asked her what their goal was, but Florence just shrugged.</p>
+<p>"I actually don’t know. They’ve just been going around destroying any superhuman gathering that they could get into. In the past few years, they’ve killed at least three thousand regular people and close to two hundred superhumans both inside and outside Gates, and the government has managed to cover it up well to make it seem like it was caused by Magic Beasts. But there’s someone who might know more. I got in contact with Agiel, the S Rank Enforcer. She was sent to Australia recently to help out with one of the New Order attacks, and she knows a lot more about it than I do. I tried to get information out of her, but she said she wasn’t going to give me anything. But when I told her you were the one asking for it, she said she was only willing to talk to you."</p>
+<p>Jason sighed in slight annoyance when he heard this. He should’ve known Agiel would be fucking difficult.</p>

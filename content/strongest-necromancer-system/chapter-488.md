@@ -1,0 +1,40 @@
++++
+title = "Chapter 488: A Dangerous Offer"
+weight = 488
+[extra]
+chapter = 488
++++
+
+<p>"I don’t suppose I can ask for your assistance before we go for the hearing."</p>
+<p>Hesabeth hummed when she heard Jason ask that question, and Hesabeth waved her fan slowly to all the people behind Jason.</p>
+<p>"I will not converse with you with so many onlookers. They may leave us."</p>
+<p>Jason let out a small sigh, and he turned to tell Gina and the others to give him a few minutes. Jason would’ve asked Hesabeth to come with him so that they could talk in private, but Jason knew that Hesabeth was far too prideful to move herself. But before Jason could even turn around, he was surprised when he felt Gina touch his forearm and talk to him gently.</p>
+<p>"We’ll just be down the hall, babe."</p>
+<p>Jason blinked in shock, and he watched as his entire group left without putting up any fight at all. Gina knew that this was important, and from what she had seen, she could tell that Hesabeth was someone trustworthy, so she decided that it would be better if they gave Jason and Hesabeth some privacy. All the other members of Jason’s group also felt like they could trust Hesabeth, so they simply followed her instructions.</p>
+<p>Jason knew that something like this was not normal, and he felt himself frown as he watched the group leave. What the hell?</p>
+<p>’Is this also because of Hesabeth’s powers? So she can just tell people to do things, and they’ll obey her without question?’</p>
+<p>This thought went through Jason’s mind, and Jason saw the system bring up a tab explaining things better.</p>
+<p>[Hesabeth’s abilities ensure that no creature in the Primordial Expanse can even consider the thought of harming her. For creatures with weaker mental resistance, the Primordial Expanse is capable of simply applying a form of mind control that forces them to see Hesabeth as someone they must protect and care for. And although creatures with stronger mental resistance are capable of blocking out this mental control to a certain degree, they still go out of their way not to antagonise Hesabeth.]</p>
+<p>Jason could only let out an irritated sigh when he read this. It turned out that Jason was the only one who could resist Hesabeth’s control completely. But Jason knew that the only reason why he wasn’t affected by the mind control was because he wasn’t thinking of harming Hesabeth. Jason had a feeling that the moment he tried to harm Hesaebth, the Primordial Expanse would attack him with even more force! Jason could now understand why Hesabeth was so interested in him. Hesabeth just wasn’t used to being around someone who could openly disagree with her the way he could. Once the other members of Jason’s group were gone, Hesabeth’s smile turned into a prideful grin as she stepped closer to Jason and she asked.</p>
+<p>"So, what makes you think you are worthy of receiving the support of someone such as myself? I am Hesabeth, the Queen of the Minari, and this world exists to serve my whims. I have no need to concern myself with the affairs of lesser beings."</p>
+<p>Jason felt his eye twitch when Hesabeth called him a ’lesser being’, but Jason didn’t allow that to affect him since he already knew that this was Hesabeth’s personality. Jason just shrugged and asked.</p>
+<p>"I am not asking you to give it for free. Perhaps we can come to some sort of understanding."</p>
+<p>Jason knew that securing Hesabeth’s support was important. Although Hesabeth was a difficult person, she was still a very influential member of the Council of Nine and One, and there was a chance that gaining her support alone would be enough to sway everyone else in their favour. Jason knew that they needed this.</p>
+<p>"Are you sure that is the wisest thing to do? Leaving such an open offer on the table could translate to many things. Are you willing to offer anything that I ask?"</p>
+<p>Hesabeth’s eyes were practically boring a hole into Jason with how intensely she was staring at him, and Jason realised that he might’ve made a mistake by giving such an open offer. Jason quickly corrected himself.</p>
+<p>"I’m offering to open trade deals between our worlds. Minari might be a powerful world, but that doesn’t mean it doesn’t need resources. If you help us through this situation, then we can sit and talk about signing a deal that would benefit both of us."</p>
+<p>There was a slight look of disappointment that crossed Hesabeth’s face when she realised that Jason was talking about a trade deal, and she stepped back and covered her lower face with her fan again as she said.</p>
+<p>"My world is not so impoverished that we would require your paltry resources. If I am ever in need of resources, then I only need to desire them, and the world shall hand them to me. Your world is of no interest to me, but your offer... intrigues me. I shall consider granting you my support, but in the event that I decide to aid you, you will owe me one favour of my choosing that is within reason."</p>
+<p>Jason rose a brow.</p>
+<p>"And what is your definition of ’within reason’?"</p>
+<p>"That would be for me to decide."</p>
+<p>Hesabeth’s smile widened behind her fan, and Jason let out a small curse as he turned to stare down the hallway. Jason knew that this was not a good idea. King Farlow had just warned Jason against putting any sort of trust in others since it could literally lead to his death, and Jason knew without a doubt that giving Hesabeth so much power over him was only going to cause him problems in the future. Having Hesabeth’s support was going to be beneficial, but was it worth leaving his life in her hands? No, Jason decided that it wasn’t. Jason would have liked to have her support, but he wasn’t going to fight to get rid of the debt he owes to the Overlord just to end up owing an even bigger debt to Hesabeth.</p>
+<p>Jason bowed his head slightly with a disappointed look, and Hesabeth felt her smile dim when he spoke.</p>
+<p>"Then I suppose our conversation is over. Thank you for your time, Queen Hesabeth."</p>
+<p>"What?"</p>
+<p>Hesabeth glared at Jason in anger, and Jason just shrugged calmly.</p>
+<p>"I don’t believe placing my fate in your hands is worth the help you are offering, so I am simply not interested in doing so."</p>
+<p>"You—"</p>
+<p>For the first time in a very long time, Hesabeth felt an intense surge of emotion rising from deep inside her, and her heart rate spiked as she glared at Jason! Hesabeth’s hand tightened around her fan, and she felt the sudden urge to reach out and slap Jason for daring to play with her emotions like this! But at the same time, there was a sudden burst of excitement that filled Hesabeth’s heart as she stared at Jason’s defiant face. Hesabeth could feel her heart racing even faster with each passing moment, and Hesabeth found herself wondering when was the last time she felt like this. When has there ever been a man who made her heart race so intensely? Has there ever been a creature that would dare to play with her emotions like this!?</p>
+<p>Hesabeth didn’t know it, but her mouth was already starting to split into an excited smile all over again, and Jason raised a brow when Hesabeth suddenly threw her head back and laughed! The hallway was filled with the melodious echo of Hesabeth’s voice, and Jason could only stand and wonder what in the world had gotten into her. But Hesabeth didn’t look like she was going to explain herself to Jason, and she just laughed her heart out for a few seconds before she finally spoke after calming down.</p>
+<p>"You are really the most interesting creature I have ever encountered, Jason Marc of Earth! It seems you manage to surpass my expectations with each passing meeting! Very well then, if you do not want to accept my offer, I will not force you. But you should know that a life of servitude to me will be far more enjoyable than whatever life you are living now. And remember that my desires are the will of the world. If I truly want you, then there is not a force in the known world capable of keeping you away from me. You are mine to have whenever I so wish it."</p>

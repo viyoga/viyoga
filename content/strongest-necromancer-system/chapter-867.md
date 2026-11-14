@@ -1,0 +1,39 @@
++++
+title = "Chapter 867: Energy and Frequencies"
+weight = 867
+[extra]
+chapter = 867
++++
+
+<p>Jason rubbed his temple with a small scowl as he felt a headache coming on. Thinking about how dangerous the Arcane Arts could be was starting to get to him, but Jason decided that he didn’t need to deal with all the Arts right now. The only Art that mattered at this moment was the Mind Arcane Art. Jason needed to find a way to detect the Mind User’s presence in anyone’s head. If Jason couldn’t do that, then it would be pointless to make any plans to catch that bastard.</p>
+<p>’System. Is there any way to detect an Arcane Art other than using energy levels?’</p>
+<p>[The system has no record of an Arcane Art ever being detected.]</p>
+<p>Jason clicked his tongue, and he turned as Cerci finally spoke up again.</p>
+<p>"Jason. Is there something wrong? You’ve been silent for some time already."</p>
+<p>Cerci had been waiting with Devon and Oswald to see if Jason figured out what was going on, but Jason had just been silently frowning at the floor while thinking for the past few minutes. Jason hummed calmly before he finally spoke.</p>
+<p>"You won’t be able to detect anything using that Energy reader. The Machina were affected by a skill that doesn’t require any mana to activate. Something called an Arcane Art."</p>
+<p>Everyone in the room felt their eyes widen in shock when they heard Jason’s explanation! A skill that doesn’t require any mana to activate? What in the world was that!? Humanity had already gotten used to the concept of magic, and whenever there was something humanity couldn’t explain using common science, they usually found that it was as a result of magic! But hearing that there were even greater skills out there that didn’t require any magic at all was unbelievable!</p>
+<p>"But if it doesn’t require any magic, d-doesn’t that mean you can use it without ever running out of mana? You can spam it infinitely."</p>
+<p>Jason looked down as Oswald spoke in a shaky voice, and Jason nodded to tell him that he was right. Jason had never felt any strain on his body when he used the Shadow skill, so Jason knew that the user of the Mind Art could spam his Arcane skill infinitely without ever getting tired. If the Mind Art’s user wanted, he could infect the minds of every single person in the Primordial Expanse, and he wouldn’t run out of energy. But the fact that he hadn’t done that yet meant that he either had some sort of criteria for activating his ability, or there was a condition within his ability that was stopping him from just infecting everyone around him.</p>
+<p>"A skill that doesn’t require any mana. What a terrifying thing. Jason, how did you know about this skill? You sound like you’ve encountered it before."</p>
+<p>Cerci frowned curiously as he asked Jason this question, and Jason hummed in agreement while staring at the Machina’s body again. Jason didn’t have any problem telling Cerci about his Arcane Art, but Jason didn’t want to do that yet. Jason needed to figure out a way to detect who was under the Mind Art User’s skill first before he gave away delicate information like that. Right now, anyone could be infected by the Mind Art’s user, and any information Jason gives out would go straight to the Mind Art’s user as well! Jason’s eyes narrowed as he stared at the Machina’s body, and Jason walked towards the Machina and put his hand on his head. Devon wanted to speak up from the side, but Cerci raised his hand and told her to wait. Jason needed to focus.</p>
+<p>’System, do you remember the frequency that Devon used to track me?’</p>
+<p>Jason asked this question to the system, and the system brought up a tab.</p>
+<p>[Yes, the system remembers. The frequency used by Devon to track the user was similar to the frequency the user used to track the Queen of the Vympir, Gillian. The frequency could be detected because all three of you possessed different Attributes of the same Shadow Arcane Art.]</p>
+<p>Jason nodded as he immediately realised that the scientists here had been wrong! There was no way the Arcane Art didn’t have some form of Energy! The fact that there was a frequency for him to track meant that the Arcane Arts weren’t as undetectable as people thought. Arcane Arts didn’t use any known form of energy to activate, but there was no way you could possess a frequency without having Energy. This meant that the Arcane Art had to give off something that could be detected by the other attributes of the same Art.</p>
+<p>Jason’s eyes narrowed even more as he took in a breath and released it calmly. At this moment, Jason’s mind was running at an unbelievable speed as he tried to figure this out! Jason couldn’t use magic, and he couldn’t use Qi. Jason also couldn’t detect anything similar to the Spirit Energy that he felt in the Forest of Eternal Wind on Arandelle. So what the hell could Jason do here?</p>
+<p>Jason looked from the Machina over to the Magicule Calibrator machine in Devon’s hand, and Jason hummed before he spoke up.</p>
+<p>"Hey, can that thing scan unknown frequencies?"</p>
+<p>Devon jumped in slight surprise when Jason suddenly spoke to her, but she nodded quickly to Jason’s question and said:</p>
+<p>"Y-Yes, it’s been tuned to detect unknown frequencies. We’ve managed to detect multiple frequencies of mana, Qi, and other magical energies, but we couldn’t find anything when searching the Machina."</p>
+<p>Jason asked Devon to hand him the device, and she gave it to him quickly. The Energy Calibrator looked like some sort of Voltmeter with a large dial and a screen that showed the various readings. The dial had been tuned towards neutral so it could read unknown frequencies, and there was currently a ’0.0Hz’ flashing on the screen. Jason spoke up while looking at the Machina.</p>
+<p>"Are there any other soldiers left?"</p>
+<p>Cerci answered.</p>
+<p>"There are two more soldiers in our underground holding cell. Do you need them?"</p>
+<p>"No, not yet. But if this doesn’t work, then you’ll need to get a new test subject."</p>
+<p>Jason closed his eyes as he allowed his Qi to flare to life. Jason first shifted his Qi and made it wrap around the mind of the Machina without going inside. Jason remembered that the only time he was able to catch a glimpse of some memories in the Machina’s head was when he used his Qi earlier, so Jason knew that the Qi could preserve the mind for at least a few seconds. Once that was done, Jason immediately activated the [Land of Lost Shadows] Arcane Art for a split second while making his Qi open a pathway straight into the Machina’s brain! The [Land of Lost Shadows] did not manifest in the real world since Jason only activated it for a short time, but just by activating it, Jason caused the energy of his Shadow Arcane Art to flare around the room!</p>
+<p>’Shit.’</p>
+<p>Jason cursed, and he quickly closed down the connection as he felt the Machina twitch! It looked like the Machina’s mind was about to erase itself again, and Jason pulled back his Qi immediately. Thankfully, the Machina stabilized after Jason got rid of the connection, and Jason let out a thankful sigh. It would’ve been bad if the Machina died like the others.</p>
+<p>’But did I do something wrong?’</p>
+<p>’Of course you did something wrong! Since when do you brute force Qi into someone’s brain like that!?’</p>
+<p>Jason blinked in surprise as he heard Esdath shouting from inside his head. Esdath had been silent for a long time now because he had been researching various Qi techniques for Jason’s next training session, so Jason was surprised to hear his voice. Jason asked Esdath what he meant, and Esdath facepalmed from inside Jason’s Alternate Dimension! Esdath was standing on a large hill, and he had a look of disbelief on his face! How could his own student make such a fatal mistake!?</p>

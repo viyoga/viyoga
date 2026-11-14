@@ -1,0 +1,37 @@
++++
+title = "Chapter 881: Feet on The Ground"
+weight = 881
+[extra]
+chapter = 881
++++
+
+<p>Gina didn’t really understand how the geography of this world worked at all. Having cold regions right next to forest regions that were next to volcanic regions was completely absurd! But Gina had learnt to stop using common sense when facing things like magic a long time ago, so she was able to accept it rather quickly!</p>
+<p>After flying for a few more seconds, Gina finally saw the battle raging between multiple Sky Serpents and one of the superhumans from the Monarch Guild! The superhuman was the man named George Bulstrud, who had the ability to cover his body in any material that he touches, and his body was currently covered in a shiny metallic material that increased his defences by close ot two hundred percent! But even from this distance, Gina could tell that George was struggling! George wasn’t used to fighting in the air since he fought most of his battles on the ground, so he was finding it difficult to launch any serious attacks towards the Sky Serpents that were constantly flying around him! George was riding on the back of a Rook Rank III Adamantine Ant, and Gina watched as George jumped off the ant’s back to try to attack a Sky Serpent! But the Serpent easily moved out of the way before George could hit it, and George was body slammed by three different serpents as he fell towards the ground! A serpent dashed in and opened its mouth wide as it attempted to sink its fangs into George, but Gina put her hand out and activated [Wind Arrow]!</p>
+<p>BOOM!</p>
+<p>The arrow flew true and stabbed into the head of the attacking Sky Serpent, and Gina used the wind to bring George back up so he could get on the back of another Adamantine Ant!</p>
+<p>’Thank you!’</p>
+<p>George shouted this through the communication device, and Gina nodded as she spoke quickly.</p>
+<p>"You can’t fight in the air! Go down and take care of any serpent that falls! I’ll bring them down to you!"</p>
+<p>George felt a little annoyed when Gina told him he couldn’t fight in the air, but George knew that Gina was right! In the past two weeks, George had focused on entering dungeons where he could fight on land easily, and since he had Diamond Bears as Legion subordinates, he was already used to brawling on the ground and having them supporting him! George just didn’t have the time to master fighting in the air! George nodded towards Gina as he accepted her order, and he manoeuvred the Adamantine Ant to fly down as Gina headed towards the horde of Sky Serpents!</p>
+<p>The Sky Serpents screeched once they saw Gina, and they swiftly unleashed multiple sonic attacks to try and throw her out of the sky, but Gina swung her hands around her body and created a massive circular wall of wind that absorbed all of the sonic attacks! Gina then pushed her hand forward, and the wind wall burst out in a circular attack that slammed into all the Serpents around Gina! The Serpents were immediately thrown out of the sky, and as they fell to the ground, George immediately activated his ability and wrapped his skin in titanium before flashing towards the nearest snake!</p>
+<p>BOOM!</p>
+<p>A massive tremor travelled through the air as the snake was thrown back by the punch, and George felt a grin forming on his face as he finally felt himself fighting properly! This is exactly how he should’ve done things from the start! He was always at his best when he had both feet on the ground! A giant snake charged at George from behind, and George had to quickly dodge out of the way! The snake slammed into the ground and scattered snow around, and George used the snow as cover to charge in and deliver another punch to the snake! The Adamantine Ant came from behind the snake and grabbed it in its strong mandibles, and George laughed as he began to unload haymakers on the snake!</p>
+<p>Boom!</p>
+<p>Boom!</p>
+<p>Boom!</p>
+<p>Boom!</p>
+<p>The world shook from each punch, and it wasn’t long before the snake fell flat on its side as it died from the relentless punishment! George lifted his hands into the air like a champion boxer and yelled in victory, and Gina just scoffed from her place in the sky as she focused on killing the rest of the flying serpents!</p>
+<p>This went on for the next few minutes. Gina did her best to kill as many serpents as possible, and whenever she was sure that George was finished fighting a serpent, she would send a few more down to the ground for him to fight. There were hundreds of serpents, but thankfully, Gina was strong enough to handle the Serpents without even needing to use her Spirit Energy. And the fact that she had a literal endless supply of mana as a sage meant that she could unleash attacks without ever having to worry about running out!</p>
+<p>Finally, after more than five minutes of constant fighting, Gina put down the last of the flying serpents and let out a calm breath while looking down to see how George was doing. George was also fighting the last serpent that Gina had sent to the ground, and Gina watched calmly as he unloaded massive hits on the serpent while moving out of the way of its sonic attacks! With the way he was fighting, Gina was sure that he already had the strength and durability of a TITAN, but his agility and stamina still needed a lot of work. If not for the subordinates helping him out, then George wouldn’t be able to take down even one of those serpents!</p>
+<p>BOOM!</p>
+<p>George delivered the last blow to the serpent, and the serpent slammed into the ground and died, and George raised his hand and gave Gina a thumbs-up in victory! Gina just chuckled at his excitement, and she turned to leave.</p>
+<p>DOON!</p>
+<p>But all of a sudden, Gina felt a strange power surge through the air! Gina immediately turned to look down, and Gina’s eyes widened as she saw that a massive Dimensional Circle had opened on the ground! The portal had opened behind George, and George stumbled forward as a sword shot out from within the portal and stabbed straight through his back!</p>
+<p>SQUELCH!</p>
+<p>Blood splashed across the ground, and George looked down at his impaled chest with wide, disbelieving eyes! A line of blood fell from his mouth, and he grunted as he felt his feet leaving the ground as someone began lifting him up with the sword! A tall woman walked out from the portal with a scowl on her face, and she frowned up at George before she flicked her sword to the side and sent him flying into the snow!</p>
+<p>BOOM!</p>
+<p>A Machina subordinate immediately shot forward for an attack, and Gina dashed to the side as she tried to get George away from the woman, but before Gina could even reach George, another woman shot out from the portal like a comet! Gina felt a sense of dread unlike anything she had ever felt in her life envelop her at that moment, and Gina immediately called on her spirit companion!</p>
+<p>"Ulyn!"</p>
+<p>Ulyn flew out from Gina’s hair, and in that split second, the two of them activated [Synchronization]! Spirit Energy poured into Gina’s body and fueled her mana with everything that Ulyn could give her! Ulyn and Gina had only achieved 10% synchronization, but it was still enough to give them a massive boost! Gina put her hand forward and activated a massive wind shield to try to block what was coming for her! And even after doing all this, it almost wasn’t enough!</p>
+<p>BOOM!</p>
+<p>The woman unleashed a blow that tore through the wind wall and headed straight for Gina!</p>

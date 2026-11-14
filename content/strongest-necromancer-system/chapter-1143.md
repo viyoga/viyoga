@@ -1,0 +1,36 @@
++++
+title = "Chapter 1143: The Pit"
+weight = 1143
+[extra]
+chapter = 1143
++++
+
+<p>This had been a big problem for the inhabitants of this world for a long time because most people would be killed just for opening a Dimensional Tear to travel from one side of the Domain to another.</p>
+<p>So to solve this problem, the mages of this world came up with a method that would allow them to travel from one world to another without needing to use the dimensional Tears that were so common on other worlds. And the solution that they came up with here was known as Hyperspace.</p>
+<p>The Hyperspace was a special dimensional pathway outside of the regular mortal realm that existed as a sort of gateway between worlds. While moving through the Hyperspace, a mage could travel from one world to another easily, and they would be able to completely bypass all the other worlds that existed between their current position and their end destination!</p>
+<p>This Hyperspace was very similar to outer space, and it also existed in a form that was nearly identical to outer space. It was cold and filled with millions of hot, boiling stars that were spaced out by great distances, and it was so dangerous that most regular mages could not travel through it using just their regular power, and that was why the Hyperdrive Ship had been invented.</p>
+<p>The Hyperdrive Ship was a special vehicle that allowed mages to travel across the Hyperdspace and move from one world to another easily. They existed in many shapes and sizes, but they all had the same complex core made from a mix of machines and magic that gave them the unique ability to travel through the Hyperspace.</p>
+<p>Jason listened as Valeria explained all of this to him in a calm, easygoing voice. They were still travelling across the dark expanse of the hyperspace on the long train, and Jason could just see a structure appearing in the distance as they approached.</p>
+<p>"Is that the Pit?"</p>
+<p>Jason asked this while narrowing his eyes to try and get a better look at the structure, and Valeria nodded.</p>
+<p>"The Pit was the very first structure to be built inside the Hyperspace. Since it’s inside here, it exists in no man’s land, and it’s common for people to park their Hyperdrive ships around while taking a break from their travels. If we want to get one of those ships, then this is the best place."</p>
+<p>Jason hummed as he finally began to get a closer look at the Pit, and he was shocked when he saw what it looked like! The entire structure looked like a massive tower built from trash, but it was so large that Jason couldn’t even wrap his head around what he was seeing! The Pit floated in the air without anything holding it up, and it rotated on its own axis the same way the Earth rotated around itself. The bottom of the pit was extremely wide and covered an area that was nearly as large as an entire sun, and the pit slowly grew thinner the higher you went until it ended as a point at the top, almost like a conic structure!</p>
+<p>The Pit was made up of a combination of trillions of different houses, ships, and even entire worlds that were all packed together like sardines. Jason could see light leaking out from some holes between the packed structure, and Valeria spoke up when she saw the confused look on Jason’s face.</p>
+<p>"You don’t need to worry about that. It’s just the core of the Pit."</p>
+<p>Jason turned to Valeria curiously and asked.</p>
+<p>"What’s the core made of?"</p>
+<p>Valeria raised a brow in confusion, like she couldn’t believe Jason was asking that question, and the answer she gave actually made Jason’s eyes widen!</p>
+<p>"It’s a sun. The Pit was built around a lonely sun that had no planet, and that’s what powers the entire structure."</p>
+<p>Jason felt shock flow through his entire body when he heard this, and he turned back to look at the structure in an entirely new light! All this time, Jason honestly thought he had seen everything that the world could offer by travelling around so much, but Jason was realising in this moment that what he had seen out there in the Primordial Expanse was nothing compared to what he was about to experience! Jason made up his mind at that moment not to be surprised by anything he would see from now on, because everything would be new and strange, but Jason would need to adapt quickly if he wanted to grow any stronger!</p>
+<p>Caw!</p>
+<p>A low sound came from inside Jason’s jacket, and a pretty red bird poked its head out to try and get a look at the structure as well, but Jason quickly shoved Helios back inside his shirt and told him to be silent.</p>
+<p>’Don’t draw attention to yourself, you idiot.’</p>
+<p>Jason had been worried about Helios pulling attention from the mercenaries around the Zeroth Domain if Helios came with him. The large Phoenix was a very eye-catching figure, and Jason knew that all of his efforts to remain under the radar would be ruined by the bright flaming bird! At first, Jason thought about leaving Helios behind with one of his wives. Jason knew that Gina and the girls all loved Helios, so they would take care of him without any problems.</p>
+<p>But Helios had been very against it! Helios was already pissed that Jason had left him behind when he went to fight against the Celestial of Death, and the only thing that appeased Helios back then was the mice from Gahenna. But this time, Helios was not going to be taking no for an answer! Helios demanded to go with Jason no matter what, and in the end, Jason had to compromise by making Helios promise he wouldn’t show himself whenever they were in public!</p>
+<p>Helios hooted at Jason with a scowl on its face, and it poked Jason’s side with its sharp beak before it sank back into the darkness of Jason’s hood. Jason just rolled his eyes in amusement, and he turned his focus back to the Pit in the distance. As they approached the structure, Jason could finally appreciate just how large it was! The entire train that they were flying in looked like a pin compared to the massive structure, and there were hundreds of thousands of different ships and machines coming in and going out of the Pit all at the same time!</p>
+<p>"Remember our plan for coming here. We need a Hyperdrive ship to be able to move around, but we can’t buy one. It’s too risky. Keep an eye out for a ship we can steal."</p>
+<p>Valeria spoke up in a very low voice, and Stella nodded while Jason hummed calmly in response. Valeria watched Jason, and she saw that he was still looking at the Pit in slight awe. Valeria couldn’t really blame him for being so stunned. This was the exact reaction that Valeria had the first time that she came to the Pit. Back then, Valeria had thought that the Pit was just some small bar that rogue mercenaries hung out at due to its name, so seeing an entire world built around a sun from scrap and machines would shock anyone!</p>
+<p>"Try not to stare too much. If anyone finds out that you’re new here, they’ll think you’re an easy target."</p>
+<p>Valeria said this with some amusement on her face, and Jason just huffed in response before nodding with a smile.</p>
+<p>TWOOT! TWOOT!</p>
+<p>The loud sound of the train docking at a station echoed, and Jason saw that they were floating towards a platform on one side of the Pit.</p>

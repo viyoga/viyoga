@@ -1,0 +1,40 @@
++++
+title = "Chapter 292: Rough Handling (+18)"
+weight = 292
+[extra]
+chapter = 292
++++
+
+<p>Gina’s hands moved from Jason’s chest down to his stomach, and she pressed her forehead against Jason’s chest as she ran her fingers over his ripped abs. Jason’s hands traveled from Gina’s waist to her ass, and Jason took a handful of each cheek and squeezed them tightly while kissing the side of Gina’s neck. Gina let out a hot breath against Jason’s skin as she moved her ass up to try and make him touch her even more, and Jason hissed as Gina’s hand traveled down from his stomach and towards his crotch.</p>
+<p>Gina’s fingers wrapped around Jason’s member, and Gina began to slowly jerk Jason off! Jason grunted and pressed his face into Gina’s shoulder as Gina continued to move her hand slowly over his member! Jason’s hand traveled over Gina’s ass and towards her crotch, and he immediately sank a finger inside her. Gina’s entire body shuddered as she let out a sexy moan.</p>
+<p>"Moan~!"</p>
+<p>Gina immediately started moving her hand even faster as she felt Jason inside her, and she pushed her ass back to try and make him go even deeper. The water from the shower drowned out the heavy breaths from the two lovers as they continued to pleasure each other, and it didn’t take long before Gina raised her head and gave Jason a heated kiss. Jason grabbed Gina’s hair and deepened the kiss even more as he began moving them back towards the glass wall! Jason pressed Gina into the wall and Gina let out a low cry as Jason suddenly brought his hand to her front and sank two fingers inside her!</p>
+<p>"Oh god, Jason~! Please! Oh~!"</p>
+<p>Gina’s mouth opened in ecstasy, and Jason used that moment to capture her tongue and deepen the kiss even more! Gina’s hand was still stroking Jason’s member while Jason fingered her faster and faster, and Gina cried out as she felt the heat in her stomach rising!</p>
+<p>"I’m close! Jason, I’m close! Oh god, I’m so fucking close!"</p>
+<p>Gina threw her head back against the glass wall as an orgasm started to rise through her, but she was shocked when Jason suddenly stopped moving his finger! Gina looked up at Jason with pleading eyes, and Jason gave Gina another heated kiss before he suddenly turned her around and pressed her against the glass! Gina shivered as her erect nipples were squashed against the wall, and she felt a thrill go through her spine as Jason covered her body with his own! Jason put his hands on either side of her head and he leaned forward and bit Gina’s ear hard! Jason’s erection rubbed between Gina’s cheeks and Gina put her hands against the wall as she slowly began grinding against him while breathing heavily! Gina’s back was curved downwards like a cat, and her hair and body were dripping with the water from the shower, and Jason couldn’t take his eyes off her sexy figure. Jason traced his hand down Gina’s back until he got to her ass, and Gina’s mouth widened as Jason spread her cheeks with his hands and positioned himself properly before he slowly began to enter her.</p>
+<p>"Ooooohhh~"</p>
+<p>Gina felt her entire body shaking from pure arousal as Jason’s member slid inside her, and her mouth opened wide in agonizing pleasure! Gina and Jason hadn’t had sex in a while, so Gina could feel every single inch splitting her insides apart! Jason let out a grunt as he felt Gina’s warmth engulfing him, and he had to struggle not to come inside her immediately! Jason held Gina’s waist steady as he continued to enter, and it wasn’t long before Jason’s waist slapped against Gina’s ass!</p>
+<p>slap!</p>
+<p>"Ugh!"</p>
+<p>Gina cursed as Jason suddenly slammed his full length into her! She could feel Jason all the way in her cervix, and Gina’s legs began to shake as a miniature orgasm suddenly traveled through her body! Jason held Gina up by her waist as he felt her vibrating around his member, and he waited patiently for Gina to come down from her orgasm before he suddenly started to move!</p>
+<p>Slap! Slap! Slap! Slap!</p>
+<p>The bathroom was filled with the sound of skin slapping on skin, and Gina held on for dear life as Jason pounded into her like a piston! Gina’s moans echoed off the walls of the bathroom, and her hands pressed against the glass wall as she tried her best to match Jason’s pace with her own! Jason’s hands tightened against Gina’s waist, and his eyes were fixed on Gina’s ass as it rippled with every move she made!</p>
+<p>Bam! Bam! Bam! Bam!</p>
+<p>Jason suddenly increased the tempo of his movement, and Gina let out a cry as she was pushed against the glass wall with even more force! Gina’s breasts pressed against the wall, and if anyone looked inside the bathroom from outside, they would be able to see the outline of her hard nipples and her hot breath as she was pounded from behind! Gina was standing on her toes and her hair had fallen all around her shoulders like a river of red! Jason reached forward and pulled her hair roughly, and Gina moaned as she felt Jason lean his other hand on the glass wall as he started going even deeper inside her! Most girls would have felt a lot of pain from having their hair pulled so roughly, but Gina could only feel her arousal growing from the dominant move! Jason was literally claiming her body as his property, and Gina loved every moment of it!</p>
+<p>Slam! Slam! Slam! Slam! Slam!</p>
+<p>Jason turned Gina’s head to the side and gave her a heated kiss that literally stole the breath from her lungs and Gina felt Jason bulging inside her, so she knew that he had to be close already! Jason increased his speed again, and this time, Gina did her best to move back so that she could match him. Gina could also feel her orgasm reaching a climax, and Jason grunted as he felt her tightening up around him!</p>
+<p>"Fuck, I’m close!"</p>
+<p>Jason suddenly spoke in a gruff voice, and Gina just increased her speed even more as she spoke in a sexy, breathless voice!</p>
+<p>"Me too. I’m almost there! You can come inside! Please!"</p>
+<p>Gina didn’t remember if she was in her safe period or not, but she decided that she would worry about that the next day! There was no way she was going to ask Jason to pull out from her now! Jason’s member suddenly bulged once again, and Jason grabbed Gina’s waist in a death grip and let out a deep grunt as he slammed into her one last time!</p>
+<p>BAM!</p>
+<p>Gina’s brain short-circuited from the sudden impalement, and her legs began to shake with intensity as she felt an unbearable orgasm passing through her!</p>
+<p>"Oh! Ooh god! Fuck! Fuck!!"</p>
+<p>Gina screamed at the top of her lungs as she saw stars gathering at the edge of her vision! Jason’s warm seed filled her womb, and Gina knew for certain that if she was not in her safe period, then they were absolutely fucked! But Gina still didn’t care about that as she slowly began to move back and forward to try and milk every single drop out of Jason, even while she was still vibrating from her orgasm!</p>
+<p>Jason let out a tense breath as he finally came down from his orgasm, and he pulled out from Gina with a wet ’squelch’. Gina felt her legs give out on her, and she fell to her knees and leaned against the glass wall while breathing heavily! Gina’s legs were still vibrating, and there was a twitching sensation in her crotch that Gina knew wouldn’t go away for at least thirty minutes! Even though the cold shower was still raining on them, there was a deep red blush that refused to leave Gina’s cheeks, and Gina’s mouth was set in a loving smile as she turned around to face Jason.</p>
+<p>Jason smiled back at Gina and spoke while crouching down to her level.</p>
+<p>"You okay?"</p>
+<p>Gina nodded her head as she reached over and pulled Jason in for another kiss. Gina savored every moment of the kiss with Jason before she let out a sigh.</p>
+<p>"Everything’s perfect, babe. It’s absolutely perfect. But I don’t think I can walk."</p>
+<p>Gina smiled sheepishly as she said the last part and Jason just laughed as he grabbed her in a princess carry and began taking her over to the bathtub for them to wash up properly.</p>

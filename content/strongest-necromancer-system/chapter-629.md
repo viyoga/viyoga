@@ -1,0 +1,39 @@
++++
+title = "Chapter 629: The Final Gamble"
+weight = 629
+[extra]
+chapter = 629
++++
+
+<p>Right now, Jason was crossing through a Rank III world known as Fir’san that was filled with large oceans with dangerous magical beasts inside them. But thankfully, the beasts don’t attack you unless you enter the water, and so it was easy to just fly over it. The group had run into many other travellers that were also flying over the ocean, and even though Gina had been awed by the many exotic beasts and creatures around them, Jason couldn’t really get excited since his mind was so focused on what they might run into next. After crossing this world, there would only be three more worlds before they reached Riyad, and Jason couldn’t help but feel uneasy. They still hadn’t run into any Machina all this time, and Jason’s mind was racing as he wondered why! The Machina had been rushing to stop them for so long now, so why would the Machina suddenly start backing off when Jason was already this close?</p>
+<p>’Are they just going to allow me to reach Riyad without any issues? No, that’s not possible. Something’s going to happen. I’m certain of it. It’s going to happen before I reach Riyad, but the only question now is where it’ll happen.’</p>
+<p>....</p>
+<p>[The Machina Outpost]</p>
+<p>[Three Dimensional Leaps Away]</p>
+<p>In a world parallel to Jason’s route, a Machina outpost was abuzz with motion as the Machina carried paperwork and magical crystals around with them. There was no sound of conversation to be heard at all, but mechanical hisses and the digital echoes of computers could be heard as the Machina all carried out their individual duties. Inside one of the largest buildings in the outpost, a Machina General was standing together with various scientists as well as a group of Machina wearing black outfits worn by all Prison guards.</p>
+<p>One of the Prison guards who had three stars on his chest stepped forward and spoke to the General with a look of slight hesitation on his face.</p>
+<p>"Sir, are you sure this is ideal? I understand our need to capture the Black Enigma, but I can assure you that this tactic could lead to even more problems."</p>
+<p>The general turned to the prison guard with a glare on his face, and the prison guard immediately stepped back in fear! The General’s name was Destro, and he had been promoted to the rank of general recently after the Machina lost so many of their Generals while trying to capture Jason. Destro had a chest and legs that had been replaced with Machina parts, but his arms and head were still human, and this gave him far more stamina and speed than most other Machina. He had also replaced his right eye with a mechanical one that shone with an intimidating red light and made it seem like he was looking right through you.</p>
+<p>When Destro spoke, there was a high mechanical pitch to his voice.</p>
+<p>"Our orders came straight from the Overlord’s right arm himself. Do you wish to go and tell the Overlord that you had an opinion that was different from his own?"</p>
+<p>"N-No... of course not."</p>
+<p>The Prison guard answered with obvious fear in his tone, and Destro clicked his tongue before he turned to the scientist standing at his side and said.</p>
+<p>"Is everything prepared? I don’t think I need to remind you that we are running on a schedule. If you make a single mistake that delays the plan, then it will be your head."</p>
+<p>The head scientist looked down at her tablet and frantically made sure the calculations were all correct before she turned to Destro and nodded respectfully.</p>
+<p>"All calculations have been adjusted accordingly, General. I assure you that all systems are working perfectly."</p>
+<p>"Good."</p>
+<p>Destro turned around, and he looked at the multitude of Machina that were running around to make sure everything was in place, and he couldn’t believe they had to go this far just to capture some Black Enigma from a backwater world. No, he couldn’t keep thinking about Jason Marc in such a way. That man was a dangerous person, and it was only right that they gave him the respect he deserved as a true enemy. Jason Marc had foiled their plans one too many times now, and it was obvious that they needed to go all out if they intended to get rid of him once and for all.</p>
+<p>’And this time, we won’t lose any of our men to that bastard. He is nothing but a criminal anyway, so it is only right that he is dealt with in this manner.’</p>
+<p>The General turned away, and he spoke as he began to walk out of the outpost.</p>
+<p>"All conditions are Green. Begin the launch sequence at once."</p>
+<p>The Machina all saluted respectfully, and the head scientist swallowed nervously as she looked down at her tablet. For a brief moment, there was a look of hesitation in her eyes as she thought about disobeying the order. If they did this, then they would be unleashing hell itself upon this world. But she was only a scientist, and she had no right to disobey an order from the Overlord himself. The head scientist took in a deep breath and said one silent prayer to the god of the Machina, Cybertron, before she pressed the button!</p>
+<p>Wee-Woo! Wee-Woo! Wee-Woo! Wee-Woo!</p>
+<p>The entire base suddenly began to glow with a red light as the launch sequence activated, and the Machina all moved out of the way as they realised what was about to happen. And at the next moment, the entire base shone with a brilliant blue light as hundreds of dimensional Tears began to open!</p>
+<p>.....</p>
+<p>[The World of Vratac]</p>
+<p>[Two Dimensional Leaps Away from Riyad]</p>
+<p>It all began in the middle of a large, bustling city. Jason, Gina, and Stella were making their way across Vratac on dragon back, and they were currently flying over one of the largest cities known as Jarana. The city was filled with millions of creatures that were going about their day. The creatures were all of different species from different worlds, and Jason couldn’t help but be impressed by how similar the architecture of this world was to Earth. There were high skyscrapers, and large parks, as well as market districts with malls and food stalls. But along with these, there were also many technological advancements that were completely different from what they had on Earth. There were flying cars and floating buildings, and there was even an area where people were lining up to use some sort of strange Magical Circle.</p>
+<p>[The device below is a Teleportation circle. Unlike regular Dimensional Tears that can move you across different worlds, a teleportation circle allows creatures to move across great distances in their own world. It takes a significant amount of mana and skill to open even one of these portals, so they are not very common.]</p>
+<p>Jason hummed at the system’s explanation, and he grinned as Gina pointed down in awe when she saw one of the buildings moving to a different position. If not for all the different species and advanced technology, then Jason would have thought he was looking at a city from Earth.</p>
+<p>As they travelled over the city, the citizens below would sometimes look up in shock and point at the dragons with awe in their eyes before waving up at Jason with smiles. None of them caused a big scene since they were already used to seeing different species, and seeing a dragon wasn’t something unheard of either. Stella was looking around with red eyes as she scanned the region for any sign of danger, but there was nothing dangerous in that city, and they were able to make their way out of it and towards the outskirts without any incident. The group only had to travel for ten more kilometres before they would reach the next city where the Dimensional circle was located, but as they were flying over a large field of grass far from the city, Jason heard Stella call out loudly!</p>
+<p>"Master! There’s someone waiting ahead of us! I think it’s a Machina!"</p>

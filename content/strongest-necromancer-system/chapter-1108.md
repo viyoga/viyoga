@@ -1,0 +1,37 @@
++++
+title = "Chapter 1108: Tieranly Family Ring"
+weight = 1108
+[extra]
+chapter = 1108
++++
+
+<p>Stella had taken up her training again because she noticed that Jason was planning to leave to go somewhere dangerous, and Stella refused to stay back on Earth again while her master put himself in danger! Stella did her best to train with Valeria whenever the mercenary woman was practicing, but the sheer gap in skill and strength between the two women was so unbelievable that Stella always ended up getting overwhelmed in mere seconds!</p>
+<p>Although Stella was a full-blooded Avaran, Valeria was a true Marc, and Valeria had also fought on the front line for multiple years as a mercenary, so there was no way a common soldier like Stella would be able to keep up with her! For the first time in a while, Stella was experiencing what it was like to be the true underdog in a fight, and Stella began to realise that the Marc blood was really one of the most powerful things in the Primordial Expanse!</p>
+<p>Jason, meanwhile, had spent most of his time in his large bedroom drafting out a plan with Gina. Jason had been hearing stories about what was currently going on at the Primordial Veil, and it was becoming more and more obvious to him every day that there was really a war coming, and he needed to start taking it more seriously.</p>
+<p>"You need stronger subordinates in your Legion. The Primordial Lightning Dragon is the only one that can keep up with you in a fight. Most of the weaker ones are deadweight."</p>
+<p>Gina had said this during one of their talks, and Jason hummed as he accepted her point. Jason had used most of his subordinates in Bishop Class and below as protection for those around him since they were in the low TITAN Ranks and wouldn’t really help him in any fight against powerful opponents, and right now the subordinates in Knight Class and above were barely up to ten in number. Jason needed to get stronger beasts and also boost the weaker ones up to the Knight Class.</p>
+<p>"Before I head off to the Uncharted Zone, I’ll send some of my stronger subordinates to the more powerful worlds around the Primordial Expanse and rack up my kill count. I can get even stronger subordinates that way."</p>
+<p>"Are you sure that’s a good idea? Won’t the other Overlords get angry if you start killing in their domains?"</p>
+<p>Gina was a little worried about what the council would say if Jason did this, but Jason just shrugged and said it would be alright.</p>
+<p>"If they don’t like it, then they can try and stop me. I risked my life to save their fucking worlds, so they’ll have to learn to live with it."</p>
+<p>This was perfectly reasonable, and Gina draped herself against Jason’s shoulder while biting her lip softly! Gina always loved it when Jason brought out his ’bad-boy’ side from time to time! Jason was a good person, but Gina couldn’t deny that she loved seeing Jason as a rebel. Jason could almost feel Gina’s arousal as she pressed her lips against the side of his neck while running her hand down his chest, and Jason was forced to put his plans on hold as he took Gina to bed and had his way with her for the next thirty minutes!</p>
+<p>Since Gina was already showing, there wasn’t a lot that they could do in bed, but Jason made sure Gina still came a few times, and he enjoyed himself before they finally decided to get back to their planning.</p>
+<p>This was how things went for those two days. In that time, Jason’s subordinates were still searching through the first domain for what the Celestial of Death wanted, and it wasn’t until nearly four days later that Jason finally received news that they had found what they were looking for.</p>
+<p>The world of Riara was a desolate landscape unlike anything Jason had ever seen before. Jason’s subordinates had travelled across the shadows of this world as they searched for signs of the house belonging to the Celestial of Death, and when they got to the location where the house was meant to be, they were shocked to find that there was a valley sitting at this location! It had been thousands of years since the Celestial of Death left this world in ruin, so it wasn’t a surprise that the landscape would change.</p>
+<p>Some of the subordinates travelled through the shadows and found the house under the valley, and then they managed to track down the ring that the Celestial of Death wanted them to bring, since it was one of the only magically dense objects in the entire apartment. Thankfully, there were no monsters alive on this world, so the subordinates were able to take the ring without issues and quickly returned to the sixth domain and brought the ring to Jason.</p>
+<p>The ring itself was a black magical item that didn’t look special at all. It barely gave off any light, and when Jason used [Appraisal] on it, this was what he saw:</p>
+<p>——</p>
+<p>Tieranly Family Ring</p>
+<p>Rank: Nil</p>
+<p>Durability: 100%</p>
+<p>Boosts: Nil</p>
+<p>Description: A useless ring crafted by a High Dwarf to serve as the magical heirloom of a powerful Primordial Family. The ring possesses the ability to shine a constant light that represents the life of all the people within the Tieranly family, and as the family members die off, their lights are extinguished, and the ring slowly dims.</p>
+<p>This ring is indestructible and extremely well made, but other than that, it possesses no other reliable quality.</p>
+<p>——</p>
+<p>Jason huffed in amusement when he saw this, and Jason could understand why the system was so judgemental of the ring. The ring was really useless when it came to battle, but at least it would allow Jason to finally end this saga with the Celestial of Death once and for all.</p>
+<p>Jason had been standing outside with Gina and Agiel beside him when the subordinate came to give him the ring. The three of them were talking about a recent report that Jason got from the Northern Alliance Academy concerning a new breakthrough with the Mortal Severance Pill. Now that they had two different Primordial Corpses to work with rather than just one, they were able to work faster, and they were ready to start mass-producing the pills for selected humans. Jason was planning to leave Cerci and Juliet in charge of handling the distribution of the pills, but Jason wanted Gina to keep an eye on Cerci to make sure that he didn’t do anything stupid. Even though Cerci was the sort of man who would do anything to make sure humanity survived, Cerci was also a very unpredictable person, so Jason wanted to make sure Cerci chose the most suitable humans to take the pill.</p>
+<p>"Don’t worry, babe, I’ll make sure he stays in line. I won’t have much to do while I’m staying home, so I’ll send out subordinates to keep an eye on him."</p>
+<p>Gina said this after Jason told her his plan, and it was in the middle of this conversation that the subordinate brought the ring to Jason. Once they saw the ring, Gina immediately realised that it was time for Jason and Agiel to leave again!</p>
+<p>....</p>
+<p>[Later that Night]</p>
+<p>Jason was out in the forest beside his house, and he was meditating quietly as he allowed his Qi to flow into the natural forest around him. Jason hadn’t had a chance to really look into his Qi ever since he awakened his Qi element a month ago because of the Celestial of Death, but now that Jason finally had some time, he decided to see just how much his resonance had grown since then.</p>

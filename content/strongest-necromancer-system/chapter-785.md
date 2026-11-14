@@ -1,0 +1,37 @@
++++
+title = "Chapter 785: Jealousy and Lust (+18)"
+weight = 785
+[extra]
+chapter = 785
++++
+
+<p>Hesabeth could have never imagined herself being in this position, but now that Hesabeth was here, she realized that she didn’t mind Jason looking down at her like this! If Jason was the only person that Hesabeth allowed to look down on her, Hesabeth felt like she could live with that!</p>
+<p>Gina continued to help Hesabeth take as much of Jason as possible, and Gina knelt up and leaned in to kiss Jason softly. Gina smiled at Jason, and she whispered into Jason’s ear.</p>
+<p>"You like that, don’t you, baby."</p>
+<p>Gina started to move Hesabeth’s head even faster, and Jason grunted in response as he felt his member slipping into Hesabeth’s throat! Hesabeth gagged again from how deep Jason was, but Gina refused to give Hesabeth any room to back off, so Hesabeth had to continue sucking Jason off! Gina grinned as she looked down at Hesabeth’s messy face, and she spoke to Jason in a low, sultry voice.</p>
+<p>"Just look at her, babe. She’s completely lost in her own lust. Do you like the feeling of her mouth wrapped around you like that? Don’t you just want to ruin her completely?"</p>
+<p>Slurp~! Slurp~! Slurp~! Slurp~!</p>
+<p>Gina suddenly forced Hesabeth to move even faster, and Jason grunted as Gina leaned in and ran her tongue up from Jason’s neck to his chin and finally to his ear before Gina bit his earlobe and sucked hard!</p>
+<p>"Fuck!"</p>
+<p>Jason grunted as the sensations became too much for him, and Hesabeth’s eyes popped wide open as she felt Jason bulge in her mouth before he released everything right into her throat! Gina kissed Jason hard while holding Hesabeth’s head in place to make sure that Hesabeth took everything Jason released, and Hesabeth felt her eyes rolling to the back of her skull as she almost passed out from the lack of air!</p>
+<p>Rumble~!</p>
+<p>There was a sudden rumble that shook the entire room down to the foundation, and Gina quickly took her hand off Hesabeth’s head as Gina realized that Hesabeth’s bias was about to activate! The world must’ve noticed that Hesabeth was about to pass out! Hesabeth immediately fell to the bed while coughing desperately, and Hesabeth took in deep breaths to try and fill her lungs again! Gina wrapped her hands around Jason’s waist and put her head on Jason’s shoulder while looking down at Hesabeth with a smile, and Jason ran a hand through his hair as he caught his breath! Hesabeth looked up at Jason while breathing heavily, and she could see that Jason was still not yet satisfied! Hesabeth felt a sudden surge of fear passing through her! It was already strange enough that Jason could have so many orgasms without getting tired, but at this point, it was getting absolutely out of hand! In the back of her mind, Hesabeth began to think about how this would have gone if she had managed to make Jason choose only her! Hesabeth knew that there was no way in the world she would be able to keep up with Jason’s stamina!</p>
+<p>"P-Please. Just let me rest. I’m so tired."</p>
+<p>Hesabeth began to shuffle away from Jason in slight fear, and Jason let out a deep hum as he saw that Hesabeth was actually very close to passing out. Jason smiled at Hesabeth as he decided to give her a break, and his attention shifted towards the woman hugging his waist. Gina noticed Jason staring at her, and she looked up to see an intense fire burning in his eyes! Gina’s lips split into a sultry smile, and she leaned forward and kissed Jason deeply! Jason slapped Gina’s ass and squeezed her ass cheek tightly, and Gina moaned into Jason’s mouth as her body shook! Once they separated, Jason growled at Gina.</p>
+<p>"Get down on your hands."</p>
+<p>Gina felt her body shiver from the commanding tone, and she smiled at Jason as she slowly moved down while keeping her eyes locked on his own! Gina took Jason’s member in her hand, and she wrapped her mouth around it and sucked him hard before releasing him with a loud pop! Jason grunted from the feeling, and Gina’s smile widened as she finally turned around and crawled forward on all fours! Gina glanced back with clouded eyes, and she shook her ass invitingly to provoke Jason! Jason felt his member twitch from the sight of Gina’s large ass shaking like that, and he grinned as he moved forward and took Gina’s waist in his hands before he aligned himself with her entrance and thrust forward at once!</p>
+<p>SLAP!</p>
+<p>"OOHH YESSS!"</p>
+<p>Gina screamed as she felt her entire body shake from the sudden penetration, and Jason felt her tighten around him as a mini orgasm suddenly shot through her body! Jason pressed his hand down on Gina’s back and forced Gina to press her face into the bed, and this gave Jason enough leverage to begin slamming into Gina like a fucking animal!</p>
+<p>Slap! Slap! Slap! Slap! Slap! Slap! Slap!</p>
+<p>The sound of skin slapping against skin echoed through the room, and Jason could hear Gina’s muffled moans each time he thrust into her! Jason took his time to appreciate the absolute beauty of the woman under him. Gina’s fat ass and thighs were a work of art that rippled each time Jason moved, and even though Gina wasn’t very muscular, Jason could still see the outlines of muscles on Gina’s back as she curved it downwards to accommodate him better! Gina’s red hair fell around her erratically, and Jason felt a grin spreading on his face as he realized he now had two women with blood-red hair.</p>
+<p>’I think I might have a thing for redheads.’</p>
+<p>"Mmh~! Mmh~! Mmh~! Mmh~! Mmh~!"</p>
+<p>Gina’s voice was being muffled by the bed, but Jason could easily feel her entire body shaking each time he penetrated her! Gina’s core tightened around Jason like a vice, and Gina was moving back each time Jason moved forward so she could match his thrusts! Jason might have a lot of women now, but Jason knew that no matter how many women he got, none of them could compare to Gina! It was impossible for anyone else to make him feel this way!</p>
+<p>"Fuck, I’m close."</p>
+<p>Jason grunted as he felt another orgasm rising from deep inside, and Gina immediately groaned out!</p>
+<p>"Yes, baby! Do it inside! Fill me up!"</p>
+<p>Gina raised her face up from the bed as she bit her bottom lip and began to move even faster, and Jason’s eyes immediately travelled to Gina’s large breasts as they swung through the air hypnotically! Jason put his hands on Gina’s thin waist to hold her in place, and the sound of skin slapping against skin suddenly increased in intensity, and Gina felt her entire body shaking as an orgasm shot through her body.</p>
+<p>"Oh, oh god! Oh, yes! OOOOHHHHH~!"</p>
+<p>Gina’s thighs shook and quivered in pleasure, and she tightened around Jason even more. Jason cursed as he slammed deep into Gina and finally released everything he had!</p>
+<p>At the side, Hesabeth was lying on the bed and watching what was happening, and Hesabeth would be lying if she said she didn’t feel even the slightest bit of jealousy when she saw Jason and Gina together. Hesabeth knew that she shouldn’t feel jealous since she was the one who begged Gina to allow her into the relationship, but Hesabeth couldn’t help it, and she frowned slightly when she saw the lustful blush on Gina’s face as she came. But along with that jealousy, there was also some lust that burned in Hesabeth’s stomach as she watched Gina, and Hesabeth had to let out a small breath as she tried to focus more on the lust than her jealousy!</p>

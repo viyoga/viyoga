@@ -1,0 +1,37 @@
++++
+title = "Chapter 1021: Agiel’s Resolve"
+weight = 1021
+[extra]
+chapter = 1021
++++
+
+<p>Overlord Farlow was in absolute disbelief when he saw the message from the Queen, and when he looked at the young girl standing in front of him, he saw in her eyes that she understood exactly what had happened to her mother! The Queen was dead, and in barely one year, this little girl had become an orphan! This revolution had happened around the same time when the Avarans had lost the battle against the Primordials, so the Avaran King, Richard, had been in Arandelle as well, trying to heal his injuries.</p>
+<p>When Richard heard about what happened on Jadar, he realised that he had also played a part in causing the death of the Queen, and that was why Richard didn’t object when Farlow asked him to take the young Agiel along when he was leaving for Earth!</p>
+<p>That was how Agiel ended up arriving on Earth all those years ago, and although she had a lot of hatred in her heart for Richard because of how he abandoned her mother, Agiel could’ve never in her life guessed that she would end up becoming a Soul Bearer herself and forming a connection with the son of the same man that abandoned her mother.</p>
+<p>’It’s almost laughable. I wonder what you would think about all this, Mom. Would you be happy for me or would you curse this destiny?’</p>
+<p>This thought went through Agiel’s mind as she looked out the window from a high tower in the royal castle. Agiel was dressed in a Royal gown that she felt very uncomfortable in. A part of Agiel felt like tearing the gown in half so she could move freely, but Agiel managed to stand with a grace and poise that only a true princess could possess! Today had been her ritual purification and fitting for the wedding dress she would be wearing for the wedding, and all through the ceremony, Agiel had felt like some fancy doll in a showroom! It was irritating, and if Agiel had her way, she would’ve burned the entire ceremony room to the ground before she allowed them to put a dress on her!</p>
+<p>Agiel had left her royal life behind a long time ago, so getting thrown back into it like this was almost too much for her to process all at once, and it would take some time for her to get used to it! But Agiel had a feeling that no matter how much time passed, she could never get used to this life! Agiel would always miss being an officer in the Enforcers!</p>
+<p>"There you are, Your Highness. I’ve been looking for you."</p>
+<p>A voice came from the side, and Agiel turned to glance at a tall older man who had a condescending smile and mischievous white eyes. The man was dressed in fine robes and a purple headpiece that showed he was the personal advisor to the king of Jadar. His name was Vinaris, and he was one of the only people in the kingdom who could speak freely to the King! Agiel hated him because she knew that he was the reason why she was here! When Agiel had been contacted by the King of Jadar about this marriage, Agiel didn’t think it was true at first! Agiel had been told that getting married to the King would allow her to set free all the prisoners who had been captured during the revolution, but it still felt like a joke!</p>
+<p>But then, Agiel had gotten another letter from Vinaris himself explaining all the details of what would happen in the future and how they intended to keep their promise after the marriage, and that was what convinced Agiel that this was actually real! Vinaris might look like a typical weakling who can only survive by holding onto the legs of those stronger than him, but in truth, this man was a cunning mastermind, and without his intellect, Agiel knew that the current King of Jadar would’ve never won the battle against her mother and father!</p>
+<p>Agiel had no choice but to respect Vinaris for what he was capable of, but that didn’t mean she had to like him!</p>
+<p>"What do you want, Vinaris?"</p>
+<p>Agiel glared at Vinaris in annoyance, but Vinaris’ smile just widened, and Agiel forced herself not to look away from Vinaris’ unsettling white gaze!</p>
+<p>"Your future husband has been looking for you, Your Highness. He is in the courtyard waiting for you to practice your vows."</p>
+<p>The muscles in Agiel’s jaw jumped as she grit her teeth hard, and she squeezed her hand into a fist and turned away as an intense anger threatened to consume her! For a moment, Agiel had the thought of simply jumping out of this window and running away from this place, but Agiel had to stop herself from doing that, and she spoke up through grit teeth.</p>
+<p>"Tell him I’ll be there in a few minutes."</p>
+<p>Vinaris frowned.</p>
+<p>"You are speaking about the king of Jadar. You will talk with respect."</p>
+<p>Agiel’s teeth tightened even more as she felt her magic swirling to life inside of her, but Agiel did her best to restrain herself! Agiel knew that this was all for her people! Agiel had seen the people that were captured during the war, and she felt a pain in her heart just from remembering the sort of condition they had been in! There were millions of soldiers kept in underground caverns and prisons, and their lives all rested on Agiel’s shoulders. If Agiel simply gave herself to that man, then she would be able to free all the prisoners that were captured during the war! Agiel just had to get through this idiotic wedding.</p>
+<p>"Please tell ’his majesty’ that I will be with him soon."</p>
+<p>Agiel didn’t bother to turn around as she said this, but it seemed to be enough for Vinaris, and the advisor clapped happily as he turned and walked away while whistling. Agiel glared at the advisor’s back, and if looks could kill, then Vinaris would’ve turned to ash at that moment, but he eventually turned the corner, and Agiel was left alone again.</p>
+<p>Agiel let out a tired sigh and leaned against the window ledge as she found herself wishing that Jason was here with her. But Agiel quickly shook her head and frowned. What was the point of wishing for something like that? Jason already made his choice, so there was no point in wishing for something that would never happen.</p>
+<p>"Princess Agiel."</p>
+<p>A voice came from behind, and Agiel turned around sharply as her magic surged to life, but Agiel was surprised when she didn’t see anything there!</p>
+<p>"Over here."</p>
+<p>Agiel turned towards the wall, and she felt her eyes widen when a figure began to form from the stone surface. The figure melted out of the stone and stepped into the hallway before finally standing in front of Agiel.</p>
+<p>"Hello, Princess. I am the messenger named B, and I have come to you with an important message."</p>
+<p>The man who appeared was covered from head to toe in a black cloak, and Agiel felt a cautious sensation rising from her heart as she watched him distrustfully. Agiel couldn’t tell what he looked like or what world he was from since she couldn’t sense his Magic Essence at all, but that wasn’t what concerned Agiel at that moment; instead, Agiel was seriously concerned by the absolute lack of presence that the man had! The man’s presence was nonexistent, and even as he stood in front of her, Agiel felt like she couldn’t ’feel’ him standing there at all!</p>
+<p>’An assassin? Or maybe a spy. His stealth skills must be extraordinarily high if he could stay hidden behind me all this time without me noticing.’</p>
+<p>Agiel narrowed her eyes before she asked:</p>
+<p>"Who sent you?"</p>

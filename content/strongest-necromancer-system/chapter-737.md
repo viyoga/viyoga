@@ -1,0 +1,37 @@
++++
+title = "Chapter 737: Council Meeting"
+weight = 737
+[extra]
+chapter = 737
++++
+
+<p>"You have your water bottle, right? And the shield artefact I gave you? And there’s some extra food and water in the storage rune. If you need anything at all, then just use the signal to let me know. And -"</p>
+<p>"Stella, stop. You really need to stop worrying so much."</p>
+<p>Gina spoke up with a small laugh as Stella fretted over her like a mother hen! Stella frowned at Gina and told her that she was obviously not worrying enough, and Gina just shook her head in amusement. Stella continued to fret over Gina, and Gina suddenly chuckled when she realised that this was exactly how she normally acted with Jason. Gina would fret over him until he was sick of her, and she would make sure Jason had everything before he went anywhere.</p>
+<p>’I miss him.’</p>
+<p>This thought went through Gina’s mind as she looked down at the ground sadly. Stella noticed Gina’s expression, and she put her hand on Gina’s shoulder and said:</p>
+<p>"You don’t need to worry about anything else, your highness. Just focus on making sure you come back safely. I’m sure the prince will be happy to hear about your adventures when you meet him again."</p>
+<p>Gina smiled thankfully, and she steeled her nerves before she moved out of the campsite and began heading towards the entrance of the Eternal Wind Forest. There was a large group of soldiers already waiting at the entrance, and they all bowed respectfully to Gina while making a path for her to reach Farlow on the other side. Farlow looked like he had already been waiting here since the previous night! Farlow had a look of extreme focus in his eyes, and it was obvious that he was far more desperate to finish this mission than Gina. Gina could understand why Farlow was so desperate, and she didn’t bother trying to calm him down since she knew that she would’ve been the same way if she were in his shoes.</p>
+<p>"Are you ready?"</p>
+<p>Farlow asked this with a hard look on his face, and Gina nodded while staring into the darkened forest. The trees in the forest of Eternal Wind were all extremely tall, and they had wide leaves that cast the entire forest in a dark canopy and prevented anyone from seeing more than a few meters into the forest! It was obvious that this was going to be a very dark journey. They couldn’t use any light artifact to see, since they didn’t want to attract all the magic beasts around to their light source, so they would have to rely on their advanced eyesight to see. But that was fine since both Gina and Farlow could see for hundreds of meters around them in the dark. Gina was the spirit user between them, so she would be taking the lead during the journey, and she would do her best to find the ideal path that wouldn’t end up with them fighting too many spirits.</p>
+<p>"Please be safe, your majesty. We shall wait eagerly for news of your victory."</p>
+<p>A man spoke up from the side, and both Farlow and Gina turned to see that it was the head of the elven guards, a tall man with a strong build and long white hair. The man bowed to both Farlow and Gina before continuing.</p>
+<p>"If you have any need of our aid, please send out the signal, and we will be with you at once. We pray for your success."</p>
+<p>"We pray for your success!"</p>
+<p>The entire group of soldiers announced simultaneously, and Farlow just nodded to them once before he turned and began to trek into the forest with Gina. As Gina walked, she turned to her left shoulder and glared at the invisible space hovering over it.</p>
+<p>’Aren’t you going to come out and help me?’</p>
+<p>There was no response from Gina’s fairy companion, and Gina just rolled her eyes. Gina had been talking to Ulyn since the previous day about helping her during this mission, but Ulyn hadn’t bothered to respond at all since then. Gina could feel Ulyn hovering right over her shoulder, but it was obvious that Ulyn just wasn’t interested in helping Gina. Ulyn was going to be a pain in the ass for a long time!</p>
+<p>Gina turned to the side and raised her hand!</p>
+<p>Slash!</p>
+<p>A blade of wind erupted from Gina’s palm and sliced through the air before cutting into the neck of a large lizard that had been sneaking up on them from the side! The lizard fell to the ground, and Gina felt Farlow release a bit of his mana as a warning sign. Most of the monsters in this forest were below TITAN Rank, so if they felt the mana of a TITAN Rank II like Farlow, they would obviously hesitate to approach them. Gina nodded to Farlow as she realised what he was doing, and then she pointed towards the east and said.</p>
+<p>"I can sense a concentration of spirit energy in that direction, so we’ll head there first. It’s still early in the day, so we should get there before noon. Hopefully, we can finish this today."</p>
+<p>Farlow nodded in agreement, and the two of them surrounded themselves in wind magic before they blasted off the ground and deeper into the forest!</p>
+<p>....</p>
+<p>[The Stone Catacombs]</p>
+<p>[Within The Hall of Fallen Heroes]</p>
+<p>"Did nobody send Farlow a message about today’s meeting?"</p>
+<p>In the dark room where the Council of Nine and One had all its meetings, six members of the council were seated around the large stage, and there was a tense air around them as they waited patiently for the rest of the members to show up. The person who had spoken was the leader of the Angel race and the second seat on the Council, Rak’hael. She had a deep scowl on her face, and her chin was resting on her hands as she glared at Farlow’s empty seat. Beside her, another member of the council, the fourth seat on the council and leader of the Draconian race, Baron Skarr, scoffed in irritation as he spoke.</p>
+<p>"What else should we expect from those elves. Their leader cannot even be early to a meeting."</p>
+<p>"Actually, I received a message from Farlow earlier saying that he could not come to the meeting. Apparently, it’s a family matter."</p>
+<p>The first seat on the council, C’thlyanu finally spoke up, and Baron Skarr scoffed again before he just leaned back in his seat. The council had met today to discuss the matter that had been the talk of the Primordial Expanse for multiple days now. Although the council had tried its best to keep the knowledge of the recent attacks on the world of the Machina a secret, it was impossible for them to prevent people from finding out about it. News of the attack had travelled to every corner of the Primordial Expanse, and the news had gotten so popular that people had given it a name, and it would be difficult to find any world in the Primordial Expanse where people weren’t talking about the recent Machina Massacre.</p>
+<p>Various theories about what could have caused the Machina Massacre or who was responsible for the killing had been going around, but the one name that came up every time in relation to these killings was Jason Marc. Everyone knew that Jason Marc played a big part in this massacre, and although the reason for Jason’s actions was still unknown, there was no doubt that everyone in the Primordial Expanse was looking towards the council to see what they would do about it! Even though the Machina were disliked by many of the races in the Primordial Expanse, they were still the leaders of an entire domain, and everyone was sure that Jason would face serious repercussions for attacking one of the leaders of the Primordial Expanse! And that was the reason why the council had met today.</p>

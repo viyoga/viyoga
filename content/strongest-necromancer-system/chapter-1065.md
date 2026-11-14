@@ -1,0 +1,38 @@
++++
+title = "Chapter 1065: The Wedding Day"
+weight = 1065
+[extra]
+chapter = 1065
++++
+
+<p>Once Enkidu was gone, Bathseda was immediately confronted by Theosis’ glare!</p>
+<p>"This is the last time you will ever permit another person into my domain without my express permission. Do you understand me, Bethseda?"</p>
+<p>Bathseda smiled apologetically and floated back gently!</p>
+<p>"We came to an understanding a long time ago, Theosis. You will allow me to perform experiments in your castle, and I will aid you in your missions. But do not misunderstand this arrangement. I am not your subordinate, and you are not my master. If there is ever a need to preserve my experiments at the risk of your safety, do not believe even for a moment that I will choose to save your life."</p>
+<p>Bathseda opened a Dimensional Tear behind their chair and vanished into it, and Theosis glared at the spot where Bathseda had been for a moment before he clicked his tongue and turned to leave! Even though Theosis would never give any regard to a warning placed upon him by a woman, Theosis was not a fool, and he understood the gravity of this situation. So to ensure things went well in Jadar, Theosis decided he would keep a closer eye on Agiel’s marriage!</p>
+<p>....</p>
+<p>[Jadar]</p>
+<p>[The Eastern Wing of the Royal Castle]</p>
+<p>Agiel felt like she was about to throw up! Agiel was sitting on a chair in a brightly lit room, and her makeup and clothes were being arranged by her handmaidens. Agiel was wearing a beautiful white gown that came down to her ankles, and her hair was decorated with blue and red flowers along with a silver crown! This was the traditional attire for marriage in Jadar, and Agiel couldn’t believe that this was actually happening!</p>
+<p>Agiel had already made up her mind that she would go ahead with this marriage, but Agiel thought that the marriage wouldn’t happen for a few more days at least! When Agiel suddenly learned that the marriage had been pushed up to today, a sick feeling suddenly gathered in Agiel’s stomach - like Agiel had swallowed a can of worms - and in that moment Agiel realised that she did not want to do this! Agiel did not want to get married, and the warrior inside her was raging angrily and telling her to stop this madness! Agiel just wanted to use her magic to destroy everything in this room and escape!</p>
+<p>The only thing that stopped her from running away at that moment was the weight of responsibility she felt towards the people of this world.</p>
+<p>Agiel’s mother had some responsibility for bringing so much misfortune to Jadar, so Agiel was trying to do her part to give the people back their freedom. But Agiel had never felt worse than she did at this moment!</p>
+<p>"You look radiant, princess!"</p>
+<p>A loud voice suddenly came from behind, and Agiel glanced up at the mirror to see the King’s advisor, Vinaris, coming up to her from behind! Agiel scowled and ignored the man as the handmaidens finally finished fixing up her dress! All the handmaidens bowed to Agiel and Vinaris before they moved away, and Vinaris finally came forward with his hands joined in front of him.</p>
+<p>"I’m pleased by how cooperative you’ve been all through these ceremonial preparations. I honestly believed you would prove difficult at such an auspicious time."</p>
+<p>Agiel gave Vinaris a heavy scowl before looking away in irritation! Agiel did not want to be anywhere near this fool right now. The anger inside of Agiel was already close to bursting out, and Agiel knew that spending any more time with Vinaris was only going to make it worse!</p>
+<p>One of the handmaidens came around holding a pair of silver shoes in her hand, and she bent to help Agiel put them on. Agiel allowed the woman to slip the shoes on her feet, and once that was done, Agiel immediately stood up and spoke.</p>
+<p>"If you’ll excuse me, advisor. I must be on my way."</p>
+<p>The handmaidens came forward and helped Agiel to begin moving out of the room, and Vinaris simply watched as Agiel’s radiant figure moved past him. But before Agiel could leave the room, Vinaris spoke up in a serious tone.</p>
+<p>"I hope you remain this agreeable until the very end, Princess. Remember why you are doing this. It would be a shame if you were to suddenly gain some sort of realisation in the middle of the wedding that would lead to the death of millions of poor soldiers."</p>
+<p>Agiel stopped dead in her tracks, and a wave of anger suddenly began to pour out from her! The handmaidens around Agiel all took steps away in fear while bowing their heads submissively as Agiel turned and began heading towards the advisor! Agiel stopped in front of Vinaris, and spoke to him in a low voice so that only the two of them could hear!</p>
+<p>"There is no day I spend in this miserable castle where I do not have to remind myself why I am doing this, Vinaris. But I would also advise you to pray that this wedding goes through. Because if by some miracle, it does not happen, and I end this day as a free woman, then yours will be the first life I come for. I will hunt you to the end of this world and tear you limb from limb. I swear it on my mother’s grave."</p>
+<p>If looks could kill, the glare on Agiel’s face would’ve completely disintegrated Vinaris at that moment, and Vinaris frowned as Agiel stepped away from him and began walking out of the room once again. The handmaidens were still dead silent as they watched the interaction between the two, and Vinaris glared at all the women and told them to move!</p>
+<p>"What are you all standing around for!? Move! The ceremony is about to begin!"</p>
+<p>The handmaidens immediately scrambled to do as they were told, and Vinaris glared at Agiel’s back as she walked out with eight women following after her. Vinaris didn’t really care for any of the empty threats Agiel could send his way. This wedding was going to happen, and Agiel’s soul would be gifted to his master, and there was nothing anyone could do about that!</p>
+<p>....</p>
+<p>[Outside the Royal Castle]</p>
+<p>The wedding ceremony that was about to begin was one of the most anticipated moments for any member of the Jadite race! Just like the wedding of the previous Queen had spread across the world of Jadar, the wedding of the princess was just as widespread! So although they all knew that there was a disaster approaching them, they had all made up their minds to ignore everything else happening in the Primordial Expanse and focus completely on the ceremony that was about to begin!</p>
+<p>The wedding festivities had already gathered a massive crowd into the main city, and now both commoners, nobles, and military personnel were gathered around the Jadar Royal Castle for the main event! Most of the commoners had packed themselves together in the massive courtyard outside the royal castle to watch and see what was happening. Their numbers were so high that they spilled out into the main city and spread out in a large wave of uncountable numbers! Up high above them, there was a large balcony protruding from the castle walls where the main wedding would be taking place, and two smaller balconies on either side of the first one where the nobles of the land stood and watched as well.</p>
+<p>Ring~! Ring~!</p>
+<p>The sound of a bell being rung echoed through the region, and the commoners all put their heads down in reverence as a group of four old men appeared on the main balcony above them! The men walked with a calm, confident stride, and they were all dressed in the official white robes that marked them as members of the only religious order on Jadar known as the Church of Providence!</p>

@@ -1,0 +1,37 @@
++++
+title = "Chapter 699: What Gillian Wanted"
+weight = 699
+[extra]
+chapter = 699
++++
+
+<p>[Land of Lost Shadows]!</p>
+<p>The world suddenly pulsed as the Arcane Art imposed the will of its creator upon reality! A dark tendril wrapped around Jason and Hesabeth, and the tendrils formed into a large circular orb that floated in the sky as the pair were removed from the world and thrust into Jason’s Shadow Dimension!</p>
+<p>Inside the [Land of Lost Shadows], Jason felt a massive drain on his stamina as an intense pressure pressed down on his dimension from all directions! Even though this world was removed from the world’s influence, that didn’t mean that the world didn’t have any form of impact on this reality, and Jason knew that if the world really went all out, it would break through his Arcane Art before long! There were only two reasons why the shadow world was still standing at this moment! The first reason was because Jason had already collected all three Attributes from the [Lord of Shadows] Arcane Art, so all the individual Attributes were far stronger than they would have been if they were separate! And the second reason was because Jason didn’t have any thoughts of harming Hesabeth in his mind! The world reacts very violently any time someone thinks about harming Hesabeth, but as long as you didn’t have any negative thoughts towards Hesabeth, then the world’s influence would be greatly reduced.</p>
+<p>Hesabeth quickly struggled away from Jason’s hold as she realised that she was no longer in the real world! Hesabeth looked down to see that she was standing in murky shadow water, and she frowned before glaring up at the pure white sun hanging above the massive hill in the distance! Hesabeth had heard about the Arcane Arts and how they were all powerful in their own right, but she never bothered trying to gain any of them because she knew she didn’t need them. The world acted upon her whims, and her will was the desire of all creation! Why would she need some pathetic ability that would pale in comparison to her greatness?</p>
+<p>So even though she had never seen this Arcane Art before, Hesabeth could tell that this was an Attribute from the Shadow Arcane Arts, and she turned to glare at Jason with a look of pure hatred! Hesabeth’s hands were tightened into fists as she took in Jason’s dishevelled and dirty form, and her eyes narrowed as she spoke.</p>
+<p>"You dare stand before me, Jason? Do you believe you have any right to gaze upon me after what you have done!? How dare you!?"</p>
+<p>Jason took in some heavy breaths to try to gain some of his energy back! Jason had been fighting nonstop against some of the most powerful entities in the Primordial Expanse for more than twenty hours now, and it was taking a serious toll on his stamina. But Jason finally managed to catch his breath, and he raised a hand to try to calm Hesabeth down!</p>
+<p>"Wait, Hesabeth. I don’t want to hurt you. You already know that. I just want us to talk."</p>
+<p>"We have nothing to speak about! Were you not responsible for the death of Gillian!? Did you not use your hand to strike her down!? Did you think I’m foolish enough to listen to anything from the man who stabbed Gillian’s heart!"</p>
+<p>Jason took in a breath, and he tried again.</p>
+<p>"... Yes, I killed Gillian, but..."</p>
+<p>"DON’T YOU DARE TRY TO FORM ANY EXCUSES!"</p>
+<p>BOOM!</p>
+<p>The entire world shook as a massive pressure slammed into it from the outside, and Jason could feel his control slipping! The world was reacting to Hesabeth’s anger, and it was only a matter of time before it broke through the shadow barrier to reach them! Jason took a step forward and spoke in a loud voice!</p>
+<p>"I’m not forming any damn excuses! Yes, I stabbed her in the heart! But did you think I wanted to do that!? Did you think I would’ve done it if I had any other choice!?"</p>
+<p>Hesabeth’s eyes widened slightly as she took a half step back, but it wasn’t long before the fire in her eyes returned, and she glared at Jason again!</p>
+<p>"LIAR! You killed her because you wanted her Blood Oath! You think I’m a fool!? I can sense the power inside you! I know you were just like all the other enemies that wanted the power she held!"</p>
+<p>Jason took another step forward!</p>
+<p>"I killed her because she asked me to! She begged me to take her life and her Blood Oath so it wouldn’t fall into the wrong hands! Gillian wanted to die!"</p>
+<p>Hesabeth’s resolve wavered once she heard that, and she shook her head.</p>
+<p>"No. No, you’re lying! Why would she want to die without seeing me!? Why would she want to leave me alone!? You’re lying!"</p>
+<p>DOON!</p>
+<p>Another pressure slammed into the shadow world, and Jason spoke quickly!</p>
+<p>"I’m not lying! Gillian was already at death’s door! She was marked for death by the Grim Reaper, and there was nothing anyone could do to stop it! I only did what she wanted!"</p>
+<p>Hesabeth’s breaths were coming out in harsh puffs as she felt herself hyperventilating! She could feel her heart beating like a drum in her chest as she tried to wrap her head around what Jason was saying! She didn’t want to believe it! For two hundred years, Hesabeth had been looking for Gillian! She searched for her for that long, and Gillian never bothered to try to meet Hesabeth even once before she died! How could Jason say that Gillian wanted to die!? That wasn’t possible!?</p>
+<p>A hand suddenly grabbed Hesabeth by the shoulder, and Hesabeth looked up in shock to see Jason looking over her with a look of grief on his face! The pressure in the shadow world had become so intense that it took all of Jason’s mana just to remain on his feet, but Jason was still holding on strong as he spoke to Hesabeth seriously!</p>
+<p>"Gillian loved you, Hesabeth! She wanted to see you, but there was no time! Her heart had already been tied down, and killing her was the only way to save her from a worse fate! I know you loved her too, Hesabeth, but you need to understand that you weren’t the only person who cared about her!"</p>
+<p>Jason’s sharp gaze pierced into Hesabeth with ferocity, and Hesabeth felt her resolve shaking as she stared up at him! In truth, Hesabeth already thought there was a chance that Jason was right. Gillian had been sealed for a very long time, and she had suffered alone for all that time. So why would Gillian want to continue living in this world that never bothered to give her anything but pain and suffering? Even someone like Hesabeth, who claimed to have truly cared about Gillian, hadn’t been able to do anything to help her! Hesabeth felt her walls slowly breaking down as these thoughts crossed her mind, and it wasn’t long before Hesabeth’s face squeezed in anguish as tears began to fall from her eyes! Hesabeth bowed her head pifitully and grit her teeth as she cried out!</p>
+<p>"I just... I just wanted to help her! What sort of friend am I when I can’t even save the one person that matters to me!? How can I even say I love her when I couldn’t save my friend! I just wanted her to be happy! Why did she have to suffer while those who tormented her remained happy!? Why!?"</p>
+<p>Hesabeth slammed her fist into Jason’s chest as she felt all her strength leaving her feet, and Jason followed her down as she fell to her knees! Hesabeth’s tears wracked her body with intense heaves, and Jason’s hands on her shoulders were the only thing preventing her from falling to the ground!</p>

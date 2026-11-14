@@ -1,0 +1,41 @@
++++
+title = "Chapter 250: An Avaran Abomination"
+weight = 250
+[extra]
+chapter = 250
++++
+
+<p>[Blazing Embers] has been activated!</p>
+<p>Jason’s sword suddenly erupted in yellow flames as the giant worm rose from the ground to try and swallow him, and once the worm was close enough, Jason unleashed a straight vertical slash that immediately tore the monster in half!</p>
+<p>Ding!</p>
+<p>[Due to repeated action, the user has created a new S Rank Skill [Sword Slash]!]</p>
+<p>[Sword Slash - This skill allows the user to unleash a deadly vertical or horizontal slash in order to attack enemies or defend against an incoming attack. The addition of mana to this skill will increase its lethality by multiple factors.]</p>
+<p>Jason easily ignored the system’s messages as he watched the large worm split down the middle and fall to either side of him, and the sword that Jason used for his attack lost all its durability and disintegrated immediately since it was only an A Rank weapon! But Jason didn’t pay that any mind as he looked around for where the Lich had gone! Jason spotted it a few hundred meters away from him, and Jason was about to head over there for another confrontation, but he stopped when he felt the ground under his feet shake!</p>
+<p>A large arm pulled itself out from underground and slammed into the ground before another arm pulled itself out, and both arms began to pull out a giant body! The ground under Jason’s feet began to turn into ash and hard rock, and Jason could see that everything the giant in front of him touched was immediately disintegrated to nothing! A maniacal laugh came from the Lich as it stood on the shoulder of the giant man-like monster and declared:</p>
+<p>"This is the peak of my experiments! A monster that embodies the very concept of decay and necrosis! If you think you can escape from this, then you are a fool! I’ll kill your mortal body, and I’ll take all your summoned monsters as my loyal pets!"</p>
+<p>The giant monster released a loud rumbling roar as it raised its leg above Jason’s head! The creature looked like a mixture between an ogre and a bull with the body of a man, and Jason didn’t want to know what it would feel like to be crushed under the weight of something like that! Jason dashed to the side immediately, and the large monster brought its feet down to the ground! Everything around the monster’s feet immediately disintegrated, and Jason had to use the [King’s Substitute] once again as the Lich released another volley of dark spells towards him!</p>
+<p>Jason turned to glance at his mana level, and he cursed when he saw that he only had thirty percent left! Jason knew that at this rate, he would run out of mana and stamina from all the subordinates that were working at the same time, so Jason called in the cavalry!</p>
+<p>"Ragnar!"</p>
+<p>Jason felt Ragnar respond to his call immediately, and the large monster fell into the shadow and immediately began making its way towards Jason! Jason brought up another defensive artefact as the Lich unleashed a new volley of spells and the defensive artefact broke to pieces once it was hit with the intense attacks! Jason dashed to the side to avoid getting crushed, and he unleashed a rain of swords on the Lich and forced it to activate it’s own defensive spells! The swords disintegrated the moment they touched the skin of the large ogre and Jason narrowed his eyes as he avoided another attack from it! Jason realised that he couldn’t do any direct damage to that monster, so he kept both the Lich and the monster busy until Ragnar appeared!</p>
+<p>ROARRRR!!</p>
+<p>Ragnar rose out of the ground with a massive roar and spun in the air before it began to head straight for the giant monster with intense speed! The Lich was shocked when he saw the dragon appear out of nowhere, and for a few good seconds, he couldn’t even react at all!</p>
+<p>In this one fight, the Lich had seen Jason use summons, teleportation, high physical strength, flame magic, and now he also had a pocket dimension!? What the actual fuck was this man!? The Lich was a creature that understood the basics of magic very well and he lived by those basics because it was what gave the Lich the power to do research the way he wanted! But at this moment, Jason was breaking all the rules that he had painstakingly learned for so long, and it was driving the Lich mad!</p>
+<p>Ragnar opened his mouth as the giant ogre raised its hand to try and swat Ragnar out of the sky, and the air in front of Ragnar seemed to implode on itself as Ragnar released a mighty blast of fire!</p>
+<p>KA-TOOM!</p>
+<p>The blast flew straight towards the monster’s raised arm, and Jason grinned as he saw the entire arm explode from the impact! The giant arm fell to the ground as it tore off from its sockets, and the giant monster released a loud roar as it held its stump in pain! Jason dashed forward once he saw the monster falling to one knee, and he jumped towards the Lich and grabbed him before he could go anywhere! Jason held the Lich by its skull face and slammed it into the floor before he dragged it across the ground for more than a mile!</p>
+<p>The Lich tried to pry Jason’s arm off, but the Adamantine Suit increased Jason’s strength immensely, and the Lich wasn’t able to even make Jason budge!</p>
+<p>The Lich was actually right about Jason being an enigma. In the world of magic, most people would normally only go into one or two branches of magic and stay there for their entire lives while trying to get as powerful as possible in those branches. A summoner would never think about becoming a brawler because they knew that their subordinates would be the ones fighting for them, so instead, they would focus on trying to make sure their mana level was as high as possible; and in the same way, a brawler wouldn’t learn how to cast large area-of-effect spells because their main focus would be on increasing their physical strength to withstand those kinds of attacks!</p>
+<p>Fighting against Jason was like fighting against a creature that had lived for thousands of years and learned all forms of magic! Especially those summons that he was using! The Lich still couldn’t wrap his head around what those things were! No matter how many times he killed them, they just kept coming back, and they were just like his undead creatures! They didn’t fear death at all!</p>
+<p>’Wait! They don’t fear death! All summoned creatures fear death!’</p>
+<p>The Lich suddenly had to pause as his thoughts went towards Jason’s summoned creatures, and his eyes widened when he realized in shock that those weren’t summoned creatures at all! They couldn’t be alive since they weren’t afraid of death, and the fact that Jason could bring them back so easily only meant one thing! Those were souls! They were the souls of dead creatures!</p>
+<p>’This is what I’ve been trying to accomplish all my life! This bastard is the ideal I’ve been searching for!’</p>
+<p>The Lich glared at Jason heatedly as his hands glowed with the black magic of Necrosis! It wasn’t going to lose this fight! It had to kill Jason and take his power from him! Jason felt the Lich gathering a lot of mana, and Jason raised his fist as he activated a skill!</p>
+<p>[Mana Frenzy] has been activated!</p>
+<p>[The user has sent mana to his hands]!</p>
+<p>KA-BOOM!</p>
+<p>Jason’s fist came down hard, and the Lich let out a cry as he felt his skull crack from the blow! All his concentration was immediately lost, and Jason grinned as the Lich’s mana began to drop again! Behind Jason, Ragnar released another massive blast of fire that completely eradicated the chest of the giant monster, and the Lich spoke with a deep curiosity in its voice.</p>
+<p>"You... You defy the very concept of what magic is meant to be! Even your magic Essence is completely unpredictable! Are you even a real creature!? Wait... this magic essence! An Avaran! So you’re one of those monsters!?"</p>
+<p>Jason’s hand immediately tightened around the Lich’s face, and he watched with some satisfaction as the Lich’s jaw cracked under his power! Jason leaned forward with intensity.</p>
+<p>"What did you call me?"</p>
+<p>The Lich pointed a bony finger at Jason!</p>
+<p>"You’re a monster! An Avaran abomination!"</p>

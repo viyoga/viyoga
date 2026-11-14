@@ -1,0 +1,37 @@
++++
+title = "Chapter 538: Qi Sword"
+weight = 538
+[extra]
+chapter = 538
++++
+
+<p>BOOM!</p>
+<p>The giant robot exploded from Trigon’s attack and finally began to fall to the ground, but at the same time, another section of the [Great Wall] was broken down, and Jason frowned in annoyance. However, Jason’s disappointment didn’t last long as he saw the plasma beams finally die down as the robots went into a cooldown mode! Jason searched through the memories of one of the Machina he had resurrected, and he saw that the robots would need another five minutes before they could release another plasma beam, and Jason’s eyes lit up when he got a message from one of his Rooks! Jason turned to the Varigans and spoke seriously!</p>
+<p>"My subordinates are going to escort you out through the shadows! No matter what you do, make sure you follow them!"</p>
+<p>The Varigans were confused about what Jason meant for a moment, but at the next moment, hundreds of Pawns suddenly appeared from the shadows beneath the Aegis shield and grabbed some of the Varigans before pulling them into the ground! The other Varigans were immediately freaked out by this, but they realised that this was what Jason was talking about and they calmed down quickly! The Pawns hadn’t been able to move through the shadows at all before, but since Trigon just took down one of the giant robots, there was now a small strip of shadow on the ground from the missing light beam, and this allowed Jason’s subordinates to move the Varigans slowly across the battlefield! But since there were thousands of Varigans there, Jason knew it would take a long time before his Pawns could move all of them, so he left the Aegis active and resurrected some of his Pawns with about fifty thousand mana points! This way, even if the giant robots activated their plasma beams again, the Varigans would still be protected! Jason then grinned as he looked towards the largest air carrier and activated a skill!</p>
+<p>[King’s Substitute] has been activated!</p>
+<p>Inside the control room of the largest airship, General Braga watched the carnage unfolding with a condescending look on his face. Braga’s eyes were fixed on where Jason was standing in the middle of the battlefield, and he barked at the engineer beside him and asked how long it would take for the Plasma Beams to reactivate! The engineers said it would only take four more minutes, and Braga frowned as he saw some of the Varigans being moved into the shadows by Jason’s subordinates! But Braga didn’t bother telling anyone to stop what was happening because he knew that there was no way to escape this valley! The Rune that they placed on this region made sure that no one could escape, so even if the Varigans moved away from the battlefield, they would still be inside the Valley, and once the Machina were done killing Jason, the Varigans would be the next to die! But all of a sudden, a loud noise echoed from one side of the control room, and one of the engineers shouted from behind Braga!</p>
+<p>"Sir! A dragon attached itself to the ship! It’s one of the resurrected monsters!"</p>
+<p>Braga growled and commanded the man to use the plasma rifles to kill it! The engineer immediately began to shift the air rifles to attack the dragon, but he was shocked when the dragon suddenly vanished from their camera and was instead replaced by a man. The man turned towards the camera with a wicked grin on his face, and the engineer felt a shiver of fear go down his spine as he shouted!</p>
+<p>"Jason Marc is on our airship!"</p>
+<p>"WHAT!?"</p>
+<p>Braga turned to where Jason had just been, and he was shocked when he saw a dragon standing there instead! What the hell?! How did Jason switch places with the dragon!? Is this another power that we didn’t learn about!? Just how many abilities does this man have!?</p>
+<p>"KILL HIM! KILL HIM NOW!"</p>
+<p>Braga shouted at the engineer angrily, and the engineer typed something into his computer before telling General Braga that there were still three minutes before the giant robots finished their cooldown! But General Braga shouted in irritation!</p>
+<p>"Are you foolish!? We can’t use the Plasma Beams now, it’ll kill us all! Use the Plasma Rifles!"</p>
+<p>The engineers immediately followed the orders, and Jason watched as multiple rifles began to glow with a bright yellow light as they turned in his direction! Jason put his right hand out with his fingers joined together in a sword form, and he took in a breath. This was the first time Jason would be trying this in an actual battle, but he was sure it would work! Since Jason needed to preserve mana as much as possible, he was just going to use another power that he had been training all this time!</p>
+<p>’Hahaha! So you finally decided to use my teachings, boy! I was wondering when you would show them the meaning of true power! Go and preach the gospel of the Eastern Mountain Sect!’</p>
+<p>Esdeath’s voice echoed through Jason’s mind, and Jason grinned in amusement as he switched his power source from mana to Qi!</p>
+<p>[The user has sent Qi to his arm]!</p>
+<p>A massive surge of Qi suddenly flowed out of Jason’s hand and formed into the shape of a large sword, and Jason crouched before swinging his arm around in a perfect horizontal slash!</p>
+<p>[Qi Sword] has been activated!</p>
+<p>SHINK!</p>
+<p>It was like a superheated beam of light that suddenly slashed across the top of the air carrier, and in the next moment, every single plasma rifle erupted into a massive explosion!</p>
+<p>BOOM!!</p>
+<p>The Qi sword managed to destroy all of the weapons that had been aimed at Jason, and Jason turned to the left when he heard voices echoing from there! Multiple Machina soldiers were climbing out from the hatches on the air carrier, and they all pointed large guns at him!</p>
+<p>"Stop right there! You’re under arrest for—"</p>
+<p>SLASH!</p>
+<p>SPLURT!</p>
+<p>Before the man in charge could even finish what he was saying, a beam of light suddenly slashed across his face and a spray of blood and electric static flew through the air before the Machina fell to the floor dead! Jason landed behind the man with his Qi sword still in place and the other soldiers all cried out in fear as they quickly raised their plasma guns and began to fire!</p>
+<p>[Time Dilation] has been activated!</p>
+<p>An intense surge of adrenaline suddenly shot through Jason’s body as the entire world seemed to slow to a crawl! The plasma beams froze in mid-air, and Jason took in a breath as he got into a ready position! Jason only had five seconds before the skill would deactivate, but Jason knew that five seconds was more than enough time! Jason flashed into motion at a speed that was impossible for anyone to follow! The Time Dilation skill worked by giving the user a boost in their natural speed and making them far faster than they would normally be, but it was still heavily dependent on just how fast the user was without the skill! Although Evon was fast without the Time Dilation skill, she was nowhere near Jason’s speed and that was why the skill had only allowed her to equal Jason’s speed during their fight! But now that Jason was the one using this ability, things were completely different! Jason was already unbelievably fast, so using this skill was like putting premium jet fuel into a fucking supercar, and the world around Jason blurred as he dashed towards the Machina!</p>

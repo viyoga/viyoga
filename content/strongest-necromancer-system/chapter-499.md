@@ -1,0 +1,40 @@
++++
+title = "Chapter 499: What Does He Really Want?"
+weight = 499
+[extra]
+chapter = 499
++++
+
+<p>’I don’t know why, but I just don’t like this. Everything about this smells wrong to me.’</p>
+<p>Jason’s instincts were blaring in a way that they never had before! Even though the deal looked appealing and it seemed like accepting it would make things easier for them, Jason just didn’t like it! Beside Jason, Riyala’s mind was racing as she went through every single bit of economic and financial consequence that could come from making a deal like this! Riyala was aware of all the mines that Radagan had, and she knew that dragonstone was the most valuable product that they possessed currently! Radagan as a whole had three major and ten minor dragonstone mines across the world, and the dragonstone gotten from those mines brought in an estimated seven billion gold coins every year! The Yellow Ash Mountains were one of the largest mines they had, and it brought in just over a billion gold coins all on its own every single year, so Riyala knew that giving the mines up for ten years would cover the ten billion gold coins that Earth and Radagan were supposed to pay.</p>
+<p>But the Yellow Ash Mountains were more than just some piece of mining ground. It was a part of their culture, and the area around those mountains was filled with towns that depended on the dragonstone mined yearly to sustain themselves. If they gave it to the Overlord, then all those people living in those towns would have to relocate, and they would lose an essential part of their heritage! Riyala’s hands tightened as her head fell slightly! Riyala knew that this would be a big blow to her people, but wouldn’t this be far better than having to take out five billion gold coins all at once? And the fact that Radagan would be taking on Earth’s debt as well would make things easier for Jason and the people of Earth! This thought made Riyala’s resolve strengthen.</p>
+<p>’The only reason why Jason and Earth are involved in this is because they were trying to help us. If not for them, then we wouldn’t even be sitting here to talk about paying the Overlord. We would all be dead. If I can do this to help Jason, then I’ll do it. This will be good for all of us.’</p>
+<p>Riyala finally let out a breath as her face hardened and she looked up and spoke.</p>
+<p>"We’ll—"</p>
+<p>"We need time to think about it."</p>
+<p>Riyala blinked, and she turned to Jason in shock when he said this! Jason was staring straight at the Emissary with a hard face, and it was obvious that he was dead serious at that moment! Riyala tried to speak, but Jason’s hand on Riyala’s thigh squeezed down slightly to stop her! Jason turned to glance at Riyala and the look in Jason’s eyes told Riyala to calm down and trust him! Riyala swallowed the words she wanted to speak, and she let out a breath before turning to the Emissary silently and nodding to him.</p>
+<p>The Emissary narrowed his eyes at both of them, and for a moment, Jason saw a flash of something pass across the Emissary’s face. The uncomfortable feeling that Jason had been noticing whenever he was in front of Rubik suddenly washed over him again, and Jason tensed in preparation for anything. But the Emissary simply stood and spoke to them.</p>
+<p>"We shall excuse ourselves then. I shall be waiting in the Stone Catacombs for your response. You have until the sun sets on this day to provide me with an answer to give to the Overlord. And for your sake, I hope your choice is a wise one."</p>
+<p>The Emissary turned to leave, and Freya glared at Jason and Riyala in anger before she stood to follow after him. Once they were gone, Jason stood up and spoke.</p>
+<p>"Riyala, what is in those mountains?"</p>
+<p>Riyala blinked.</p>
+<p>"What?"</p>
+<p>"The Yellow Ash Mountains. What is in there?"</p>
+<p>"I—I don’t know what you’re talking about. Those mountains are filled with dragonstone mines. We’ve been mining them for close to five centuries now."</p>
+<p>Jason ran a hand through his hair and frowned at the floor as his mind ran through all the possibilities! Jason knew that there was more to this! There had to be more! There was no way the Overlord was only trying to get Dragonstone out of this deal! Riyala noticed the turmoil going on in Jason’s mind, and Riyala spoke up in worry.</p>
+<p>"Jason, what is going on with you? Isn’t this what you said the Overlord was after? You said he had an ulterior motive for the money. This is an ulterior motive."</p>
+<p>Jason grit his teeth, and even before he spoke his next words, he already knew that he sounded insane.</p>
+<p>"I don’t know. This entire thing just seems off to me. It’s too... clean."</p>
+<p>Riyala stood up with a confused frown.</p>
+<p>"Clean? What are you talking about?"</p>
+<p>"All of this is too clean. What does he mean he wants more dragonstone? Why would he go through all this just for Dragonstone? He could’ve come to you and struck a deal if he wanted to get Dragonstone that desperately. Your people have always been open to trade deals, so he didn’t need to go this far!"</p>
+<p>Riyala went silent when she heard Jason’s logic, and she realised that Jason was making a lot of sense. On the surface, it looked like the Overlord was doing them a favour, but when you look deeper, you would see that the Overlord had gone through one too many steps just to try and get some dragonstone from Radagan. But wasn’t this also a case of simply wanting to get the dragonstone for free? If they struck the deal now, then the Machina wouldn’t have to pay for any dragonstone, so what the Overlord could’ve just been a way to eliminate the cost to his people. Riyala said all this to Jason, and Jason frowned and glared at the ground as he spoke.</p>
+<p>"I don’t know, it just doesn’t add up. Something is off with all this. Do you trust me?"</p>
+<p>Jason looked at Riyala with a hard gaze, and Riyala didn’t even need to think for a second before she nodded to Jason. Jason smiled as he sent out a message to one of his Phantoms while speaking to Riyala.</p>
+<p>"I’m going to head to Radagan and check it out for myself. Try to stall the meeting for as long as you can until I get back."</p>
+<p>Riyala quickly came up to Jason and gave him a soft kiss before Riyala wished him luck and told him to hurry. Jason nodded to Riyala once, and the moment he got the information that his Phantom had reached Radagan, Jason tried to activate [King’s Substitute], but Jason felt his magic whimper and fizzle out from existence as the skill failed to activate, and Jason cursed as he realised the reason for it. This world was actively restricting the use of high-level magic since it was a neutral zone. So the only way you could enter or leave this world was through the same Dimensional Tear at the Pavilion they arrived on. Jason quickly sent one of his Phantoms towards the stone platform where they first arrived, and once it was there, Jason activated [King’s Substitute] again, and this time he was transported to the platform.</p>
+<p>Once Jason appeared at the platform, he saw that one of the Faceless Keepers was standing there with their hands held in front of them. Jason spoke calmly to the Keeper.</p>
+<p>"I need to leave the world for some time. I’ll be returning to complete my meeting with Rubik."</p>
+<p>The Faceless Keeper nodded and stepped to the side to give Jason access to the Dimensional Tear before speaking.</p>
+<p>"Lord C’thlyanu had already informed me of your intended travels, so until the day is over, you are free to return anytime you wish."</p>
+<p>Jason frowned slightly when he heard that! Why would the First Seat in the council already know that he was planning to leave this world? But Jason just figured that C’thlyanu had done the same thing for the rest of the delegates from Earth and Radagan to make things easier, and he didn’t bother to pay it any more attention as he stepped forward and released enough mana to open the Dimensional Tear. The Tear ripped through space, and Jason quickly stepped through to leave the Stone Catacombs.</p>

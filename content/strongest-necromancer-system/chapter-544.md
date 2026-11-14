@@ -1,0 +1,39 @@
++++
+title = "Chapter 544: Pointless Death"
+weight = 544
+[extra]
+chapter = 544
++++
+
+<p>Jason’s subordinate tossed the debris to the side before he looked towards a large pile of debris on the other side of the battlefield. Everyone looked over there as well, and James could only let out a sigh when he saw Jason standing on the ruins of the destroyed air carrier with his hands in his coat pockets. There wasn’t even a single scratch on Jason’s body, and anyone who saw him would never think he had just survived a literal explosion! But the truth was that Jason had actually died in that explosion! Jason knew that using any defensive artefact or rune was only going to be a waste, so he allowed Braga and the other Machina to kill both him and themselves, and then he simply used the [Soul Mate] skill to bring himself back to life afterwards! Jason could only imagine the look Braga would have if he realised how pointless his death was!</p>
+<p>’I’ll stay low for a while and let the rest of the Legion finish the battle. If the Machina think I’m dead, then I won’t have to worry about them chasing me for some time.’</p>
+<p>Jason turned his head towards where the Varigans were standing, and he raised a brow when he felt multiple Varigans with mana swirling inside their bodies. So they really became superhumans.</p>
+<p>[King’s Substitute] has been activated</p>
+<p>Jason suddenly appeared beside James, and James took a step back in shock before letting out a breath when he remembered that this was just one of Jason’s abilities. James quickly came up to Jason and began telling him what happened with Haruto and Rei! They were sucked into that strange Orange Circle, and Jason’s Legion wouldn’t allow the other soldiers to enter to rescue them! Jason just shook his head.</p>
+<p>"You don’t need to worry about them. They’re not alone in there, so they’ll be fine. Actually, they’re doing pretty well for new superhumans."</p>
+<p>"Superhumans?"</p>
+<p>James was confused about the term used, and Jason just gave him a basic rundown of what a superhuman was. James looked over at the girl who had protected him, and he realised that she was also a ’superhuman’. So some humans were going to be gaining powers? Does that mean he might also gain powers? Jason told James that only young people around sixteen to seventeen tend to gain power, and he ignored James’ slightly disappointed look while watching what was going on with Haruto and Rei through [Eye of the King]. It turns out that Haruto and Rei were doing more than just ’alright’. They had both awakened abilities inside the Gate, and from what Jason could see, they were both fairly strong for new awakeners. Rei had a fire-based ability that allowed her to create long flaming whips from her mana, but Haruto’s ability was a little more complicated. It looked like his main ability was a strength boost that boosted his base strength by a large margin, but Jason also noticed that he was actively repelling any form of magic around him, almost like some sort of anti-magic rune had been carved into his body. Jason realised that Haruto’s ability might just make him one of the most powerful people in this world if he trained it properly.</p>
+<p>’Anti-magic is something that can throw off even the strongest mages. If no magic works against him, then everyone will be forced to use their physical strength or weapons to fight him, and if his strength boost becomes as powerful as I know it can be, then there’s no way he’ll lose. He should be around B-Rank right now, but he might even become an SS-Rank in a decade or so. Not bad.’</p>
+<p>Jason made sure that both Haruto and Rei would be just fine before he told James and the others not to worry. His subordinates would bring them back once they killed the boss in the Gate. The Varigans were still confused about what Jason meant by a boss, but they accepted Jason’s words since they knew they could trust Jason! Jason then looked towards the battlefield that was still echoing with massive explosions and plasma fire! Jason’s Legion was still battling against the Machina on the ground. There had been losses on both sides, but it looked like they were still more than capable of continuing for even longer.</p>
+<p>Up in the sky, Gina was giving the rest of the air carriers one hell of a battle! There was a massive tornado raging across the sky, and the air carriers were flying around it and firing their plasma rifles at Gina! Gina, meanwhile, had a wide smile on her face as she easily evaded all of them! Gina didn’t know why, but ever since Jason asked her to marry him, there had been this intense, giddy excitement inside of her that made everything seem so much easier! Even now that Gina was in a literal life-threatening situation, she didn’t feel even the slightest bit of fear! Instead, she could only think about ending this as quickly as possible so she would return to Jason’s side!</p>
+<p>Lightning flashed through the sky before a clap of thunder echoed, and Jason grinned when he saw Gina’s body twisting into a sudden corkscrew that created hundreds of circular wind blades all around her! The wind blades were spinning at an unbelievable speed, and once the air carriers were close, Gina unleashed the wind blades into the tornado! The wind blades were immediately sucked into the vortex created by the twister, but they were moving so fast that they had far too much momentum to be kept within the vortex, so they were immediately shot out in every direction like bullets! The air carriers that had been chasing Gina had also been trapped in the tornado’s vortex, so the moment the wind blades shot out, the first thing they ran into were the air carriers!</p>
+<p>Slash! Slash! Slash! Slash! Slash!</p>
+<p>BOOOM!</p>
+<p>A massive explosion lit up the sky, and Jason chuckled. Gina was really becoming comfortable with controlling the extra power she gained from being his subordinate, and the way she was going, Jason knew it was only a matter of time before she reached the TITAN Rank as well!</p>
+<p>’My King, the Rune Sequence is ready. I have synced the anti-rune sequence to your mana signature, so you should be able to break the rune by simply applying an excess of mana to it.’</p>
+<p>A voice suddenly echoed through Jason’s mind, and Jason hummed. Finally! Jason had been standing back all this time because he wanted to make sure he got rid of this rune before doing anything else, so he was glad that he could finally finish this!</p>
+<p>Ding!</p>
+<p>Jason raised a brow when he heard the system bring up a notification and he grinned when he read what was on it!</p>
+<p>[The subordinate [Azrael] has reached the required Hierarchy Level for an upgrade.]</p>
+<p>[Would the user like to send upgrade points to Azrael? Yes/No?]</p>
+<p>Jason immediately chose yes! Jason had been waiting for this upgrade notification for a very long time now! Azrael seemed to have a very slow hierarchy progression mainly because he wasn’t a frontline fighter like Ragnar or Gina, who were always facing the enemy directly, but Jason knew that Azrael was one of the most important members of his Legion! Not only was Azrael his Rune Teacher, but many of the plans that Jason carried out wouldn’t be possible without Azrael creating specific runes that would help out with those attacks! If there was one subordinate that definitely deserved an upgrade, then it was Azrael.</p>
+<p>Once Jason gave his permission, the system transferred the required upgrade points over, and Jason could feel his own power growing stronger as Azrael advanced in rank.</p>
+<p>——</p>
+<p>[Azrael]</p>
+<p>[Bishop Rank I]</p>
+<p>[Hierarchy Level: 4 [0%]]</p>
+<p>[Subordinate Count: 0/150]</p>
+<p>[Upgrade Points: 0/1000]</p>
+<p>[Upgrade Limit: Knight Rank III]</p>
+<p>[Independent Action: A-Rank]</p>
+<p>[MP: 300,000]</p>

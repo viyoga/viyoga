@@ -238,6 +238,7 @@
     {% set reborn = get_section(path="reborn-rich-the-youngest-son-of-a-japanese-conglomerate/_index.md") %}
     {% set director_favors = get_section(path="i-became-a-director-who-received-sexual-favors/_index.md") %}
     {% set dominator = get_section(path="dominator-of-the-imperial-academy/_index.md") %}
+    {% set necromancer = get_section(path="strongest-necromancer-system/_index.md") %}
     {% set_global ri_n = 0 %}
     {% for sub in ri.subsections %}
       {% set vol = get_section(path=sub) %}
@@ -281,10 +282,10 @@
       {% set vol_n = vol.pages | length %}
       {% set_global hos_n = hos_n + vol_n %}
     {% endfor %}
-    {% set shotk_n = shotk.pages | length %}
+    {% set shotk_n = (shotk.pages | length) - 1 %}
     {% set hearth_n = hearth.pages | length %}
     {% set ima_n = ima.pages | length %}
-    {% set tcdg_n = tcdg.pages | length %}
+    {% set tcdg_n = (tcdg.pages | length) - 1 %}
     {% set ptg_n = ptg.pages | length %}
     {% set golden_n = golden.pages | length %}
     {% set cuck_n = cuck.pages | length %}
@@ -297,12 +298,13 @@
     {% set system_villain_n = system_villain.pages | length %}
     {% set reborn_n = reborn.pages | length %}
     {% set director_favors_n = director_favors.pages | length %}
-    {% set dominator_n = dominator.pages | length %}
+    {% set dominator_n = (dominator.pages | length) - 1 %}
+    {% set necromancer_n = necromancer.pages | length %}
     {% set ch_n = chapters.pages | length %}
-    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + hos_n + shotk_n + hearth_n + ima_n + tcdg_n + ptg_n + golden_n + cuck_n + asc_n + villain_n + friendly_n + netori_n + primordial_n + villain_heroines_n + system_villain_n + reborn_n + director_favors_n + dominator_n %}
+    {% set all_n = ch_n + ri_n + lotm_n + md_n + wn_n + idiot_n + nfu_n + bk_n + meta_n + trial_n + pride_n + odyssey_n + lith_n + hos_n + shotk_n + hearth_n + ima_n + tcdg_n + ptg_n + golden_n + cuck_n + asc_n + villain_n + friendly_n + netori_n + primordial_n + villain_heroines_n + system_villain_n + reborn_n + director_favors_n + dominator_n + necromancer_n %}
     <div class="stat-card">
       <div class="stat-top-bar"><span class="stat-indicator">●</span> ARCHIVE</div>
-      <div class="value">31+8</div>
+      <div class="value">32+8</div>
       <div class="label">Novels &amp; Tools</div>
     </div>
     <div class="stat-card">

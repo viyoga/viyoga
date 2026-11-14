@@ -1,0 +1,39 @@
++++
+title = "Chapter 270: The Black Dome"
+weight = 270
+[extra]
+chapter = 270
++++
+
+<p>The rest of the superhumans in the city were not faring as well as the two S-Rank Enforcers! Liam was inside a high-rise building a few miles away from the battles between the Agiel and the dragon, and he was crouching behind a sturdy desk as he peeked out the glass wall behind him at the burning city! There were various superhumans lying with injuries around him, and the healers in the group were trying their best to close up any serious injuries that they couldn’t leave for later. Things had not been going the way Liam thought they would at all! Liam’s plan today was for him to finish the raid on the BloodRaven Guild and then go straight back home to sleep for the next week, but all that was thrown to hell the moment Jason told him about the Yellow Gate! But did Liam complain about the sudden Gate!? No! He fucking didn’t! In fact, Liam immediately took a flight and came to New Jersey because he knew that the city was more important than his rest!</p>
+<p>Liam knew that this would be a difficult day, but he thought it would be just like any other regular Gate raid, where they would send in strong superhumans to kill the monsters and close the Gate! But of course, things couldn’t be normal! Nothing was normal in this fucking world anymore!</p>
+<p>ROARRR!</p>
+<p>A loud roar echoed through the city, and Liam put his hand over his head as he felt an explosion sending tremors across the ground! The explosion shook the building down to it’s foundation and Liam waited until it died down before he looked out from the glass wall, and he saw the silhouette of a giant dragon flying past the building quickly! Liam cursed as he felt fear fill his heart!</p>
+<p>’Where the fuck are you, Jason!? We’re all going to die here!’</p>
+<p>Liam grit his teeth in anger at his own weakness! He was currently using every last drop of mana he had to support the healers who were helping the injured superhumans, but Liam knew that he wasn’t actually doing much! A single dragon attack on this building would end all of them before they could even think of moving! Liam grabbed his phone to begin making a call to his brother, but an SMD agent suddenly crawled close to him and spoke with a look of urgency on her face!</p>
+<p>"Sir! We just got off the phone with another Enforcer! They sent more reinforcements, but they couldn’t get into the city!"</p>
+<p>Liam turned to her sharply and snapped at her in anger!</p>
+<p>"WHAT!?"</p>
+<p>The woman flinched when she heard the anger in his voice, but she understood that he was just tense, so she tried her best to calm down and explain properly!</p>
+<p>"They said there was some sort of forcefield blocking them from entering! I don’t know what exactly they were talking about, but it might have been the magic beasts that did it! Even the helicopters can’t fly in!"</p>
+<p>Liam felt a loud curse rising from deep in his heart when he heard this, but he suddenly heard another loud roar from outside, and he ducked as the entire building shook from another explosion!</p>
+<p>Liam wondered what the Enforcers meant by they couldn’t come in! If they don’t get more S-Ranks here, then they are all going to die! There were five dragons that came out from the Yellow Gate earlier, and Liam knew that two of them were being kept busy by Luthor and Agiel. The third and fourth dragons were being kept busy by Keith and some of the other Enforcers and SMD agents who were strong enough to handle themselves, but the last dragon didn’t have anyone to hold it back, so it was currently flying around freely and destroying everything in its path! This wasn’t even a battle anymore! It was a one-sided massacre!</p>
+<p>"Give me that fucking phone!"</p>
+<p>Liam took the phone from the SMD agent, and he immediately put a call through to the Enforcers who were outside the city. The Enforcer picked up on the second ring, and Liam shouted.</p>
+<p>"What the fuck is the problem!?"</p>
+<p>The Enforcer on the other side of the phone was standing on top of a tall skyscraper and glaring at a group of people that were standing a few buildings away from him. There was a single woman holding a magic staff with her hand raised over the city, and five men were standing around her and protecting her from anyone who came close. That woman was doing something to the city that prevented anyone from seeing what was happening in there and also blocked them from getting inside. The Enforcer had tried speaking to the five men, but none of them would say anything to him! He would have fought them, but he got a call from his superior, and the superior told him that he should allow the men and woman to do whatever they wanted!</p>
+<p>The shield covering the city was some sort of large black dome. They already tried to enter the dome, but they just ended up reappearing on the other side of the dome like they had teleported, so it was obvious that their hands were tied! The Enforcer spoke to Liam in an annoyed tone!</p>
+<p>[We can’t get in, sir.]</p>
+<p>"What do you mean you can’t get in!? People are dying here!"</p>
+<p>[I’m sorry, sir, but there are some people blocking off the city here. They used a Gift to prevent us from entering, so there’s nothing we can do.]</p>
+<p>Liam’s brow furrowed once he heard that, and he immediately asked who the fuck was blocking the city. The Enforcer’s eyes narrowed, and he spoke with some skepticism in his tone.</p>
+<p>[I don’t know who exactly they are, sir. But my superior only gave me a single name: Gaia.]</p>
+<p>Liam immediately became just as confused as the man! That name meant nothing to him, and none of the organisations he knew had a name like that!? But they had to be a high-level organisation for them to be able to quarantine a city like this, and Liam didn’t need to be a genius to know exactly what was happening! The government was blocking off the city to make sure the damage didn’t spread to any other part of the country. They were leaving them here to die!</p>
+<p>"Those fucking bastards!"</p>
+<p>BOOM!!</p>
+<p>Another explosion went off outside the building, and Liam had to duck once more as the entire building shook from the force! Liam turned around again to make sure that the dragon wasn’t coming towards their building, and he handed the phone back to the SMD agent and told her to call the higher-ups. If they could get a message to the Chief Commander of the Enforcers, then they might be able to get the Enforcers inside! The woman nodded, and she went to make the calls, and Liam immediately grabbed his phone and put a call through to his brother. The phone rang for a few seconds before Keith picked up and spoke in a low voice.</p>
+<p>"Liam, this really isn’t a good time."</p>
+<p>On the other side of the phone, Keith was hiding behind a large wall inside a destroyed building with close to twenty other superhumans around him! The screams of retreating superhumans could be heard all around them, and Keith tried his best to catch his breath before he would have to get back into the fight! Keith turned to the side slightly to look behind him, and he saw a large silhouette coming towards them from the distance! The dragon and its rider were currently looking for them, but they were being kept hidden by the Gift of one of the superhumans around there! There was another group of superhumans hiding about a mile away from Keith, and Keith cursed when he saw the dragon turn in their direction once it saw them!</p>
+<p>"I have to go, Liam!"</p>
+<p>Keith cut the phone as he dashed out from behind the pillar and gathered all the sand around him! The dragon opened its mouth and prepared to unleash its flames on the group of superhumans, but Keith formed his sand into a long polearm, and he threw it straight towards the dragon’s eyes with a shout!</p>
+<p>BOOM!</p>

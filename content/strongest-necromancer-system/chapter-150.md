@@ -1,0 +1,37 @@
++++
+title = "Chapter 150: The Santos Twins II"
+weight = 150
+[extra]
+chapter = 150
++++
+
+<p>Naomi finally opened the large doors and the teenagers all gasped in awe.</p>
+<p>The room was extremely large, and it took up the entire length and breadth of the building floor! There were multiple seats on one side arranged like chairs in a lecture hall, and beside the chairs were a few men and women in lab coats who were taking readings and writing things down on pieces of paper. And opposite the scientists, on the other side of the room, was a large Red Gate.</p>
+<p>The Red Gate swirled and churned with otherworldly power, and all the students couldn’t help but stare in awe and shock at the sight in front of them! There was an intense wind blowing through that side of the room where the Red Gate was, and the students all knew this was the suction property they had seen from other Gates. If they got too close to the gate, it would easily drag them in!</p>
+<p>Jason looked at the Red Gate in slight surprise, and the only thought on his mind at that moment was how the hell they managed to get a Red Gate all the way up here! Jason had heard about Gates opening inside buildings before, but this Red Gate was too perfectly positioned for it to have just appeared here randomly! And the fact that it appeared at the exact moment when they were going to be doing their assessment only made it look more suspicious!</p>
+<p>"Did they open a Dimensional Tear?"</p>
+<p>Jason asked this to the system, and the system came back with an answer immediately.</p>
+<p>[Yes, the system believes that this Red Gate was artificially created by forcing open a Dimensional Tear and leaving it for a sufficient amount of time in order for it to develop into a Gate.]</p>
+<p>Jason hummed at the explanation and turned away from the gate. What the system just said told Jason that the government knew a lot more about Gates than what they had been telling the public all along. When Jason was just a regular human, he thought that Gates were something that only appeared randomly, and he was sure that everyone else believed the same thing since the government never tried to educate the public on Dimensional Tears or the existence of other worlds. But now, seeing all the things that the government was involved in, he knew the public was being kept in the dark on purpose.</p>
+<p>Jason could only wonder how many otherworldly beings had come to Earth and how the government managed to hide their existence for so long. Jason wouldn’t be surprised if there was some lab filled with aliens that the government was experimenting on like some sort of torture chamber!</p>
+<p>Jason chuckled at that thought, but he wouldn’t know just how close he was to the truth until much later.</p>
+<p>Jason’s eyes narrowed as he suddenly turned to the side when he felt a pair of eyes staring at him. On the other side of the room, where the scientists were standing, there were five men and three women who didn’t look like they belonged there. They were all wearing regular civilian clothing and had bored looks on their faces as they waited for the teenagers to stop gawking at the Red Gate.</p>
+<p>However, Jason was able to pick out two people immediately he had met once before. The brother and sister pair that Jason had been introduced to by the female Director of the SMD, Millicent. Ricardo and Rosa Santos were staring at Jason from a distance. Ricardo was leaning back against a table with his leg crossed, and there was a small grin on his face as he stared Jason down while Rosa looked slightly curious and her eyes were narrowed in interest toward Jason.</p>
+<p>Jason kept his eyes on them for a few seconds before he turned away. He knew that there was something off about that pair, and he was going to have to watch his back when he went into the Gate for the assessment. There was no doubt that they would try something stupid.</p>
+<p>Naomi spoke up from in front of the students while telling the men and women standing with the scientists to come closer.</p>
+<p>"Today, your assessment is going to be simple. You will be required to go into the Red Gate and kill as many Magic Beasts as you can."</p>
+<p>"What!?"</p>
+<p>"Really, they want us to kill Magic Beasts already!?"</p>
+<p>"I just learned how to use my powers!</p>
+<p>"I’m still an F Rnak! I can’t handle monsters in a Gate!"</p>
+<p>"They’ll kill us!"</p>
+<p>Some of the students began to murmur in shock once they heard what Naomi said! Although Jason was very experienced, the same could not be said for the other new awakeners! Most of the people who awakened would go to Core City for a short time where they would barely fight against any monsters for their entire time there! They were all low-ranked and they didn’t even have the tiniest hope of standing up to a monster yet! The new awakeners all knew that trying to kill a Magic Beast with their Gifts that were barely E to D Rank would be suicide!</p>
+<p>Naomi looked over the group for a few seconds and waited for them to calm down before she spoke again.</p>
+<p>"I understand you are all surprised, but please try to listen to everything I have to say before making any comments. Now, like I was saying, you will be scored based on how many Magic Beasts you can kill, but that will not be your only method of grading. I never said you had to kill the Magic Beasts on your own. As new superhumans, you will be joining a guild, and you will be required to work in teams to dive into Gates. Therefore, you will also be graded on how well you work as a team with the other superhumans as well as how skillful you are at utilizing your Gift to its fullest potential. These SMD agents have volunteered to stand in as judges and overseers for your assessment. Please keep in mind that they are there for your protection, so make sure you obey everything they tell you to do regardless of your personal opinion on the matter."</p>
+<p>Naomi glanced around at the teenagers and made sure they all understood what she was saying. Her eye lingered on Jason a little longer than it did on the others, and Jason didn’t bother reacting to her words since he was too busy paying attention to the siblings. Ricardo and Rosa were standing with the other SMD agents, but they were speaking in hushed whispers while glancing at Jason.</p>
+<p>Ricardo was giving Jason a grin with his hands folded, and Rosa was leaning close to Ricardo and talking to him while glancing over at Jason every now and then. They were far enough that Jason couldn’t hear what they were saying, but the longer Ricardo heard his sister talk, the more strained his smile got.</p>
+<p>"Are you listening to me?"</p>
+<p>Rosa whispered to Ricardo when she didn’t get a response from him, and Ricardo huffed while narrowing his eyes dangerously.</p>
+<p>"I heard what you said, but it makes no sense. Why should we call off the mission?"</p>
+<p>"Can’t you feel what I’m feeling?"</p>
+<p>Ricardo raised his brow at his sister. She was still standing just behind him with her shy demeanor since she didn’t want the others to pay much attention to her, but there was a rare serious look on her face as she glanced over at Jason. Ricardo knew that Rosa had always been the more sensitive one out of both of them. She could feel mana better than he could since she spent so much time training on how to move her mana. But her actions right now were just too strange.</p>

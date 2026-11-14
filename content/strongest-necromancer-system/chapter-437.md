@@ -1,0 +1,40 @@
++++
+title = "Chapter 437: A Refreshing Sight"
+weight = 437
+[extra]
+chapter = 437
++++
+
+<p>The water rose and surged towards the bridge, but a massive wall suddenly formed over the bridge, and Yuslev was shocked when his water slammed into a wall made from pure wind! Yuslev had put a lot of force into his attack, so he was shocked that anyone was able to stop it! Yuslev looked up at the woman floating over him, and he felt his anger rising even more! The winds blowing around Gina made her hair and clothes flap in the air, and she had a condescending look on her face as she stared down at Yuslev. Yuslev immediately turned his full attention toward her! It was obvious that he had to take care of her before he could do anything else!</p>
+<p>"Do you know who you’re going up against right now? I am Yuslev, one of the five Rulers! You don’t stand a chance against me!"</p>
+<p>Yuslev shouted up to Gina in confidence, and he snarled when Gina didn’t say anything in return! Gina’s condescending look made Yuselv’s blood boil in anger, and Yuslev roared as he swung his arm up at her!</p>
+<p>WOOSH!</p>
+<p>A wave of water flashed out from the ocean and shot towards Gina at sonic speed! As the water flew, it slowly solidified into icicles that were sharper than knives, and they all flew at Gina like spears! Yuslev raised his other hand and prepared to unleash another attack the moment Gina dodged this one, but he felt his eyes widen when Gina didn’t move at all! What the hell was she doing? Does she know she was going to die—!?</p>
+<p>Woosh!</p>
+<p>Gina waved her hand to the side, and all the icicles that were racing towards her suddenly shattered into millions of pieces and fell around her like rain, and Yuslev felt his heart skip a beat! Yuslev could tell that Gina had not bothered to use her gift at all at this moment! She had broken his attack using nothing but her own high defensive stats!? For the first time since he started his movement, Yuslev felt a strange emotion bubbling from deep inside him, and it didn’t take him long to realize what that feeling was. Yuslev was scared.</p>
+<p>"By the time I am done with you, you won’t dare to cross my path even after you’re dead."</p>
+<p>DOON!</p>
+<p>Gina’s mana doubled in intensity as she called on the winds all around her, and the winds surged towards her and formed into a massive typhoon! Yuslev put his hand up to his face as he started to call on his mana as well to form a defense, and Gina’s face twisted into a hateful sneer as she slashed her hand towards Yuslev! A massive wind blade shot out of the air and sliced its way towards Yuslev, and Yuslev brought up a wall of water that immediately solidified into ice!</p>
+<p>WOOSH!</p>
+<p>SLAM!</p>
+<p>Yuslev grunted as the windblade destroyed his icewall and pushed him back, and his eyes widened when he saw Gina floating over him with her hand drawn back!</p>
+<p>"Just die, you bastard."</p>
+<p>Gina brought her hand down, and Yuselv cursed as a giant ball of wind slammed him into the water!</p>
+<p>BOOM!</p>
+<p>...</p>
+<p>[Core City]</p>
+<p>[A Few Minutes Before the Attack on the LA Bridge]</p>
+<p>Jason and Agiel rose from the shadows inside a large office in the heart of Core City. The office was located at the tallest tower in the city, and there were glass windows all around the office walls that allowed them to have a full view of the city from up here. There were various Enforcers and Core City officials standing inside the room, and the moment Jason appeared, they all began to murmur among themselves.</p>
+<p>"Hey, look over there. He’s here."</p>
+<p>"That’s Jason Marc? He looks so young."</p>
+<p>"Shouldn’t he be here in school?"</p>
+<p>"Mr. Jason, Officer Agiel, I tried my best to gather as many agents as possible after your call. What do you need us to do?"</p>
+<p>The last person who spoke was a young man wearing the black uniform of the Enforcers. This man was an A Rank and the head of the military force here in Core City. He had been shocked when he got a call from Agiel telling him that she would need him and his department to meet her here for a mission, and he could only wonder what could have made someone as important as Agiel contact him like this! Agiel looked the man over with an appraising gaze before she looked at all the other gathered officers. Anyone that she looked at would immediately stand straighter since they could tell that she was appraising them, and it wasn’t until she was done looking them over that she finally spoke to them.</p>
+<p>"There’s a terrorist organization targeting Core City, and we plan to stop their attack..."</p>
+<p>Shock spread out over the faces of all the gathered agents, and Jason turned away from the conversation and looked out into the city below. Core City had been developed by the American Government about eight years ago after the world was introduced to superhumans, and it stood as the most prestigious academy in the world for training young and aspiring superhumans who were interested in using their abilities to dive into gates. The entire city had been built over one hundred and fifty thousand square feet of land, and it was so large that it had been granted sovereignty from any other state in the country, and the city on its own served as one of America’s states! Inside this city were businesses, hospitals, fire brigades, and multiple residential areas for all the students who would call it home until they graduated!</p>
+<p>In truth, Jason knew that he should have also come to this school after awakening his powers. Gina had come to Core City for a year after she dropped out of high school, and that was where she learned how to control her powers before joining the Panthers guild, but Jason didn’t have any chance to join the school, mainly because he was already eighteen by the time he gained his powers, so he didn’t need to go to the school anymore since he was already an adult. But another reason was because Jason never bothered trying to join any guild. Most guilds would ask for a Core City certificate before they could take you in, but since Jason had just been diving solo into gates, he never needed the certificate!</p>
+<p>Jason looked down at all the people moving around the ground below. It was very different from what Jason was used to.</p>
+<p>Woosh!</p>
+<p>Jason blinked in surprise as someone flew past the glass window at sonic speed. It was a young girl riding on a freaking broom of all things, and Jason scoffed in amusement as he watched her go. Jason looked down at the streets again, and he saw someone sliding across the ground on roller skates made from ice. There was a girl who was being carried by her extremely long, spider-like hair, and another boy was walking on the road normally, even though he was wearing blindfolds that should’ve prevented him from seeing! This was Core City, so every single person in here was a superhuman who had been training on how to use their powers for a long time now! Core City allows its students to use their powers anytime they want inside the city borders, and this allows the students to learn very quickly since they could always learn new ways to apply their powers while using them. The students were all heading to class or going back to their dorms, and Jason couldn’t help the small smile on his face when he watched them. It wouldn’t have been so bad if he had come here for a few years with Gina. Seeing people using their powers so openly was very refreshing.</p>
+<p>"Jason, the agents are moving out. They’ll collect the bodies after you’re done."</p>
+<p>Agiel spoke up from behind Jason, and Jason turned around to see that all the officers were rushing out of the building quickly. It seems Agiel had gotten them up to speed, and they finally understood how serious the situation was. Jason knew that capturing the suicide bombers was pointless since they were just pawns, so he planned to kill all of them before any of them could activate their explosion, and the officers were only here to gather the dead bodies.</p>

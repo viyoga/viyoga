@@ -1,0 +1,39 @@
++++
+title = "Chapter 762: Princess Leanor"
+weight = 762
+[extra]
+chapter = 762
++++
+
+<p>"What the fuck is that look for?"</p>
+<p>Jason asked this with a frown, and Farlow just laughed slightly before shaking his head.</p>
+<p>"You Marc men are so alike that it scares me sometimes. Your grandfather and your father both did the same thing as well. Your grandfather impregnated my aunt before they could get married, and your father impregnated three of his wives before they got married as well. Your Avaran blood is just too vigorous."</p>
+<p>Jason scoffed when he heard this, and he didn’t bother to respond to Farlow’s perverted joke. Instead, Jason looked over at Gina, and he saw the tired lines under her eyes and the exhaustion that was showing on her face, and he decided that they needed to go get some rest. Jason stepped forward and spoke to Camille in a calm voice.</p>
+<p>"Your highness, sorry for interrupting, but I think Gina and I need to get some rest before the festival tonight, and you look like you need to get some sleep as well."</p>
+<p>Queen Camille put her hands over her mouth once she heard this, and it was only now that she noticed the tired lines on Gina’s face and her dirty appearance! Gina had come to see the Queen straight from her battle against the Valkan as well as her meeting with the Spirit Queen, so it was obvious that Gina was exhausted! Queen Camille spoke up in an apologetic tone!</p>
+<p>"Oh, I’m so sorry! I was just so excited to talk to Gina that I forgot to be a good host. Please accept my apology, Prince Jason."</p>
+<p>"Just Jason is fine."</p>
+<p>Jason said this with a smile as he held his hand out to Gina, and Gina took it thankfully and stood up. Queen Camille smiled as she responded.</p>
+<p>"Well, if I get to call you Jason, then please call me Camille. Your family and ours have become intertwined for all eternity, so I think it is only right that we become friends."</p>
+<p>Jason nodded his head in grateful acceptance, and then he turned as Farlow called out to someone outside the room.</p>
+<p>"Leanor, please come in."</p>
+<p>The door opened to reveal an elf woman dressed in royal attire. The elf woman had long blond hair just like the other members of the royal family. She was exceptionally beautiful, and she had a grace and poise that would put most other women to shame! Anyone who saw her would be able to see the obvious resemblance between her and Camille! This was the third child and first princess of the Arandelle Royal family, Princess Leanor. The moment Leanor entered the room, her gaze immediately travelled towards her mother, and tears gathered in her eyes! Camille spread her hands out for her daughter, and Camille collapsed into her mother’s embrace with a teary smile on her face!</p>
+<p>"I missed you so much, mama."</p>
+<p>Leanor had an airy, enchanting voice that Jason knew would be very good for singing, and he just waited patiently for the mother and daughter to finish their greetings before Farlow finally spoke up again.</p>
+<p>"Leanor, please show Jason and Gina to a room in the castle for them to rest. They’ve had a long day, so it’s best they freshen up before the festival. The preparations for the festival are already underway, and we’ll be sure to inform you once the activities begin."</p>
+<p>Farlow said that last part to Jason and Gina, and both of them nodded thankfully to him. Leanor finally seemed to get herself back when she heard her father’s voice, and she quickly composed herself once again as she realised that Jason and Gina were also in the room! Leanor stood regally, and then she gave a respectful curtsy to the two guests.</p>
+<p>"Lord Jason, Lady Gina. First, allow me to express my eternal gratitude for what you’ve done for my family. Words can never describe the favour you have shown us. My name is Leanor, and I am the first princess of the kingdom of Arandelle. It would be my pleasure to be your guide for the remainder of your stay in our kingdom."</p>
+<p>Jason nodded to Leanor with a small smile, and Gina told Leanor not to be so tense. Leanor blushed slightly at Gina’s words, and she finally managed to relax a bit before she smiled back at them as well. For a split second, Gina noticed Leanor’s eyes trailing towards Jason and looking at him for longer than was necessary, and Gina chuckled internally at the obvious interest.</p>
+<p>’She had a crush on you.’</p>
+<p>Gina suddenly spoke to Jason through their mental link, and Jason raised a brow at her before looking over at Leanor as well. Leanor was no longer staring at him, but once Leanor noticed him looking, she turned to him and smiled beautifully. Jason wasn’t so sure about Leanor having a crush on him, and he spoke as they followed Leanor out of the room.</p>
+<p>’Why do you think so?’</p>
+<p>’Don’t you think it’s weird that a princess would come to escort us like this? You would usually send a servant to do this sort of thing, or even one of the high-ranking guards in the kingdom. I think Leanor asked Farlow to make her our escort so she could introduce herself to you.’</p>
+<p>Jason just scoffed in slight amusement. Jason knew that Gina was far more sensitive to these sorts of things than he was, since she was a woman. Gina could pick out any woman who was interested in him without even trying! After all, Gina was able to figure out that Hesbeath was in love with him long before Jason realised it! So if Gina thought Leanor had a crush on him, then there was a chance that it was true. Jason was about to say something to Gina, but he turned as he heard Leanor speaking from in front of them.</p>
+<p>"Uhm, Lord Jason, I heard a lot about your recent battles against the Machina and your journey through the Primordial Expanse. I’ve always had a great admiration for grand tales from the Period of Lawlessness, and I can’t help but think your tales are even grander in comparison! But it must’ve been very terrifying to fight against an entire world."</p>
+<p>Jason shook his head and answered calmly.</p>
+<p>"Not really. I just did what I had to do."</p>
+<p>Leanor turned slightly to glance at Jason with a small blush, and she put both hands behind her back as she spoke in a kind voice.</p>
+<p>"I don’t really know much about the other worlds around us since I’ve spent most of my life in Arandelle. I’ve only ever travelled through the Primordial Expanse through stories I’ve read. But I think what you did was very heroic. You were willing to go to war against an entire world for your family. That... that was very inspiring."</p>
+<p>Jason hummed with a small smile as they finally arrived at their room, and Leanor stood to the side and curtsied to them while allowing them to enter the room. Jason and Gina thanked Leanor for her help, but just before Jason could close the door behind him, he heard Leanor speak up again in a louder voice.</p>
+<p>"Uhm, My Lord! I-I know there has been a lot of backlash from people who don’t support you, but I just wanted you to know that I think what you did was very honorable and brave! I think you deserve to be called a hero, and I will always support you! P-Please have a good rest!"</p>
+<p>Leanor quickly turned and speed-walked away before Jason could even say anything, and Jason turned to the side and rolled his eyes in amusement when he saw Gina giving him a cheeky smile. Alright, fine, maybe the princess had a little crush on him. Jason just hoped that Farlow didn’t try to come up with some stupid engagement suggestion to help ’strengthen the bonds’ between their families. Jason didn’t mind girls having crushes on him; it was normal for people to have affection for the people they looked up to, and Jason had gotten used to the attention, but he wasn’t going to tolerate any arranged marriages just for some silly alliance.</p>

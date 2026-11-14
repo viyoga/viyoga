@@ -1,0 +1,38 @@
++++
+title = "Chapter 1081: The Price of A Billion Lives"
+weight = 1081
+[extra]
+chapter = 1081
++++
+
+<p>Jason turned away from Baron Skarr and looked ahead as another person spoke up.</p>
+<p>"I too am in support of Jason’s plan. I have lost much from the Celestial’s presence. If you can stop its advance before it destroys any more of my domain, I will grant you anything that you wish."</p>
+<p>Everyone turned to look at the Overlord of the Ninth Domain, Kalum! Kalum had a deep frown on his face as he regarded the entire room, and everyone could see just how exhausted Kalum was by the dark circles around his eyes and the invisible weights on his shoulders! It felt like Kalum hadn’t even closed his eyes in days!</p>
+<p>Kalum’s domain was the first place where the Celestial of Death appeared, and Kalum was the Overlord who had been doing the most work to try and evacuate as many people from the Celestial’s path as possible. But even though Kalum had been working overtime to make sure his people survived, there were still billions of people dying every day to the Celestial of Death! Kalum just couldn’t save everyone! So if there was a chance that Jason could stop this madness once and for all, then Kalum would grab it with both hands!</p>
+<p>"The Celestial of Death has ravaged close to a thousand worlds in my domain. I managed to clear the path so that none of the important races would be eradicated, but the damage is still substantial, and hundreds of billions have died. Right now, the celestial is closing in on the eighth domain, and it will continue its reign of terror there as well. We cannot be hesitant about taking advantage of any possibility that arises."</p>
+<p>"Don’t you mean taking advantage of someone’s life?"</p>
+<p>This time it was Val’kat, the goblin leader of the fifth domain, who spoke up again, and everyone turned to look at him curiously. Val’kat had his usual frown in place, and he spat to the side before he regarded the room.</p>
+<p>"Yeah, I know we’re all feeling the effects of the celestial’s presence, but that don’t mean we need to lose our senses. Jason here’s an important member of this council, and I reckon his life is far more precious than those of the people who had already died. It’s real honorable that Jason’s willing to risk his life to save us, but he’s young and I know how youth can push you to make wrong choices. I don’t think we should accept his sacrifice just yet. We should consider other avenues before throwing one of our own towards the claws of death."</p>
+<p>Bang!</p>
+<p>"Did you just call my people worthless!? Hundreds of billions are dead, and that is all you can say!?"</p>
+<p>Kalum was on his feet immediately, and a wave of anger poured off his body! Even though Kalum was not present in the Hall of Heroes, everyone could still feel the pressure of his rage! Most of the council members were actually surprised that Val’kat had said something so classless! Even though they all knew that Jason’s life was worth more than the billions of people who had died, it was completely unnecessary for Val’kat to talk about the people of the ninth domain in such a dismissive way! But Val’kat didn’t look like he was backing down at all, and he leaned forward and spoke!</p>
+<p>"Why should I not talk about them like that? Do the billions of people who died have any worth compared to any of us here? They are nothing but mortals, and their lives will not make a difference in the grand scheme of things. Risking the life of one of our most important members to spare a few billion people is foolishness."</p>
+<p>"Are you sure that is your true intention, Val’kat? Or are you simply trying to preserve the only person who has access to the Aqualith stone you desire?"</p>
+<p>Farlow suddenly spoke up from his place beside C’thlyanu, and Val’kat turned to Farlow with a glare! Farlow had interacted with many goblins before, and Farlow was more than aware of just how greedy and cunning these bastards could be! Although Val’kat might look like a classless brute, Farlow saw right through all of that, and Farlow knew that Val’kat was actually someone who always planned every move in a way that would ensure Val’kat made as much money as possible! Val’kat would gladly allow billions of people to continue dying just so he could get his hands on some precious materials!</p>
+<p>"Do not insult me, Farlow. All them precious stones don’t have nothing to do with this matter. I just be trying to stop us from making a serious mistake. Jason, I need you to be reasonable now. I understand you believe you have the power to stop this celestial, but there’s a real possibility that this power of yours just doesn’t work. Even if we pledge our support to you, it will mean nothing if you are dead."</p>
+<p>Farlow scoffed in amusement when he heard this, and before Farlow could counter, T’arigan spoke up.</p>
+<p>"I want to believe that this is necessary, but I believe this is too dangerous as well."</p>
+<p>The dwarven leader of the tenth domain was leaning forward on his table and looking around at all the gathered Overlords, and he spoke with a serious tone:</p>
+<p>"Jason is a Primordial. One of the most powerful of the lot of us. It’s a great loss if we send ’em into the claws of death in such a way, don’t you think?"</p>
+<p>A few of the council members murmured as they saw some sense in what T’arigan was saying, and Jason simply allowed them to talk amongst themselves as he focused his attention on Hesabeth. Hesabeth was sitting in her usual place opposite him, and she was using her fan to cover her lower face as she usually did, but the look in Hesabeth’s eyes told Jason that Hesabeth was not happy at all! Hesabeth was currently looking straight at Jason with a frown on her face, and Jason could tell that she was trying very hard not to speak up so that her true feelings would not show!</p>
+<p>Hesabeth told herself when she entered this relationship with Jason that she would always support him in whatever he wanted to do! Hesabeth loved Jason, and she was willing to do anything for him! But this was one thing that Hesabeth was not in support of at all! How in the world did an idea like this even enter Jason’s head!? Jason was trying to walk into the clouds of the Celestial of Death based on nothing but a prophecy from an old woman living in a distant world!? That was absolutely insane! Hesabeth cursed the fact that she couldn’t leave Minori right now! If Hesabeth could leave her world, then she would’ve gone to Jadar and given Jason a piece of her mind!</p>
+<p>Jason knew that Gina would also be sitting somewhere close by, and Jason tuned out the argument from the council members around him as he spoke to Gina through their mental link.</p>
+<p>’Gina, are you there...?’</p>
+<p>Gina was silent for a few seconds on the other end of their mental link before Jason heard her sigh.</p>
+<p>’Yes, babe. I’m here.’</p>
+<p>’Do you know what’s going on? What do you think of all this?’</p>
+<p>There was no response from Gina, and Jason could see Hesabeth’s hologram looking back at somebody behind her, so Jason knew that she had to be looking at Gina. It took a few more seconds before Gina finally spoke.</p>
+<p>’What do you want me to say, babe? I’m not in support of this. Not at all.’</p>
+<p>’But I know it’ll work.’</p>
+<p>’How can you be so sure? This isn’t like the other beasts you’ve faced. This... this is death. You can’t fight your way out of it. If this doesn’t work, then you’ll...’</p>
+<p>Gina couldn’t even finish the sentence because she did not want to think about Jason dying at all! Just the thought of it was enough to make her feel sick!</p>

@@ -1,0 +1,37 @@
++++
+title = "Chapter 179: I Can’t Watch This!"
+weight = 179
+[extra]
+chapter = 179
++++
+
+<p>Growl~</p>
+<p>A growl came from right on top of the male Feline and he turned around sharply while drawing his knife and pointing it at Fenrir! His breath was coming out in harsh puffs and he quickly began shuffling back to try and get away from the wolf! Fenrir towered over the feline like a mountain and just the sight of the giant wolf was enough to put a primal fear into his heart as he began to shout.</p>
+<p>"Get! Get out! Get out! Leave me alone!"</p>
+<p>ROARR!</p>
+<p>Fenrir cared its teeth and charged forward with a roar!</p>
+<p>....</p>
+<p>Up on the mountain overlooking the valley, Jason stood with a blank expression on his face as he looked upon the scene in front of him with the [Predator’s Gaze]. Jason could easily see through the fog since he was the one that created it, so the sheer carnage that this Legion was causing to the Phantoms was visible to him. His system tabs were ringing over and over again with the sound of kill notifications appearing and his kill Points were rising quickly as the Phantoms dwindled in number.</p>
+<p>This was the first time that Jason would be going out of his way to eradicate an entire group of people in this way. Every time that he had killed before, it had either been because he was defending himself or because he was facing off against a Magic Beast. He had never taken the initiative to go out and kill someone for any reason. But even though Jason was new to this, he didn’t feel any guilt for his actions.</p>
+<p>From the memories that Jason received from the Phantoms that he resurrected, Jason could tell that the Phantoms were a blight upon the Primordial Expanse. They had killed more people than Jason could count and their actions had led to the enslavement, eradication, and death of innocents all over the Primordial Expanse. There was no way Jason could feel any form of guilt for people like these.</p>
+<p>"Jason, what’s going on?"</p>
+<p>Riyala spoke up from behind Jason with a confused tone. Unlike Jason and his Legion, Riyala couldn’t see through the fog, so she had no idea just how many people were being killed in there and how brutal the battle was. She had her hands folded across her chest while holding Jason’s hoodie tight to keep the cold away and there was a healthy shade of red near her cheeks from the heat her body was producing to counter the cold air of the mountain.</p>
+<p>Jason decided that he wasn’t going to beat around the bush and he simply told Riyala.</p>
+<p>"I’m killing the Phantoms. Do you want to see?"</p>
+<p>Riyala’s eyes widened when she heard what Jason said and she thought about Jason’s question for a few seconds before she slowly nodded to him. Jason spread his mana over Riyala and he tweaked the [Black Fog] skill so that she would also be able to see through the fog, and Riyala’s eyes widened in shock as she stumbled back immediately!</p>
+<p>There were dead bodies everywhere! The Phantoms were spread out across the fog and some of them were fighting back against Jason’s subordinates, but they didn’t stand a chance against monsters that were attacking from the darkness. Jason’s subordinates were tearing and dismembering all the Phantoms so one-sidedly that it was impossible to even call it a fight!</p>
+<p>"S-Stop. I don’t want to see this anymore."</p>
+<p>Riyala turned away while closing her eyes. Even though she was used to violence, this was still too much for her to stomach! Jason hummed as he took away Riyala’s ability to see through the fog and Riyala released a sigh of relief as she tried to keep her meal down. Jason started to walk down the mountain and into the fog and Riyala scrambled to catch up to him.</p>
+<p>Riyala knew about the Phantoms, and the rumors that she had heard from the teachers in her world told her that they were a ruthless band of assassins that were impossible to catch because of their ability to move through shadows, so she couldn’t believe how easily Jason was tearing through their numbers. None of the Phantoms were able to escape and Riyala could only guess that it had something to do with the Fog. Jason must’ve blocked their ability to use the shadows somehow.</p>
+<p>Riyala wanted to ask Jason more questions, but she tried to focus on getting down from the mountain first. It was a steep drop but Jason made it look easy with how quickly he was moving down. Riyala stumbled when she tried to catch up to Jason, and Jason caught her shoulder before she could fall. She looked up into his red eyes and he spoke calmly.</p>
+<p>"Be careful."</p>
+<p>Riyala felt a small blush rising on her face and she nodded in embarrassment before she finally got her footing back and continued following after Jason.</p>
+<p>Jason finally made his way to the flat ground at the bottom of the valley and he walked into the fog with Riyala following after him. The moment she entered the darkness, Riyala immediately stumbled as she cried out.</p>
+<p>"Jason? Jason!?"</p>
+<p>Riyala couldn’t see anything in front of her! Her ears were ringing with a white noise that made her feel like she was deaf and she couldn’t even feel the breeze that she had felt just a few seconds ago! She was about to really lose her cool when a hand reached out and grabbed her shoulder. Riyala turned sharply to see Jason there and she felt pure relief course through her body.</p>
+<p>"I said stay close."</p>
+<p>Jason spoke loudly, but Riyala could barely hear him. She quickly moved to stand right beside him and she followed like a kitten following their parent as he made his way deeper into the fog.</p>
+<p>As the pair walked, they came upon many gory sights. The bodies of dead Phantoms littered the region randomly. There were pools of blood and body parts all around, and Riyala felt like she would puke more than a few times. Riyala would have asked Jason to allow her to see through the fog again, but just the thought of all those dead bodies was enough to make her stop. She would rather keep following Jason than see all of that again!</p>
+<p>They arrived at a large tent in the center of the campsite and Jason called on one of the Phantoms that he had resurrected. Jason told the Phantom to move toward the tent and he activated [Eye of The King]. The Phantom walked forward and entered the tent, and there was an immediate explosion as the Phantom was pushed back out! Jason was able to see in that brief second that the leader of the Phantoms was standing at the opposite end of the tent with a large magical weapon in her hand and Jason clicked his tongue and ordered the Rook-Based Adamantine Ant Soldier, Dino, to go and apprehend her.</p>
+<p>Dino ran in with a screech and three more magical blasts suddenly rang out from inside the tent! But the adamantine Ant had extremely high defenses, so the blasts barely did any damage at all! Dino grabbed the weapon away from the leader with its mandibles before it slammed its body against her and threw her across the tent!</p>
+<p>Alpha grunted as she slammed into some of the gold chests that were arranged at one side and she glared at the Adamantine Ant as it released another loud screech! She got ready for another attack from it, but she was surprised when it didn’t move to attack her again. Instead, the ant turned away and took a few steps to the side with the weapon still in its mandibles and another figure opened the flap and walked inside.</p>

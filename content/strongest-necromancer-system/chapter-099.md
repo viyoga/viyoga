@@ -1,0 +1,35 @@
++++
+title = "Chapter 99: Take A Deep Breath (+18)"
+weight = 99
+[extra]
+chapter = 99
++++
+
+<p>Gina continued to the bathroom, and Jason quickly took off his shirt and hurried up to catch her! He grabbed her from behind and Gina yelped in shock as she was lifted off the ground and into a princess carry!</p>
+<p>"Jason! What are you doing!?"</p>
+<p>"You said we should hurry up, didn’t you? I’m just trying to make sure we’re not late."</p>
+<p>Jason spoke up with a fake serious tone that could barely hide the excitement in his heart, and Gina laughed as she wrapped her hand around his neck and planted a deep kiss on his jaw as he carried them into the bathroom.</p>
+<p>...</p>
+<p>The shower water ran down like rain and filled the bathroom with its loud echoes. Many pieces of clothes were lying outside the bathroom door, and it was obvious to anyone watching that they had been thrown about without any care at all. There was a pair of bras lying on the washing machine to the side, and boxers and panties were barely hanging on the edge of a laundry basket.</p>
+<p>Inside the bathroom, the loud sound from the shower struggled to drown out a loud moan that echoed through the room as Gina threw her head back against the wall! Gina was standing on one leg and leaning back on the bathroom wall, and in front of her, Jason was kneeling on the bathroom floor with Gina’s other leg hanging on Jason’s shoulder! And Gina could feel her entire world shaking with intensity as Jason gave her the most intense head of her life!</p>
+<p>Jason ran his tongue over Gina’s lower lips, and he felt Gina push her hip forward in a desperate attempt to get more of him inside her! Jason sank his tongue into Gina’s warm core and he began tongue fucking her while gripping her thighs tightly to hold her in place! Gina let out a cry as she grabbed Jason’s head and pushed him closer.</p>
+<p>"Yes! Yes! Please, Jason! Please!"</p>
+<p>Gina begged Jason not to stop as she felt her orgasm reaching its climax! She ran her hand over Jason’s head as she saw stars beginning to form at the edge of her vision and her body slowly began to tingle as Jason fucked her with his tongue! Jason tightened his hold on her to prevent her from moving, and Gina was shocked by just how much power Jason had in those hands! Gina wasn’t even able to move an inch since he was so strong, so there was nothing she could do when Jason took her clit in his mouth and sucked it hard!</p>
+<p>"Oh, fuuuuuck~!"</p>
+<p>Gina cried out in pure ecstasy as her orgasm hit her like a truck! She grabbed Jason by the hair and pressed him harder against her core, and Jason never stopped fucking her with his tongue as she tried to ride out the orgasm! Her mouth was open in agonizing pleasure, and she felt like she was going to die from how fast her heart was beating!</p>
+<p>It took almost a whole minute for her to finally come down from her orgasm, and once she let go of Jason’s head, Jason gave one more lick to her core before he finally released his grip from her legs! Gina immediately leaned back on the bathroom wall as heavy breaths wracked her body! She fell to her ass while trying to get her heart back under control and she watched as Jason stood up while running a hand over his wet hair.</p>
+<p>Jason was standing right in front of her, so his erection was right in her face, and Gina swallowed desperately as she was reminded just how big her boyfriend was! Gina had been terrified to even touch Jason’s member the first time they did it, but that was no longer the case anymore. This time, Gina only hesitated for a few seconds before she went to her hands and knees and crawled towards Jason.</p>
+<p>Jason watched Gina’s thin waist and big ass with a heated gaze as she crawled forward to meet him, and when Gina looked up at him and saw the intense eyes and stoic expression on his face, she felt her core tremble in masochistic pleasure! Gina didn’t think she was a masochist and she never tried to find out before, but at that moment, she couldn’t deny the effects that the look in Jason’s eyes was having on her!</p>
+<p>Gina put her hand on Jason’s thigh and slowly rose to her knee, and she swallowed again as Jason’s member stood right in front of her. Jason put his hands on Gina’s head and Gina looked up at him with slightly lidded eyes before she began moving her mouth to his member. Her tiny pink tongue darted out and took a small lick, and Jason released a grunt that put a smile on Gina’s face! Gina used a hand to raise Jason’s member before taking another longer lick along the bottom, and Jason felt himself getting even harder as he watched her!</p>
+<p>His member was sitting on Gina’s nose, and she was looking at him from under it while her tongue took one of his balls and sucked on it gently. Jason put a hand on the wall behind Gina while the other one petted her head gently. He was trying his best not to lose control and fuck her mouth immediately, and it was extremely hard! Gina’s actions were far too sensual, and Jason’s erection was becoming almost painful!</p>
+<p>Jason hissed as Gina released his ball with a pop before she traced her way back up his member with her tongue. Gina reached the top once more and she kissed the tip with her full red lips before she began to slowly open her mouth and take him in inch by bloody inch.</p>
+<p>Jason felt his control breaking with each movement that Gina did and he grit his teeth when he felt his tip hit the back of her throat! Gina pulled back and Jason felt her begin to move!</p>
+<p>Slurp! Slurp! Slurp! Slurp!</p>
+<p>Jason’s eyes were closed and he simply enjoyed the feeling of Gina sucking him off with all the skill she had. Gina wrapped one hand around the base of Jason’s member since she couldn’t take him in completely and slowly wanked him off while rolling her tongue around his tip. She sucked the head hard while moving her hand faster to try and get Jason to climax and Jason grunted as she suddenly began to speed up!</p>
+<p>Slurp! Slurp! Slurp!</p>
+<p>Gina was nowhere near a professional since she had only started doing this the previous day, but Jason couldn’t deny that she was amazing! She was trying hard to make sure that her teeth didn’t scratch him, her mouth was warm, and she was even using her tongue to lick the tip of his member every time she moved! Jason could already feel his orgasm reaching its peak!</p>
+<p>Gina put her hand on Jason’s thigh as she tried to take him even deeper inside her, but it was hard for her since she wasn’t used to it.</p>
+<p>"Take a deep breath."</p>
+<p>Jason spoke up with a rough, commanding voice that made Gina look up at him in surprise! And when Gina saw the intense fire burning in his eyes, she knew that obedience was the only option here! Gina immediately took in a deep breath and she felt her entire body shake as Jason began to push her head forward!</p>
+<p>"Grk! Urk!"</p>
+<p>Gina closed her eyes tight as she tried her best to bear the sudden move and she felt her throat expanding to fully accept Jason’s member as he continued to push deeper inside her!</p>
